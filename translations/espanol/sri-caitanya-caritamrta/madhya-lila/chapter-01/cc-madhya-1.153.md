@@ -1,9 +1,9 @@
 ### CC Madhya 1.153
 
-> কুলিয়া-গ্রামে কৈল দেবানন্দেরে প্রসাদ ।
+> কুলিয়া-গ্রামে কৈল দেবানন্দেরে প্রসাদ ।\
 > গোপাল-বিপ্রেরে ক্ষমাইল শ্রীবাসাপরাধ ॥১৫৩॥
 
-> kuliyā-grāme kaila devānandere prasāda
+> kuliyā-grāme kaila devānandere prasāda\
 > gopāla-viprere kṣamāila śrīvāsāparādha
 
 *kuliyā-grāme*—en la aldea conocida como Kuliyā-grāma; *kaila*—mostró; *devānandere prasāda*—misericordia a Devānanda Paṇḍita; *gopāla-viprere*—y al brāhmaṇa conocido como Gopāla Cāpala; *kṣamāila*—perdonó; *śrīvāsa-aparādha*—la ofensa a los pies de loto de Śrīvāsa Ṭhākura.

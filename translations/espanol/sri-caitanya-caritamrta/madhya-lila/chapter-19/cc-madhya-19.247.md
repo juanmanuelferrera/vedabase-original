@@ -1,9 +1,9 @@
 ### CC Madhya 19.247
 
-> তপনমিশ্র শুনি’ আসি’ প্রভুরে মিলিলা ।
+> তপনমিশ্র শুনি’ আসি’ প্রভুরে মিলিলা ।\
 > ইষ্টগোষ্ঠী করি’ প্রভুর নিমন্ত্রণ কৈলা ॥২৪৭॥
 
-> tapana-miśra śuni' āsi' prabhure mililā
+> tapana-miśra śuni' āsi' prabhure mililā\
 > iṣṭa-goṣṭhī kari' prabhura nimantraṇa kailā
 
 *tapana-miśra*—Tapana Miśra; *śuni'*—al oír; *āsi'*—viniendo; *prabhure mililā*—se encontró con el Señor; *iṣṭa-goṣṭhī kari'*—conversando; *prabhura*—al Señor Śrī Caitanya Mahāprabhu; *nimantraṇa*—invitación; *kailā*—hizo.

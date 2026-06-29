@@ -1,9 +1,9 @@
 ### CC Madhya 5.155
 
-> মুকুন্দ দত্ত কহে, — প্রভু, তুমি যাহ আগে ।
+> মুকুন্দ দত্ত কহে, — প্রভু, তুমি যাহ আগে ।\
 > আমি-সব পাছে যাব, না যাব তোমার সঙ্গে ॥১৫৫॥
 
-> mukunda datta kahe,--prabhu, tumi yāha āge
+> mukunda datta kahe,--prabhu, tumi yāha āge\
 > āmi-saba pāche yāba, nā yāba tomāra saṅge
 
 *mukunda datta kahe*—el devoto llamado Mukunda Datta dijo; *prabhu*—mi Señor; *tumi*—Tú; *yāha*—ve; *āge*—al frente; *āmi-saba*—todos nosotros; *pāche*—detrás; *yāba*—iremos; *nā*—no; *yāba*—iremos; *tomāra saṅge*—contigo.

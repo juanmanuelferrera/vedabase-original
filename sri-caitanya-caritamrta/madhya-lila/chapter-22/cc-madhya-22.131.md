@@ -1,11 +1,11 @@
 ### CC Madhya 22.131
 
-> শ্রীমদ্ভাগবতার্থানামাস্বাদো রসিকৈঃ সহ ।
+> শ্রীমদ্ভাগবতার্থানামাস্বাদো রসিকৈঃ সহ ।\
 > সজাতীয়াশয়ে স্নিগ্ধে সাধৌ সঙ্গঃ স্বতো বরে ॥১৩১॥
 
-> śrīmad-bhāgavatārthānām
-> āsvādo rasikaiḥ saha
-> sajātīyāśaye snigdhe
+> śrīmad-bhāgavatārthānām\
+> āsvādo rasikaiḥ saha\
+> sajātīyāśaye snigdhe\
 > sādhau saṅgaḥ svato vare
 
 *śrīmad-bhāgavata*—of *Śrīmad-Bhāgavatam*; *arthānām*—of the meanings; *āsvādaḥ*—enjoying the taste; *rasikaiḥ saha*—with the devotees; *sa-jātīya*—similar; *āśaye*—endowed with a desire; *snigdhe*—advanced in devotional affection; *sādhau*—with a devotee; *saṅgaḥ*—association; *svataḥ*—for one's self; *vare*—better.

@@ -1,9 +1,9 @@
 ### CC Madhya 18.86
 
-> রাজপুত-জাতি মুঞি, ও-পারে মোর ঘর ।
+> রাজপুত-জাতি মুঞি, ও-পারে মোর ঘর ।\
 > মোর ইচ্ছা হয় — ‘হঙ বৈষ্ণব-কিঙ্কর’ ॥৮৬॥
 
-> rājaputa-jāti muñi, o-pāre mora ghara
+> rājaputa-jāti muñi, o-pāre mora ghara\
 > mora icchā haya--'haṅa vaiṣṇava-kiṅkara'
 
 *rājaputa-jāti*—pertenezco a la casta rājaputa; *muñi*—yo; *o-pāre*—al otro lado del Yamunā; *mora ghara*—mi residencia; *mora icchā haya*—deseo; *haṅa*—ser; *vaiṣṇava-kiṅkara*—sirviente de un vaiṣṇava.

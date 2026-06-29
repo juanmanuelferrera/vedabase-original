@@ -1,11 +1,11 @@
 ### SB 7.3.3
 
-> जटादीधितिभी रेजे संवर्तार्क इवांशुभिः
+> जटादीधितिभी रेजे संवर्तार्क इवांशुभिः\
 > तस्मिंस्तपस्तप्यमाने देवाः स्थानानि भेजिरे ॥३॥
 
-> jaṭā-dīdhitibhī reje
-> saṁvartārka ivāṁśubhiḥ
-> tasmiṁs tapas tapyamāne
+> jaṭā-dīdhitibhī reje\
+> saṁvartārka ivāṁśubhiḥ\
+> tasmiṁs tapas tapyamāne\
 > devāḥ sthānāni bhejire
 
 *jaṭā-dīdhitibhiḥ*—by the effulgence of the hair on his head; *reje*—was shining; *saṁvarta-arkaḥ*—the sun at the time of destruction; *iva*—like; *aṁśubhiḥ*—by the beams; *tasmin*—when he (Hiraṇyakaśipu); *tapaḥ*—austerities; *tapyamāne*—was engaged in; *devāḥ*—all the demigods who were wandering throughout the universe to see Hiraṇyakaśipu's demoniac activities; *sthānāni*—to their own places; *bhejire*—returned.

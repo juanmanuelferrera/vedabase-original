@@ -1,9 +1,9 @@
 ### CC Antya 11.22
 
-> নমস্কার করি’ তেঁহো কৈলা নিবেদন ।
+> নমস্কার করি’ তেঁহো কৈলা নিবেদন ।\
 > শরীর সুস্থ হয় মোর, অসুস্থ বুদ্ধি-মন ॥২২॥
 
-> namaskāra kari' teṅho kailā nivedana
+> namaskāra kari' teṅho kailā nivedana\
 > śarīra sustha haya mora, asustha buddhi-mana
 
 *namaskāra kari'*—after offering obeisances; *teṅho*—he, Haridāsa Ṭhākura; *kailā nivedana*—submitted; *śarīra*—body; *su-stha*—all right; *haya*—is; *mora*—my; *asustha*—not in a healthy condition; *buddhi-mana*—my mind and intelligence.

@@ -1,9 +1,9 @@
 ### CC Antya 3.122
 
-> তুলসীরে তাঁকে বেশ্যা নমস্কার করি’ ।
+> তুলসীরে তাঁকে বেশ্যা নমস্কার করি’ ।\
 > দ্বারে বসি’ নাম শুনে বলে ‘হরি’ ‘হরি’ ॥১২২॥
 
-> tulasīre tāṅke veśyā namaskāra kari'
+> tulasīre tāṅke veśyā namaskāra kari'\
 > dvāre vasi' nāma śune bale 'hari' 'hari'
 
 *tulasīre*—a la planta de tulasī; *tāṅke*—a Haridāsa Ṭhākura; *veśyā*—la prostituta; *namaskāra kari'*—ofreciendo reverencias; *dvāre vasi'*—sentada a la puerta; *nāma*—el santo nombre; *śune*—escucha; *bale*—dice; *hari hari*—¡oh, mi Señor Hari!, ¡oh, mi Señor Hari!.

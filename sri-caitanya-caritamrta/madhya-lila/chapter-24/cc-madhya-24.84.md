@@ -1,9 +1,9 @@
 ### CC Madhya 24.84
 
-> রাগভক্তি, বিধিভক্তি হয় দুইরূপ ।
+> রাগভক্তি, বিধিভক্তি হয় দুইরূপ ।\
 > ‘স্বয়ং-ভগবত্ত্বে’, ভগবত্ত্বে — প্রকাশ দ্বিরূপ ॥৮৪॥
 
-> rāga-bhakti-vidhi-bhakti haya dui-rūpa
+> rāga-bhakti-vidhi-bhakti haya dui-rūpa\
 > 'svayaṁ-bhagavattve', bhagavattve—prakāśa dvi-rūpa
 
 *rāga-bhakti*—spontaneous devotional service; *vidhi-bhakti*—regulative devotional service; *haya*—are; *dui-rūpa*—the two kinds of devotional service; *svayam-bhagavattve*—in the Supreme Personality of Godhead; *bhagavattve*—and in His personal expansion; *prakāśa dvi-rūpa*—the two kinds of manifestation.

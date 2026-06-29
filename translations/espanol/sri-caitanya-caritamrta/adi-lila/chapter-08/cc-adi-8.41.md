@@ -1,9 +1,9 @@
 ### CC Adi 8.41
 
-> নারায়ণী — চৈতন্যের উচ্ছিষ্ট-ভাজন ।
+> নারায়ণী — চৈতন্যের উচ্ছিষ্ট-ভাজন ।\
 > তাঁর গর্ভে জন্মিলা শ্রীদাস-বৃন্দাবন ॥৪১॥
 
-> nārāyaṇī--caitanyera ucchiṣṭa-bhājana
+> nārāyaṇī--caitanyera ucchiṣṭa-bhājana\
 > tāṅra garbhe janmilā śrī-dāsa-vṛndāvana
 
 *nārāyaṇī*—de nombre Nārāyaṇī; *caitanyera*—del Señor Caitanya Mahāprabhu; *ucchiṣṭa-bhājana*—la que comía los restos de Su comida; *tāṅra*—de ella; *garbhe*—en el vientre; *janmilā*—nació; *śrī-dāsa-vṛndāvana*—Śrīla Vṛndāvana dāsa Ṭhākura.

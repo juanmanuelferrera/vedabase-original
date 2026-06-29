@@ -1,9 +1,9 @@
 ### CC Madhya 15.71
 
-> বাটিতে কত শত বৃক্ষে লক্ষ লক্ষ ফল  ।
+> বাটিতে কত শত বৃক্ষে লক্ষ লক্ষ ফল  ।\
 > তথাপি শুনেন যথা মিষ্ট নারিকেল ॥৭১॥
 
-> vāṭite kata śata vṛkṣe lakṣa lakṣa phala
+> vāṭite kata śata vṛkṣe lakṣa lakṣa phala\
 > tathāpi śunena yathā miṣṭa nārikela
 
 *vāṭite*—in his garden; *kata śata*—how many hundreds of; *vṛkṣe*—trees; *lakṣa lakṣa phala*—millions of fruits; *tathāpi*—still; *śunena*—hears; *yathā*—where; *miṣṭa nārikela*—sweet coconut.

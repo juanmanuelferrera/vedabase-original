@@ -1,11 +1,11 @@
 ### SB 6.17.32
 
-> नाहं विरिञ्चो न कुमारनारदौ न ब्रह्मपुत्रा मुनयः सुरेशाः
+> नाहं विरिञ्चो न कुमारनारदौ न ब्रह्मपुत्रा मुनयः सुरेशाः\
 > विदाम यस्येहितमंशकांशका न तत्स्वरूपं पृथगीशमानिनः ॥३२॥
 
-> nāhaṁ viriñco na kumāra-nāradau
-> na brahma-putrā munayaḥ sureśāḥ
-> vidāma yasyehitam aṁśakāṁśakā
+> nāhaṁ viriñco na kumāra-nāradau\
+> na brahma-putrā munayaḥ sureśāḥ\
+> vidāma yasyehitam aṁśakāṁśakā\
 > na tat-svarūpaṁ pṛthag-īśa-māninaḥ
 
 *na*—no; *aham*—yo (el Señor Śiva); *viriñcaḥ*—el Señor Brahmā; *na*—ni; *kumāra*—los Aśvinī-kumāras, *nāradau*—el gran santo Nārada; *na*—ni; *brahma-putrāḥ*—los hijos del Señor Brahmā; *munayaḥ*—grandes personas santas; *sura-īśāḥ*—todos los grandes semidioses; *vidāma*—conocen; *yasya*—de quien; *īhitam*—actividad; *aṁśaka-aṁśakāḥ*—aquellos que son partes de las partes; *na*—no; *īśa*—gobernantes; *māninaḥ*—que nos consideramos.

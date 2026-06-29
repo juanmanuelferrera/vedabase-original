@@ -1,9 +1,9 @@
 ### CC Antya 6.197
 
-> তোমার বাপ-জ্যেঠা — বিষয়বিষ্ঠা-গর্তের কীড়া ।
+> তোমার বাপ-জ্যেঠা — বিষয়বিষ্ঠা-গর্তের কীড়া ।\
 > সুখ করি’ মানে বিষয়-বিষের মহাপীড়া ॥১৯৭॥
 
-> tomāra bāpa-jyeṭhā—viṣaya-viṣṭhā-gartera kīḍā
+> tomāra bāpa-jyeṭhā—viṣaya-viṣṭhā-gartera kīḍā\
 > sukha kari' māne viṣaya-viṣera mahā-pīḍā
 
 *tomāra*—your; *bāpa*—father; *jyeṭhā*—his elder brother; *viṣaya*—of material enjoyment; *viṣṭhā*—stool; *gartera*—of the ditch; *kīḍā*—worms; *sukha kari'*—as happiness; *māne*—they consider; *viṣaya*—of material enjoyment; *viṣera*—of the poison; *mahā-pīḍā*—the great disease.

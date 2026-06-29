@@ -1,14 +1,14 @@
 ### SB 8.16.39
 
-> अर्चित्वा गन्धमाल्याद्यैः पयसा स्नपयेद्विभुम
-> वस्त्रोपवीताभरण पाद्योपस्पर्शनैस्ततः
+> अर्चित्वा गन्धमाल्याद्यैः पयसा स्नपयेद्विभुम\
+> वस्त्रोपवीताभरण पाद्योपस्पर्शनैस्ततः\
 > गन्धधूपादिभिश्चार्चेद्द्वादशाक्षरविद्यया ॥३९॥
 
-> arcitvā gandha-mālyādyaiḥ
-> payasā snapayed vibhum
-> vastropavītābharaṇa-
-> pādyopasparśanais tataḥ
-> gandha-dhūpādibhiś cārced
+> arcitvā gandha-mālyādyaiḥ\
+> payasā snapayed vibhum\
+> vastropavītābharaṇa-\
+> pādyopasparśanais tataḥ\
+> gandha-dhūpādibhiś cārced\
 > dvādaśākṣara-vidyayā
 
 *arcitvā*—worshiping in this way; *gandha-mālya-ādyaiḥ*—with incense, flower garlands, etc.; *payasā*—with milk; *snapayet*—should bathe; *vibhum*—the Lord; *vastra*—dress; *upavīta*—sacred thread; *ābharaṇa*—ornaments; *pādya*—water for washing the lotus feet; *upasparśanaiḥ*—touching; *tataḥ*—thereafter; *gandha*—fragrance; *dhūpa*—incense; *ādibhiḥ*—with all of these; *ca*—and; *arcet*—should worship; *dvādaśa-akṣara-vidyayā*—with the *mantra* of twelve syllables.

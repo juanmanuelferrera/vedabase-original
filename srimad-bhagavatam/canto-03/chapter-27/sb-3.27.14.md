@@ -1,11 +1,11 @@
 ### SB 3.27.14
 
-> भूतसूक्ष्मेन्द्रियमनो बुद्ध्यादिष्विह निद्रया ।
+> भूतसूक्ष्मेन्द्रियमनो बुद्ध्यादिष्विह निद्रया ।\
 > लीनेष्वसति यस्तत्र विनिद्रो निरहङ्क्रियः ॥१४॥
 
-> bhūta-sūkṣmendriya-mano-
-> buddhy-ādiṣv iha nidrayā
-> līneṣv asati yas tatra
+> bhūta-sūkṣmendriya-mano-\
+> buddhy-ādiṣv iha nidrayā\
+> līneṣv asati yas tatra\
 > vinidro nirahaṅkriyaḥ
 
 *bhūta*—the material elements; *sūkṣma*—the objects of enjoyment; *indriya*—the material senses; *manaḥ*—mind; *buddhi*—intelligence; *ādiṣu*—and so on; *iha*—here; *nidrayā*—by sleep; *līneṣu*—merged; *asati*—in the unmanifest; *yaḥ*—who; *tatra*—there; *vinidraḥ*—awake; *nirahaṅkriyaḥ*—freed from false ego.

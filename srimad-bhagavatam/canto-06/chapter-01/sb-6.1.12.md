@@ -1,11 +1,11 @@
 ### SB 6.1.12
 
-> नाश्नतः पथ्यमेवान्नं व्याधयोऽभिभवन्ति हि
+> नाश्नतः पथ्यमेवान्नं व्याधयोऽभिभवन्ति हि\
 > एवं नियमकृद्राजन्शनैः क्षेमाय कल्पते ॥१२॥
 
-> nāśnataḥ pathyam evānnaṁ
-> vyādhayo 'bhibhavanti hi
-> evaṁ niyamakṛd rājan
+> nāśnataḥ pathyam evānnaṁ\
+> vyādhayo 'bhibhavanti hi\
+> evaṁ niyamakṛd rājan\
 > śanaiḥ kṣemāya kalpate
 
 *na*—not; *aśnataḥ*—those who eat; *pathyam*—suitable; *eva*—indeed; *annam*—food; *vyādhayaḥ*—different types of disease; *abhibhavanti*—overcome; *hi*—indeed; *evam*—similarly; *niyama-kṛt*—one following regulative principles; *rājan*—O King; *śanaiḥ*—gradually; *kṣemāya*—for well-being; *kalpate*—becomes fit.

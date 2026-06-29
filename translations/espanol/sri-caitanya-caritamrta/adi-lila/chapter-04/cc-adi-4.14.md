@@ -1,9 +1,9 @@
 ### CC Adi 4.14
 
-> আনুসঙ্গ-কর্ম এই অসুর-মারণ ।
+> আনুসঙ্গ-কর্ম এই অসুর-মারণ ।\
 > যে লাগি’ অবতার, কহি সে মূল কারণ ॥১৪॥
 
-> ānuṣaṅga-karma ei asura-māraṇa
+> ānuṣaṅga-karma ei asura-māraṇa\
 > ye lāgi' avatāra, kahi se mūla kāraṇa
 
 *ānuṣaṅga-karma*—actividad secundaria; *ei*—esta; *asura*—de los demonios; *māraṇa*—matanza; *ye*—aquello; *lāgi'*—por lo que; *avatāra*—la encarnación; *kahi*—hablaré; *se*—la; *mūla*—raíz; *kāraṇa*—causa.

@@ -1,11 +1,11 @@
 ### SB 8.11.12
 
-> प्राहरत्कुलिशं तस्मा अमोघं परमर्दनः
+> प्राहरत्कुलिशं तस्मा अमोघं परमर्दनः\
 > सयानो न्यपतद्भूमौ छिन्नपक्ष इवाचलः ॥१२॥
 
-> prāharat kuliśaṁ tasmā
-> amoghaṁ para-mardanaḥ
-> sayāno nyapatad bhūmau
+> prāharat kuliśaṁ tasmā\
+> amoghaṁ para-mardanaḥ\
+> sayāno nyapatad bhūmau\
 > chinna-pakṣa ivācalaḥ
 
 *prāharat*—inflicted; *kuliśam*—thunderbolt scepter; *tasmai*—unto him (Bali Mahārāja); *amogham*—infallible; *para-mardanaḥ*—Indra, who is expert in defeating the enemy; *sa-yānaḥ*—with his airplane; *nyapatat*—fell down; *bhūmau*—on the ground; *chinna-pakṣaḥ*—whose wings have been taken away; *iva*—like; *acalaḥ*—a mountain.

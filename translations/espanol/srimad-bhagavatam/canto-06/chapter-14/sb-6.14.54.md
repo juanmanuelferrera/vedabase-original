@@ -1,11 +1,11 @@
 ### SB 6.14.54
 
-> अहो विधातस्त्वमतीव बालिशो यस्त्वात्मसृष्ट्यप्रतिरूपमीहसे
+> अहो विधातस्त्वमतीव बालिशो यस्त्वात्मसृष्ट्यप्रतिरूपमीहसे\
 > परे नु जीवत्यपरस्य या मृतिर्विपर्ययश्चेत्त्वमसि ध्रुवः परः ॥५४॥
 
-> aho vidhātas tvam atīva bāliśo
-> yas tv ātma-sṛṣṭy-apratirūpam īhase
-> pare nu jīvaty aparasya yā mṛtir
+> aho vidhātas tvam atīva bāliśo\
+> yas tv ātma-sṛṣṭy-apratirūpam īhase\
+> pare nu jīvaty aparasya yā mṛtir\
 > viparyayaś cet tvam asi dhruvaḥ paraḥ
 
 *aho*—¡ay! (expresión de intensa lamentación); *vidhātaḥ*—¡oh, Providencia!; *tvam*—Tú; *atīva*—mucho; *bāliśaḥ*—inexperta; *yaḥ*—quien; *tu*—en verdad; *ātma-sṛṣṭi*—de Tu propia creación; *apratirūpam*—todo lo contrario; *īhase*—estás realizando y deseando; *pare*—mientras el padre o persona mayor; *nu*—en verdad; *jīvati*—vive; *aparasya*—del que nació después; *yā*—cuya; *mṛtiḥ*—muerte; *viparyayaḥ*—contradictoria; *cet*—si; *tvam*—Tú; *asi*—eres; *dhruvaḥ*—en verdad; *paraḥ*—un enemigo.

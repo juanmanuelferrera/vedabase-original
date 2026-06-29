@@ -1,11 +1,11 @@
 ### SB 8.1.16
 
-> तमीहमानं निरहङ्कृतं बुधं निराशिषं पूर्णमनन्यचोदितम
+> तमीहमानं निरहङ्कृतं बुधं निराशिषं पूर्णमनन्यचोदितम\
 > नॄन्शिक्षयन्तं निजवर्त्मसंस्थितं प्रभुं प्रपद्येऽखिलधर्मभावनम ॥१६॥
 
-> tam īhamānaṁ nirahaṅkṛtaṁ budhaṁ
-> nirāśiṣaṁ pūrṇam ananya-coditam
-> nṝñ śikṣayantaṁ nija-vartma-saṁsthitaṁ
+> tam īhamānaṁ nirahaṅkṛtaṁ budhaṁ\
+> nirāśiṣaṁ pūrṇam ananya-coditam\
+> nṝñ śikṣayantaṁ nija-vartma-saṁsthitaṁ\
 > prabhuṁ prapadye 'khila-dharma-bhāvanam
 
 *tam*—unto the same Supreme Personality of Godhead; *īhamānam*—who is acting for our benefit; *nirahaṅkṛtam*—who is without entanglement or desire for gain; *budham*—who is completely in knowledge; *nirāśiṣam*—without desires to enjoy the fruits of His activities; *pūrṇam*—who is full and therefore has no need to fulfill desires; *ananya*—by others; *coditam*—induced or inspired; *nṝn*—all of human society; *śikṣayantam*—to teach (the real path of life); *nija-vartma*—His own personal way of life; *saṁsthitam*—to establish (without deviation); *prabhum*—unto the Supreme Lord; *prapadye*—I request everyone to surrender; *akhila-dharma-bhāvanam*—who is the master of all religious principles or the occupational duties for a human being.

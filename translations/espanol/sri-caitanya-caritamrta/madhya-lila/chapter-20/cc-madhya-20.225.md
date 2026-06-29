@@ -1,9 +1,9 @@
 ### CC Madhya 20.225
 
-> প্ৰদ্যুম্ন — চক্রশঙ্খগদাপদ্মধর ।
+> প্ৰদ্যুম্ন — চক্রশঙ্খগদাপদ্মধর ।\
 > অনিরুদ্ধ — চক্রগদাশঙ্খপদ্মকর ॥২২৫॥
 
-> pradyumna--cakra-śaṅkha-gadā-padma-dhara
+> pradyumna--cakra-śaṅkha-gadā-padma-dhara\
 > aniruddha--cakra-gadā-śaṅkha-padma-kara
 
 *pradyumna*—el Señor Pradyumna; *cakra*—disco; *śaṅkha*—caracola; *gadā*—maza; *padma*—loto; *dhara*—que sostiene; *aniruddha*—el Señor Aniruddha; *cakra*—disco; *gadā*—maza; *śaṅkha*—caracola; *padma-kara*—flor de loto en la mano.

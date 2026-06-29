@@ -1,11 +1,11 @@
 ### SB 3.23.50
 
-> लिखन्त्यधोमुखी भूमिं पदा नखमणिश्रिया ।
+> लिखन्त्यधोमुखी भूमिं पदा नखमणिश्रिया ।\
 > उवाच ललितां वाचं निरुध्याश्रुकलां शनैः ॥५०॥
 
-> likhanty adho-mukhī bhūmiṁ
-> padā nakha-maṇi-śriyā
-> uvāca lalitāṁ vācaṁ
+> likhanty adho-mukhī bhūmiṁ\
+> padā nakha-maṇi-śriyā\
+> uvāca lalitāṁ vācaṁ\
 > nirudhyāśru-kalāṁ śanaiḥ
 
 *likhantī*—arañando; *adhaḥ-mukhī*—la cabeza gacha; *bhūmim*—el suelo; *padā*—con su pie; *nakha*—uñas; *maṇi*—como joyas; *śriyā*—con radiantes; *uvāca*—habló; *lalitām*—encantadoras; *vācam*—entonaciones; *nirudhya*—conteniendo; *aśru-kalām*—lágrimas; *śanaiḥ*—lentamente.

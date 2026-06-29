@@ -1,9 +1,9 @@
 ### CC Madhya 12.206
 
-> মহাপ্রভু সুখে লঞা সব ভক্তগণ ।
+> মহাপ্রভু সুখে লঞা সব ভক্তগণ ।\
 > জগন্নাথ-দরশনে করিলা গমন ॥২০৬॥
 
-> mahāprabhu sukhe lañā saba bhakta-gaṇa
+> mahāprabhu sukhe lañā saba bhakta-gaṇa\
 > jagannātha-daraśane karilā gamana
 
 *mahāprabhu*—Śrī Caitanya Mahāprabhu; *sukhe*—in great happiness; *lañā*—taking; *saba*—all; *bhakta-gaṇa*—devotees; *jagannātha-daraśane*—for visiting Lord Jagannātha; *karilā gamana*—went.

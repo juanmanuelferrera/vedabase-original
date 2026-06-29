@@ -1,9 +1,9 @@
 ### CC Madhya 6.252
 
-> দুই শ্লোক বাহির-ভিতে লিখিয়া রাখিল ।
+> দুই শ্লোক বাহির-ভিতে লিখিয়া রাখিল ।\
 > তবে জগদানন্দ পত্রী প্রভুকে লঞা দিল ॥২৫২॥
 
-> dui śloka bāhira-bhite likhiyā rākhila
+> dui śloka bāhira-bhite likhiyā rākhila\
 > tabe jagadānanda patrī prabhuke lañā dila
 
 *dui*—dos; *śloka*—versos; *bāhira*—afuera; *bhite*—en la pared; *likhiyā*—escribiendo; *rākhila*—los conservó; *tabe*—después; *jagadānanda*—Jagadānanda Prabhu; *patrī*—la hoja de palmera; *prabhuke*—al Señor; *lañā*—tomando; *dila*—la entregó.

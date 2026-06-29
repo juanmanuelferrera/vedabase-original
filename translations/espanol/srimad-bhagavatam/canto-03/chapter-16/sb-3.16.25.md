@@ -1,13 +1,13 @@
 ### SB 3.16.25
 
-> यं वानयोर्दममधीश भवान्विधत्ते
-> वृत्तिं नु वा तदनुमन्महि निर्व्यलीकम् ।
-> अस्मासु वा य उचितो ध्रियतां स दण्डो
+> यं वानयोर्दममधीश भवान्विधत्ते\
+> वृत्तिं नु वा तदनुमन्महि निर्व्यलीकम् ।\
+> अस्मासु वा य उचितो ध्रियतां स दण्डो\
 > येऽनागसौ वयमयुङ्क्ष्महि किल्बिषेण ॥२५॥
 
-> yaṁ vānayor damam adhīśa bhavān vidhatte
-> vṛttiṁ nu vā tad anumanmahi nirvyalīkam
-> asmāsu vā ya ucito dhriyatāṁ sa daṇḍo
+> yaṁ vānayor damam adhīśa bhavān vidhatte\
+> vṛttiṁ nu vā tad anumanmahi nirvyalīkam\
+> asmāsu vā ya ucito dhriyatāṁ sa daṇḍo\
 > ye 'nāgasau vayam ayuṅkṣmahi kilbiṣeṇa
 
 *yam*—el cual; *vā*—o; *anayoḥ*—de ambos; *damam*—castigo; *adhīśa*—¡oh, Señor!; *bhavān*—Tu Señoría; *vidhatte*—impone; *vṛttim*—existencia mejor; *nu*—ciertamente; *vā*—o; *tat*—esto; *anumanmahi*—aceptamos; *nirvyalīkam*—sin duplicidad; *asmāsu*—a nosotros; *vā*—o; *yaḥ*—cualquier; *ucitaḥ*—es adecuado; *dhriyatām*—que se imponga; *saḥ*—este; *daṇḍaḥ*—castigo; *ye*—quien; *anāgasau*—libre de pecado; *vayam*—nosotros; *ayuṅkṣmahi*—permitido; *kilbiṣeṇa*—con una maldición.

@@ -1,11 +1,11 @@
 ### SB 4.9.44
 
-> अथाजिघ्रन्मुहुर्मूर्ध्नि शीतैर्नयनवारिभिः ।
+> अथाजिघ्रन्मुहुर्मूर्ध्नि शीतैर्नयनवारिभिः ।\
 > स्नापयामास तनयं जातोद्दाममनोरथः ॥४४॥
 
-> athājighran muhur mūrdhni
-> śītair nayana-vāribhiḥ
-> snāpayām āsa tanayaṁ
+> athājighran muhur mūrdhni\
+> śītair nayana-vāribhiḥ\
+> snāpayām āsa tanayaṁ\
 > jātoddāma-manorathaḥ
 
 *atha*—thereupon; *ājighran*—smelling; *muhuḥ*—again and again; *mūrdhni*—on the head; *śītaiḥ*—cold; *nayana*—of his eyes; *vāribhiḥ*—with the water; *snāpayām āsa*—he bathed; *tanayam*—son; *jāta*—fulfilled; *uddāma*—great; *manaḥ-rathaḥ*—his desire.

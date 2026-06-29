@@ -1,11 +1,11 @@
 ### SB 7.14.9
 
-> मृगोष्ट्रखरमर्काखु सरीसृप्खगमक्षिकाः
+> मृगोष्ट्रखरमर्काखु सरीसृप्खगमक्षिकाः\
 > आत्मनः पुत्रवत्पश्येत्तैरेषामन्तरं कियत ॥९॥
 
-> mṛgoṣṭra-khara-markākhu-
-> sarīsṛp khaga-makṣikāḥ
-> ātmanaḥ putravat paśyet
+> mṛgoṣṭra-khara-markākhu-\
+> sarīsṛp khaga-makṣikāḥ\
+> ātmanaḥ putravat paśyet\
 > tair eṣām antaraṁ kiyat
 
 *mṛga*—deer; *uṣṭra*—camels; *khara*—asses; *marka*—monkeys; *ākhu*—mice; *sarīsṛp*—snakes; *khaga*—birds; *makṣikāḥ*—flies; *ātmanaḥ*—of one's self; *putra-vat*—like the sons; *paśyet*—one should see; *taiḥ*—with those sons; *eṣām*—of these animals; *antaram*—difference; *kiyat*—how little.

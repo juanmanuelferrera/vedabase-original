@@ -1,9 +1,9 @@
 ### CC Adi 10.16
 
-> তাঁর শিষ্য-উপশিষ্য, — তাঁর উপশাখা ।
+> তাঁর শিষ্য-উপশিষ্য, — তাঁর উপশাখা ।\
 > এইমত সব শাখা-উপশাখার লেখা ॥১৬॥
 
-> tāṅra śiṣya-upaśiṣya,—tāṅra upaśākhā
+> tāṅra śiṣya-upaśiṣya,—tāṅra upaśākhā\
 > eimata saba śākhā-upaśākhāra lekhā
 
 *tāṅra*—his; *śiṣya*—disciples; *upaśiṣya*—granddisciples and admirers; *tāṅra*—his; *upaśākhā*—subbranches; *eimata*—in this way; *saba*—all; *śākhā*—branches; *upaśākhāra*—subbranches; *lekhā*—to describe by writing.

@@ -1,11 +1,11 @@
 ### SB 7.15.37
 
-> यैः स्वदेहः स्मृतोऽनात्मा मर्त्यो विट्कृमिभस्मवत
+> यैः स्वदेहः स्मृतोऽनात्मा मर्त्यो विट्कृमिभस्मवत\
 > त एनमात्मसात्कृत्वा श्लाघयन्ति ह्यसत्तमाः ॥३७॥
 
-> yaiḥ sva-dehaḥ smṛto 'nātmā
-> martyo viṭ-kṛmi-bhasmavat
-> ta enam ātmasāt kṛtvā
+> yaiḥ sva-dehaḥ smṛto 'nātmā\
+> martyo viṭ-kṛmi-bhasmavat\
+> ta enam ātmasāt kṛtvā\
 > ślāghayanti hy asattamāḥ
 
 *yaiḥ*—by *sannyāsīs* who; *sva-dehaḥ*—own body; *smṛtaḥ*—consider; *anātmā*—different from the soul; *martyaḥ*—subjected to death; *viṭ*—becoming stool; *kṛmi*—worms; *bhasma-vat*—or ashes; *te*—such persons; *enam*—this body; *ātmasāt kṛtvā*—again identifying with the self; *ślāghayanti*—glorify as very important; *hi*—indeed; *asat-tamāḥ*—the greatest rascals.

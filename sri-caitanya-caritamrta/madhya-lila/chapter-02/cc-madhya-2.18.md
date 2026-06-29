@@ -1,13 +1,13 @@
 ### CC Madhya 2.18
 
-> প্রেমচ্ছেদরুজোঽবগচ্ছতি হরির্নায়ং ন চ প্রেম বা
-> স্থানাস্থানমবৈতি নাপি মদনো জানাতি নো দুর্বলাঃ ।
-> অন্যো বেদ ন চান্যদুঃখমখিলং নো জীবনং বাশ্রবং
+> প্রেমচ্ছেদরুজোঽবগচ্ছতি হরির্নায়ং ন চ প্রেম বা\
+> স্থানাস্থানমবৈতি নাপি মদনো জানাতি নো দুর্বলাঃ ।\
+> অন্যো বেদ ন চান্যদুঃখমখিলং নো জীবনং বাশ্রবং\
 > দ্বিত্রাণ্যেব দিনানি যৌবনমিদং হাহা বিধে কা গতিঃ ॥১৮॥
 
-> prema-ccheda-rujo 'vagacchati harir nāyaṁ na ca prema vā
-> sthānāsthānam avaiti nāpi madano jānāti no durbalāḥ
-> anyo veda na cānya-duḥkham akhilaṁ no jīvanaṁ vāśravaṁ
+> prema-ccheda-rujo 'vagacchati harir nāyaṁ na ca prema vā\
+> sthānāsthānam avaiti nāpi madano jānāti no durbalāḥ\
+> anyo veda na cānya-duḥkham akhilaṁ no jīvanaṁ vāśravaṁ\
 > dvi-trāṇy eva dināni yauvanam idaṁ hā-hā vidhe kā gatiḥ
 
 *prema-cheda-rujaḥ*—the sufferings of a broken loving relationship; *avagacchati*—knows; *hariḥ*—the Supreme Lord; *na*—not; *ayam*—this; *na ca*—nor; *prema*—love; *vā*—nor; *sthāna*—the proper place; *asthānam*—an unsuitable place; *avaiti*—knows; *na*—not; *api*—also; *madanaḥ*—Cupid; *jānāti*—knows; *naḥ*—us; *durbalāḥ*—very weak; *anyaḥ*—another; *veda*—knows; *na*—not; *ca*—also; *anya-duḥkham*—the difficulties of others; *akhilam*—all; *naḥ*—our; *jīvanam*—life; *vā*—or; *āśravam*—simply full of miseries; *dvi*—two; *trāṇi*—three; *eva*—certainly; *dināni*—days; *yauvanam*—youth; *idam*—this; *hā-hā*—alas; *vidhe*—O creator; *kā*—what; *gatiḥ*—our destination.

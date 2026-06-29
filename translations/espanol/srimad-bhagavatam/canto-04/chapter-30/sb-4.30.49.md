@@ -1,11 +1,11 @@
 ### SB 4.30.49
 
-> चाक्षुषे त्वन्तरे प्राप्ते प्राक्सर्गे कालविद्रुते ।
+> चाक्षुषे त्वन्तरे प्राप्ते प्राक्सर्गे कालविद्रुते ।\
 > यः ससर्ज प्रजा इष्टाः स दक्षो दैवचोदितः ॥४९॥
 
-> cākṣuṣe tv antare prāpte
-> prāk-sarge kāla-vidrute
-> yaḥ sasarja prajā iṣṭāḥ
+> cākṣuṣe tv antare prāpte\
+> prāk-sarge kāla-vidrute\
+> yaḥ sasarja prajā iṣṭāḥ\
 > sa dakṣo daiva-coditaḥ
 
 *cākṣuṣe*—llamado Cākṣuṣa; *tu*—pero; *antare*—el *manvantara*; *prāpte*—cuando tuvo lugar; *prāk*—anterior; *sarge*—creación; *kāla-vidrute*—destruido a su debido tiempo; *yaḥ*—el que; *sasarja*—creó; *prajāḥ*—entidades vivientes; *iṣṭāḥ*—deseables; *saḥ*—él; *dakṣaḥ*—Dakṣa; *daiva*—por la Suprema Personalidad de Dios; *coditaḥ*—inspirado.

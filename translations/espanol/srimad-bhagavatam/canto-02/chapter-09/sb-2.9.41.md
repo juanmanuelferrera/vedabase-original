@@ -1,11 +1,11 @@
 ### SB 2.9.41
 
-> तं नारदः प्रियतमो रिक्थादानामनुव्रतः ।
+> तं नारदः प्रियतमो रिक्थादानामनुव्रतः ।\
 > शुश्रूषमाणः शीलेन प्रश्रयेण दमेन च ॥४१॥
 
-> taṁ nāradaḥ priyatamo
-> rikthādānām anuvrataḥ
-> śuśrūṣamāṇaḥ śīlena
+> taṁ nāradaḥ priyatamo\
+> rikthādānām anuvrataḥ\
+> śuśrūṣamāṇaḥ śīlena\
 > praśrayeṇa damena ca
 
 *tam*—a él; *nāradaḥ*—el gran sabio Nārada; *priyatamaḥ*—muy querido; *riktha-ādānām*—de los hijos del heredero; *anuvrataḥ*—muy obediente; *śuśrūṣamāṇaḥ*—siempre dispuesto a servir; *śīlena*—con buen comportamiento; *praśrayeṇa*—con mansedumbre; *damena*—con control de los sentidos; *ca*—también.

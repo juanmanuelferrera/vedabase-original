@@ -1,9 +1,9 @@
 ### CC Antya 5.107
 
-> গ্রাম্য-কবির কবিত্ব শুনিতে হয় ‘দুঃখ’ ।
+> গ্রাম্য-কবির কবিত্ব শুনিতে হয় ‘দুঃখ’ ।\
 > বিদগ্ধ-আত্মীয়-বাক্য শুনিতে হয় ‘সুখ’ ॥১০৭॥
 
-> grāmya-kavira kavitva śunite haya 'duḥkha'
+> grāmya-kavira kavitva śunite haya 'duḥkha'\
 > vidagdha-ātmīya-vākya śunite haya 'sukha'
 
 *grāmya-kavira*—of a poet who writes poetry concerning man and woman; *kavitva*—poetry; *śunite*—to hear; *haya*—there is; *duḥkha*—unhappiness; *vidagdha-ātmīya*—of a devotee fully absorbed in ecstatic love; *vākya*—the words; *śunite*—to hear; *haya*—there is; *sukha*—happiness.

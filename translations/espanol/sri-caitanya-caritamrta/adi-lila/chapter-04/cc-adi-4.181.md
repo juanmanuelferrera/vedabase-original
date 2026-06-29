@@ -1,9 +1,9 @@
 ### CC Adi 4.181
 
-> তবে যে দেখিয়ে গোপীর নিজদেহে প্রীত ।
+> তবে যে দেখিয়ে গোপীর নিজদেহে প্রীত ।\
 > সেহো ত’ কৃষ্ণের লাগি, জানিহ নিশ্চিত ॥১৮১॥
 
-> tabe ye dekhiye gopīra nija-dehe prīta
+> tabe ye dekhiye gopīra nija-dehe prīta\
 > seho ta' kṛṣṇera lāgi, jāniha niścita
 
 *tabe*—ahora bien; *ye*—todo lo que; *dekhiye*—vemos; *gopīra*—de las gopīs; *nija-dehe*—en sus propios cuerpos; *prīta*—afecto; *seho*—eso; *ta'*—ciertamente; *kṛṣṇera lāgi*—por el Señor Kṛṣṇa; *jāniha*—sabed; *niścita*—con certeza.

@@ -1,11 +1,11 @@
 ### SB 1.19.19
 
-> महर्षयो वै समुपागता ये प्रशस्य साध्वित्यनुमोदमानाः ।
+> महर्षयो वै समुपागता ये प्रशस्य साध्वित्यनुमोदमानाः ।\
 > ऊचुः प्रजानुग्रहशीलसारा यदुत्तमश्लोकगुणाभिरूपम् ॥१९॥
 
-> maharṣayo vai samupāgatā ye
-> praśasya sādhv ity anumodamānāḥ
-> ūcuḥ prajānugraha-śīla-sārā
+> maharṣayo vai samupāgatā ye\
+> praśasya sādhv ity anumodamānāḥ\
+> ūcuḥ prajānugraha-śīla-sārā\
 > yad uttama-śloka-guṇābhirūpam
 
 *maharṣayaḥ*—the great sages; *vai*—as a matter of course; *samupāgatāḥ*—assembled there; *ye*—those who; *praśasya*—by praising; *sādhu*—quite all right; *iti*—thus; *anumodamānāḥ*—all approving; *ūcuḥ*—said; *prajā-anugraha*—doing good to the living being; *śīla-sārāḥ*—qualitatively powerful; *yat*—because; *uttama-śloka*—one who is praised by selected poems; *guṇa-abhirūpam*—as beautiful as godly qualities.

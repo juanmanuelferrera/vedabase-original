@@ -1,9 +1,9 @@
 ### CC Madhya 4.148
 
-> যদ্যপি উদ্বেগ হৈল পলাইতে মন ।
+> যদ্যপি উদ্বেগ হৈল পলাইতে মন ।\
 > ঠাকুরের চন্দন-সাধন হইল বন্ধন ॥১৪৮॥
 
-> yadyapi udvega haila palāite mana
+> yadyapi udvega haila palāite mana\
 > ṭhākurera candana-sādhana ha-ila bandhana
 
 *yadyapi*—aunque; *udvega*—ansiedad; *haila*—había; *palāite*—para irse; *mana*—la mente; *ṭhākurera*—del Señor; *candana*—del sándalo; *sādhana*—conseguir; *ha-ila*—había; *bandhana*—atadura.

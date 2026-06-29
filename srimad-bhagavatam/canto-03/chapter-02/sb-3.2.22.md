@@ -1,11 +1,11 @@
 ### SB 3.2.22
 
-> तत्तस्य कैङ्कर्यमलं भृतान्नो विग्लापयत्यङ्ग यदुग्रसेनम् ।
+> तत्तस्य कैङ्कर्यमलं भृतान्नो विग्लापयत्यङ्ग यदुग्रसेनम् ।\
 > तिष्ठन्निषण्णं परमेष्ठिधिष्ण्ये न्यबोधयद्देव निधारयेति ॥२२॥
 
-> tat tasya kaiṅkaryam alaṁ bhṛtān no
-> viglāpayaty aṅga yad ugrasenam
-> tiṣṭhan niṣaṇṇaṁ parameṣṭhi-dhiṣṇye
+> tat tasya kaiṅkaryam alaṁ bhṛtān no\
+> viglāpayaty aṅga yad ugrasenam\
+> tiṣṭhan niṣaṇṇaṁ parameṣṭhi-dhiṣṇye\
 > nyabodhayad deva nidhārayeti
 
 *tat*—therefore; *tasya*—His; *kaiṅkaryam*—service; *alam*—of course; *bhṛtān*—the servitors; *naḥ*—us; *viglāpayati*—gives pain; *aṅga*—O Vidura; *yat*—as much as; *ugrasenam*—unto King Ugrasena; *tiṣṭhan*—being seated; *niṣaṇṇam*—waiting upon Him; *parameṣṭhi-dhiṣṇye*—on the royal throne; *nyabodhayat*—submitted; *deva*—addressing my Lord; *nidhāraya*—please know it; *iti*—thus.

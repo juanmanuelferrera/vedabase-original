@@ -1,18 +1,18 @@
 ### SB 1.10.11-12
 
-> सत्सङ्गान्मुक्तदुःसङ्गो हातुं नोत्सहते बुधः ।
-> कीर्त्यमानं यशो यस्य सकृदाकर्ण्य रोचनम् ॥११॥
-> तस्मिन्न्यस्तधियः पार्थाः सहेरन्विरहं कथम् ।
+> सत्सङ्गान्मुक्तदुःसङ्गो हातुं नोत्सहते बुधः ।\
+> कीर्त्यमानं यशो यस्य सकृदाकर्ण्य रोचनम् ॥११॥\
+> तस्मिन्न्यस्तधियः पार्थाः सहेरन्विरहं कथम् ।\
 > दर्शनस्पर्शसंलाप शयनासनभोजनैः ॥१२॥
 
-> sat-saṅgān mukta-duḥsaṅgo
-> hātuṁ notsahate budhaḥ
-> kīrtyamānaṁ yaśo yasya
+> sat-saṅgān mukta-duḥsaṅgo\
+> hātuṁ notsahate budhaḥ\
+> kīrtyamānaṁ yaśo yasya\
 > sakṛd ākarṇya rocanam
 
-> tasmin nyasta-dhiyaḥ pārthāḥ
-> saheran virahaṁ katham
-> darśana-sparśa-saṁlāpa-
+> tasmin nyasta-dhiyaḥ pārthāḥ\
+> saheran virahaṁ katham\
+> darśana-sparśa-saṁlāpa-\
 > śayanāsana-bhojanaiḥ
 
 *sat-saṅgāt*—mediante la compañía de devotos puros; *mukta-duḥsaṅgaḥ*—liberados de la mala asociación materialista; *hātum*—abandonar; *na utsahate*—nunca tratan; *budhaḥ*—aquel que ha comprendido al Señor; *kīrtyamānam*—glorificando; *yaśaḥ*—fama; *yasya*—cuyo; *sakṛt*—solo una vez; *ākarṇya*—oyendo únicamente; *rocanam*—placentero; *tasmin*—a Él; *nyasta-dhiyaḥ*—aquel que le ha entregado la mente a Él; *pārthāḥ*—los hijos de Pṛthā; *saheran*—pueden tolerar; *viraham*—separación; *katham*—como; *darśana*—viendo cara a cara; *sparśa*—tocando; *saṁlāpa*—conversando; *śayana*—durmiendo; *āsana*—sentándose; *bhojanaiḥ*—comiendo juntos.

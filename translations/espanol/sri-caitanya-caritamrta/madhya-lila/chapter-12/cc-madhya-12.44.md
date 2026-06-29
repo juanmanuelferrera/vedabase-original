@@ -1,9 +1,9 @@
 ### CC Madhya 12.44
 
-> রাজমন্ত্রী রামানন্দ — ব্যবহারে নিপুণ ।
+> রাজমন্ত্রী রামানন্দ — ব্যবহারে নিপুণ ।\
 > রাজপ্রীতি কহি’ দ্রবাইল প্ৰভুর মন ॥৪৪॥
 
-> rāja-mantrī rāmānanda-vyavahāre nipuṇa
+> rāja-mantrī rāmānanda-vyavahāre nipuṇa\
 > rāja-prīti kahi' dravāila prabhura mana
 
 *rāja-mantrī*—ministro diplomático; *rāmānanda*—Śrī Rāmānanda Rāya; *vyavahāre*—en el trato general; *nipuṇa*—muy experto; *rāja-prīti*—el amor del rey por Śrī Caitanya Mahāprabhu; *kahi'*—describiendo; *dravāila*—ablandó; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *mana*—la mente.

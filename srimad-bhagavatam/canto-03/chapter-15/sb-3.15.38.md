@@ -1,13 +1,13 @@
 ### SB 3.15.38
 
-> तं त्वागतं प्रतिहृतौपयिकं स्वपुम्भिस्
-> तेऽचक्षताक्षविषयं स्वसमाधिभाग्यम् ।
-> हंसश्रियोर्व्यजनयोः शिववायुलोलच्
+> तं त्वागतं प्रतिहृतौपयिकं स्वपुम्भिस्\
+> तेऽचक्षताक्षविषयं स्वसमाधिभाग्यम् ।\
+> हंसश्रियोर्व्यजनयोः शिववायुलोलच्\
 > छुभ्रातपत्रशशिकेसरशीकराम्बुम् ॥३८॥
 
-> taṁ tv āgataṁ pratihṛtaupayikaṁ sva-pumbhis
-> te 'cakṣatākṣa-viṣayaṁ sva-samādhi-bhāgyam
-> haṁsa-śriyor vyajanayoḥ śiva-vāyu-lolac-
+> taṁ tv āgataṁ pratihṛtaupayikaṁ sva-pumbhis\
+> te 'cakṣatākṣa-viṣayaṁ sva-samādhi-bhāgyam\
+> haṁsa-śriyor vyajanayoḥ śiva-vāyu-lolac-\
 > chubhrātapatra-śaśi-kesara-śīkarāmbum
 
 *tam*—Him; *tu*—but; *āgatam*—coming forward; *pratihṛta*—carried; *aupayikam*—the paraphernalia; *sva-pumbhiḥ*—by His own associates; *te*—the great sages (the Kumāras); *acakṣata*—saw; *akṣa-viṣayam*—now a subject matter for seeing; *sva-samādhi-bhāgyam*—visible simply by ecstatic trance; *haṁsa-śriyoḥ*—as beautiful as white swans; *vyajanayoḥ*—the *cāmaras* (bunches of white hair); *śiva-vāyu*—favorable winds; *lolat*—moving; *śubhra-ātapatra*—the white umbrella; *śaśi*—the moon; *kesara*—pearls; *śīkara*—drops; *ambum*—water.

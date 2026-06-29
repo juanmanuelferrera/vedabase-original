@@ -1,9 +1,9 @@
 ### CC Antya 19.58
 
-> বিরহে ব্যাকুল প্রভু উদ্বেগে উঠিলা ।
+> বিরহে ব্যাকুল প্রভু উদ্বেগে উঠিলা ।\
 > গম্ভীরার ভিত্ত্যে মুখ ঘষিতে লাগিলা ॥৫৮॥
 
-> virahe vyākula prabhu udvege uṭhilā
+> virahe vyākula prabhu udvege uṭhilā\
 > gambhīrāra bhittye mukha ghaṣite lāgilā
 
 *virahe*—en la lamentación de la separación; *vyākula*—muy agitado; *prabhu*—Śrī Caitanya Mahāprabhu; *udvege*—con gran ansiedad; *uṭhilā*—se puso de pie; *gambhīrāra*—de la Gambhīrā; *bhittye*—contra las paredes; *mukha*—rostro; *ghaṣite*—frotar; *lāgilā*—comenzó.

@@ -1,9 +1,9 @@
 ### CC Antya 6.175
 
-> উপবাসী দেখি’ গোপ দুগ্ধ আনি’ দিলা ।
+> উপবাসী দেখি’ গোপ দুগ্ধ আনি’ দিলা ।\
 > সেই দুগ্ধ পান করি’ পড়িয়া রহিলা ॥১৭৫॥
 
-> upavāsī dekhi' gopa dugdha āni' dilā
+> upavāsī dekhi' gopa dugdha āni' dilā\
 > sei dugdha pāna kari' paḍiyā rahilā
 
 *upavāsī*—en ayuno; *dekhi'*—viendo; *gopa*—el lechero; *dugdha*—leche; *ani'*—trayendo; *dilā*—le dio; *sei dugdha*—esa leche; *pāna kari'*—bebiéndola; *paḍiyā*—acostándose; *rahilā*—permaneció.

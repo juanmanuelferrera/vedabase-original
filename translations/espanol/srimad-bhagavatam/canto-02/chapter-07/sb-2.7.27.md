@@ -1,13 +1,13 @@
 ### SB 2.7.27
 
-> तोकेन जीवहरणं यदुलूकिकायास्
-> त्रैमासिकस्य च पदा शकटोऽपवृत्तः ।
-> यद्रिङ्गतान्तरगतेन दिविस्पृशोर्वा
+> तोकेन जीवहरणं यदुलूकिकायास्\
+> त्रैमासिकस्य च पदा शकटोऽपवृत्तः ।\
+> यद्रिङ्गतान्तरगतेन दिविस्पृशोर्वा\
 > उन्मूलनं त्वितरथार्जुनयोर्न भाव्यम् ॥२७॥
 
-> tokena jīva-haraṇaṁ yad ulūki-kāyās
-> trai-māsikasya ca padā śakaṭo 'pavṛttaḥ
-> yad riṅgatāntara-gatena divi-spṛśor vā
+> tokena jīva-haraṇaṁ yad ulūki-kāyās\
+> trai-māsikasya ca padā śakaṭo 'pavṛttaḥ\
+> yad riṅgatāntara-gatena divi-spṛśor vā\
 > unmūlanaṁ tv itarathārjunayor na bhāvyam
 
 *tokena*—por un niño; *jīva-haraṇam*—matando a un ser viviente; *yat*—aquel que; *ulūki-kāyāḥ*—adoptó el cuerpo gigante de un demonio; *trai-māsikasya*—de alguien que solo tiene tres meses de edad; *ca*—también; *padā*—con la pierna; *śakaṭaḥ apavṛttaḥ*—volteó la carretilla; *yat*—aquel que; *riṅgatā*—mientras gateaba; *antara-gatena*—siendo dominado; *divi*—en lo alto del cielo; *spṛśoḥ*—tocando; *vā*—o; *unmūlanam*—arrancando; *tu*—mas; *itarathā*—cualquier otro además de; *arjunayoḥ*—de los árboles *arjuna*; *na bhāvyam*—no fue posible.

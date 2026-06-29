@@ -1,13 +1,13 @@
 ### SB 6.14.1
 
-> श्रीपरीक्षिदुवाच
-> रजस्तमःस्वभावस्य ब्रह्मन्वृत्रस्य पाप्मनः
+> श्रीपरीक्षिदुवाच\
+> रजस्तमःस्वभावस्य ब्रह्मन्वृत्रस्य पाप्मनः\
 > नारायणे भगवति कथमासीद्दृढा मतिः ॥१॥
 
-> śrī-parīkṣid uvāca
-> rajas-tamaḥ-svabhāvasya
-> brahman vṛtrasya pāpmanaḥ
-> nārāyaṇe bhagavati
+> śrī-parīkṣid uvāca\
+> rajas-tamaḥ-svabhāvasya\
+> brahman vṛtrasya pāpmanaḥ\
+> nārāyaṇe bhagavati\
 > katham āsīd dṛḍhā matiḥ
 
 *śrī-parīkṣit uvāca*—King Parīkṣit inquired; *rajaḥ*—of the mode of passion; *tamaḥ*—and of the mode of ignorance; *sva-bhāvasya*—having a nature; *brahman*—O learned *brāhmaṇa*; *vṛtrasya*—of Vṛtrāsura; *pāpmanaḥ*—who was supposedly sinful; *nārāyaṇe*—in Lord Nārāyaṇa; *bhagavati*—the Supreme Personality of Godhead; *katham*—how; *āsīt*—was there; *dṛḍhā*—very strong; *matiḥ*—consciousness.

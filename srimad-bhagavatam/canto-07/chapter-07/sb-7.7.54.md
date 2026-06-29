@@ -1,11 +1,11 @@
 ### SB 7.7.54
 
-> दैतेया यक्षरक्षांसि स्त्रियः शूद्रा व्रजौकसः
+> दैतेया यक्षरक्षांसि स्त्रियः शूद्रा व्रजौकसः\
 > खगा मृगाः पापजीवाः सन्ति ह्यच्युततां गताः ॥५४॥
 
-> daiteyā yakṣa-rakṣāṁsi
-> striyaḥ śūdrā vrajaukasaḥ
-> khagā mṛgāḥ pāpa-jīvāḥ
+> daiteyā yakṣa-rakṣāṁsi\
+> striyaḥ śūdrā vrajaukasaḥ\
+> khagā mṛgāḥ pāpa-jīvāḥ\
 > santi hy acyutatāṁ gatāḥ
 
 *daiteyāḥ*—O demons; *yakṣa-rakṣāṁsi*—the living entities known as the Yakṣas and Rākṣasas; *striyaḥ*—women; *śūdrāḥ*—the laborer class; *vraja-okasaḥ*—village cowherd men; *khagāḥ*—birds; *mṛgāḥ*—animals; *pāpa-jīvāḥ*—sinful living entities; *santi*—can become; *hi*—certainly; *acyutatām*—the qualities of Acyuta, the Supreme Lord; *gatāḥ*—obtained.

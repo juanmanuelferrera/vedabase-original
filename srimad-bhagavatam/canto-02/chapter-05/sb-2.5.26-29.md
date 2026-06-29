@@ -1,32 +1,32 @@
 ### SB 2.5.26-29
 
-> नभसोऽथ विकुर्वाणादभूत्स्पर्शगुणोऽनिलः ।
-> परान्वयाच्छब्दवांश्च प्राण ओजः सहो बलम् ॥२६॥
-> वायोरपि विकुर्वाणात्कालकर्मस्वभावतः ।
-> उदपद्यत तेजो वै रूपवत्स्पर्शशब्दवत् ॥२७॥
-> तेजसस्तु विकुर्वाणादासीदम्भो रसात्मकम् ।
-> रूपवत्स्पर्शवच्चाम्भो घोषवच्च परान्वयात् ॥२८॥
-> विशेषस्तु विकुर्वाणादम्भसो गन्धवानभूत् ।
+> नभसोऽथ विकुर्वाणादभूत्स्पर्शगुणोऽनिलः ।\
+> परान्वयाच्छब्दवांश्च प्राण ओजः सहो बलम् ॥२६॥\
+> वायोरपि विकुर्वाणात्कालकर्मस्वभावतः ।\
+> उदपद्यत तेजो वै रूपवत्स्पर्शशब्दवत् ॥२७॥\
+> तेजसस्तु विकुर्वाणादासीदम्भो रसात्मकम् ।\
+> रूपवत्स्पर्शवच्चाम्भो घोषवच्च परान्वयात् ॥२८॥\
+> विशेषस्तु विकुर्वाणादम्भसो गन्धवानभूत् ।\
 > परान्वयाद्रसस्पर्श शब्दरूपगुणान्वितः ॥२९॥
 
-> nabhaso 'tha vikurvāṇād
-> abhūt sparśa-guṇo 'nilaḥ
-> parānvayāc chabdavāṁś ca
+> nabhaso 'tha vikurvāṇād\
+> abhūt sparśa-guṇo 'nilaḥ\
+> parānvayāc chabdavāṁś ca\
 > prāṇa ojaḥ saho balam
 
-> vāyor api vikurvāṇāt
-> kāla-karma-svabhāvataḥ
-> udapadyata tejo vai
+> vāyor api vikurvāṇāt\
+> kāla-karma-svabhāvataḥ\
+> udapadyata tejo vai\
 > rūpavat sparśa-śabdavat
 
-> tejasas tu vikurvāṇād
-> āsīd ambho rasātmakam
-> rūpavat sparśavac cāmbho
+> tejasas tu vikurvāṇād\
+> āsīd ambho rasātmakam\
+> rūpavat sparśavac cāmbho\
 > ghoṣavac ca parānvayāt
 
-> viśeṣas tu vikurvāṇād
-> ambhaso gandhavān abhūt
-> parānvayād rasa-sparśa-
+> viśeṣas tu vikurvāṇād\
+> ambhaso gandhavān abhūt\
+> parānvayād rasa-sparśa-\
 > śabda-rūpa-guṇānvitaḥ
 
 *nabhasaḥ*—of the sky; *atha*—thus; *vikurvāṇāt*—being transformed; *abhūt*—generated; *sparśa*—touch; *guṇaḥ*—quality; *anilaḥ*—air; *para*—previous; *anvayāt*—by succession; *śabdavān*—full of sound; *ca*—also; *prāṇaḥ*—life; *ojaḥ*—sense perception; *sahaḥ*—fat; *balam*—strength; *vāyoḥ*—of the air; *api*—also; *vikurvāṇāt*—by transformation; *kāla*—time; *karma*—reaction of the past; *svabhāvataḥ*—on the basis of nature; *udapadyata*—generated; *tejaḥ*—fire; *vai*—duly; *rūpavat*—with form; *sparśa*—touch; *śabdavat*—with sound also; *tejasaḥ*—of the fire; *tu*—but; *vikurvāṇāt*—on being transformed; *āsīt*—it so happened; *ambhaḥ*—water; *rasa-ātmakam*—composed of juice; *rūpavat*—with form; *sparśavat*—with touch; *ca*—and; *ambhaḥ*—water; *ghoṣavat*—with sound; *ca*—and; *para*—previous; *anvayāt*—by succession; *viśeṣaḥ*—variegatedness; *tu*—but; *vikurvāṇāt*—by transformation; *ambhasaḥ*—of water; *gandhavān*—odorous; *abhūt*—became; *para*—previous; *anvayāt*—by succession; *rasa*—juice; *sparśa*—touch; *śabda*—sound; *rūpa-guṇa-anvitaḥ*—qualitative.

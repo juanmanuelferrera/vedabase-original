@@ -1,11 +1,11 @@
 ### SB 4.25.37
 
-> इमां त्वमधितिष्ठस्व पुरीं नवमुखीं विभो ।
+> इमां त्वमधितिष्ठस्व पुरीं नवमुखीं विभो ।\
 > मयोपनीतान्गृह्णानः कामभोगान्शतं समाः ॥३७॥
 
-> imāṁ tvam adhitiṣṭhasva
-> purīṁ nava-mukhīṁ vibho
-> mayopanītān gṛhṇānaḥ
+> imāṁ tvam adhitiṣṭhasva\
+> purīṁ nava-mukhīṁ vibho\
+> mayopanītān gṛhṇānaḥ\
 > kāma-bhogān śataṁ samāḥ
 
 *imām*—esta; *tvam*—Tu Gracia; *adhitiṣṭhasva*—quédate; *purīm*—en la ciudad; *nava-mukhīm*—con nueve puertas; *vibho*—¡oh, mi señor!; *mayā*—por mí; *upanītān*—preparada; *gṛhṇānaḥ*—tomar; *kāma-bhogān*—los materiales para la complacencia de los sentidos; *śatam*—cien; *samāḥ*—años.

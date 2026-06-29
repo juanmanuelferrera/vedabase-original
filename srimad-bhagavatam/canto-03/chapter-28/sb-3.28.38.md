@@ -1,13 +1,13 @@
 ### SB 3.28.38
 
-> देहोऽपि दैववशगः खलु कर्म यावत्
-> स्वारम्भकं प्रतिसमीक्षत एव सासुः ।
-> तं सप्रपञ्चमधिरूढसमाधियोगः
+> देहोऽपि दैववशगः खलु कर्म यावत्\
+> स्वारम्भकं प्रतिसमीक्षत एव सासुः ।\
+> तं सप्रपञ्चमधिरूढसमाधियोगः\
 > स्वाप्नं पुनर्न भजते प्रतिबुद्धवस्तुः ॥३८॥
 
-> deho 'pi daiva-vaśagaḥ khalu karma yāvat
-> svārambhakaṁ pratisamīkṣata eva sāsuḥ
-> taṁ sa-prapañcam adhirūḍha-samādhi-yogaḥ
+> deho 'pi daiva-vaśagaḥ khalu karma yāvat\
+> svārambhakaṁ pratisamīkṣata eva sāsuḥ\
+> taṁ sa-prapañcam adhirūḍha-samādhi-yogaḥ\
 > svāpnaṁ punar na bhajate pratibuddha-vastuḥ
 
 *dehaḥ*—the body; *api*—moreover; *daiva-vaśa-gaḥ*—under the control of the Personality of Godhead; *khalu*—indeed; *karma*—activities; *yāvat*—as much as; *sva-ārambhakam*—begun by himself; *pratisamīkṣate*—continues to function; *eva*—certainly; *sa-asuḥ*—along with the senses; *tam*—the body; *sa-prapañcam*—with its expansions; *adhirūḍha-samādhi-yogaḥ*—being situated in *samādhi* by *yoga* practice; *svāpnam*—born in a dream; *punaḥ*—again; *na*—not; *bhajate*—he does accept as his own; *pratibuddha*—awake; *vastuḥ*—to his constitutional position.

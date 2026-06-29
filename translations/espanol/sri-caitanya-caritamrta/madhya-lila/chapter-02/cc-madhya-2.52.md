@@ -1,13 +1,13 @@
 ### CC Madhya 2.52
 
-> পীড়াভির্নবকালকূট-কটুতাগর্বস্য নির্বাসনো
-> নিস্যন্দেন মুদাং সুধা-মধুরিমাহঙ্কারসঙ্কোচনঃ ।
-> প্রেমা সুন্দরি নন্দনন্দনপরো জাগর্তি যস্যান্তরে
+> পীড়াভির্নবকালকূট-কটুতাগর্বস্য নির্বাসনো\
+> নিস্যন্দেন মুদাং সুধা-মধুরিমাহঙ্কারসঙ্কোচনঃ ।\
+> প্রেমা সুন্দরি নন্দনন্দনপরো জাগর্তি যস্যান্তরে\
 > জ্ঞায়ন্তে স্ফুটমস্য বক্রমধুরাস্তেনৈব বিক্রান্তয়ঃ ॥৫২॥
 
-> pīḍābhir nava-kāla-kūṭa-kaṭutā-garvasya nirvāsano
-> nisyandena mudāṁ sudhā-madhurimāhaṅkāra-saṅkocanaḥ
-> premā sundari nanda-nandana-paro jāgarti yasyāntare
+> pīḍābhir nava-kāla-kūṭa-kaṭutā-garvasya nirvāsano\
+> nisyandena mudāṁ sudhā-madhurimāhaṅkāra-saṅkocanaḥ\
+> premā sundari nanda-nandana-paro jāgarti yasyāntare\
 > jñāyante sphuṭam asya vakra-madhurās tenaiva vikrāntayaḥ
 
 *pīḍābhiḥ*—por los sufrimientos; *nava*—fresco; *kāla-kūṭa*—de veneno; *kaṭutā*—de la severidad; *garvasya*—del orgullo; *nirvāsanaḥ*—destierro; *nisyandena*—al derramarse; *mudām*—felicidad; *sudhā*—del néctar; *madhurimā*—de la dulzura; *ahaṅkāra*—el orgullo; *saṅkocanaḥ*—reducción; *premā*—amor; *sundari*—hermosa amiga; *nanda-nandana-paraḥ*—fijo en el hijo de Mahārāja Nanda; *jāgarti*—se desarrolla; *yasya*—de quien; *antare*—en el corazón; *jñāyante*—se perciben; *sphuṭam*—explícitamente; *asya*—de eso; *vakra*—tortuosas; *madhurāḥ*—y dulces; *tena*—por él; *eva*—solamente; *vikrāntayaḥ*—las influencias.

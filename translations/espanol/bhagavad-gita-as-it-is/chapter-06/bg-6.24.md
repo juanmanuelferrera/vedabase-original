@@ -1,14 +1,14 @@
 ### Bg 6.24
 
-> स निश्चयेन योक्तव्यो योगोऽनिर्विण्णचेतसा ।
-> सङ्कल्पप्रभवान्कामांस्त्यक्त्वा सर्वानशेषतः ।
+> स निश्चयेन योक्तव्यो योगोऽनिर्विण्णचेतसा ।\
+> सङ्कल्पप्रभवान्कामांस्त्यक्त्वा सर्वानशेषतः ।\
 > मनसैवेन्द्रियग्रामं विनियम्य समन्ततः ॥२४॥
 
-> sa niścayena yoktavyo
-> yogo'nirviṇṇa-cetasā
-> saṅkalpa-prabhavān kāmāṁs
-> tyaktvā sarvān aśeṣataḥ
-> manasaivendriya-grāmaṁ
+> sa niścayena yoktavyo\
+> yogo'nirviṇṇa-cetasā\
+> saṅkalpa-prabhavān kāmāṁs\
+> tyaktvā sarvān aśeṣataḥ\
+> manasaivendriya-grāmaṁ\
 > viniyamya samantataḥ
 
 *saḥ*—ese sistema de yoga; *niścayena*—con firme determinación; *yoktavyaḥ*—debe practicarse; *yogaḥ*—en dicha práctica; *anirviṇṇa-cetasā*—sin desviación; *saṅkalpa*—deseos materiales; *prabhavān*—nacido de; *kāmān*—gratificación sensorial; *tyaktvā*—abandonando; *sarvān*—todo; *aśeṣataḥ*—completamente; *manasā*—por la mente; *eva*—ciertamente; *indriya-grāmam*—el conjunto completo de los sentidos; *viniyamya*—regulando; *samantataḥ*—por todos partes.

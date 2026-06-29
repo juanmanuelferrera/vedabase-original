@@ -1,11 +1,11 @@
 ### SB 2.9.39
 
-> अन्तर्हितेन्द्रियार्थाय हरये विहिताञ्जलिः ।
+> अन्तर्हितेन्द्रियार्थाय हरये विहिताञ्जलिः ।\
 > सर्वभूतमयो विश्वं ससर्जेदं स पूर्ववत् ॥३९॥
 
-> antarhitendriyārthāya
-> haraye vihitāñjaliḥ
-> sarva-bhūtamayo viśvaṁ
+> antarhitendriyārthāya\
+> haraye vihitāñjaliḥ\
+> sarva-bhūtamayo viśvaṁ\
 > sasarjedaṁ sa pūrvavat
 
 *antarhita*—on the disappearance; *indriya-arthāya*—unto the Personality of Godhead, the objective of all senses; *haraye*—unto the Lord; *vihita-añjaliḥ*—in folded hands; *sarva-bhūta*—all living entities; *mayaḥ*—full of; *viśvam*—the universe; *sasarja*—created; *idam*—this; *saḥ*—he (Brahmājī); *pūrva-vat*—exactly like before.

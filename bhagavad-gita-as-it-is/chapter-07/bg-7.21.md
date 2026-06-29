@@ -1,11 +1,11 @@
 ### Bg 7.21
 
-> यो यो यां यां तनुं भक्तः श्रद्धयार्चितुमिच्छति ।
+> यो यो यां यां तनुं भक्तः श्रद्धयार्चितुमिच्छति ।\
 > तस्य तस्याचलां श्रद्धां तामेव विदधाम्यहम् ॥२१॥
 
-> yo yo yāṁ yāṁ tanuṁ bhaktaḥ
-> śraddhayārcitum icchati
-> tasya tasyācalāṁ śraddhāṁ
+> yo yo yāṁ yāṁ tanuṁ bhaktaḥ\
+> śraddhayārcitum icchati\
+> tasya tasyācalāṁ śraddhāṁ\
 > tām eva vidadhāmy aham
 
 *yaḥ*—that; *yaḥ*—that; *yām*—which; *yām*—which; *tanum*—form of the demigods; *bhaktaḥ*—devotee; *śraddhayā*—with faith; *arcitum*—to worship; *icchati*—desires; *tasya*—of that; *tasya*—of that; *acalām*—steady; *śraddhām*—faith; *tam*—him; *eva*—surely; *vidadhāmi*—give; *aham*—I.

@@ -1,18 +1,18 @@
 ### SB 5.11.13-14
 
-> क्षेत्रज्ञअ आत्मा पुरुषः पुराणः साक्षात्स्वयं ज्योतिरजः परेशः
-> नारायणो भगवान्वासुदेवः स्वमाययात्मन्यवधीयमानः ॥१३॥
-> यथानिलः स्थावरजङ्गमानामात्मस्वरूपेण निविष्ट ईशेत
+> क्षेत्रज्ञअ आत्मा पुरुषः पुराणः साक्षात्स्वयं ज्योतिरजः परेशः\
+> नारायणो भगवान्वासुदेवः स्वमाययात्मन्यवधीयमानः ॥१३॥\
+> यथानिलः स्थावरजङ्गमानामात्मस्वरूपेण निविष्ट ईशेत\
 > एवं परो भगवान्वासुदेवः क्षेत्रज्ञअ आत्मेदमनुप्रविष्टः ॥१४॥
 
-> kṣetrajña ātmā puruṣaḥ purāṇaḥ
-> sākṣāt svayaṁ jyotir ajaḥ pareśaḥ
-> nārāyaṇo bhagavān vāsudevaḥ
+> kṣetrajña ātmā puruṣaḥ purāṇaḥ\
+> sākṣāt svayaṁ jyotir ajaḥ pareśaḥ\
+> nārāyaṇo bhagavān vāsudevaḥ\
 > sva-māyayātmany avadhīyamānaḥ
 
-> yathānilaḥ sthāvara-jaṅgamānām
-> ātma-svarūpeṇa niviṣṭa īśet
-> evaṁ paro bhagavān vāsudevaḥ
+> yathānilaḥ sthāvara-jaṅgamānām\
+> ātma-svarūpeṇa niviṣṭa īśet\
+> evaṁ paro bhagavān vāsudevaḥ\
 > kṣetrajña ātmedam anupraviṣṭaḥ
 
 *kṣetra-jñaḥ*—la Suprema Personalidad de Dios*; *ātmā*—omnipresente, que está en todas partes; *puruṣaḥ*—el controlador sin restricciones, con poder ilimitado; *purāṇaḥ*—el original; *sākṣāt*—que puede percibirse por escuchar a las autoridades y mediante la percepción directa; *svayam*—personal; *jyotiḥ*—que manifiesta los rayos de Su cuerpo (la refulgencia del Brahman); *ajaḥ*—que nunca nace; *pareśaḥ*—la Suprema Personalidad de Dios; *nārāyaṇaḥ*—el lugar en que reposan todas las entidades vivientes; *bhagavān*—la Personalidad de Dios, con seis opulencias en plenitud; *vāsudevaḥ*—el refugio de todo, lo manifestado y lo no manifestado; *sva-māyayā*—por Su propia potencia; *ātmani*—en Su propio ser, o en las entidades vivientes comunes; *avadhīyamānaḥ*—que existe como controlador; *yathā*—tanto como; *anilaḥ*—el aire; *sthāvara*—de las entidades vivientes inmóviles; *jaṅgamānām*—y de las entidades vivientes móviles; *ātma-svarūpeṇa*—por Su expansión como Superalma; *niviṣṭaḥ*—que ha entrado; *īśet*—controla; *evam*—así; *paraḥ*—trascendental; *bhagavān*—la Suprema Personalidad de Dios; *vāsudevaḥ*—el refugio de todo; *kṣetra-jñaḥ*—conocido con el nombre de *kṣetrajña*; *ātmā*—la fuerza vital; *idam*—este mundo material; *anupraviṣṭaḥ*—que ha entrado en.

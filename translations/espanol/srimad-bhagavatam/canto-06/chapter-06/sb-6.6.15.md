@@ -1,11 +1,11 @@
 ### SB 6.6.15
 
-> दोषस्य शर्वरीपुत्रः शिशुमारो हरेः कला
+> दोषस्य शर्वरीपुत्रः शिशुमारो हरेः कला\
 > वास्तोराङ्गिरसीपुत्रो विश्वकर्माकृतीपतिः ॥१५॥
 
-> vāstor āṅgirasī-putro
-> viśvakarmākṛtī-patiḥ
-> tato manuś cākṣuṣo 'bhūd
+> vāstor āṅgirasī-putro\
+> viśvakarmākṛtī-patiḥ\
+> tato manuś cākṣuṣo 'bhūd\
 > viśve sādhyā manoḥ sutāḥ
 
 *vāstoḥ*—de Vāstu; *āṅgirasī*—de su esposa, llamada Āṅgirasī; *putraḥ*—el hijo; *viśvakarmā*—Viśvakarmā; *ākṛtī-patiḥ*—el esposo de Ākṛtī; *tataḥ*—de ellos; *manuḥ cākṣuṣaḥ*—el *manu* llamado Cākṣuṣa; *abhūt*—nació; *viśve*—los *viśvadevas*; *sādhyāḥ*—los *sādhyas*; *manoḥ*—de Manu; *sutāḥ*—los hijos.

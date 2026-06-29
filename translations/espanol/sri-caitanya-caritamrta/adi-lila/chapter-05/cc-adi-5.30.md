@@ -1,9 +1,9 @@
 ### CC Adi 5.30
 
-> সালোক্য-সামীপ্য-সার্ষ্টি-সারূপ্যপ্রকার ।
+> সালোক্য-সামীপ্য-সার্ষ্টি-সারূপ্যপ্রকার ।\
 > চারি মুক্তি দিয়া করে জীবের নিস্তার ॥৩০॥
 
-> sālokya-sāmīpya-sārṣṭi-sārūpya-prakāra
+> sālokya-sāmīpya-sārṣṭi-sārūpya-prakāra\
 > cāri mukti diyā kare jīvera nistāra
 
 *sālokya*—la liberación denominada sālokya; *sāmīpya*—la liberación denominada sāmīpya; *sārṣṭi*—la liberación denominada sārṣṭi; *sārūpya*—la liberación denominada sārūpya; *prakāra*—clases; *cāri*—cuatro; *mukti*—liberación; *diyā*—dando; *kare*—lleva a cabo; *jīvera*—de las almas caídas; *nistāra*—la liberación.

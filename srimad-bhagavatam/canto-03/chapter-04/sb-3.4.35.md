@@ -1,11 +1,11 @@
 ### SB 3.4.35
 
-> आत्मानं च कुरुश्रेष्ठ कृष्णेन मनसेक्षितम् ।
+> आत्मानं च कुरुश्रेष्ठ कृष्णेन मनसेक्षितम् ।\
 > ध्यायन्गते भागवते रुरोद प्रेमविह्वलः ॥३५॥
 
-> ātmānaṁ ca kuru-śreṣṭha
-> kṛṣṇena manasekṣitam
-> dhyāyan gate bhāgavate
+> ātmānaṁ ca kuru-śreṣṭha\
+> kṛṣṇena manasekṣitam\
+> dhyāyan gate bhāgavate\
 > ruroda prema-vihvalaḥ
 
 *ātmānam*—himself; *ca*—also; *kuru-śreṣṭha*—O best amongst the Kurus; *kṛṣṇena*—by Kṛṣṇa; *manasā*—by the mind; *īkṣitam*—remembered; *dhyāyan*—thus thinking of; *gate*—having gone; *bhāgavate*—of the devotee; *ruroda*—cried loudly; *prema-vihvalaḥ*—overwhelmed by the ecstasy of love.

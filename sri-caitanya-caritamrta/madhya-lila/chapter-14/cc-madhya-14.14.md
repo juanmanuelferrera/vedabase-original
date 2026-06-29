@@ -1,9 +1,9 @@
 ### CC Madhya 14.14
 
-> ‘ভূরিদা’ ‘ভূরিদা’ বলি’ করে আলিঙ্গন ।
+> ‘ভূরিদা’ ‘ভূরিদা’ বলি’ করে আলিঙ্গন ।\
 > ইঁহো নাহি জানে, ইহোঁ হয় কোন্ জন ॥১৪॥
 
-> 'bhūridā' 'bhūridā' bali' kare āliṅgana
+> 'bhūridā' 'bhūridā' bali' kare āliṅgana\
 > iṅho nāhi jāne,-ihoṅ haya kon jana
 
 *bhūri-dā*—the most munificent; *bhūri-dā*—the most munificent; *bali'*—crying; *kare*—does; *āliṅgana*—embracing; *iṅho*—Śrī Caitanya Mahāprabhu; *nāhi jāne*—does not know; *ihoṅ*—Pratāparudra Mahārāja; *haya*—is; *kon jana*—who.

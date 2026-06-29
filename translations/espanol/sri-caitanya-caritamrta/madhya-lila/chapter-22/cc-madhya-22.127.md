@@ -1,9 +1,9 @@
 ### CC Madhya 22.127
 
-> সর্বথা শরণাপত্তি, কার্তিকাদি-ব্রত ।
+> সর্বথা শরণাপত্তি, কার্তিকাদি-ব্রত ।\
 > ‘চতুঃষষ্টি অঙ্গ’ এই পরম-মহত্ত্ব ॥১২৭॥
 
-> sarvathā śaraṇāpatti, kārtikādi-vrata
+> sarvathā śaraṇāpatti, kārtikādi-vrata\
 > 'catuḥ-ṣaṣṭi aṅga' ei parama-mahattva
 
 *sarvathā*—en todos los aspectos; *śaraṇa-āpatti*—rendición; *kārtika-ādi-vrata*—observar votos especiales en el mes de Kārttika; *catuḥ-ṣaṣṭi aṅga*—sesenta y cuatro partes; *ei*—esto; *parama-mahattva*—puntos muy importantes.

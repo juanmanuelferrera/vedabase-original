@@ -1,13 +1,13 @@
 ### SB 6.3.3
 
-> श्रीशुक उवाच
-> भगवत्पुरुषै राजन्याम्याः प्रतिहतोद्यमाः
+> श्रीशुक उवाच\
+> भगवत्पुरुषै राजन्याम्याः प्रतिहतोद्यमाः\
 > पतिं विज्ञआपयामासुर्यमं संयमनीपतिम ॥३॥
 
-> śrī-śuka uvāca
-> bhagavat-puruṣai rājan
-> yāmyāḥ pratihatodyamāḥ
-> patiṁ vijñāpayām āsur
+> śrī-śuka uvāca\
+> bhagavat-puruṣai rājan\
+> yāmyāḥ pratihatodyamāḥ\
+> patiṁ vijñāpayām āsur\
 > yamaṁ saṁyamanī-patim
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī said; *bhagavat-puruṣaiḥ*—by the order carriers of the Lord, the Viṣṇudūtas; *rājan*—O King; *yāmyāḥ*—the order carriers of Yamarāja; *pratihata-udyamāḥ*—whose efforts were defeated; *patim*—their master; *vijñāpayām āsuḥ*—informed; *yamam*—Yamarāja; *saṁyamanī-patim*—the master of the city Saṁyamanī.

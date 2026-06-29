@@ -1,9 +1,9 @@
 ### CC Madhya 4.11
 
-> ভিক্ষা লাগি’ একদিন এক গ্রাম গিয়া ।
+> ভিক্ষা লাগি’ একদিন এক গ্রাম গিয়া ।\
 > আপনে বহুত অন্ন আনিল মাগিয়া ॥১১॥
 
-> bhikṣā lāgi' eka-dina eka grāma giyā
+> bhikṣā lāgi' eka-dina eka grāma giyā\
 > āpane bahuta anna ānila māgiyā
 
 *bhikṣā lāgi'*—para el prasāda; *eka-dina*—cada día; *eka grāma*—a una aldea; *giyā*—yendo; *āpane*—personalmente; *bahuta*—una gran cantidad; *anna*—de arroz y otros comestibles; *ānila*—trajo; *māgiyā*—pidiendo.

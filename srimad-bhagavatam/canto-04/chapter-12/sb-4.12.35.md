@@ -1,11 +1,11 @@
 ### SB 4.12.35
 
-> त्रिलोकीं देवयानेन सोऽतिव्रज्य मुनीनपि ।
+> त्रिलोकीं देवयानेन सोऽतिव्रज्य मुनीनपि ।\
 > परस्ताद्यद्ध्रुवगतिर्विष्णोः पदमथाभ्यगात् ॥३५॥
 
-> tri-lokīṁ deva-yānena
-> so 'tivrajya munīn api
-> parastād yad dhruva-gatir
+> tri-lokīṁ deva-yānena\
+> so 'tivrajya munīn api\
+> parastād yad dhruva-gatir\
 > viṣṇoḥ padam athābhyagāt
 
 *tri-lokīm*—the three planetary systems; *deva-yānena*—by the transcendental airplane; *saḥ*—Dhruva; *ativrajya*—having surpassed; *munīn*—great sages; *api*—even; *parastāt*—beyond; *yat*—which; *dhruva-gatiḥ*—Dhruva, who attained permanent life; *viṣṇoḥ*—of Lord Viṣṇu; *padam*—abode; *atha*—then; *abhyagāt*—achieved.

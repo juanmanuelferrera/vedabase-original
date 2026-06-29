@@ -1,9 +1,9 @@
 ### CC Madhya 1.216
 
-> এত বলি দুঁহার শিরে ধরিল দুই হাতে ।
+> এত বলি দুঁহার শিরে ধরিল দুই হাতে ।\
 > দুই ভাই প্রভু-পদ নিল নিজ মাথে ॥২১৬॥
 
-> eta bali duṅhāra śire dharila dui hāte
+> eta bali duṅhāra śire dharila dui hāte\
 > dui bhāi prabhu-pada nila nija māthe
 
 *etabali*—saying this; *duṅhāra śire*—on the heads of both of them; *dharila*—placed; *dui*—two; *hāte*—hands; *duibhāi*—the two brothers; *prabhu-pada*—the lotus feet of the Lord; *nila*—took; *nijamāthe*—on their own heads.

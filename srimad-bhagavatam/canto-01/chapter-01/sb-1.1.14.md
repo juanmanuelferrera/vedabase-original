@@ -1,11 +1,11 @@
 ### SB 1.1.14
 
-> आपन्नः संसृतिं घोरां यन्नाम विवशो गृणन् ।
+> आपन्नः संसृतिं घोरां यन्नाम विवशो गृणन् ।\
 > ततः सद्यो विमुच्येत यद्बिभेति स्वयं भयम् ॥१४॥
 
-> āpannaḥ saṁsṛtiṁ ghorāṁ
-> yan-nāma vivaśo gṛṇan
-> tataḥ sadyo vimucyeta
+> āpannaḥ saṁsṛtiṁ ghorāṁ\
+> yan-nāma vivaśo gṛṇan\
+> tataḥ sadyo vimucyeta\
 > yad bibheti svayaṁ bhayam
 
 *āpannaḥ*—being entangled; *saṁsṛtim*—in the hurdle of birth and death; *ghorām*—too complicated; *yat*—what; *nāma*—the absolute name; *vivaśaḥ*—unconsciously; *gṛṇan*—chanting; *tataḥ*—from that; *sadyaḥ*—at once; *vimucyeta*—gets freedom; *yat*—that which; *bibheti*—fears; *svayam*—personally; *bhayam*—fear itself.

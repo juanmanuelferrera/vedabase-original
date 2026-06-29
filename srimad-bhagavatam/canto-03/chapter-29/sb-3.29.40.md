@@ -1,11 +1,11 @@
 ### SB 3.29.40
 
-> यद्भयाद्वाति वातोऽयं सूर्यस्तपति यद्भयात् ।
+> यद्भयाद्वाति वातोऽयं सूर्यस्तपति यद्भयात् ।\
 > यद्भयाद्वर्षते देवो भगणो भाति यद्भयात् ॥४०॥
 
-> yad-bhayād vāti vāto 'yaṁ
-> sūryas tapati yad-bhayāt
-> yad-bhayād varṣate devo
+> yad-bhayād vāti vāto 'yaṁ\
+> sūryas tapati yad-bhayāt\
+> yad-bhayād varṣate devo\
 > bha-gaṇo bhāti yad-bhayāt
 
 *yat*—of whom (the Supreme Personality of Godhead); *bhayāt*—out of fear; *vāti*—blows; *vātaḥ*—the wind; *ayam*—this; *sūryaḥ*—sun; *tapati*—shines; *yat*—of whom; *bhayāt*—out of fear; *yat*—of whom; *bhayāt*—out of fear; *varṣate*—sends rains; *devaḥ*—the god of rain; *bha-gaṇaḥ*—the host of heavenly bodies; *bhāti*—shine; *yat*—of whom; *bhayāt*—out of fear.

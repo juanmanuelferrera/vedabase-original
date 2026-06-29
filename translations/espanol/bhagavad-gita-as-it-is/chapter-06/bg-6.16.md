@@ -1,11 +1,11 @@
 ### Bg 6.16
 
-> नात्यश्नतस्तु योगोऽस्ति न चैकान्तमनश्नतः ।
+> नात्यश्नतस्तु योगोऽस्ति न चैकान्तमनश्नतः ।\
 > न चातिस्वप्नशीलस्य जाग्रतो नैव चार्जुन ॥१६॥
 
-> nātyaśnatas tu yogo'sti
-> na caikāntam anaśnataḥ
-> na cāti svapna-śīlasya
+> nātyaśnatas tu yogo'sti\
+> na caikāntam anaśnataḥ\
+> na cāti svapna-śīlasya\
 > jāgrato naiva cārjuna
 
 *na*—nunca; *ati*—demasiado; *aśnataḥ*—de aquel que así come; *tu*—pero; *yogaḥ*—vinculándose con el Supremo; *asti*—hay; *na*—no; *ca*—también; *ekāntam*—muy bajo; *anaśnataḥ*—abstenerse de comer; *na*—no; *ca*—también; *ati*—demasiado; *svapna-śīlasya*—de aquel que duerme demasiado; *jāgrataḥ*—o alguien que vela demasiado; *na*—no; *eva*—jamás; *ca*—y; *arjuna*—¡oh, Arjuna!

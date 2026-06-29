@@ -1,11 +1,11 @@
 ### SB 3.23.25
 
-> अङ्गं च मलपङ्केन सञ्छन्नं शबलस्तनम् ।
+> अङ्गं च मलपङ्केन सञ्छन्नं शबलस्तनम् ।\
 > आविवेश सरस्वत्याः सरः शिवजलाशयम् ॥२५॥
 
-> aṅgaṁ ca mala-paṅkena
-> sañchannaṁ śabala-stanam
-> āviveśa sarasvatyāḥ
+> aṅgaṁ ca mala-paṅkena\
+> sañchannaṁ śabala-stanam\
+> āviveśa sarasvatyāḥ\
 > saraḥ śiva-jalāśayam
 
 *aṅgam*—body; *ca*—and; *mala-paṅkena*—with dirt; *sañchannam*—covered; *śabala*—discolored; *stanam*—breasts; *āviveśa*—she entered; *sarasvatyāḥ*—of the River Sarasvatī; *saraḥ*—the lake; *śiva*—sacred; *jala*—waters; *āśayam*—containing.

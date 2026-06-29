@@ -1,11 +1,11 @@
 ### SB 8.16.59
 
-> त्वं चानेन महाभागे सम्यक्चीर्णेन केशवम
+> त्वं चानेन महाभागे सम्यक्चीर्णेन केशवम\
 > आत्मना शुद्धभावेन नियतात्मा भजाव्ययम ॥५९॥
 
-> tvaṁ cānena mahā-bhāge
-> samyak cīrṇena keśavam
-> ātmanā śuddha-bhāvena
+> tvaṁ cānena mahā-bhāge\
+> samyak cīrṇena keśavam\
+> ātmanā śuddha-bhāvena\
 > niyatātmā bhajāvyayam
 
 *tvam ca*—tú también; *anena*—con este proceso; *mahā-bhāge*—¡oh, muy afortunada!; *samyak cīrṇena*—realizado debidamente; *keśavam*—al Señor Keśava; *ātmanā*—por uno mismo; *śuddha-bhāvena*—con una mentalidad pura; *niyata-ātmā*—controlándose uno mismo; *bhaja*—sigue adorando; *avyayam*—a la Suprema Personalidad de Dios, que es inagotable.

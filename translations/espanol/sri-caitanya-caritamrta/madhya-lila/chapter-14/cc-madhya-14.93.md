@@ -1,9 +1,9 @@
 ### CC Madhya 14.93
 
-> বাণীনাথ আর যত প্রসাদ আনিল ।
+> বাণীনাথ আর যত প্রসাদ আনিল ।\
 > মহাপ্ৰভুর গণে সেই প্রসাদ খাইল ॥৯৩॥
 
-> vāṇīnātha āra yata prasāda ānila
+> vāṇīnātha āra yata prasāda ānila\
 > mahāprabhura gaṇe sei prasāda khāila
 
 *vāṇīnātha*—Vāṇīnātha Rāya; *āra*—extra; *yata*—todo lo que; *prasāda*—remanentes de alimento; *ānila*—trajo; *mahāprabhura gaṇe*—los asociados personales de Śrī Caitanya Mahāprabhu; *sei*—esos; *prasāda*—remanentes de alimento; *khāila*—comieron.

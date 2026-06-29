@@ -1,11 +1,11 @@
 ### SB 1.7.48
 
-> यैः कोपितं ब्रह्मकुलं राजन्यैरजितात्मभिः ।
+> यैः कोपितं ब्रह्मकुलं राजन्यैरजितात्मभिः ।\
 > तत्कुलं प्रदहत्याशु सानुबन्धं शुचार्पितम् ॥४८॥
 
-> yaiḥ kopitaṁ brahma-kulaṁ
-> rājanyair ajitātmabhiḥ
-> tat kulaṁ pradahaty āśu
+> yaiḥ kopitaṁ brahma-kulaṁ\
+> rājanyair ajitātmabhiḥ\
+> tat kulaṁ pradahaty āśu\
 > sānubandhaṁ śucārpitam
 
 *yaiḥ*—por aquellos; *kopitam*—enfurecidos; *brahma-kulam*—la orden de los *brāhmaṇas*; *rājanyaiḥ*—por la orden administradora; *ajita*—sin restricción; *ātmabhiḥ*—por uno mismo; *tat*—eso; *kulam*—familia; *pradahati*—es quemada; *āśu*—en muy poco tiempo; *sa-anubandham*—junto con los miembros de la familia; *śucā-arpitam*—siendo puestos en un estado de pesar.

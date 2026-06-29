@@ -1,9 +1,9 @@
 ### CC Madhya 15.163
 
-> জীবের পাপ লঞা মুঞি করোঁ নরক ভোগ  ।
+> জীবের পাপ লঞা মুঞি করোঁ নরক ভোগ  ।\
 > সকল জীবের, প্রভু, ঘুচাহ ভবরোগ ॥১৬৩॥
 
-> jīvera pāpa lañā muñi karoṅ naraka bhoga
+> jīvera pāpa lañā muñi karoṅ naraka bhoga\
 > sakala jīvera, prabhu, ghucāha bhava-roga
 
 *jīvera*—de todas las almas condicionadas; *pāpa lañā*—aceptando las reacciones pecaminosas; *muñi*—yo; *karoṅ*—sufro; *naraka*—vida infernal; *bhoga*—sufrimiento; *sakala jīvera*—de todas las entidades vivientes; *prabhu*—mi querido Señor; *ghucāha*—por favor, pon fin a; *bhava-roga*—la enfermedad material.

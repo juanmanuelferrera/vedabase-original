@@ -1,11 +1,11 @@
 ### SB 3.13.23
 
-> इति मीमांसतस्तस्य ब्रह्मणः सह सूनुभिः ।
+> इति मीमांसतस्तस्य ब्रह्मणः सह सूनुभिः ।\
 > भगवान्यज्ञपुरुषो जगर्जागेन्द्रसन्निभः ॥२३॥
 
-> iti mīmāṁsatas tasya
-> brahmaṇaḥ saha sūnubhiḥ
-> bhagavān yajña-puruṣo
+> iti mīmāṁsatas tasya\
+> brahmaṇaḥ saha sūnubhiḥ\
+> bhagavān yajña-puruṣo\
 > jagarjāgendra-sannibhaḥ
 
 *iti*—thus; *mīmāṁsataḥ*—while deliberating; *tasya*—his; *brahmaṇaḥ*—of Brahmā; *saha*—along with; *sūnubhiḥ*—his sons; *bhagavān*—the Personality of Godhead; *yajña*—Lord Viṣṇu; *puruṣaḥ*—the Supreme Person; *jagarja*—resounded; *aga-indra*—great mountain; *sannibhaḥ*—like.

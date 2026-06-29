@@ -1,9 +1,9 @@
 ### CC Antya 17.19
 
-> অনেক করিলা যত্ন, না হয় চেতন ।
+> অনেক করিলা যত্ন, না হয় চেতন ।\
 > প্রভুরে উঠাইয়া ঘরে আনিলা ভক্তগণ ॥১৯॥
 
-> aneka karilā yatna, nā haya cetana
+> aneka karilā yatna, nā haya cetana\
 > prabhure uṭhāñā ghare ānilā bhakta-gaṇa
 
 *aneka*—muchos; *karilā*—hicieron; *yatna*—esfuerzos; *nā haya*—no hubo; *cetana*—conciencia; *prabhure*—a Śrī Caitanya Mahāprabhu; *uṭhāñā*—levantando; *ghare*—a casa; *ānilā*—trajeron; *bhakta-gaṇa*—los devotos.

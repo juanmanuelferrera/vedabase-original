@@ -1,11 +1,11 @@
 ### SB 1.19.5
 
-> अथो विहायेमममुं च लोकं विमर्शितौ हेयतया पुरस्तात् ।
+> अथो विहायेमममुं च लोकं विमर्शितौ हेयतया पुरस्तात् ।\
 > कृष्णाङ्घ्रिसेवामधिमन्यमान उपाविशत्प्रायममर्त्यनद्याम् ॥५॥
 
-> atho vihāyemam amuṁ ca lokaṁ
-> vimarśitau heyatayā purastāt
-> kṛṣṇāṅghri-sevām adhimanyamāna
+> atho vihāyemam amuṁ ca lokaṁ\
+> vimarśitau heyatayā purastāt\
+> kṛṣṇāṅghri-sevām adhimanyamāna\
 > upāviśat prāyam amartya-nadyām
 
 *atho*—thus; *vihāya*—giving up; *imam*—this; *amum*—and the next; *ca*—also; *lokam*—planets; *vimarśitau*—all of them being judged; *heyatayā*—because of inferiority; *purastāt*—hereinbefore; *kṛṣṇa-aṅghri*—the lotus feet of the Lord, Śrī Kṛṣṇa; *sevām*—transcendental loving service; *adhimanyamānaḥ*—one who thinks of the greatest of all achievements; *upāviśat*—sat down firmly; *prāyam*—for fasting; *amartya-nadyām*—on the bank of the transcendental river (the Ganges or the Yamunā).

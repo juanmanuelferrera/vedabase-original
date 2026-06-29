@@ -1,9 +1,9 @@
 ### CC Antya 1.198
 
-> মধুর প্রসন্ন ইহার কাব্য সালঙ্কার  ।
+> মধুর প্রসন্ন ইহার কাব্য সালঙ্কার  ।\
 > ঐছে কবিত্ব বিনু নহে রসের প্রচার ॥১৯৮॥
 
-> madhura prasanna ihāra kāvya sālaṅkāra
+> madhura prasanna ihāra kāvya sālaṅkāra\
 > aiche kavitva vinu nahe rasera pracāra
 
 *madhura*—sweet; *prasanna*—pleasing; *ihāra*—his; *kāvya*—poetry; *sa-alaṅkāra*—with metaphors and other ornaments; *aiche*—such as that; *kavitva*—poetic qualifications; *vinu*—without; *nahe*—there is not; *rasera*—of mellows; *pracāra*—preaching.

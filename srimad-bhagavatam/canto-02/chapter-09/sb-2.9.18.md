@@ -1,11 +1,11 @@
 ### SB 2.9.18
 
-> तद्दर्शनाह्लादपरिप्लुतान्तरो हृष्यत्तनुः प्रेमभराश्रुलोचनः ।
+> तद्दर्शनाह्लादपरिप्लुतान्तरो हृष्यत्तनुः प्रेमभराश्रुलोचनः ।\
 > ननाम पादाम्बुजमस्य विश्वसृग्यत्पारमहंस्येन पथाधिगम्यते ॥१८॥
 
-> tad-darśanāhlāda-pariplutāntaro
-> hṛṣyat-tanuḥ prema-bharāśru-locanaḥ
-> nanāma pādāmbujam asya viśva-sṛg
+> tad-darśanāhlāda-pariplutāntaro\
+> hṛṣyat-tanuḥ prema-bharāśru-locanaḥ\
+> nanāma pādāmbujam asya viśva-sṛg\
 > yat pāramahaṁsyena pathādhigamyate
 
 *tat*—by that audience of the Lord; *darśana*—audience; *āhlāda*—joy; *paripluta*—overwhelmed; *antaraḥ*—within the heart; *hṛṣyat*—full in ecstasy; *tanuḥ*—body; *prema-bhara*—in full transcendental love; *aśru*—tears; *locanaḥ*—in the eyes; *nanāma*—bowed down; *pāda-ambujam*—under the lotus feet; *asya*—of the Lord; *viśva-sṛk*—the creator of the universe; *yat*—which; *pāramahaṁsyena*—by the great liberated soul; *pathā*—the path; *adhigamyate*—is followed.

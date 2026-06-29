@@ -1,11 +1,11 @@
 ### SB 4.13.4
 
-> स्वधर्मशीलैः पुरुषैर्भगवान्यज्ञपूरुषः ।
+> स्वधर्मशीलैः पुरुषैर्भगवान्यज्ञपूरुषः ।\
 > इज्यमानो भक्तिमता नारदेनेरितः किल ॥४॥
 
-> sva-dharma-śīlaiḥ puruṣair
-> bhagavān yajña-pūruṣaḥ
-> ijyamāno bhaktimatā
+> sva-dharma-śīlaiḥ puruṣair\
+> bhagavān yajña-pūruṣaḥ\
+> ijyamāno bhaktimatā\
 > nāradeneritaḥ kila
 
 *sva-dharma-śīlaiḥ*—ejecutando deberes de sacrificio; *puruṣaiḥ*—por los hombres; *bhagavān*—la Suprema Personalidad de Dios; *yajña-pūruṣaḥ*—el disfrutador de todos los sacrificios; *ijyamānaḥ*—siendo adorado; *bhaktimatā*—por el devoto; *nāradena*—por Nārada; *īritaḥ*—descrito; *kila*—en verdad.

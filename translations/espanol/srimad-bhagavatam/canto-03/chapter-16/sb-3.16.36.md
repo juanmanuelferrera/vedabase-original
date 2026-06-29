@@ -1,11 +1,11 @@
 ### SB 3.16.36
 
-> तयोरसुरयोरद्य तेजसा यमयोर्हि वः ।
+> तयोरसुरयोरद्य तेजसा यमयोर्हि वः ।\
 > आक्षिप्तं तेज एतर्हि भगवांस्तद्विधित्सति ॥३६॥
 
-> tayor asurayor adya
-> tejasā yamayor hi vaḥ
-> ākṣiptaṁ teja etarhi
+> tayor asurayor adya\
+> tejasā yamayor hi vaḥ\
+> ākṣiptaṁ teja etarhi\
 > bhagavāṁs tad vidhitsati
 
 *tayoḥ*—de ellos; *asurayoḥ*—de los dos *asuras*; *adya*—hoy; *tejasā*—por la valentía; *yamayoḥ*—de los mellizos; *hi*—ciertamente; *vaḥ*—de todos ustedes, los semidioses; *ākṣiptam*—agitado; *tejaḥ*—poder; *etarhi*—así ciertamente; *bhagavān*—la Suprema Personalidad de Dios; *tat*—eso; *vidhitsati*—desea hacer.

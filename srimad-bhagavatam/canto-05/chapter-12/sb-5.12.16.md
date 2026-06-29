@@ -1,11 +1,11 @@
 ### SB 5.12.16
 
-> तस्मान्नरोऽसङ्गसुसङ्गजात ज्ञआनासिनेहैव विवृक्णमोहः
+> तस्मान्नरोऽसङ्गसुसङ्गजात ज्ञआनासिनेहैव विवृक्णमोहः\
 > हरिं तदीहाकथनश्रुताभ्यां लब्धस्मृतिर्यात्यतिपारमध्वनः ॥१६॥
 
-> tasmān naro 'saṅga-susaṅga-jāta-
-> jñānāsinehaiva vivṛkṇa-mohaḥ
-> hariṁ tad-īhā-kathana-śrutābhyāṁ
+> tasmān naro 'saṅga-susaṅga-jāta-\
+> jñānāsinehaiva vivṛkṇa-mohaḥ\
+> hariṁ tad-īhā-kathana-śrutābhyāṁ\
 > labdha-smṛtir yāty atipāram adhvanaḥ
 
 *tasmāt*—for this reason; *naraḥ*—every person; *asaṅga*—by detachment from the association of worldly people; *su-saṅga*—by the association of devotees; *jāta*—produced; *jñāna-asinā*—by the sword of knowledge; *iha*—in this material world; *eva*—even; *vivṛkṇa-mohaḥ*—whose illusion is completely cut to pieces; *harim*—the Supreme Personality of Godhead; *tad-īhā*—of His activities; *kathana-śrutābhyām*—by the two processes of hearing and chanting; *labdha-smṛtiḥ*—the lost consciousness is regained; *yāti*—achieves; *atipāram*—the ultimate end; *adhvanaḥ*—of the path back home, back to Godhead.

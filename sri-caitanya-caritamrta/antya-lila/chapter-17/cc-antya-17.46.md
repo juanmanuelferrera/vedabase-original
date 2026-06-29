@@ -1,13 +1,13 @@
 ### CC Antya 17.46
 
-> যেবা বেণু-কলধ্বনি, একবার তাহা শুনি’,
-> জগন্নারী-চিত্ত আউলায় ।
-> নীবি-বন্ধ পড়ে খসি’, বিনা-মূলে হয় দাসী,
+> যেবা বেণু-কলধ্বনি, একবার তাহা শুনি’,\
+> জগন্নারী-চিত্ত আউলায় ।\
+> নীবি-বন্ধ পড়ে খসি’, বিনা-মূলে হয় দাসী,\
 > বাউলী হঞা কৃষ্ণ-পাশে ধায় ॥৪৬॥
 
-> yebā veṇu-kala-dhvani, eka-bāra tāhā śuni',
-> jagan-nārī-citta āulāya
-> nīvi-bandha paḍe khasi', vinā-mūle haya dāsī,
+> yebā veṇu-kala-dhvani, eka-bāra tāhā śuni',\
+> jagan-nārī-citta āulāya\
+> nīvi-bandha paḍe khasi', vinā-mūle haya dāsī,\
 > bāulī hañā kṛṣṇa-pāśe dhāya
 
 *yebā*—whoever; *veṇu*—of the flute; *kala-dhvani*—the sweet vibration; *eka-bāra*—once; *tāhā*—that; *śuni'*—hearing; *jagat*—of the universe; *nārī*—of the women; *citta*—hearts; *āulāya*—become disturbed; *nīvi-bandha*—the fastened belts; *paḍe*—fall; *khasi'*—becoming loosened; *vinā-mūle*—without a price; *haya*—they become; *dāsī*—maidservants; *bāulī*—mad; *hañā*—becoming; *kṛṣṇa-pāśe*—after Kṛṣṇa; *dhāya*—run.

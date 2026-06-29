@@ -1,9 +1,9 @@
 ### CC Adi 10.161
 
-> সকল ভরিয়া আছে প্রেম-ফুল-ফলে ।
+> সকল ভরিয়া আছে প্রেম-ফুল-ফলে ।\
 > ভাসাইল ত্রিজগৎ কৃষ্ণপ্রেম-জলে ॥১৬১॥
 
-> sakala bhariyā āche prema-phula-phale
+> sakala bhariyā āche prema-phula-phale\
 > bhāsāila tri-jagat kṛṣṇa-prema-jale
 
 *sakala*—all; *bhariyā*—filled; *āche*—there is; *prema*—love of Godhead; *phula*—flowers; *phale*—fruits; *bhāsāila*—inundated; *tri-jagat*—the whole world; *kṛṣṇa-prema*—of love of Kṛṣṇa; *jale*—with water.

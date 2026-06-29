@@ -1,11 +1,11 @@
 ### SB 3.32.28
 
-> ज्ञानमेकं पराचीनैरिन्द्रियैर्ब्रह्म निर्गुणम् ।
+> ज्ञानमेकं पराचीनैरिन्द्रियैर्ब्रह्म निर्गुणम् ।\
 > अवभात्यर्थरूपेण भ्रान्त्या शब्दादिधर्मिणा ॥२८॥
 
-> jñānam ekaṁ parācīnair
-> indriyair brahma nirguṇam
-> avabhāty artha-rūpeṇa
+> jñānam ekaṁ parācīnair\
+> indriyair brahma nirguṇam\
+> avabhāty artha-rūpeṇa\
 > bhrāntyā śabdādi-dharmiṇā
 
 *jñānam*—conocimiento; *ekam*—uno; *parācīnaiḥ*—personas adversas; *indriyaiḥ*—por medio de los sentidos; *brahma*—la Suprema Verdad Absoluta; *nirguṇam*—más allá de las modalidades materiales; *avabhāti*—aparece; *artha-rūpeṇa*—en forma de diversos objetos; *bhrāntyā*—erróneamente; *śabda-ādi*—sonido, etc; *dharmiṇā*—dotada con.

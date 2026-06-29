@@ -1,11 +1,11 @@
 ### SB 4.22.28
 
-> आत्मानमिन्द्रियार्थं च परं यदुभयोरपि ।
+> आत्मानमिन्द्रियार्थं च परं यदुभयोरपि ।\
 > सत्याशय उपाधौ वै पुमान्पश्यति नान्यदा ॥२८॥
 
-> ātmānam indriyārthaṁ ca
-> paraṁ yad ubhayor api
-> saty āśaya upādhau vai
+> ātmānam indriyārthaṁ ca\
+> paraṁ yad ubhayor api\
+> saty āśaya upādhau vai\
 > pumān paśyati nānyadā
 
 *ātmānam*—the soul; *indriya-artham*—for sense gratification; *ca*—and; *param*—transcendental; *yat*—that; *ubhayoḥ*—both; *api*—certainly; *sati*—being situated; *āśaye*—material desires; *upādhau*—designation; *vai*—certainly; *pumān*—the person; *paśyati*—sees; *na anyadā*—not otherwise.

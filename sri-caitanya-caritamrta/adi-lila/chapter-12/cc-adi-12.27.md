@@ -1,9 +1,9 @@
 ### CC Adi 12.27
 
-> আচার্যের আর পুত্র — শ্রীবলরাম ।
+> আচার্যের আর পুত্র — শ্রীবলরাম ।\
 > আর পুত্র — ‘স্বরূপ’-শাখা, ‘জগদীশ’ নাম ॥২৭॥
 
-> ācāryera āra putra—śrī-balarāma
+> ācāryera āra putra—śrī-balarāma\
 > āra putra—'svarūpa'-śākhā, 'jagadīśa' nāma
 
 *ācāryera*—of Śrīla Advaita Ācārya; *āra*—another; *putra*—son; *śrī-balarāma*—of the name Śrī Balarāma; *āra putra*—another son; *svarūpa*—of the name Svarūpa; *śākhā*—branch; *jagadīśa nāma*—of the name Jagadīśa.

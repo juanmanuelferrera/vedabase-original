@@ -1,11 +1,11 @@
 ### Bg 2.50
 
-> बुद्धियुक्तो जहातीह उभे सुकृतदुष्कृते ।
+> बुद्धियुक्तो जहातीह उभे सुकृतदुष्कृते ।\
 > तस्माद्योगाय युज्यस्व योगः कर्मसु कौशलम् ॥५०॥
 
-> buddhi-yukto jahātīha
-> ubhe sukṛta-duṣkṛte
-> tasmād yogāya yujyasva
+> buddhi-yukto jahātīha\
+> ubhe sukṛta-duṣkṛte\
+> tasmād yogāya yujyasva\
 > yogaḥ karmasu kauśalam
 
 *buddhi-yuktaḥ*—aquel que está ocupado en el servicio devocional; *jahāti*—puede librarse de; *iha*—en esta vida; *ubhe*—en ambos; *sukṛta-duṣkṛte*—en los resultados buenos y malos; *tasmāt*—por consiguiente; *yogāya*—por el servicio devocional; *yujyasva*—ocúpate así; *yogaḥ*—conciencia de Kṛṣṇa; *karmasu*—en todas las actividades; *kauśalam*—arte.

@@ -1,11 +1,11 @@
 ### SB 1.13.23
 
-> अहो महीयसी जन्तोर्जीविताशा यथा भवान् ।
+> अहो महीयसी जन्तोर्जीविताशा यथा भवान् ।\
 > भीमापवर्जितं पिण्डमादत्ते गृहपालवत् ॥२३॥
 
-> aho mahīyasī jantor
-> jīvitāśā yathā bhavān
-> bhīmāpavarjitaṁ piṇḍam
+> aho mahīyasī jantor\
+> jīvitāśā yathā bhavān\
+> bhīmāpavarjitaṁ piṇḍam\
 > ādatte gṛha-pālavat
 
 *aho*—alas; *mahīyasī*—powerful; *jantoḥ*—of the living beings; *jīvita-āśā*—hope for life; *yathā*—as much as; *bhavān*—you are; *bhīma*—of Bhīmasena (a brother of Yudhiṣṭhira's); *apavarjitam*—remnants; *piṇḍam*—foodstuff; *ādatte*—eaten by; *gṛha-pāla-vat*—like a household dog.

@@ -1,9 +1,9 @@
 ### CC Antya 3.54
 
-> মহাপ্রেমে ভক্ত কহে, — ‘হা রাম, হা রাম’ ।
+> মহাপ্রেমে ভক্ত কহে, — ‘হা রাম, হা রাম’ ।\
 > যবনের ভাগ্য দেখ, লয় সেই নাম ॥৫৪॥
 
-> mahā-preme bhakta kahe,--'hā rāma, hā rāma'
+> mahā-preme bhakta kahe,--'hā rāma, hā rāma'\
 > yavanera bhāgya dekha, laya sei nāma
 
 *mahā-preme*—con gran amor extático; *bhakta kahe*—un devoto dice; *hā rāma hā rāma*—¡oh, Señor Rāmacandra!, ¡oh, Señor Rāmacandra!; *yavanera*—de los *yavanas*; *bhāgya*—fortuna; *dekha*—mira; *laya sei nāma*—ellos también cantan el mismo santo nombre.

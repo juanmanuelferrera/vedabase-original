@@ -1,9 +1,9 @@
 ### CC Madhya 15.204
 
-> পাকশালার দক্ষিণে — দুই ভোগালয়  ।
+> পাকশালার দক্ষিণে — দুই ভোগালয়  ।\
 > এক-ঘরে শালগ্রামের ভোগ-সেবা হয় ॥২০৪॥
 
-> pāka-śālāra dakṣiṇe--dui bhogālaya
+> pāka-śālāra dakṣiṇe--dui bhogālaya\
 > eka-ghare śālagrāmera bhoga-sevā haya
 
 *pāka-śālāra dakṣiṇe*—en el lado sur de la cocina; *dui bhoga-ālaya*—dos habitaciones para ofrecer alimentos; *eka-ghare*—en una habitación; *śālagrāmera*—del Señor Śālagrāma; *bhoga-sevā*—ofrenda de alimentos; *haya*—tiene lugar.

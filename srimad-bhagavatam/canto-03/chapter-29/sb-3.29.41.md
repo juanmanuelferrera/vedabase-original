@@ -1,11 +1,11 @@
 ### SB 3.29.41
 
-> यद्वनस्पतयो भीता लताश्चौषधिभिः सह ।
+> यद्वनस्पतयो भीता लताश्चौषधिभिः सह ।\
 > स्वे स्वे कालेऽभिगृह्णन्ति पुष्पाणि च फलानि च ॥४१॥
 
-> yad vanaspatayo bhītā
-> latāś cauṣadhibhiḥ saha
-> sve sve kāle 'bhigṛhṇanti
+> yad vanaspatayo bhītā\
+> latāś cauṣadhibhiḥ saha\
+> sve sve kāle 'bhigṛhṇanti\
 > puṣpāṇi ca phalāni ca
 
 *yat*—because of whom; *vanaḥ-patayaḥ*—the trees; *bhītāḥ*—fearful; *latāḥ*—creepers; *ca*—and; *oṣadhibhiḥ*—herbs; *saha*—with; *sve sve kāle*—each in its own season; *abhigṛhṇanti*—bear; *puṣpāṇi*—flowers; *ca*—and; *phalāni*—fruits; *ca*—also.

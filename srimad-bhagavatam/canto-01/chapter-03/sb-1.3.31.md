@@ -1,11 +1,11 @@
 ### SB 1.3.31
 
-> यथा नभसि मेघौघो रेणुर्वा पार्थिवोऽनिले ।
+> यथा नभसि मेघौघो रेणुर्वा पार्थिवोऽनिले ।\
 > एवं द्रष्टरि दृश्यत्वमारोपितमबुद्धिभिः ॥३१॥
 
-> yathā nabhasi meghaugho
-> reṇur vā pārthivo 'nile
-> evaṁ draṣṭari dṛśyatvam
+> yathā nabhasi meghaugho\
+> reṇur vā pārthivo 'nile\
+> evaṁ draṣṭari dṛśyatvam\
 > āropitam abuddhibhiḥ
 
 *yathā*—as it is; *nabhasi*—in the sky; *megha-oghaḥ*—a mass of clouds; *reṇuḥ*—dust; *vā*—as well as; *pārthivaḥ*—muddiness; *anile*—in the air; *evam*—thus; *draṣṭari*—to the seer; *dṛśyatvam*—for the purpose of seeing; *āropitam*—is implied; *abuddhibhiḥ*—by the less intelligent persons.

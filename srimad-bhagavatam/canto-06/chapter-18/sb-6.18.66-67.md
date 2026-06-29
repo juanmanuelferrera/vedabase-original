@@ -1,18 +1,18 @@
 ### SB 6.18.66-67
 
-> सकृदिष्ट्वादिपुरुषं पुरुषो याति साम्यताम
-> संवत्सरं किञ्चिदूनं दित्या यद्धरिरर्चितः ॥६६॥
-> सजूरिन्द्रेण पञ्चाशद्देवास्ते मरुतोऽभवन
+> सकृदिष्ट्वादिपुरुषं पुरुषो याति साम्यताम\
+> संवत्सरं किञ्चिदूनं दित्या यद्धरिरर्चितः ॥६६॥\
+> सजूरिन्द्रेण पञ्चाशद्देवास्ते मरुतोऽभवन\
 > व्यपोह्य मातृदोषं ते हरिणा सोमपाः कृताः ॥६७॥
 
-> sakṛd iṣṭvādi-puruṣaṁ
-> puruṣo yāti sāmyatām
-> saṁvatsaraṁ kiñcid ūnaṁ
+> sakṛd iṣṭvādi-puruṣaṁ\
+> puruṣo yāti sāmyatām\
+> saṁvatsaraṁ kiñcid ūnaṁ\
 > dityā yad dharir arcitaḥ
 
-> sajūr indreṇa pañcāśad
-> devās te maruto 'bhavan
-> vyapohya mātṛ-doṣaṁ te
+> sajūr indreṇa pañcāśad\
+> devās te maruto 'bhavan\
+> vyapohya mātṛ-doṣaṁ te\
 > hariṇā soma-pāḥ kṛtāḥ
 
 *sakṛt*—once; *iṣṭvā*—worshiping; *ādi-puruṣam*—the original person; *puruṣaḥ*—a person; *yāti*—goes to; *sāmyatām*—possessing the same bodily feature as the Lord; *saṁvatsaram*—a year; *kiñcit ūnam*—a little less than; *dityā*—by Diti; *yat*—because; *hariḥ*—Lord Hari; *arcitaḥ*—was worshiped; *sajūḥ*—with; *indreṇa*—Indra; *pañcāśat*—fifty; *devāḥ*—demigods; *te*—they; *marutaḥ*—the Maruts; *abhavan*—became; *vyapohya*—removing; *mātṛ-doṣam*—the fault of their mother; *te*—they; *hariṇā*—by Lord Hari; *soma-pāḥ*—drinkers of *soma-rasa*; *kṛtāḥ*—were made.

@@ -1,13 +1,13 @@
 ### SB 4.1.57
 
-> सोऽयं स्थितिव्यतिकरोपशमाय सृष्टान्
-> सत्त्वेन नः सुरगणाननुमेयतत्त्वः ।
-> दृश्याददभ्रकरुणेन विलोकनेन
+> सोऽयं स्थितिव्यतिकरोपशमाय सृष्टान्\
+> सत्त्वेन नः सुरगणाननुमेयतत्त्वः ।\
+> दृश्याददभ्रकरुणेन विलोकनेन\
 > यच्छ्रीनिकेतममलं क्षिपतारविन्दम् ॥५७॥
 
-> so 'yaṁ sthiti-vyatikaropaśamāya sṛṣṭān
-> sattvena naḥ sura-gaṇān anumeya-tattvaḥ
-> dṛśyād adabhra-karuṇena vilokanena
+> so 'yaṁ sthiti-vyatikaropaśamāya sṛṣṭān\
+> sattvena naḥ sura-gaṇān anumeya-tattvaḥ\
+> dṛśyād adabhra-karuṇena vilokanena\
 > yac chrī-niketam amalaṁ kṣipatāravindam
 
 *saḥ*—que; *ayam*—Él; *sthiti*—del mundo creado; *vyatikara*—calamidades; *upaśamāya*—para destruir; *sṛṣṭān*—creó; *sattvena*—por medio de la modalidad de la bondad; *naḥ*—a nosotros; *sura-gaṇān*—los semidioses; *anumeya-tattvaḥ*—que se entiende mediante los *Vedas*; *dṛśyāt*—mire a; *adabhra-karuṇena*—misericordiosa; *vilokanena*—mirada; *yat*—la cual; *śrī-niketam*—el hogar de la diosa de la fortuna; *amalam*—inmaculada; *kṣipata*—supera; *aravindam*—loto.

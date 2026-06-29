@@ -1,11 +1,11 @@
 ### SB 4.25.50
 
-> पितृहूर्नृप पुर्या द्वार्दक्षिणेन पुरञ्जनः ।
+> पितृहूर्नृप पुर्या द्वार्दक्षिणेन पुरञ्जनः ।\
 > राष्ट्रं दक्षिणपञ्चालं याति श्रुतधरान्वितः ॥५०॥
 
-> pitṛhūr nṛpa puryā dvār
-> dakṣiṇena purañjanaḥ
-> rāṣṭraṁ dakṣiṇa-pañcālaṁ
+> pitṛhūr nṛpa puryā dvār\
+> dakṣiṇena purañjanaḥ\
+> rāṣṭraṁ dakṣiṇa-pañcālaṁ\
 > yāti śrutadharānvitaḥ
 
 *pitṛhūḥ*—of the name Pitṛhū; *nṛpa*—O King; *puryāḥ*—of the city; *dvāḥ*—gate; *dakṣiṇena*—on the southern side; *purañjanaḥ*—King Purañjana; *rāṣṭram*—country; *dakṣiṇa*—southern; *pañcālam*—of the name Pañcāla; *yāti*—used to go; *śruta-dhara-anvitaḥ*—along with his friend Śrutadhara.

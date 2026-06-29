@@ -1,11 +1,11 @@
 ### SB 1.19.36
 
-> अन्यथा तेऽव्यक्तगतेर्दर्शनं नः कथं नृणाम् ।
+> अन्यथा तेऽव्यक्तगतेर्दर्शनं नः कथं नृणाम् ।\
 > नितरां म्रियमाणानां संसिद्धस्य वनीयसः ॥३६॥
 
-> anyathā te 'vyakta-gater
-> darśanaṁ naḥ kathaṁ nṛṇām
-> nitarāṁ mriyamāṇānāṁ
+> anyathā te 'vyakta-gater\
+> darśanaṁ naḥ kathaṁ nṛṇām\
+> nitarāṁ mriyamāṇānāṁ\
 > saṁsiddhasya vanīyasaḥ
 
 *anyathā*—otherwise; *te*—your; *avyakta-gateḥ*—of one whose movements are invisible; *darśanam*—meeting; *naḥ*—for us; *katham*—how; *nṛṇām*—of the people; *nitarām*—specifically; *mriyamāṇānām*—of those who are about to die; *saṁsiddhasya*—of one who is all-perfect; *vanīyasaḥ*—voluntary appearance.

@@ -1,9 +1,9 @@
 ### CC Madhya 14.47
 
-> ইহাঁ জগন্নাথের রথ-চলন-সময় ।
+> ইহাঁ জগন্নাথের রথ-চলন-সময় ।\
 > গৌড় সব রথ টানে, আগে নাহি যায় ॥৪৭॥
 
-> ihāṅ jagannāthera ratha-calana-samaya
+> ihāṅ jagannāthera ratha-calana-samaya\
 > gauḍa saba ratha ṭāne, āge nāhi yāya
 
 *ihāṅ*—outside the garden; *jagannāthera*—of Lord Jagannātha; *ratha-calana-samaya*—at the time of drawing the car; *gauḍa*—the workers named *gauḍas* who draw the car; *saba*—all; *ratha ṭāne*—pull the car; *āge*—forward; *nāhi yāya*—it does not go.

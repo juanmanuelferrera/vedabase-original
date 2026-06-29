@@ -1,9 +1,9 @@
 ### CC Madhya 16.275
 
-> ধিক্ ধিক্ আপনাকে বলি’ হইলাঙ অস্থির ।
+> ধিক্ ধিক্ আপনাকে বলি’ হইলাঙ অস্থির ।\
 > নিবৃত্ত হঞা পুনঃ আইলাঙ গঙ্গাতীর ॥২৭৫॥
 
-> dhik, dhik āpanāke bali' ha-ilāṅa asthira
+> dhik, dhik āpanāke bali' ha-ilāṅa asthira\
 > nivṛtta hañā punaḥ āilāṅa gaṅgā-tīra
 
 *dhik dhik*—¡vergüenza, vergüenza!; *āpanāke*—a Mí mismo; *bali'*—diciendo; *ha-ilāṅa*—Me puse; *asthira*—agitado; *nivṛtta hañā*—deteniendo tal acción; *punaḥ*—de nuevo; *āilāṅa*—regresé; *gaṅgā-tīra*—a la orilla del Ganges.

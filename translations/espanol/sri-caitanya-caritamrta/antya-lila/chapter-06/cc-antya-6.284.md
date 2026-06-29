@@ -1,9 +1,9 @@
 ### CC Antya 6.284
 
-> প্রভু কহে, — “ভাল কৈল, ছাড়িল সিংহদ্বার ।
+> প্রভু কহে, — “ভাল কৈল, ছাড়িল সিংহদ্বার ।\
 > সিংহদ্বারে ভিক্ষা-বৃত্তি — বেশ্যার আচার ॥২৮৪॥
 
-> prabhu kahe,--"bhāla kaila, chāḍila siṁha-dvāra
+> prabhu kahe,--"bhāla kaila, chāḍila siṁha-dvāra\
 > siṁha-dvāre bhikṣā-vṛtti--veṣyāra ācāra
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *bhāla kaila*—ha hecho bien; *chāḍila siṁha-dvāra*—ha dejado de estar de pie en el Siṁha-dvāra; *siṁha-dvāre bhikṣā-vṛtti*—mendigar limosna de pie en el Siṁha-dvāra; *veśyāra ācāra*—el comportamiento de una prostituta.

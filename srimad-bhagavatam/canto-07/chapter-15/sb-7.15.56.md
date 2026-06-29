@@ -1,11 +1,11 @@
 ### SB 7.15.56
 
-> य एते पितृदेवानामयने वेदनिर्मिते
+> य एते पितृदेवानामयने वेदनिर्मिते\
 > शास्त्रेण चक्षुषा वेद जनस्थोऽपि न मुह्यति ॥५६॥
 
-> ya ete pitṛ-devānām
-> ayane veda-nirmite
-> śāstreṇa cakṣuṣā veda
+> ya ete pitṛ-devānām\
+> ayane veda-nirmite\
+> śāstreṇa cakṣuṣā veda\
 > jana-stho 'pi na muhyati
 
 *yaḥ*—one who; *ete*—on this path (as recommended above); *pitṛ-devānām*—known as *pitṛ-yāna* and *deva-yāna*; *ayane*—on this path; *veda-nirmite*—recommended in the *Vedas*; *śāstreṇa*—by regular study of the scriptures; *cakṣuṣā*—by enlightened eyes; *veda*—is fully aware; *jana-sthaḥ*—a person situated in a material body; *api*—even though; *na*—never; *muhyati*—is bewildered.

@@ -1,9 +1,9 @@
 ### CC Madhya 17.21
 
-> পূর্বরাত্র্যে জগন্নাথ দেখি’ ‘আজ্ঞা’ লঞা ।
+> পূর্বরাত্র্যে জগন্নাথ দেখি’ ‘আজ্ঞা’ লঞা ।\
 > শেষ-রাত্রে উঠি’ প্রভু চলিলা লুকাঞা ॥২১॥
 
-> pūrva-rātrye jagannātha dekhi' 'ājñā' lañā
+> pūrva-rātrye jagannātha dekhi' 'ājñā' lañā\
 > śeṣa-rātre uṭhi' prabhu calilā lukāñā
 
 *pūrva-rātrye*—la noche anterior; *jagannātha dekhi’*—ver al Señor Jagannātha; *ājñā lañā*—recibir permiso; *śeṣa-rātre*—cuando ya la noche tocaba a su fin; *uṭhi’*—levantándose; *prabhu*—Śrī Caitanya Mahāprabhu; *calilā*—partió; *lukāñā*—sin ser visto.

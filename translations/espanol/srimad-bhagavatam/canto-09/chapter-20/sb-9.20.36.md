@@ -1,11 +1,11 @@
 ### SB 9.20.36
 
-> अन्तर्वत्न्यां भ्रातृपत्न्यां मैथुनाय बृहस्पतिः
+> अन्तर्वत्न्यां भ्रातृपत्न्यां मैथुनाय बृहस्पतिः\
 > प्रवृत्तो वारितो गर्भं शप्त्वा वीर्यमुपासृजत ॥३६॥
 
-> antarvatnyāṁ bhrātṛ-patnyāṁ
-> maithunāya bṛhaspatiḥ
-> pravṛtto vārito garbhaṁ
+> antarvatnyāṁ bhrātṛ-patnyāṁ\
+> maithunāya bṛhaspatiḥ\
+> pravṛtto vārito garbhaṁ\
 > śaptvā vīryam upāsṛjat
 
 *antaḥ-vatnyām*—embarazada; *bhrātṛ-patnyām*—con la esposa de su hermano; *maithunāya*—desear el disfrute sexual; *bṛhaspatiḥ*—el semidiós llamado Bṛhaspati; *pravṛttaḥ*—con esa inclinación; *vāritaḥ*—cuando le fue prohibido hacerlo; *garbham*—al hijo dentro del abdomen; *śaptvā*—maldiciendo; *vīryam*—semen; *upāsṛjat*—emitió.

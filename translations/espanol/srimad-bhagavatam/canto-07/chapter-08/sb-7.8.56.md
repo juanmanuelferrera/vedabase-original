@@ -1,13 +1,13 @@
 ### SB 7.8.56
 
-> श्रीविष्णुपार्षदा ऊचुः
-> अद्यैतद्धरिनररूपमद्भुतं ते दृष्टं नः शरणद सर्वलोकशर्म
+> श्रीविष्णुपार्षदा ऊचुः\
+> अद्यैतद्धरिनररूपमद्भुतं ते दृष्टं नः शरणद सर्वलोकशर्म\
 > सोऽयं ते विधिकर ईश विप्रशप्तस्तस्येदं निधनमनुग्रहाय विद्मः ॥५६॥
 
-> śrī-viṣṇu-pārṣadā ūcuḥ
-> adyaitad dhari-nara-rūpam adbhutaṁ te
-> dṛṣṭaṁ naḥ śaraṇada sarva-loka-śarma
-> so 'yaṁ te vidhikara īśa vipra-śaptas
+> śrī-viṣṇu-pārṣadā ūcuḥ\
+> adyaitad dhari-nara-rūpam adbhutaṁ te\
+> dṛṣṭaṁ naḥ śaraṇada sarva-loka-śarma\
+> so 'yaṁ te vidhikara īśa vipra-śaptas\
 > tasyedaṁ nidhanam anugrahāya vidmaḥ
 
 *śrī-viṣṇu-pārṣadāḥ ūcuḥ*—los sirvientes del Señor Viṣṇu en Vaikuṇṭhaloka dijeron; *adya*—hoy; *etat*—esta; *hari-nara*—de mitad león y mitad ser humano; *rūpam*—forma; *adbhutam*—muy maravillosa; *te*—Tuya; *dṛṣṭam*—vista; *naḥ*—de nosotros; *śaraṇa-da*—que nos ofreces refugio eternamente; *sarva-loka-śarma*—que trae buena fortuna a los diversos planetas; *saḥ*—él; *ayam*—este; *te*—de Tu Señoría; *vidhikaraḥ*—que cumple órdenes (sirviente); *īśa*—¡oh, Señor!; *vipra-śaptaḥ*—ser maldecido por los *brāhmaṇas*; *tasya*—de él; *idam*—esta; *nidhanam*—muerte; *anugrahāya*—como favor especial; *vidmaḥ*—entendemos.

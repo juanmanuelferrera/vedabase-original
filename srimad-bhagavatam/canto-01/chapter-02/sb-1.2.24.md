@@ -1,11 +1,11 @@
 ### SB 1.2.24
 
-> पार्थिवाद्दारुणो धूमस्तस्मादग्निस्त्रयीमयः ।
+> पार्थिवाद्दारुणो धूमस्तस्मादग्निस्त्रयीमयः ।\
 > तमसस्तु रजस्तस्मात्सत्त्वं यद्ब्रह्मदर्शनम् ॥२४॥
 
-> pārthivād dāruṇo dhūmas
-> tasmād agnis trayīmayaḥ
-> tamasas tu rajas tasmāt
+> pārthivād dāruṇo dhūmas\
+> tasmād agnis trayīmayaḥ\
+> tamasas tu rajas tasmāt\
 > sattvaṁ yad brahma-darśanam
 
 *pārthivāt*—from earth; *dāruṇaḥ*—firewood; *dhūmaḥ*—smoke; *tasmāt*—from that; *agniḥ*—fire; *trayī*—Vedic sacrifices; *mayaḥ*—made of; *tamasaḥ*—in the mode of ignorance; *tu*—but; *rajaḥ*—the mode of passion; *tasmāt*—from that; *sattvam*—the mode of goodness; *yat*—which; *brahma*—the Absolute Truth; *darśanam*—realization.

@@ -1,11 +1,11 @@
 ### Bg 3.7
 
-> यस्त्विन्द्रियाणि मनसा नियम्यारभतेऽर्जुन ।
+> यस्त्विन्द्रियाणि मनसा नियम्यारभतेऽर्जुन ।\
 > कर्मेन्द्रियैः कर्मयोगमसक्तः स विशिष्यते ॥७॥
 
-> yas tv indriyāṇi manasā
-> niyamyārabhate 'rjuna
-> karmendriyaiḥ karma-yogam
+> yas tv indriyāṇi manasā\
+> niyamyārabhate 'rjuna\
+> karmendriyaiḥ karma-yogam\
 > asaktaḥ sa viśiṣyate
 
 *yaḥ*—one who; *tu*—but; *indriyāṇi*—senses; *manasā*—by the mind; *niyamya*—regulating; *ārabhate*—begins; *arjuna*—O Arjuna; *karma-indriyaiḥ*—by the active sense organs; *karma-yogam*—devotion; *asaktaḥ*—without attachment; *saḥ*—he; *viśiṣyate*—by far the better.

@@ -1,9 +1,9 @@
 ### CC Adi 5.217
 
-> মো-অধমে দিল শ্রীগোবিন্দ দরশন ।
+> মো-অধমে দিল শ্রীগোবিন্দ দরশন ।\
 > কহিবার কথা নহে অকথ্য-কথন ॥২১৭॥
 
-> mo-adhame dila śrī-govinda daraśana
+> mo-adhame dila śrī-govinda daraśana\
 > kahibāra kathā nahe akathya-kathana
 
 *mo-adhame*—to one as abominable as me; *dila*—delivered; *śrī-govinda daraśana*—the audience of Lord Śrī Govinda; *kahibāra*—to speak this; *kathā*—words; *nahe*—there are not; *akathya*—unspeakable; *kathana*—narration.

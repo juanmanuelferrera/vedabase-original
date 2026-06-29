@@ -1,11 +1,11 @@
 ### SB 6.17.19
 
-> नैवात्मा न परश्चापि कर्ता स्यात्सुखदुःखयोः
+> नैवात्मा न परश्चापि कर्ता स्यात्सुखदुःखयोः\
 > कर्तारं मन्यतेऽत्राज्ञअ आत्मानं परमेव च ॥१९॥
 
-> naivātmā na paraś cāpi
-> kartā syāt sukha-duḥkhayoḥ
-> kartāraṁ manyate 'trājña
+> naivātmā na paraś cāpi\
+> kartā syāt sukha-duḥkhayoḥ\
+> kartāraṁ manyate 'trājña\
 > ātmānaṁ param eva ca
 
 *na*—no; *eva*—en verdad; *ātmā*—el alma espiritual; *na*—ni; *paraḥ*—otro (amigo o enemigo); *ca*—también; *api*—en verdad; *kartā*—el hacedor; *ṣyāt*—puede ser; *sukha-duḥkhayoḥ*—de felicidad y sufrimiento; *kartāram*—el hacedor; *manyate*—considera; *atra*—en relación con esto; *ajñaḥ*—la persona que no es consciente de lo que ocurre en realidad; *ātmānam*—él mismo; *param*—otro; *eva*—en verdad; *ca*—también.

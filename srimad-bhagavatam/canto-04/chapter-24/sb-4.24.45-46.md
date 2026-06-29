@@ -1,18 +1,18 @@
 ### SB 4.24.45-46
 
-> स्निग्धप्रावृड्घनश्यामं सर्वसौन्दर्यसङ्ग्रहम् ।
-> चार्वायतचतुर्बाहु सुजातरुचिराननम् ॥४५॥
-> पद्मकोशपलाशाक्षं सुन्दरभ्रु सुनासिकम् ।
+> स्निग्धप्रावृड्घनश्यामं सर्वसौन्दर्यसङ्ग्रहम् ।\
+> चार्वायतचतुर्बाहु सुजातरुचिराननम् ॥४५॥\
+> पद्मकोशपलाशाक्षं सुन्दरभ्रु सुनासिकम् ।\
 > सुद्विजं सुकपोलास्यं समकर्णविभूषणम् ॥४६॥
 
-> snigdha-prāvṛḍ-ghana-śyāmaṁ
-> sarva-saundarya-saṅgraham
-> cārv-āyata-catur-bāhu
+> snigdha-prāvṛḍ-ghana-śyāmaṁ\
+> sarva-saundarya-saṅgraham\
+> cārv-āyata-catur-bāhu\
 > sujāta-rucirānanam
 
-> padma-kośa-palāśākṣaṁ
-> sundara-bhru sunāsikam
-> sudvijaṁ sukapolāsyaṁ
+> padma-kośa-palāśākṣaṁ\
+> sundara-bhru sunāsikam\
+> sudvijaṁ sukapolāsyaṁ\
 > sama-karṇa-vibhūṣaṇam
 
 *snigdha*—glistening; *prāvṛṭ*—rainy season; *ghana-śyāmam*—densely cloudy; *sarva*—all; *saundarya*—beauty; *saṅgraham*—collection; *cāru*—beautiful; *āyata*—bodily feature; *catuḥ-bāhu*—unto the four-armed; *su-jāta*—ultimately beautiful; *rucira*—very pleasing; *ānanam*—face; *padma-kośa*—the whorl of the lotus flower; *palāśa*—petals; *akṣam*—eyes; *sundara*—beautiful; *bhru*—eyebrows; *su-nāsikam*—raised nose; *su-dvijam*—beautiful teeth; *su-kapola*—beautiful forehead; *āsyam*—face; *sama-karṇa*—equally beautiful ears; *vibhūṣaṇam*—fully decorated.

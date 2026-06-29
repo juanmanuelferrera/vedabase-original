@@ -1,9 +1,9 @@
 ### CC Madhya 18.43
 
-> দেখিতে উৎকণ্ঠা হয়, না চড়ে গোবর্ধনে ।
+> দেখিতে উৎকণ্ঠা হয়, না চড়ে গোবর্ধনে ।\
 > কোন ছলে গোপাল আসি’ উতরে আপনে ॥৪৩॥
 
-> dekhite utkaṇṭhā haya, nā caḍe govardhane
+> dekhite utkaṇṭhā haya, nā caḍe govardhane\
 > kona chale gopāla āsi' utare āpane
 
 *dekhite*—ver; *utkaṇṭhā haya*—había una gran ansiedad; *nā caḍe*—no sube; *govardhane*—a la colina conocida como Govardhana; *kona chale*—con alguna artimaña; *gopāla*—la Deidad Gopāla; *āsi'*—viniendo; *utare*—desciende; *āpane*—personalmente.

@@ -1,13 +1,13 @@
 ### SB 4.25.5
 
-> राजोवाच
-> न जानामि महाभाग परं कर्मापविद्धधीः ।
+> राजोवाच\
+> न जानामि महाभाग परं कर्मापविद्धधीः ।\
 > ब्रूहि मे विमलं ज्ञानं येन मुच्येय कर्मभिः ॥५॥
 
-> rājovāca
-> na jānāmi mahā-bhāga
-> paraṁ karmāpaviddha-dhīḥ
-> brūhi me vimalaṁ jñānaṁ
+> rājovāca\
+> na jānāmi mahā-bhāga\
+> paraṁ karmāpaviddha-dhīḥ\
+> brūhi me vimalaṁ jñānaṁ\
 > yena mucyeya karmabhiḥ
 
 *rājā uvāca*—the King replied; *na*—not; *jānāmi*—I know; *mahā-bhāga*—O great soul; *param*—transcendental; *karma*—by fruitive activities; *apaviddha*—being pierced; *dhīḥ*—my intelligence; *brūhi*—please tell; *me*—to me; *vimalam*—spotless; *jñānam*—knowledge; *yena*—by which; *mucyeya*—I can get relief; *karmabhiḥ*—from the fruitive activities.

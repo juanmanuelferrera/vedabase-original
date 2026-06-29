@@ -1,9 +1,9 @@
 ### CC Madhya 14.68
 
-> চারি মাসের দিন মুখ্যভক্ত বাঁটি’ নিল ।
+> চারি মাসের দিন মুখ্যভক্ত বাঁটি’ নিল ।\
 > আর ভক্তগণ অবসর না পাইল ॥৬৮॥
 
-> cāri māsera dina mukhya-bhakta bāṅṭi' nila
+> cāri māsera dina mukhya-bhakta bāṅṭi' nila\
 > āra bhakta-gaṇa avasara nā pāila
 
 *cāri māsera dina*—los días de los cuatro meses; *mukhya-bhakta*—los devotos principales; *bāṅṭi' nila*—se repartieron entre ellos; *āra bhakta-gaṇa*—los demás devotos; *avasara*—oportunidad; *nā pāila*—no obtuvieron.

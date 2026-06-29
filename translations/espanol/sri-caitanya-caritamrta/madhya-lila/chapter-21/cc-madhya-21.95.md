@@ -1,9 +1,9 @@
 ### CC Madhya 21.95
 
-> মণি-পীঠে ঠেকাঠেকি, উঠে ঝন্ঝনি ।
+> মণি-পীঠে ঠেকাঠেকি, উঠে ঝন্ঝনি ।\
 > পীঠের স্তুতি করে মুকুট — হেন অনুমানি ॥৯৫॥
 
-> maṇi-pīṭhe ṭhekāṭheki, uṭhe jhanjhani
+> maṇi-pīṭhe ṭhekāṭheki, uṭhe jhanjhani\
 > pīṭhera stuti kare mukuṭa--hena anumāni
 
 *maṇi-pīṭhe*—entre las gemas y los pies de loto o el trono; *ṭhekāṭheki*—colisión; *uṭhe*—surge; *jhanjhani*—un sonido tintineante; *pīṭhera*—a los pies de loto o al trono; *stuti*—oraciones; *kare*—ofrecen; *mukuṭa*—todos los yelmos; *hena*—así; *anumāni*—podemos imaginar.

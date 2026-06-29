@@ -1,11 +1,11 @@
 ### CC Madhya 11.11
 
-> আকারাদপি ভেতব্যং স্ত্রীণাং বিষয়িণামপি ।
+> আকারাদপি ভেতব্যং স্ত্রীণাং বিষয়িণামপি ।\
 > যথাহের্মনসঃ ক্ষোভস্তথা তস্যাকৃতেরপি ॥১১॥
 
-> ākārād api bhetavyaṁ
-> strīṇāṁ viṣayiṇām api
-> yathāher manasaḥ kṣobhas
+> ākārād api bhetavyaṁ\
+> strīṇāṁ viṣayiṇām api\
+> yathāher manasaḥ kṣobhas\
 > tathā tasyākṛter api
 
 *ākārāt*—from bodily features; *api*—even; *bhetavyam*—to be feared; *strīṇām*—of women; *viṣayiṇām*—of materialistic persons; *api*—even; *yathā*—as; *aheḥ*—from a serpent; *manasaḥ*—of the mind; *kṣobhaḥ*—agitation; *tathā*—so; *tasya*—of it; *ākṛteḥ*—from the appearance; *api*—even.

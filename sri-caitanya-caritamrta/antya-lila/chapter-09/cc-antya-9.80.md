@@ -1,9 +1,9 @@
 ### CC Antya 9.80
 
-> এত বলি’ কাশীমিশ্র গেলা স্ব-মন্দিরে ।
+> এত বলি’ কাশীমিশ্র গেলা স্ব-মন্দিরে ।\
 > মধ্যাহ্নে প্রতাপরুদ্র আইলা তাঁর ঘরে ॥৮০॥
 
-> eta bali' kāśī-miśra gelā sva-mandire
+> eta bali' kāśī-miśra gelā sva-mandire\
 > madhyāhne pratāparudra āilā tāṅra ghare
 
 *eta bali'*—saying this; *kāśī-miśra*—Kāśī Miśra; *gelā*—went; *sva-mandire*—to his own temple; *madhyāhne*—at noon; *pratāparudra*—King Pratāparudra; *āilā*—came; *tāṅra ghare*—to his home.

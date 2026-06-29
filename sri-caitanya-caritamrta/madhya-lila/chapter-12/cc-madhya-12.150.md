@@ -1,9 +1,9 @@
 ### CC Madhya 12.150
 
-> এই লীলা বর্ণিয়াছেন দাস বৃন্দাবন ।
+> এই লীলা বর্ণিয়াছেন দাস বৃন্দাবন ।\
 > অতএব সংক্ষেপ করি’ করিলুঁ বর্ণন ॥১৫০॥
 
-> ei līlā varṇiyāchena dāsa vṛndāvana
+> ei līlā varṇiyāchena dāsa vṛndāvana\
 > ataeva saṅkṣepa kari' kariluṅ varṇana
 
 *ei līlā*—this pastime; *varṇiyāchena*—has described; *dāsa vṛndāvana*—Vṛndāvana dāsa Ṭhākura; *ataeva*—therefore; *saṅkṣepa*—briefly; *kari'*—doing; *kariluṅ varṇana*—I have described.

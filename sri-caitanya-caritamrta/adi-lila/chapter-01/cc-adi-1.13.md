@@ -1,11 +1,11 @@
 ### CC Adi 1.13
 
-> অদ্বৈতং হরিণাদ্বৈতাদাচার্যং ভক্তিশংসনাৎ ।
+> অদ্বৈতং হরিণাদ্বৈতাদাচার্যং ভক্তিশংসনাৎ ।\
 > ভক্তাবতারমীশং তমদ্বৈতাচার্যমাশ্রয়ে ॥১৩॥
 
-> advaitaṁ hariṇādvaitād
-> ācāryaṁ bhakti-śaṁsanāt
-> bhaktāvatāram īśaṁ tam
+> advaitaṁ hariṇādvaitād\
+> ācāryaṁ bhakti-śaṁsanāt\
+> bhaktāvatāram īśaṁ tam\
 > advaitācāryam āśraye
 
 *advaitam*—known as Advaita; *hariṇā*—with Lord Hari; *advaitāt*—from being nondifferent; *ācāryam*—known as Ācārya; *bhakti-śaṁsanāt*—from the propagation of devotional service to Śrī Kṛṣṇa; *bhakta-avatāram*—the incarnation as a devotee; *īśam*—to the Supreme Lord; *tam*—to Him; *advaita-ācāryam*—to Advaita Ācārya; *āśraye*—I surrender.

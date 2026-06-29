@@ -1,11 +1,11 @@
 ### SB 5.19.22
 
-> किं दुष्करैर्नः क्रतुभिस्तपोव्रतैर्दानादिभिर्वा द्युजयेन फल्गुना
+> किं दुष्करैर्नः क्रतुभिस्तपोव्रतैर्दानादिभिर्वा द्युजयेन फल्गुना\
 > न यत्र नारायणपादपङ्कज स्मृतिः प्रमुष्टातिशयेन्द्रियोत्सवात ॥२२॥
 
-> kiṁ duṣkarair naḥ kratubhis tapo-vratair
-> dānādibhir vā dyujayena phalgunā
-> na yatra nārāyaṇa-pāda-paṅkaja-
+> kiṁ duṣkarair naḥ kratubhis tapo-vratair\
+> dānādibhir vā dyujayena phalgunā\
+> na yatra nārāyaṇa-pāda-paṅkaja-\
 > smṛtiḥ pramuṣṭātiśayendriyotsavāt
 
 *kim*—what is the value; *duṣkaraiḥ*—very difficult to perform; *naḥ*—our; *kratubhiḥ*—with performances of sacrifice; *tapaḥ*—with austerities; *vrataiḥ*—vows; *dāna-ādibhiḥ*—with executing charitable activities and so on; *vā*—or; *dyujayena*—with achieving the heavenly kingdom; *phalgunā*—which is insignificant; *na*—no; *yatra*—where; *nārāyaṇa-pāda-paṅkaja*—of the lotus feet of Lord Nārāyaṇa; *smṛtiḥ*—the remembrance; *pramuṣṭa*—lost; *atiśaya*—excessive; *indriya-utsavāt*—due to material sense gratification.

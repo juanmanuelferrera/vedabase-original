@@ -1,18 +1,18 @@
 ### SB 3.22.26-27
 
-> आमन्त्र्य तं मुनिवरमनुज्ञातः सहानुगः ।
-> प्रतस्थे रथमारुह्य सभार्यः स्वपुरं नृपः ॥२६॥
-> उभयोरृषिकुल्यायाः सरस्वत्याः सुरोधसोः ।
+> आमन्त्र्य तं मुनिवरमनुज्ञातः सहानुगः ।\
+> प्रतस्थे रथमारुह्य सभार्यः स्वपुरं नृपः ॥२६॥\
+> उभयोरृषिकुल्यायाः सरस्वत्याः सुरोधसोः ।\
 > ऋषीणामुपशान्तानां पश्यन्नाश्रमसम्पदः ॥२७॥
 
-> āmantrya taṁ muni-varam
-> anujñātaḥ sahānugaḥ
-> pratasthe ratham āruhya
+> āmantrya taṁ muni-varam\
+> anujñātaḥ sahānugaḥ\
+> pratasthe ratham āruhya\
 > sabhāryaḥ sva-puraṁ nṛpaḥ
 
-> ubhayor ṛṣi-kulyāyāḥ
-> sarasvatyāḥ surodhasoḥ
-> ṛṣīṇām upaśāntānāṁ
+> ubhayor ṛṣi-kulyāyāḥ\
+> sarasvatyāḥ surodhasoḥ\
+> ṛṣīṇām upaśāntānāṁ\
 > paśyann āśrama-sampadaḥ
 
 *āmantrya*—pidiendo permiso para ir; *tam*—a él (Kardama); *muni-varam*—al mejor de los sabios; *anujñātaḥ*—con permiso para irse; *saha-anugaḥ*—junto con su séquito; *pratasthe*—partió hacia; *ratham āruhya*—montando en su carruaje; *sa-bhāryaḥ*—con su esposa; *sva-puram*—su propia capital; *nṛpaḥ*—el emperador; *ubhayoḥ*—en ambas; *ṛṣi-kulyāyāḥ*—del agrado de los sabios; *sarasvatyāḥ*—del río Sarasvatī; *su-rodhasoḥ*—las encantadoras orillas; *ṛṣīṇām*—de los grandes sabios; *upaśāntānām*—pacíficos; *paśyan*—viendo; *āśrama-sampadaḥ*—la prosperidad de las hermosas ermitas.

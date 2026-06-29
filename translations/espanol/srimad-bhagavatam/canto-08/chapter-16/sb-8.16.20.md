@@ -1,11 +1,11 @@
 ### SB 8.16.20
 
-> उपतिष्ठस्व पुरुषं भगवन्तं जनार्दनम
+> उपतिष्ठस्व पुरुषं भगवन्तं जनार्दनम\
 > सर्वभूतगुहावासं वासुदेवं जगद्गुरुम ॥२०॥
 
-> upatiṣṭhasva puruṣaṁ
-> bhagavantaṁ janārdanam
-> sarva-bhūta-guhā-vāsaṁ
+> upatiṣṭhasva puruṣaṁ\
+> bhagavantaṁ janārdanam\
+> sarva-bhūta-guhā-vāsaṁ\
 > vāsudevaṁ jagad-gurum
 
 *upatiṣṭhasva*—trata tan solo de adorar; *puruṣam*—a la Persona Suprema; *bhagavantam*—la Personalidad de Dios; *janārdanam*—que puede matar a todos los enemigos; *sarva-bhūta-guhā-vāsam*—que vive en lo más profundo del corazón de todos; *vāsudevam*—a Vāsudeva, Kṛṣṇa, que está en todas partes y es el hijo de Vasudeva; *jagat-gurum*—el maestro y educador espiritual del mundo entero.

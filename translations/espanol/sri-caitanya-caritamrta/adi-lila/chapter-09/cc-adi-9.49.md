@@ -1,9 +1,9 @@
 ### CC Adi 9.49
 
-> মহা-মাদক প্রেমফল পেট ভরি’ খায় ।
+> মহা-মাদক প্রেমফল পেট ভরি’ খায় ।\
 > মাতিল সকল লোক — হাসে, নাচে, গায় ॥৪৯॥
 
-> mahā-mādaka prema-phala peṭa bhari' khāya
+> mahā-mādaka prema-phala peṭa bhari' khāya\
 > mātila sakala loka--hāse, nāce, gāya
 
 *mahā-mādaka*—gran embriagante; *prema-phala*—este fruto de amor por Dios; *peṭa*—vientre; *bhari'*—llenando; *khāya*—que coman; *mātila*—se enloquecieron; *sakala loka*—todas las personas en general; *hāse*—ríen; *nāce*—danzan; *gāya*—cantan.

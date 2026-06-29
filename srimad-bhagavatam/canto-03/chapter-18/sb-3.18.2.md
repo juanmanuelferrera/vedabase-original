@@ -1,11 +1,11 @@
 ### SB 3.18.2
 
-> ददर्श तत्राभिजितं धराधरं प्रोन्नीयमानावनिमग्रदंष्ट्रया ।
+> ददर्श तत्राभिजितं धराधरं प्रोन्नीयमानावनिमग्रदंष्ट्रया ।\
 > मुष्णन्तमक्ष्णा स्वरुचोऽरुणश्रिया जहास चाहो वनगोचरो मृगः ॥२॥
 
-> dadarśa tatrābhijitaṁ dharā-dharaṁ
-> pronnīyamānāvanim agra-daṁṣṭrayā
-> muṣṇantam akṣṇā sva-ruco 'ruṇa-śriyā
+> dadarśa tatrābhijitaṁ dharā-dharaṁ\
+> pronnīyamānāvanim agra-daṁṣṭrayā\
+> muṣṇantam akṣṇā sva-ruco 'ruṇa-śriyā\
 > jahāsa cāho vana-gocaro mṛgaḥ
 
 *dadarśa*—he saw; *tatra*—there; *abhijitam*—the victorious; *dharā*—the earth; *dharam*—bearing; *pronnīyamāna*—being raised upward; *avanim*—the earth; *agra-daṁṣṭrayā*—by the tip of His tusk; *muṣṇantam*—who was diminishing; *akṣṇā*—with His eyes; *sva-rucaḥ*—Hiraṇyākṣa's own splendor; *aruṇa*—reddish; *śriyā*—radiant; *jahāsa*—he laughed; *ca*—and; *aho*—oh; *vana-gocaraḥ*—amphibious; *mṛgaḥ*—beast.

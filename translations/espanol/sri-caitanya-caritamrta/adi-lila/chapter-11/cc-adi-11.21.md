@@ -1,9 +1,9 @@
 ### CC Adi 11.21
 
-> নিত্যানন্দের গণ যত, — সব ব্রজসখা ।
+> নিত্যানন্দের গণ যত, — সব ব্রজসখা ।\
 > শৃঙ্গ-বেত্র-গোপবেশ, শিরে শিখিপাখা ॥২১॥
 
-> nityānandera gaṇa yata--saba vraja-sakhā
+> nityānandera gaṇa yata--saba vraja-sakhā\
 > śṛṅga-vetra-gopaveśa, śire śikhi-pākhā
 
 *nityānandera*—del Señor Nityānanda Prabhu; *gaṇa*—seguidores; *yata*—todos; *saba*—todos; *vraja-sakhā*—residentes de Vṛndāvana; *śṛṅga*—cuerno; *vetra*—vara de caña; *gopa-veśa*—vestidos como pastorcillos de vacas; *śire*—en la cabeza; *śikhi-pākhā*—la pluma de pavo real.

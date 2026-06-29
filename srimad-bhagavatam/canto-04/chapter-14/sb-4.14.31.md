@@ -1,11 +1,11 @@
 ### SB 4.14.31
 
-> हन्यतां हन्यतामेष पापः प्रकृतिदारुणः ।
+> हन्यतां हन्यतामेष पापः प्रकृतिदारुणः ।\
 > जीवन्जगदसावाशु कुरुते भस्मसाद्ध्रुवम् ॥३१॥
 
-> hanyatāṁ hanyatām eṣa
-> pāpaḥ prakṛti-dāruṇaḥ
-> jīvañ jagad asāv āśu
+> hanyatāṁ hanyatām eṣa\
+> pāpaḥ prakṛti-dāruṇaḥ\
+> jīvañ jagad asāv āśu\
 > kurute bhasmasād dhruvam
 
 *hanyatām*—kill him; *hanyatām*—kill him; *eṣaḥ*—this king; *pāpaḥ*—representative of sin; *prakṛti*—by nature; *dāruṇaḥ*—most dreadful; *jīvan*—while living; *jagat*—the whole world; *asau*—he; *āśu*—very soon; *kurute*—will make; *bhasmasāt*—into ashes; *dhruvam*—certainly.

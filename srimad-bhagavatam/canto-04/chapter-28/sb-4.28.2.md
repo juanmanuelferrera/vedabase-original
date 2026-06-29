@@ -1,11 +1,11 @@
 ### SB 4.28.2
 
-> त एकदा तु रभसा पुरञ्जनपुरीं नृप ।
+> त एकदा तु रभसा पुरञ्जनपुरीं नृप ।\
 > रुरुधुर्भौमभोगाढ्यां जरत्पन्नगपालिताम् ॥२॥
 
-> ta ekadā tu rabhasā
-> purañjana-purīṁ nṛpa
-> rurudhur bhauma-bhogāḍhyāṁ
+> ta ekadā tu rabhasā\
+> purañjana-purīṁ nṛpa\
+> rurudhur bhauma-bhogāḍhyāṁ\
 > jarat-pannaga-pālitām
 
 *te*—they; *ekadā*—once upon a time; *tu*—then; *rabhasā*—with great force; *purañjana-purīm*—the city of Purañjana; *nṛpa*—O King; *rurudhuḥ*—encircled; *bhauma-bhoga-āḍhyām*—full of sense enjoyments; *jarat*—old; *pannaga*—by the serpent; *pālitām*—protected.

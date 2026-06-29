@@ -1,11 +1,11 @@
 ### SB 6.11.22
 
-> पुंसां किलैकान्तधियां स्वकानां याः सम्पदो दिवि भूमौ रसायाम
+> पुंसां किलैकान्तधियां स्वकानां याः सम्पदो दिवि भूमौ रसायाम\
 > न राति यद्द्वेष उद्वेग आधिर्मदः कलिर्व्यसनं सम्प्रयासः ॥२२॥
 
-> puṁsāṁ kilaikānta-dhiyāṁ svakānāṁ
-> yāḥ sampado divi bhūmau rasāyām
-> na rāti yad dveṣa udvega ādhir
+> puṁsāṁ kilaikānta-dhiyāṁ svakānāṁ\
+> yāḥ sampado divi bhūmau rasāyām\
+> na rāti yad dveṣa udvega ādhir\
 > madaḥ kalir vyasanaṁ samprayāsaḥ
 
 *puṁsām*—a las personas; *kila*—ciertamente; *ekānta-dhiyām*—de conciencia espiritual avanzada; *svakānām*—reconocidas por la Suprema Personalidad de Dios como Suyas propias; *yāḥ*—las cuales; *sampadaḥ*—opulencias; *divi*—en los sistemas planetarios superiores; *bhūmau*—en los sistemas planetarios medios; *rasāyām*—y en los sistemas planetarios inferiores; *na*—no; *rāti*—concede; *yat*—de las cuales; *dveṣaḥ*—envidia; *udvegaḥ*—ansiedad; *ādhiḥ*—agitación mental; *madaḥ*—orgullo; *kaliḥ*—hostilidad; *vyasanam*—sufrimiento debido a la pérdida; *samprayāsaḥ*—gran esfuerzo.

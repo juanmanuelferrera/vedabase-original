@@ -1,9 +1,9 @@
 ### CC Madhya 10.171
 
-> এই সব নামের ইঁহ হয় নিজাস্পদ ।
+> এই সব নামের ইঁহ হয় নিজাস্পদ ।\
 > চন্দনাক্ত প্রসাদ-ডোর — শ্রীভুজে অঙ্গদ ॥১৭১॥
 
-> ei saba nāmera iṅha haya nijāspada
+> ei saba nāmera iṅha haya nijāspada\
 > candanākta prasāda-ḍora-śrī-bhuje aṅgada
 
 *ei saba*—all these; *nāmera*—of names; *iṅha*—Śrī Caitanya Mahāprabhu; *haya*—is; *nija-āspada*—the reservoir; *candana-akta*—smeared with the pulp of sandalwood; *prasāda-ḍora*—the thread received from the Jagannātha temple; *śrī-bhuje*—on His arms; *aṅgada*—ornaments.

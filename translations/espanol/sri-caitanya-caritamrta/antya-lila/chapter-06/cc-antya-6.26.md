@@ -1,9 +1,9 @@
 ### CC Antya 6.26
 
-> কভু কলহ, কভু প্রীতি — ইহার নিশ্চয় নাই  ।
+> কভু কলহ, কভু প্রীতি — ইহার নিশ্চয় নাই  ।\
 > কালি পুনঃ তিন ভাই হইবা এক-ঠাঞি ॥২৬॥
 
-> kabhu kalaha, kabhu prīti--ihāra niścaya nāi
+> kabhu kalaha, kabhu prīti--ihāra niścaya nāi\
 > kāli punaḥ tina bhāi ha-ibā eka-ṭhāñi
 
 *kabhu*—a veces; *kalaha*—pelea; *kabhu*—a veces; *prīti*—trato muy íntimo y amistoso; *ihāra*—de estas cosas; *niścaya nāi*—no hay certeza; *kāli*—al día siguiente; *punaḥ*—de nuevo; *tina bhāi*—tres hermanos; *ha-ibā*—estarán; *eka-ṭhāñi*—en un mismo lugar.

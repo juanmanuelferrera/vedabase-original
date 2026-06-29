@@ -1,9 +1,9 @@
 ### CC Madhya 19.149
 
-> কৃষ্ণভক্ত — নিষ্কাম, অতএব ‘শান্ত’ ।
+> কৃষ্ণভক্ত — নিষ্কাম, অতএব ‘শান্ত’ ।\
 > ভুক্তি-মুক্তি-সিদ্ধি — কামী সকলি ‘অশান্ত’ ॥১৪৯॥
 
-> kṛṣṇa-bhakta—niṣkāma, ataeva 'śānta'
+> kṛṣṇa-bhakta—niṣkāma, ataeva 'śānta'\
 > bhukti-mukti-siddhi-kāmī—sakali 'aśānta'
 
 *kṛṣṇa-bhakta*—a devotee of Lord Kṛṣṇa; *niṣkāma*—actually desireless; *ataeva*—therefore; *śānta*—peaceful; *bhukti*—of material enjoyment; *mukti*—of liberation from material activities; *siddhi*—of perfection in yogic performance; *kāmī*—those who are desirous; *sakali*—all of them; *aśānta*—not peaceful.

@@ -1,9 +1,9 @@
 ### CC Madhya 14.51
 
-> মত্ত-হস্তিগণ টানে যার যত বল ।
+> মত্ত-হস্তিগণ টানে যার যত বল ।\
 > এক পদ না চলে রথ, হইল অচল ॥৫১॥
 
-> matta-hasti-gaṇa ṭāne yāra yata bala
+> matta-hasti-gaṇa ṭāne yāra yata bala\
 > eka pada nā cale ratha, ha-ila acala
 
 *matta-hasti-gaṇa*—los fuertes elefantes; *ṭāne*—comenzaron a tirar; *yāra yata bala*—con toda la fuerza que tenían; *eka pada*—un solo paso; *nā cale*—no se mueve; *ratha*—el carro; *ha-ila*—quedó; *acala*—inmóvil.

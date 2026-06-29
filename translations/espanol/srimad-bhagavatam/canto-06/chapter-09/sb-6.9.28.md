@@ -1,13 +1,13 @@
 ### SB 6.9.28
 
-> श्रीशुक उवाच
-> इति तेषां महाराज सुराणामुपतिष्ठताम
+> श्रीशुक उवाच\
+> इति तेषां महाराज सुराणामुपतिष्ठताम\
 > प्रतीच्यां दिश्यभूदाविः शङ्खचक्रगदाधरः ॥२८॥
 
-> śrī-śuka uvāca
-> iti teṣāṁ mahārāja
-> surāṇām upatiṣṭhatām
-> pratīcyāṁ diśy abhūd āviḥ
+> śrī-śuka uvāca\
+> iti teṣāṁ mahārāja\
+> surāṇām upatiṣṭhatām\
+> pratīcyāṁ diśy abhūd āviḥ\
 > śaṅkha-cakra-gadā-dharaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *iti*—así; *teṣām*—de ellos; *mahārāja*—¡oh, rey!; *surāṇām*—de los semidioses; *upatiṣṭhatām*—orar; *pratīcyām*—dentro; *diśi*—en las direcciones; *abhūt*—Se hizo; *āviḥ*—visible; *śaṅkha-cakra-gadā-dharaḥ*—llevando las armas trascendentales: la caracola, el disco y la maza.

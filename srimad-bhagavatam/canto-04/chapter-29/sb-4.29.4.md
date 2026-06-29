@@ -1,11 +1,11 @@
 ### SB 4.29.4
 
-> यदा जिघृक्षन्पुरुषः कार्त्स्न्येन प्रकृतेर्गुणान् ।
+> यदा जिघृक्षन्पुरुषः कार्त्स्न्येन प्रकृतेर्गुणान् ।\
 > नवद्वारं द्विहस्ताङ्घ्रि तत्रामनुत साध्विति ॥४॥
 
-> yadā jighṛkṣan puruṣaḥ
-> kārtsnyena prakṛter guṇān
-> nava-dvāraṁ dvi-hastāṅghri
+> yadā jighṛkṣan puruṣaḥ\
+> kārtsnyena prakṛter guṇān\
+> nava-dvāraṁ dvi-hastāṅghri\
 > tatrāmanuta sādhv iti
 
 *yadā*—when; *jighṛkṣan*—desiring to enjoy; *puruṣaḥ*—the living entity; *kārtsnyena*—in total; *prakṛteḥ*—of material nature; *guṇān*—the modes; *nava-dvāram*—having nine gates; *dvi*—two; *hasta*—hands; *aṅghri*—legs; *tatra*—there; *amanuta*—he thought; *sādhu*—very good; *iti*—thus.

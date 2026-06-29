@@ -1,9 +1,9 @@
 ### CC Madhya 20.135
 
-> pūrva-dike tāte māṭī alpa khudite
+> pūrva-dike tāte māṭī alpa khudite\
 > dhanera jhāri paḍibeka tomāra hātete
 
-> pūrva-dike tāte māṭī alpa khudite
+> pūrva-dike tāte māṭī alpa khudite\
 > dhanera jhāri paḍibeka tomāra hātete
 
 *pūrva-dike*—en el lado oriental; *tāte*—allí; *māṭī*—la tierra; *alpa*—una pequeña cantidad; *khudite*—al cavar; *dhanera*—del tesoro; *jhāri*—la vasija; *paḍibeka*—obtendrás; *tomāra*—en tus; *hātete*—manos.

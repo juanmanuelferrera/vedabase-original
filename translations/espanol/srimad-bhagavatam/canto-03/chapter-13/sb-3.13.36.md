@@ -1,11 +1,11 @@
 ### SB 3.13.36
 
-> स्रक्तुण्ड आसीत्स्रुव ईश नासयोरिडोदरे चमसाः कर्णरन्ध्रे ।
+> स्रक्तुण्ड आसीत्स्रुव ईश नासयोरिडोदरे चमसाः कर्णरन्ध्रे ।\
 > प्राशित्रमास्ये ग्रसने ग्रहास्तु ते यच्चर्वणं ते भगवन्नग्निहोत्रम् ॥३६॥
 
-> srak tuṇḍa āsīt sruva īśa nāsayor
-> iḍodare camasāḥ karṇa-randhre
-> prāśitram āsye grasane grahās tu te
+> srak tuṇḍa āsīt sruva īśa nāsayor\
+> iḍodare camasāḥ karṇa-randhre\
+> prāśitram āsye grasane grahās tu te\
 > yac carvaṇaṁ te bhagavann agni-hotram
 
 *srak*—el plato de sacrificio; *tuṇḍe*—en la lengua; *āsīt*—hay; *sruvaḥ*—otro plato para sacrificio; *īśa*—¡oh, Señor!; *nāsayoḥ*—de las ventanas de la nariz; *iḍā*—el plato para comer; *udare*—en el estómago; *camasāḥ*—otro plato para sacrificios; *karṇa-randhre*—en los orificios de los oídos; *prāśitram*—el plato llamado plato *brahmā*; *āsye*—en la boca; *grasane*—en la garganta; *grahāḥ*—los platos conocidos como platos *soma*; *tu*—pero; *te*—Tu; *yat*—aquello que; *carvaṇam*—masticando; *te*—Tu; *bhagavan*—¡oh, mi Señor!; *agni-hotram*—es Tu comer por medio de Tu fuego de sacrificio.

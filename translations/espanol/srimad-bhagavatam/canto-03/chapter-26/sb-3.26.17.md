@@ -1,11 +1,11 @@
 ### SB 3.26.17
 
-> प्रकृतेर्गुणसाम्यस्य निर्विशेषस्य मानवि ।
+> प्रकृतेर्गुणसाम्यस्य निर्विशेषस्य मानवि ।\
 > चेष्टा यतः स भगवान्काल इत्युपलक्षितः ॥१७॥
 
-> prakṛter guṇa-sāmyasya
-> nirviśeṣasya mānavi
-> ceṣṭā yataḥ sa bhagavān
+> prakṛter guṇa-sāmyasya\
+> nirviśeṣasya mānavi\
+> ceṣṭā yataḥ sa bhagavān\
 > kāla ity upalakṣitaḥ
 
 *prakṛteḥ*—de la naturaleza material; *guṇa-sāmyasya*—sin interacción de las tres modalidades; *nirviśeṣasya*—sin cualidades específicas; *mānavi*—¡oh, hija de Manu!; *ceṣṭā*—movimiento; *yataḥ*—de quien; *saḥ*—Él; *bhagavān*—la Suprema Personalidad de Dios; *kālaḥ*—tiempo; *iti*—de este modo; *upalakṣitaḥ*—se designa.

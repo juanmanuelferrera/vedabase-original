@@ -1,13 +1,13 @@
 ### CC Antya 1.151
 
-> শ্রুত্বা নিষ্ঠুরতাং মমেন্দুবদনা প্রেমাঙ্কুরং ভিন্ধতী
-> স্বান্তে শান্তিধুরাং বিধায় বিধুরে প্রায়ঃ পরাঞ্চিষ্যতি ।
-> কিংবা পামর-কাম-কার্মুকপরিত্রস্তা বিমোক্ষ্যত্যসূন্
+> শ্রুত্বা নিষ্ঠুরতাং মমেন্দুবদনা প্রেমাঙ্কুরং ভিন্ধতী\
+> স্বান্তে শান্তিধুরাং বিধায় বিধুরে প্রায়ঃ পরাঞ্চিষ্যতি ।\
+> কিংবা পামর-কাম-কার্মুকপরিত্রস্তা বিমোক্ষ্যত্যসূন্\
 > হা মৌগ্ধ্যাৎ ফলিনী মনোরথলতা মৃদ্বী ময়োন্মূলিতা ॥১৫১॥
 
-> śrutvā niṣṭhuratāṁ mamendu-vadanā premāṅkuraṁ bhindatī
-> svānte śānti-dhurāṁ vidhāya vidhure prāyaḥ parāñciṣyati
-> kiṁvā pāmara-kāma-kārmuka-paritrastā vimokṣyaty asūn
+> śrutvā niṣṭhuratāṁ mamendu-vadanā premāṅkuraṁ bhindatī\
+> svānte śānti-dhurāṁ vidhāya vidhure prāyaḥ parāñciṣyati\
+> kiṁvā pāmara-kāma-kārmuka-paritrastā vimokṣyaty asūn\
 > hā maugdhyāt phalinī manoratha-latā mṛdvī mayonmūlitā
 
 *śrutvā*—al escuchar; *niṣṭhuratām*—crueldad; *mama*—Mi; *indu-vadanā*—de rostro como la luna; *prema-aṅkuram*—la semilla del amor; *bhindatī*—partiendo; *sva-ante*—dentro de Su corazón; *śānti-dhurām*—gran tolerancia; *vidhāya*—adoptando; *vidhure*—afligida; *prāyaḥ*—casi; *parāñciṣyati*—podría volverse en contra; *kiṁvā*—o; *pāmara*—muy temible; *kāma*—de los deseos lujuriosos o Cupido; *kārmuka*—del arco; *paritrastā*—asustada; *vimokṣyati*—abandonará; *asūn*—la vida; *hā*—¡ay!; *maugdhyāt*—por el desconcierto; *phalinī*—casi fructífera; *manaḥ-ratha-latā*—la enredadera del amor creciente; *mṛdvī*—muy tierna; *mayā*—por Mí; *unmūlita*—arrancada de raíz.

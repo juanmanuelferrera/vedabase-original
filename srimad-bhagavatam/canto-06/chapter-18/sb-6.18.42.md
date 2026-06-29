@@ -1,11 +1,11 @@
 ### SB 6.18.42
 
-> न हि कश्चित्प्रियः स्त्रीणामञ्जसा स्वाशिषात्मनाम
+> न हि कश्चित्प्रियः स्त्रीणामञ्जसा स्वाशिषात्मनाम\
 > पतिं पुत्रं भ्रातरं वा घ्नन्त्यर्थे घातयन्ति च ॥४२॥
 
-> na hi kaścit priyaḥ strīṇām
-> añjasā svāśiṣātmanām
-> patiṁ putraṁ bhrātaraṁ vā
+> na hi kaścit priyaḥ strīṇām\
+> añjasā svāśiṣātmanām\
+> patiṁ putraṁ bhrātaraṁ vā\
 > ghnanty arthe ghātayanti ca
 
 *na*—not; *hi*—certainly; *kaścit*—anyone; *priyaḥ*—dear; *strīṇām*—to women; *añjasā*—actually; *sva-āśiṣā*—for their own interests; *ātmanām*—most dear; *patim*—husband; *putram*—son; *bhrātaram*—brother; *vā*—or; *ghnanti*—they kill; *arthe*—for their own interests; *ghātayanti*—cause to be killed; *ca*—also.

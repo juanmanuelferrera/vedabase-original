@@ -1,9 +1,9 @@
 ### CC Antya 19.81
 
-> পুষ্পগন্ধ লঞা বহে মলয়-পবন ।
+> পুষ্পগন্ধ লঞা বহে মলয়-পবন ।\
 > ‘গুরু’ হঞা তরুলতায় শিখায় নাচন ॥৮১॥
 
-> puṣpa-gandha lañā vahe malaya-pavana
+> puṣpa-gandha lañā vahe malaya-pavana\
 > 'guru' hañā taru-latāya śikhāya nācana
 
 *puṣpa-gandha*—la fragancia de las flores; *lañā*—llevando; *vahe*—sopla; *malaya-pavana*—la suave brisa; *guru hañā*—convirtiéndose en maestro espiritual; *taru-latāya*—a los árboles y enredaderas; *śikhāya*—instruye; *nācana*—danzar.

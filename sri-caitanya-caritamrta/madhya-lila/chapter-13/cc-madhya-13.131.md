@@ -1,9 +1,9 @@
 ### CC Madhya 13.131
 
-> আমা লঞা পুনঃ লীলা করহ বৃন্দাবনে ।
+> আমা লঞা পুনঃ লীলা করহ বৃন্দাবনে ।\
 > তবে আমার মনোবাঞ্ছা হয় ত’ পূরণে ॥১৩১॥
 
-> āmā lañā punaḥ līlā karaha vṛndāvane
+> āmā lañā punaḥ līlā karaha vṛndāvane\
 > tabe āmāra mano-vāñchā haya ta' pūraṇe
 
 *āmā lañā*—taking Me; *punaḥ*—again; *līlā*—pastimes; *karaha*—perform; *vṛndāvane*—at Vṛndāvana; *tabe*—then; *āmāra manaḥ-vāñchā*—the desire of My mind; *haya*—becomes; *ta'*—indeed; *pūraṇe*—in fulfillment.

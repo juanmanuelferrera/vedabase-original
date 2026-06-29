@@ -1,11 +1,11 @@
 ### Bg 7.6
 
-> एतद्योनीनि भूतानि सर्वाणीत्युपधारय ।
+> एतद्योनीनि भूतानि सर्वाणीत्युपधारय ।\
 > अहं कृत्स्नस्य जगतः प्रभवः प्रलयस्तथा ॥६॥
 
-> etad-yonīni bhūtāni
-> sarvāṇīty upadhāraya
-> ahaṁ kṛtsnasya jagataḥ
+> etad-yonīni bhūtāni\
+> sarvāṇīty upadhāraya\
+> ahaṁ kṛtsnasya jagataḥ\
 > prabhavaḥ pralayas tathā
 
 *etat*—these two natures; *yonīni*—source of birth; *bhūtāni*—everything created; *sarvāṇi*—all; *iti*—thus; *upadhāraya*—know; *aham*—I; *kṛtsnasya*—all-inclusive; *jagataḥ*—of the world; *prabhavaḥ*—source of manifestation; *pralayaḥ*—annihilation; *tathā*—as well as.

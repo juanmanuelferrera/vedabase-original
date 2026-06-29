@@ -1,13 +1,13 @@
 ### SB 7.10.68
 
-> ददाह तेन दुर्भेद्या हरोऽथ त्रिपुरो नृप
+> ददाह तेन दुर्भेद्या हरोऽथ त्रिपुरो नृप\
 > दिवि दुन्दुभयो नेदुर्विमानशतसङ्कुलाः ॥६८॥
 
-> divi dundubhayo nedur
-> vimāna-śata-saṅkulāḥ
-> devarṣi-pitṛ-siddheśā
-> jayeti kusumotkaraiḥ
-> avākirañ jagur hṛṣṭā
+> divi dundubhayo nedur\
+> vimāna-śata-saṅkulāḥ\
+> devarṣi-pitṛ-siddheśā\
+> jayeti kusumotkaraiḥ\
+> avākirañ jagur hṛṣṭā\
 > nanṛtuś cāpsaro-gaṇāḥ
 
 *divi*—en el cielo; *dundubhayaḥ*—timbales; *neduḥ*—hicieron resonar; *vimāna*—de aviones; *śata*—cientos de miles; *saṅkulāḥ*—dotados; *deva-ṛṣi*—todos los semidioses y santos; *pitṛ*—los habitantes de Pitṛloka; *siddha*—los habitantes de Siddhaloka; *īśāḥ*—todas las grandes personalidades; *jaya iti*—entonaron el canto de «¡victoria!»; *kusuma-utkaraiḥ*—flores de distintos tipos; *avākiran*—derramaron sobre la cabeza del Señor Śiva; *jaguḥ*—cantaron; *hṛṣṭāḥ*—con gran placer; *nanṛtuḥ*—bailaron; *ca*—y; *apsaraḥ-gaṇāḥ*—las hermosas mujeres de los planetas celestiales.

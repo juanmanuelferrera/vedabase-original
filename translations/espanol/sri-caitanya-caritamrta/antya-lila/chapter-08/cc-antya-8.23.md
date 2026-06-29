@@ -1,9 +1,9 @@
 ### CC Antya 8.23
 
-> ‘কৃষ্ণ না পাইনু, না পাইনু ‘মথুরা’ ।
+> ‘কৃষ্ণ না পাইনু, না পাইনু ‘মথুরা’ ।\
 > আপন-দুঃখে মরোঁ — এই দিতে আইল জ্বালা ॥২৩॥
 
-> 'kṛṣṇa nā pāinu, nā pāinu 'mathurā'
+> 'kṛṣṇa nā pāinu, nā pāinu 'mathurā'\
 > āpana-duḥkhe maroṅ--ei dite āila jvālā
 
 *kṛṣṇa*—el Señor Kṛṣṇa; *nā pāinu*—no obtuve; *nā pāinu*—no obtuve; *mathurā*—Mathurā; *āpana-duḥkhe*—en mi propia infelicidad; *maroṅ*—me muero; *ei*—esta persona; *dite āila jvālā*—ha venido a causar más dolor.

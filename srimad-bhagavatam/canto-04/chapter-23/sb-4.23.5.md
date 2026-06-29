@@ -1,11 +1,11 @@
 ### SB 4.23.5
 
-> कन्दमूलफलाहारः शुष्कपर्णाशनः क्वचित् ।
+> कन्दमूलफलाहारः शुष्कपर्णाशनः क्वचित् ।\
 > अब्भक्षः कतिचित्पक्षान्वायुभक्षस्ततः परम् ॥५॥
 
-> kanda-mūla-phalāhāraḥ
-> śuṣka-parṇāśanaḥ kvacit
-> ab-bhakṣaḥ katicit pakṣān
+> kanda-mūla-phalāhāraḥ\
+> śuṣka-parṇāśanaḥ kvacit\
+> ab-bhakṣaḥ katicit pakṣān\
 > vāyu-bhakṣas tataḥ param
 
 *kanda*—trunk; *mūla*—roots; *phala*—fruits; *āhāraḥ*—eating; *śuṣka*—dry; *parṇa*—leaves; *aśanaḥ*—eating; *kvacit*—sometimes; *ap-bhakṣaḥ*—drinking water; *katicit*—for several; *pakṣān*—fortnights; *vāyu*—the air; *bhakṣaḥ*—breathing; *tataḥ param*—thereafter.

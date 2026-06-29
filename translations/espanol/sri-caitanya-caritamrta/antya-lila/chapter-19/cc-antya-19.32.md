@@ -1,9 +1,9 @@
 ### CC Antya 19.32
 
-> আচম্বিতে স্ফুরে কৃষ্ণের মথুরা-গমন ।
+> আচম্বিতে স্ফুরে কৃষ্ণের মথুরা-গমন ।\
 > উদ্ঘূর্ণা-দশা হৈল উন্মাদ-লক্ষণ ॥৩২॥
 
-> ācambite sphure kṛṣṇera mathurā-gamana
+> ācambite sphure kṛṣṇera mathurā-gamana\
 > udghūrṇā-daśā haila unmāda-lakṣaṇa
 
 *ācambite*—de pronto; *sphure*—se despertó; *kṛṣṇera*—del Señor Kṛṣṇa; *mathurā-gamana*—la partida hacia Mathurā; *udghūrṇā-daśā*—el estado extático conocido como udghūrṇā; *haila*—hubo; *unmāda-lakṣaṇa*—el síntoma de locura.

@@ -1,13 +1,13 @@
 ### SB 3.15.25
 
-> यच्च व्रजन्त्यनिमिषामृषभानुवृत्त्या
-> दूरे यमा ह्युपरि नः स्पृहणीयशीलाः ।
-> भर्तुर्मिथः सुयशसः कथनानुराग
+> यच्च व्रजन्त्यनिमिषामृषभानुवृत्त्या\
+> दूरे यमा ह्युपरि नः स्पृहणीयशीलाः ।\
+> भर्तुर्मिथः सुयशसः कथनानुराग\
 > वैक्लव्यबाष्पकलया पुलकीकृताङ्गाः ॥२५॥
 
-> yac ca vrajanty animiṣām ṛṣabhānuvṛttyā
-> dūre yamā hy upari naḥ spṛhaṇīya-śīlāḥ
-> bhartur mithaḥ suyaśasaḥ kathanānurāga-
+> yac ca vrajanty animiṣām ṛṣabhānuvṛttyā\
+> dūre yamā hy upari naḥ spṛhaṇīya-śīlāḥ\
+> bhartur mithaḥ suyaśasaḥ kathanānurāga-\
 > vaiklavya-bāṣpa-kalayā pulakī-kṛtāṅgāḥ
 
 *yat*—Vaikuṇṭha; *ca*—y; *vrajanti*—van; *animiṣām*—de los semidioses; *ṛṣabha*—principal; *anuvṛttyā*—siguiendo los pasos; *dūre*—guardando una distancia; *yamāḥ*—principios regulativos; *hi*—ciertamente; *upari*—encima; *naḥ*—de nosotros; *spṛhaṇīya*—ser deseado; *śīlāḥ*—buenas cualidades; *bhartuḥ*—del Señor Supremo; *mithaḥ*—el uno por el otro; *suyaśasaḥ*—glorias; *kathana*—por conversaciones, discursos; *anurāga*—atracción; *vaiklavya*—éxtasis; *bāṣpa-kalayā*—lágrimas en los ojos; *pulakī-kṛta*—estremeciendo; *aṅgāḥ*—cuerpos.

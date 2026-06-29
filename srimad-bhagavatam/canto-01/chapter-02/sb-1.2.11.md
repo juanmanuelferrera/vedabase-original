@@ -1,11 +1,11 @@
 ### SB 1.2.11
 
-> वदन्ति तत्तत्त्वविदस्तत्त्वं यज्ज्ञानमद्वयम् ।
+> वदन्ति तत्तत्त्वविदस्तत्त्वं यज्ज्ञानमद्वयम् ।\
 > ब्रह्मेति परमात्मेति भगवानिति शब्द्यते ॥११॥
 
-> vadanti tat tattva-vidas
-> tattvaṁ yaj jñānam advayam
-> brahmeti paramātmeti
+> vadanti tat tattva-vidas\
+> tattvaṁ yaj jñānam advayam\
+> brahmeti paramātmeti\
 > bhagavān iti śabdyate
 
 *vadanti*—they say; *tat*—that; *tattva-vidaḥ*—the learned souls; *tattvam*—the Absolute Truth; *yat*—which; *jñānam*—knowledge; *advayam*—nondual; *brahma iti*—known as Brahman; *paramātmā iti*—known as Paramātmā; *bhagavān iti*—known as Bhagavān; *śabdyate*—it so sounded.

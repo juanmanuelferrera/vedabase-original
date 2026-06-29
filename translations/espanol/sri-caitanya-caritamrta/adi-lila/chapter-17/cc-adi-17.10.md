@@ -1,9 +1,9 @@
 ### CC Adi 17.10
 
-> শচীকে প্রেমদান, তবে অদ্বৈত-মিলন ।
+> শচীকে প্রেমদান, তবে অদ্বৈত-মিলন ।\
 > অদ্বৈত পাইল বিশ্বরূপ-দরশন ॥১০॥
 
-> śacīke prema-dāna, tabe advaita-milana
+> śacīke prema-dāna, tabe advaita-milana\
 > advaita pāila viśvarūpa-daraśana
 
 *śacīke*—a madre Śacīdevī; *prema-dāna*—dando amor por Dios; *tabe*—después de eso; *advaita*—con Advaita Ācārya; *milana*—encuentro; *advaita*—Advaita Ācārya; *pāila*—recibió; *viśva-rūpa*—de la forma universal del Señor; *daraśana*—visión.

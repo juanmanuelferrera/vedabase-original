@@ -1,11 +1,11 @@
 ### SB 7.1.12
 
-> अत्रैवोदाहृतः पूर्वमितिहासः सुरर्षिणा
+> अत्रैवोदाहृतः पूर्वमितिहासः सुरर्षिणा\
 > प्रीत्या महाक्रतौ राजन्पृच्छतेऽजातशत्रवे ॥१२॥
 
-> ya eṣa rājann api kāla īśitā
-> sattvaṁ surānīkam ivaidhayaty ataḥ
-> tat-pratyanīkān asurān sura-priyo
+> ya eṣa rājann api kāla īśitā\
+> sattvaṁ surānīkam ivaidhayaty ataḥ\
+> tat-pratyanīkān asurān sura-priyo\
 > rajas-tamaskān pramiṇoty uruśravāḥ
 
 *satya*—kṛt; *satya*—kṛt se emplea para establecer que todo lo creado por el Señor es real, nunca falso. Puede que la creación sea temporal, pero no falsa.

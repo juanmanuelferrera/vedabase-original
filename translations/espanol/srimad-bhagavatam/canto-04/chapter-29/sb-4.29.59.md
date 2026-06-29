@@ -1,11 +1,11 @@
 ### SB 4.29.59
 
-> इति वेदविदां वादः श्रूयते तत्र तत्र ह ।
+> इति वेदविदां वादः श्रूयते तत्र तत्र ह ।\
 > कर्म यत्क्रियते प्रोक्तं परोक्षं न प्रकाशते ॥५९॥
 
-> iti veda-vidāṁ vādaḥ
-> śrūyate tatra tatra ha
-> karma yat kriyate proktaṁ
+> iti veda-vidāṁ vādaḥ\
+> śrūyate tatra tatra ha\
+> karma yat kriyate proktaṁ\
 > parokṣaṁ na prakāśate
 
 *iti*—así; *veda-vidām*—de personas que conocen las conclusiones de los *Vedas*; *vādaḥ*—la tesis; *śrūyate*—se escucha; *tatra tatra*—aquí y allá; *ha*—ciertamente; *karma*—la actividad; *yat*—que; *kriyate*—se ejecuta; *proktam*—como se dijo; *parokṣam*—desconocida; *na prakāśate*—no se manifiesta directamente.

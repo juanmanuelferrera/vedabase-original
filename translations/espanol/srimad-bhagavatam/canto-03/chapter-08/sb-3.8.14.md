@@ -1,11 +1,11 @@
 ### SB 3.8.14
 
-> स पद्मकोशः सहसोदतिष्ठत्कालेन कर्मप्रतिबोधनेन ।
+> स पद्मकोशः सहसोदतिष्ठत्कालेन कर्मप्रतिबोधनेन ।\
 > स्वरोचिषा तत्सलिलं विशालं विद्योतयन्नर्क इवात्मयोनिः ॥१४॥
 
-> sa padma-kośaḥ sahasodatiṣṭhat
-> kālena karma-pratibodhanena
-> sva-rociṣā tat salilaṁ viśālaṁ
+> sa padma-kośaḥ sahasodatiṣṭhat\
+> kālena karma-pratibodhanena\
+> sva-rociṣā tat salilaṁ viśālaṁ\
 > vidyotayann arka ivātma-yoniḥ
 
 *saḥ*—ese; *padma-kośaḥ*—capullo de una flor de loto; *sahasā*—repentinamente; *udatiṣṭhat*—apareció; *kālena*—por el tiempo; *karma*—actividades fruitivas; *pratibodhanena*—despertando; *sva-rociṣā*—por su propia refulgencia; *tat*—esa; *salilam*—agua de la devastación; *viśālam*—vasta; *vidyotayan*—iluminador; *arkaḥ*—el Sol; *iva*—como; *ātma-yoniḥ*—generándose de la Personalidad de Viṣṇu.

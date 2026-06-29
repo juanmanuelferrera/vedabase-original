@@ -1,9 +1,9 @@
 ### CC Madhya 16.196
 
-> এক নবীন নৌকা, তার মধ্যে ঘর ।
+> এক নবীন নৌকা, তার মধ্যে ঘর ।\
 > স্বগণে চড়াইলা প্রভু তাহার উপর ॥১৯৬॥
 
-> eka navīna naukā, tāra madhye ghara
+> eka navīna naukā, tāra madhye ghara\
 > svagaṇe caḍāilā prabhu tāhāra upara
 
 *eka*—una; *navīna*—nueva; *naukā*—barca; *tāra*—de la cual; *madhye*—en medio; *ghara*—una habitación; *sva-gaṇe*—con Sus asociados; *caḍāilā*—hicieron subir a bordo; *prabhu*—a Śrī Caitanya Mahāprabhu; *tāhāra upara*—en ella.

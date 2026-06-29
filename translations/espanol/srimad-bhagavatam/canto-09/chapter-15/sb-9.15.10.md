@@ -1,11 +1,11 @@
 ### SB 9.15.10
 
-> तद्विदित्वा मुनिः प्राह पत्नीं कष्टमकारषीः
+> तद्विदित्वा मुनिः प्राह पत्नीं कष्टमकारषीः\
 > घोरो दण्डधरः पुत्रो भ्राता ते ब्रह्मवित्तमः ॥१०॥
 
-> tad viditvā muniḥ prāha
-> patnīṁ kaṣṭam akāraṣīḥ
-> ghoro daṇḍa-dharaḥ putro
+> tad viditvā muniḥ prāha\
+> patnīṁ kaṣṭam akāraṣīḥ\
+> ghoro daṇḍa-dharaḥ putro\
 > bhrātā te brahma-vittamaḥ
 
 *tat*—este hecho; *viditvā*—habiendo sabido; *muniḥ*—el gran sabio; *prāha*—dijo; *patnīm*—a su esposa; *kaṣṭam*—muy lamentable; *akāraṣīḥ*—tú has hecho; *ghoraḥ*—terrible; *daṇḍa-dharaḥ*—una gran personalidad con poder para castigar a otros; *putraḥ*—ese hijo; *bhrātā*—hermano; *te*—tuyo; *brahma-vittamaḥ*—un sabio erudito en la ciencia espiritual.

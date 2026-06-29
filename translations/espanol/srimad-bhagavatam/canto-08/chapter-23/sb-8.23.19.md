@@ -1,11 +1,11 @@
 ### SB 8.23.19
 
-> एवं बलेर्महीं राजन्भिक्षित्वा वामनो हरिः
+> एवं बलेर्महीं राजन्भिक्षित्वा वामनो हरिः\
 > ददौ भ्रात्रे महेन्द्राय त्रिदिवं यत्परैर्हृतम ॥१९॥
 
-> evaṁ baler mahīṁ rājan
-> bhikṣitvā vāmano hariḥ
-> dadau bhrātre mahendrāya
+> evaṁ baler mahīṁ rājan\
+> bhikṣitvā vāmano hariḥ\
+> dadau bhrātre mahendrāya\
 > tridivaṁ yat parair hṛtam
 
 *evam*—así; *baleḥ*—de Bali Mahārāja; *mahīm*—las tierras; *rājan*—¡oh, rey Parīkṣit!; *bhikṣitvā*—después de mendigar; *vāmanaḥ*—Su Señoría Vāmana; *hariḥ*—la Suprema Personalidad de Dios; *dadau*—entregó; *bhrātre*—a Su hermano; *mahā-indrāya*—Indra, el rey del cielo; *tridivam*—el sistema planetario de los semidioses; *yat*—el cual; *paraiḥ*—por otros; *hṛtam*—fue robado.

@@ -1,11 +1,11 @@
 ### SB 9.16.28
 
-> गाधेरभून्महातेजाः समिद्ध इव पावकः
+> गाधेरभून्महातेजाः समिद्ध इव पावकः\
 > तपसा क्षात्रमुत्सृज्य यो लेभे ब्रह्मवर्चसम ॥२८॥
 
-> gādher abhūn mahā-tejāḥ
-> samiddha iva pāvakaḥ
-> tapasā kṣātram utsṛjya
+> gādher abhūn mahā-tejāḥ\
+> samiddha iva pāvakaḥ\
+> tapasā kṣātram utsṛjya\
 > yo lebhe brahma-varcasam
 
 *gādheḥ*—de Mahārāja Gādhi; *abhūt*—nació; *mahā-tejāḥ*—muy poderoso; *samiddhaḥ*—en llamas; *iva*—como; *pāvakaḥ*—el fuego; *tapasā*—por medio de austeridades y penitencias; *kṣātram*—la posición de *kṣatriya*; *utsṛjya*—abandonando; *yaḥ*—aquel que (Viśvāmitra); *lebhe*—alcanzó; *brahma-varcasam*—las cualidades de un *brāhmaṇa*.

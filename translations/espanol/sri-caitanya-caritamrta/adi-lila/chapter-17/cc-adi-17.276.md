@@ -1,9 +1,9 @@
 ### CC Adi 17.276
 
-> স্বমাধুর্য রাধা-প্রেমরস আস্বাদিতে ।
+> স্বমাধুর্য রাধা-প্রেমরস আস্বাদিতে ।\
 > রাধাভাব অঙ্গী করিয়াছে ভালমতে ॥২৭৬॥
 
-> sva-mādhurya rādhā-prema-rasa āsvādite
+> sva-mādhurya rādhā-prema-rasa āsvādite\
 > rādhā-bhāva aṅgī kariyāche bhāla-mate
 
 *sva-mādhurya*—Su propio amor conyugal; *rādhā-prema-rasa*—la melosidad de las relaciones amorosas entre Rādhārāṇī y Kṛṣṇa; *āsvādite*—para saborear; *rādhā-bhāva*—el sentimiento de Śrīmatī Rādhārāṇī; *aṅgī kariyāche*—Él aceptó; *bhāla-mate*—muy bien.

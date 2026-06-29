@@ -2,7 +2,7 @@
 
 > ततोऽपरामुपादाय स सर्गाय मनो दध् ॥४९॥
 
-> tato 'parām upādāya
+> tato 'parām upādāya\
 > sa sargāya mano dadhe
 
 *tataḥ*—thereafter; *aparām*—another; *upādāya*—having accepted; *saḥ*—he; *sargāya*—in the matter of creation; *manaḥ*—mind; *dadhe*—gave attention.

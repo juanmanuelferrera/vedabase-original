@@ -1,11 +1,11 @@
 ### CC Madhya 23.71
 
-> বিবিধাদ্ভুতভাষাবিৎ সত্যবাক্যঃ প্রিয়ংবদঃ ।
+> বিবিধাদ্ভুতভাষাবিৎ সত্যবাক্যঃ প্রিয়ংবদঃ ।\
 > বাবদূকঃ সুপাণ্ডিত্যো বুদ্ধিমান্ প্রতিভান্বিতঃ ॥৭১॥
 
-> vividhādbhuta-bhāṣā-vit
-> satya-vākyaḥ priyaṁ vadaḥ
-> vāvadūkaḥ supāṇḍityo
+> vividhādbhuta-bhāṣā-vit\
+> satya-vākyaḥ priyaṁ vadaḥ\
+> vāvadūkaḥ supāṇḍityo\
 > buddhimān pratibhānvitaḥ
 
 *vividha*—various; *adbhuta*—wonderful; *bhāṣā-vit*—knower of languages; *satya-vākyaḥ*—whose words are truthful; *priyam vadaḥ*—who speaks very pleasingly; *vāvadūkaḥ*—expert in speaking; *su-pāṇḍityaḥ*—very learned; *buddhimān*—very wise; *pratibhā-anvitaḥ*—genius.

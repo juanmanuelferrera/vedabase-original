@@ -1,9 +1,9 @@
 ### CC Madhya 4.182
 
-> ‘মণেক চন্দন, তোলা-বিশেক কর্পূর ।
+> ‘মণেক চন্দন, তোলা-বিশেক কর্পূর ।\
 > গোপালে পরাইব’ — এই আনন্দ প্রচুর ॥১৮২॥
 
-> 'maṇeka candana, tolā-viśeka karpūra
+> 'maṇeka candana, tolā-viśeka karpūra\
 > gopāle parāiba'—ei ānanda pracura
 
 *maṇeka candana*—one *māna* of sandalwood; *tolā*—a measurement of weight; *viśeka*—twenty; *karpūra*—camphor; *gopāle*—on Gopāla; *parāiba*—I shall smear; *ei*—this; *ānanda*—pleasure; *pracura*—sufficient.

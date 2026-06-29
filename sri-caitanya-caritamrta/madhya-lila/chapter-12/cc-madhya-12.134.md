@@ -1,9 +1,9 @@
 ### CC Madhya 12.134
 
-> প্রণালিকা ছাড়ি’ যদি পানি বহাইল ।
+> প্রণালিকা ছাড়ি’ যদি পানি বহাইল ।\
 > নূতন নদী যেন সমুদ্রে মিলিল ॥১৩৪॥
 
-> praṇālikā chāḍi' yadi pāni vahāila
+> praṇālikā chāḍi' yadi pāni vahāila\
 > nūtana nadī yena samudre milila
 
 *praṇālikā*—water from the outlets; *chāḍi'*—releasing; *yadi*—when; *pāni*—water; *vahāila*—flowed; *nūtana*—new; *nadī*—river; *yena*—as if; *samudre*—in the ocean; *milila*—met.

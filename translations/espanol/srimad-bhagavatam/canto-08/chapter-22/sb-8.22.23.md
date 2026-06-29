@@ -1,13 +1,13 @@
 ### SB 8.22.23
 
-> यत्पादयोरशठधीः सलिलं प्रदाय
-> दूर्वाङ्कुरैरपि विधाय सतीं सपर्याम
-> अप्युत्तमां गतिमसौ भजते त्रिलोकीं
+> यत्पादयोरशठधीः सलिलं प्रदाय\
+> दूर्वाङ्कुरैरपि विधाय सतीं सपर्याम\
+> अप्युत्तमां गतिमसौ भजते त्रिलोकीं\
 > दाश्वानविक्लवमनाः कथमार्तिमृच्छेत ॥२३॥
 
-> yat-pādayor aśaṭha-dhīḥ salilaṁ pradāya
-> dūrvāṅkurair api vidhāya satīṁ saparyām
-> apy uttamāṁ gatim asau bhajate tri-lokīṁ
+> yat-pādayor aśaṭha-dhīḥ salilaṁ pradāya\
+> dūrvāṅkurair api vidhāya satīṁ saparyām\
+> apy uttamāṁ gatim asau bhajate tri-lokīṁ\
 > dāśvān aviklava-manāḥ katham ārtim ṛcchet
 
 *yat-pādayoḥ*—a los pies de loto de Tu Señoría; *aśaṭha-dhīḥ*—una persona de mente amplia, que está libre de duplicidad; *salilam*—agua; *pradāya*—ofrecer; *dūrvā*—con hierba bien crecida; *aṅkuraiḥ*—y con capullos de flores; *api*—aunque; *vidhāya*—ofrecer; *satīm*—muy gloriosa; *saparyām*—con adoración; *api*—aunque; *uttamām*—el más elevado; *gatim*—destino; *asau*—ese adorador; *bhajate*—merece; *tri-lokīm*—los tres mundos; *dāśvān*—darte; *aviklava-manāḥ*—sin duplicidad mental; *katham*—cómo; *ārtim*—el sufrimiento de ser apresado; *ṛcchet*—merece.

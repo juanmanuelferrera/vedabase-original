@@ -1,9 +1,9 @@
 ### CC Madhya 24.266
 
-> গ্রামে ধ্বনি হৈল, ব্যাধ ‘বৈষ্ণব’ হইল ।
+> গ্রামে ধ্বনি হৈল, ব্যাধ ‘বৈষ্ণব’ হইল ।\
 > গ্রামের লোক সব অন্ন আনিতে লাগিল ॥২৬৬॥
 
-> grāme dhvani haila,—vyādha 'vaiṣṇava' ha-ila
+> grāme dhvani haila,—vyādha 'vaiṣṇava' ha-ila\
 > grāmera loka saba anna ānite lāgila
 
 *grāme*—in the village; *dhvani haila*—there was news; *vyādha*—the hunter; *vaiṣṇava ha-ila*—has become a Vaiṣṇava, a lover and servitor of Lord Viṣṇu; *grāmera loka*—the villagers; *saba*—all kinds of; *anna*—food; *ānite lāgila*—began to bring.

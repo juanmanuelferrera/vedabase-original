@@ -1,11 +1,11 @@
 ### SB 1.8.30
 
-> जन्म कर्म च विश्वात्मन्नजस्याकर्तुरात्मनः ।
+> जन्म कर्म च विश्वात्मन्नजस्याकर्तुरात्मनः ।\
 > तिर्यङ्नॄषिषु यादःसु तदत्यन्तविडम्बनम् ॥३०॥
 
-> janma karma ca viśvātmann
-> ajasyākartur ātmanaḥ
-> tiryaṅ-nṝṣiṣu yādaḥsu
+> janma karma ca viśvātmann\
+> ajasyākartur ātmanaḥ\
+> tiryaṅ-nṝṣiṣu yādaḥsu\
 > tad atyanta-viḍambanam
 
 *janma*—birth; *karma*—activity; *ca*—and; *viśva-ātman*—O soul of the universe; *ajasya*—of the unborn; *akartuḥ*—of the inactive; *ātmanaḥ*—of the vital energy; *tiryak*—animal; *nṛ*—human being; *ṛṣiṣu*—in the sages; *yādaḥsu*—in the water; *tat*—that; *atyanta*—veritable; *viḍambanam*—bewildering.

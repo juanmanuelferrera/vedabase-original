@@ -1,13 +1,13 @@
 ### CC Madhya 25.57
 
-> তর্কোঽপ্রতিষ্ঠঃ শ্রুতয়ো বিভিন্না
-> নাসাবৃষির্যস্য মতং ন ভিন্নম্ ।
-> ধর্মস্য তত্ত্বং নিহিতং গুহায়াং
+> তর্কোঽপ্রতিষ্ঠঃ শ্রুতয়ো বিভিন্না\
+> নাসাবৃষির্যস্য মতং ন ভিন্নম্ ।\
+> ধর্মস্য তত্ত্বং নিহিতং গুহায়াং\
 > মহাজনো যেন গতঃ স পন্থাঃ ॥৫৭॥
 
-> tarko 'pratiṣṭhaḥ śrutayo vibhinnā
-> nāsāv ṛṣir yasya mataṁ na bhinnam
-> dharmasya tattvaṁ nihitaṁ guhāyāṁ
+> tarko 'pratiṣṭhaḥ śrutayo vibhinnā\
+> nāsāv ṛṣir yasya mataṁ na bhinnam\
+> dharmasya tattvaṁ nihitaṁ guhāyāṁ\
 > mahājano yena gataḥ sa panthāḥ
 
 *tarkaḥ*—dry argument; *apratiṣṭhaḥ*—not fixed; *śrutayaḥ*—*Vedas*; *vibhinnāḥ*—possessing different departments; *na*—not; *asau*—that; *ṛṣiḥ*—great sage; *yasya*—whose; *matam*—opinion; *na*—not; *bhinnam*—separate; *dharmasya*—of religious principles; *tattvam*—truth; *nihitam*—placed; *guhāyām*—in the heart of a realized person; *mahā-janaḥ*—self-realized predecessors; *yena*—by which way; *gataḥ*—*acted*; *saḥ*—that; *panthāḥ*—the pure, unadulterated path.

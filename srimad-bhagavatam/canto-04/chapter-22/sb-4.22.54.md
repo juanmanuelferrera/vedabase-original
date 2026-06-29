@@ -1,11 +1,11 @@
 ### SB 4.22.54
 
-> विजिताश्वं धूम्रकेशं हर्यक्षं द्रविणं वृकम् ।
+> विजिताश्वं धूम्रकेशं हर्यक्षं द्रविणं वृकम् ।\
 > सर्वेषां लोकपालानां दधारैकः पृथुर्गुणान् ॥५४॥
 
-> vijitāśvaṁ dhūmrakeśaṁ
-> haryakṣaṁ draviṇaṁ vṛkam
-> sarveṣāṁ loka-pālānāṁ
+> vijitāśvaṁ dhūmrakeśaṁ\
+> haryakṣaṁ draviṇaṁ vṛkam\
+> sarveṣāṁ loka-pālānāṁ\
 > dadhāraikaḥ pṛthur guṇān
 
 *vijitāśvam*—of the name Vijitāśva; *dhūmrakeśam*—of the name Dhūmrakeśa; *haryakṣam*—of the name Haryakṣa; *draviṇam*—of the name Draviṇa; *vṛkam*—of the name Vṛka; *sarveṣām*—of all; *loka-pālānām*—the governing heads of all planets; *dadhāra*—accepted; *ekaḥ*—one; *pṛthuḥ*—Pṛthu Mahārāja; *guṇān*—all qualities.

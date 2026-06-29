@@ -1,9 +1,9 @@
 ### CC Adi 10.15
 
-> বড় শাখা, — গদাধর পণ্ডিত-গোসাঞি ।
+> বড় শাখা, — গদাধর পণ্ডিত-গোসাঞি ।\
 > তেঁহো লক্ষ্মীরূপা, তাঁর সম কেহ নাই ॥১৫॥
 
-> baḍa śākhā,--gadādhara paṇḍita-gosāñi
+> baḍa śākhā,--gadādhara paṇḍita-gosāñi\
 > teṅho lakṣmī-rūpā, tāṅra sama keha nāi
 
 *baḍa śākhā*—gran rama; *gadādhara paṇḍita-gosāñi*—los descendientes o sucesión discipular de Gadādhara Paṇḍita; *teṅho*—Gadādhara Paṇḍita; *lakṣmī-rūpā*—encarnación de la potencia de placer del Señor Kṛṣṇa; *tāṅra*—su; *sama*—igual; *keha*—alguien; *nāi*—no hay.

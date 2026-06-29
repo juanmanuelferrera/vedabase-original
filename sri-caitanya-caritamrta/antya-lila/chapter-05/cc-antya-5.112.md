@@ -1,13 +1,13 @@
 ### CC Antya 5.112
 
-> বিকচকমলনেত্রে শ্রীজগন্নাথসংজ্ঞে
-> কনকরুচিরিহাত্মন্যাত্মতাং যঃ প্রপন্নঃ ।
-> প্রকৃতিজড়মশেষং চেতয়ন্নাবিরাসীৎ
+> বিকচকমলনেত্রে শ্রীজগন্নাথসংজ্ঞে\
+> কনকরুচিরিহাত্মন্যাত্মতাং যঃ প্রপন্নঃ ।\
+> প্রকৃতিজড়মশেষং চেতয়ন্নাবিরাসীৎ\
 > স দিশতু তব ভব্যং কৃষ্ণচৈতন্যদেবঃ ॥১১২॥
 
-> vikaca-kamala-netre śrī-jagannātha-saṁjñe
-> kanaka-rucir ihātmany ātmatāṁ yaḥ prapannaḥ
-> prakṛti-jaḍam aśeṣaṁ cetayann āvirāsīt
+> vikaca-kamala-netre śrī-jagannātha-saṁjñe\
+> kanaka-rucir ihātmany ātmatāṁ yaḥ prapannaḥ\
+> prakṛti-jaḍam aśeṣaṁ cetayann āvirāsīt\
 > sa diśatu tava bhavyaṁ kṛṣṇa-caitanya-devaḥ
 
 *vikaca*—expanded; *kamala-netre*—whose lotus eyes; *śrī-jagannātha-saṁjñe*—named Śrī Jagannātha; *kanaka-ruciḥ*—possessing a golden hue; *iha*—here in Jagannātha Purī; *ātmani*—in the body; *ātmatām*—the state of being the self; *yaḥ*—who; *prapannaḥ*—has obtained; *prakṛti*—matter; *jaḍam*—inert; *aśeṣam*—unlimitedly; *cetayan*—enlivening; *āvirāsīt*—has appeared; *saḥ*—He; *diśatu*—may bestow; *tava*—unto you; *bhavyam*—auspiciousness; *kṛṣṇa-caitanya-devaḥ*—Lord Śrī Caitanya Mahāprabhu, known as Kṛṣṇa Caitanya.

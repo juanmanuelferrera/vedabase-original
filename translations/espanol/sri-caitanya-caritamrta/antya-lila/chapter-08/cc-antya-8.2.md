@@ -1,9 +1,9 @@
 ### CC Antya 8.2
 
-> জয় জয় শ্রীচৈতন্য করুণাসিন্ধু-অবতার ।
+> জয় জয় শ্রীচৈতন্য করুণাসিন্ধু-অবতার ।\
 > ব্রহ্মা-শিবাদিক ভজে চরণ যাঁহার ॥২॥
 
-> jaya jaya śrī-caitanya karuṇā-sindhu-avatāra
+> jaya jaya śrī-caitanya karuṇā-sindhu-avatāra\
 > brahmā-śivādika bhaje caraṇa yāṅhāra
 
 *jaya jaya*—todas las glorias; *śrī-caitanya*—a Śrī Caitanya Mahāprabhu; *karuṇā-sindhu-avatāra*—la encarnación del océano de misericordia; *brahmā-śiva-ādika*—los semidioses, encabezados por el Señor Brahmā y Śiva; *bhaje*—adoran; *caraṇa*—los pies de loto; *yāṅhāra*—de quien.

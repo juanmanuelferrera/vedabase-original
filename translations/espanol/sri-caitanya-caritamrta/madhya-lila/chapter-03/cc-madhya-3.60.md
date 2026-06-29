@@ -1,9 +1,9 @@
 ### CC Madhya 3.60
 
-> গৃহের ভিতরে প্রভু করুন গমন ৷
+> গৃহের ভিতরে প্রভু করুন গমন ৷\
 > দুই ভাই আইলা তবে করিতে ভোজন ॥৬০॥
 
-> gṛhera bhitare prabhu karuna gamana
+> gṛhera bhitare prabhu karuna gamana\
 > dui bhāi āilā tabe karite bhojana
 
 *gṛhera bhitare*—dentro de la habitación; *prabhu*—Caitanya Mahāprabhu; *karuna*—tenga la bondad de; *gamana*—entrar; *dui bhāi*—los dos hermanos, Caitanya Mahāprabhu y Nityānanda Prabhu; *āilā*—vinieron; *tabe*—entonces; *karite bhojana*—a tomar el *prasāda*.

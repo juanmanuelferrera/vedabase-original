@@ -1,11 +1,11 @@
 ### SB 1.8.3
 
-> तत्रासीनं कुरुपतिं धृतराष्ट्रं सहानुजम् ।
+> तत्रासीनं कुरुपतिं धृतराष्ट्रं सहानुजम् ।\
 > गान्धारीं पुत्रशोकार्तां पृथां कृष्णां च माधवः ॥३॥
 
-> tatrāsīnaṁ kuru-patiṁ
-> dhṛtarāṣṭraṁ sahānujam
-> gāndhārīṁ putra-śokārtāṁ
+> tatrāsīnaṁ kuru-patiṁ\
+> dhṛtarāṣṭraṁ sahānujam\
+> gāndhārīṁ putra-śokārtāṁ\
 > pṛthāṁ kṛṣṇāṁ ca mādhavaḥ
 
 *tatra*—there; *āsīnam*—sitting; *kuru-patim*—the King of the Kurus; *dhṛtarāṣṭram*—Dhṛtarāṣṭra; *saha-anujam*—with his younger brothers; *gāndhārīm*—Gāndhārī; *putra*—son; *śoka-artām*—overtaken by bereavement; *pṛthām*—Kuntī; *kṛṣṇām*—Draupadī; *ca*—also; *mādhavaḥ*—Lord Śrī Kṛṣṇa.

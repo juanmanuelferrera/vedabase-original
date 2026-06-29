@@ -1,9 +1,9 @@
 ### CC Adi 5.40
 
-> সেই পরব্যোমে নারায়ণের চারি পাশে ।
+> সেই পরব্যোমে নারায়ণের চারি পাশে ।\
 > দ্বারকা-চতুর্ব্যূহের দ্বিতীয় প্রকাশে ॥৪০॥
 
-> sei para-vyome nārāyaṇera cāri pāśe
+> sei para-vyome nārāyaṇera cāri pāśe\
 > dvārakā-catur-vyūhera dvitīya prakāśe
 
 *sei*—ese; *para-vyome*—en el cielo espiritual; *nārāyaṇera*—del Señor Nārāyaṇa; *cāri pāśe*—en los cuatro lados; *dvārakā*—Dvārakā; *catur-vyūhera*—de las expansiones cuádruples; *dvitīya*—la segunda; *prakāśe*—manifestación.

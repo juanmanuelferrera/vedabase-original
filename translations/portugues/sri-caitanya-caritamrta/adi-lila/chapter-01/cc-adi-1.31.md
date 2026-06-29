@@ -1,6 +1,6 @@
 ### CC Adi 1.31
 
-> sakala vaiṣṇava, śuna kari' eka-mana
+> sakala vaiṣṇava, śuna kari' eka-mana\
 > caitanya-kṛṣṇera śāstra-mata-nirūpaṇa
 
 *sakala*—todos; *vaiṣṇava*—ó devotos do Senhor; *śuna*—por favor, ouvi; *kari'*—prestando; *eka-mana*—atenção concentrada; *caitanya*—o Senhor Caitanya Mahāprabhu; *kṛṣṇera*—do Senhor Śrī Kṛṣṇa; *śāstra*—referência escritural; *mata*—segundo; *nirūpaṇa*—determinação.

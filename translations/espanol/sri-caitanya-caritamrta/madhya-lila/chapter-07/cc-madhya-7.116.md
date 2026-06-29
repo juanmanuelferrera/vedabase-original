@@ -1,9 +1,9 @@
 ### CC Madhya 7.116
 
-> দর্শনে ‘বৈষ্ণব’ হৈল, বলে ‘কৃষ্ণ’ ‘হরি’ ৷
+> দর্শনে ‘বৈষ্ণব’ হৈল, বলে ‘কৃষ্ণ’ ‘হরি’ ৷\
 > প্রেমাবেশে নাচে লোক ঊর্ধ্ববাহু করি’ ৷৷ ১১৬ ৷৷ ॥১১৬॥
 
-> darśane 'vaiṣṇava' haila, bale 'kṛṣṇa' 'hari'
+> darśane 'vaiṣṇava' haila, bale 'kṛṣṇa' 'hari'\
 > premāveśe nāce loka ūrdhva bāhu kari'
 
 *darśane*—al ver; *vaiṣṇava haila*—se volvieron devotos; *bale*—comenzaron a decir; *kṛṣṇa*—el Señor Kṛṣṇa; *hari*—el Señor Hari; *prema-āveśe*—en el gran éxtasis del amor por Dios; *nāce*—danzan; *loka*—todas las personas; *ūrdhva bāhu kari'*—alzando los brazos.

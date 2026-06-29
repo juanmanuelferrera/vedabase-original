@@ -1,11 +1,11 @@
 ### SB 3.15.2
 
-> लोके तेनाहतालोके लोकपाला हतौजसः ।
+> लोके तेनाहतालोके लोकपाला हतौजसः ।\
 > न्यवेदयन्विश्वसृजे ध्वान्तव्यतिकरं दिशाम् ॥२॥
 
-> loke tenāhatāloke
-> loka-pālā hataujasaḥ
-> nyavedayan viśva-sṛje
+> loke tenāhatāloke\
+> loka-pālā hataujasaḥ\
+> nyavedayan viśva-sṛje\
 > dhvānta-vyatikaraṁ diśām
 
 *loke*—dentro del universo; *tena*—por la fuerza del embarazo de Diti; *āhata*—siendo desprovisto de; *āloke*—luz; *loka-pālāḥ*—los semidioses de varios planetas; *hata-ojasaḥ*—cuya habilidad había decrecido; *nyavedayan*—preguntaron; *viśva-sṛje*—Brahmā; *dhvānta-vyatikaram*—oscuridad extendiéndose; *diśām*—en todas direcciones.

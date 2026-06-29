@@ -1,9 +1,9 @@
 ### CC Antya 6.85
 
-> দেখি’ নিত্যানন্দপ্রভু আনন্দিত হৈলা ।
+> দেখি’ নিত্যানন্দপ্রভু আনন্দিত হৈলা ।\
 > কত কত ভাবাবেশ প্রকাশ করিলা ॥৮৫॥
 
-> dekhi' nityānanda-prabhu ānandita hailā
+> dekhi' nityānanda-prabhu ānandita hailā\
 > kata kata bhāvāveśa prakāśa karilā
 
 *dekhi'*—viendo; *nityānanda-prabhu*—el Señor Nityānanda Prabhu; *ānandita hailā*—se sintió muy feliz; *kata kata*—cuánto; *bhāva-āveśa*—amor extático; *prakāśa karilā*—manifestó.

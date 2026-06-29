@@ -1,11 +1,11 @@
 ### SB 3.2.32
 
-> अयाजयद्गोसवेन गोपराजं द्विजोत्तमैः ।
+> अयाजयद्गोसवेन गोपराजं द्विजोत्तमैः ।\
 > वित्तस्य चोरुभारस्य चिकीर्षन्सद्व्ययं विभुः ॥३२॥
 
-> ayājayad go-savena
-> gopa-rājaṁ dvijottamaiḥ
-> vittasya coru-bhārasya
+> ayājayad go-savena\
+> gopa-rājaṁ dvijottamaiḥ\
+> vittasya coru-bhārasya\
 > cikīrṣan sad-vyayaṁ vibhuḥ
 
 *ayājayat*—hizo ejecutar; *go-savena*—mediante la adoración de las vacas; *gopa-rājam*—el rey de los pastores; *dvija-uttamaiḥ*—por los eruditos *brāhmaṇas*; *vittasya*—de la riqueza; *ca*—también; *uru-bhārasya*—gran opulencia; *cikīrṣan*—deseando actuar; *sat-vyayam*—utilización apropiada; *vibhuḥ*—el grande.

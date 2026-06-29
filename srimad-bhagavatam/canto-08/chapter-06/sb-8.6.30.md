@@ -1,11 +1,11 @@
 ### SB 8.6.30
 
-> महेन्द्रः श्लक्ष्णया वाचा सान्त्वयित्वा महामतिः
+> महेन्द्रः श्लक्ष्णया वाचा सान्त्वयित्वा महामतिः\
 > अभ्यभाषत तत्सर्वं शिक्षितं पुरुषोत्तमात ॥३०॥
 
-> mahendraḥ ślakṣṇayā vācā
-> sāntvayitvā mahā-matiḥ
-> abhyabhāṣata tat sarvaṁ
+> mahendraḥ ślakṣṇayā vācā\
+> sāntvayitvā mahā-matiḥ\
+> abhyabhāṣata tat sarvaṁ\
 > śikṣitaṁ puruṣottamāt
 
 *mahā-indraḥ*—the King of heaven, Indra; *ślakṣṇayā*—very mild; *vācā*—by words; *sāntvayitvā*—pleasing Bali Mahārāja very much; *mahā-matiḥ*—the most intelligent person; *abhyabhāṣata*—addressed; *tat*—that; *sarvam*—everything; *śikṣitam*—that was learned; *puruṣa-uttamāt*—from Lord Viṣṇu.

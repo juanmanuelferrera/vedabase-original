@@ -1,11 +1,11 @@
 ### Bg 3.6
 
-> कर्मेन्द्रियाणि संयम्य य आस्ते मनसा स्मरन् ।
+> कर्मेन्द्रियाणि संयम्य य आस्ते मनसा स्मरन् ।\
 > इन्द्रियार्थान्विमूढात्मा मिथ्याचारः स उच्यते ॥६॥
 
-> karmendriyāṇi saṁyamya
-> ya āste manasā smaran
-> indriyārthān vimūḍhātmā
+> karmendriyāṇi saṁyamya\
+> ya āste manasā smaran\
+> indriyārthān vimūḍhātmā\
 > mithyācāraḥ sa ucyate
 
 *karma-indryāṇi*—los cinco órganos de los sentidos para el trabajo; *saṁyamya*—controlando; *yaḥ*—cualquiera que; *āste*—permanezca; *manasā*—mediante la mente; *smaran*—pensando; *indriyā-arthān*—objetos de los sentidos; *vimūḍha*—necio; *ātmā*—alma; *mithyā-ācāraḥ*—farsante; *saḥ*—él; *ucyate*—se le llama.

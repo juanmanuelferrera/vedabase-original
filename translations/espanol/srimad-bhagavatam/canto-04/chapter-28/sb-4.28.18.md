@@ -1,11 +1,11 @@
 ### SB 4.28.18
 
-> लोकान्तरं गतवति मय्यनाथा कुटुम्बिनी ।
+> लोकान्तरं गतवति मय्यनाथा कुटुम्बिनी ।\
 > वर्तिष्यते कथं त्वेषा बालकाननुशोचती ॥१८॥
 
-> lokāntaraṁ gatavati
-> mayy anāthā kuṭumbinī
-> vartiṣyate kathaṁ tv eṣā
+> lokāntaraṁ gatavati\
+> mayy anāthā kuṭumbinī\
+> vartiṣyate kathaṁ tv eṣā\
 > bālakān anuśocatī
 
 *loka-antaram*—a una vida diferente; *gatavati mayi*—cuando haya ido; *anāthā*—sin esposo; *kuṭumbinī*—rodeada de todos los miembros de la familia; *vartiṣyate*—existirá; *katham*—cómo; *tu*—entonces; *eṣā*—esa mujer; *bālakān*—hijos; *anuśocatī*—lamentándose por.

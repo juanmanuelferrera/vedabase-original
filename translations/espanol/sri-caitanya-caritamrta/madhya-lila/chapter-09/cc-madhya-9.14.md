@@ -1,9 +1,9 @@
 ### CC Madhya 9.14
 
-> ei śloka pathe paḍi' karilā prayāṇa
+> ei śloka pathe paḍi' karilā prayāṇa\
 > gautamī-gaṅgāya yāi' kaila gaṅgā-snāna
 
-> ei śloka pathe paḍi' karilā prayāṇa
+> ei śloka pathe paḍi' karilā prayāṇa\
 > gautamī-gaṅgāya yāi' kaila gaṅgā-snāna
 
 *ei śloka*—este verso sánscrito; *pathe*—en el camino; *paḍi'*—recitando; *karilā*—hizo; *prayāṇa*—viaje; *gautamī-gaṅgāya*—a la orilla del Gautamī-gaṅgā; *yāi'*—yendo; *kaila*—hizo; *gaṅgā-snāna*—baño en el Ganges.

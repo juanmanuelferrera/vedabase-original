@@ -1,18 +1,18 @@
 ### SB 3.22.26-27
 
-> आमन्त्र्य तं मुनिवरमनुज्ञातः सहानुगः ।
-> प्रतस्थे रथमारुह्य सभार्यः स्वपुरं नृपः ॥२६॥
-> उभयोरृषिकुल्यायाः सरस्वत्याः सुरोधसोः ।
+> आमन्त्र्य तं मुनिवरमनुज्ञातः सहानुगः ।\
+> प्रतस्थे रथमारुह्य सभार्यः स्वपुरं नृपः ॥२६॥\
+> उभयोरृषिकुल्यायाः सरस्वत्याः सुरोधसोः ।\
 > ऋषीणामुपशान्तानां पश्यन्नाश्रमसम्पदः ॥२७॥
 
-> āmantrya taṁ muni-varam
-> anujñātaḥ sahānugaḥ
-> pratasthe ratham āruhya
+> āmantrya taṁ muni-varam\
+> anujñātaḥ sahānugaḥ\
+> pratasthe ratham āruhya\
 > sabhāryaḥ sva-puraṁ nṛpaḥ
 
-> ubhayor ṛṣi-kulyāyāḥ
-> sarasvatyāḥ surodhasoḥ
-> ṛṣīṇām upaśāntānāṁ
+> ubhayor ṛṣi-kulyāyāḥ\
+> sarasvatyāḥ surodhasoḥ\
+> ṛṣīṇām upaśāntānāṁ\
 > paśyann āśrama-sampadaḥ
 
 *āmantrya*—taking permission to go; *tam*—from him (Kardama); *muni-varam*—from the best of sages; *anujñātaḥ*—being permitted to leave; *saha-anugaḥ*—along with his retinue; *pratasthe*—started for; *ratham āruhya*—mounting his chariot; *sa-bhāryaḥ*—along with his wife; *sva-puram*—his own capital; *nṛpaḥ*—the Emperor; *ubhayoḥ*—on both; *ṛṣi-kulyāyāḥ*—agreeable to the sages; *sarasvatyāḥ*—of the River Sarasvatī; *su-rodhasoḥ*—the charming banks; *ṛṣīṇām*—of the great sages; *upaśāntānām*—tranquil; *paśyan*—seeing; *āśrama-sampadaḥ*—the prosperity of the beautiful hermitages.

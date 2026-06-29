@@ -1,9 +1,9 @@
 ### CC Adi 3.98
 
-> লোকগতি দেখি’ আচার্য করুণ-হৃদয় ।
+> লোকগতি দেখি’ আচার্য করুণ-হৃদয় ।\
 > বিচার করেন, লোকের কৈছে হিত হয় ॥৯৮॥
 
-> loka-gati dekhi' ācārya karuṇa-hṛdaya
+> loka-gati dekhi' ācārya karuṇa-hṛdaya\
 > vicāra karena, lokera kaiche hita haya
 
 *loka-gati*—the course of the world; *dekhi'*—seeing; *ācārya*—Advaita Ācārya; *karuṇa-hṛdaya*—compassionate heart; *vicārakarena*—considers; *lokera*—of the world; *kaiche*—how; *hita*—welfare; *haya*—there is.

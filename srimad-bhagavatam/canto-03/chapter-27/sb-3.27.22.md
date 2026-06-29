@@ -1,11 +1,11 @@
 ### SB 3.27.22
 
-> ज्ञानेन दृष्टतत्त्वेन वैराग्येण बलीयसा ।
+> ज्ञानेन दृष्टतत्त्वेन वैराग्येण बलीयसा ।\
 > तपोयुक्तेन योगेन तीव्रेणात्मसमाधिना ॥२२॥
 
-> jñānena dṛṣṭa-tattvena
-> vairāgyeṇa balīyasā
-> tapo-yuktena yogena
+> jñānena dṛṣṭa-tattvena\
+> vairāgyeṇa balīyasā\
+> tapo-yuktena yogena\
 > tīvreṇātma-samādhinā
 
 *jñānena*—in knowledge; *dṛṣṭa-tattvena*—with vision of the Absolute Truth; *vairāgyeṇa*—with renunciation; *balīyasā*—very strong; *tapaḥ-yuktena*—by engagement in austerity; *yogena*—by mystic *yoga*; *tīvreṇa*—firmly fixed; *ātma-samādhinā*—by self-absorption.

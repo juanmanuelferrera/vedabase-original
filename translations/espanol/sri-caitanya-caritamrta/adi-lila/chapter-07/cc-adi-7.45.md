@@ -1,9 +1,9 @@
 ### CC Adi 7.45
 
-> কাশীতে লেখক শূদ্র-শ্রীচন্দ্রশেখর ।
+> কাশীতে লেখক শূদ্র-শ্রীচন্দ্রশেখর ।\
 > তাঁর ঘরে রহিলা প্রভু স্বতন্ত্র ঈশ্বর ॥৪৫॥
 
-> kāśīte lekhaka śūdra-śrīcandraśekhara
+> kāśīte lekhaka śūdra-śrīcandraśekhara\
 > tāṅra ghare rahilā prabhu svatantra īśvara
 
 *kāśīte*—en Vārāṇasī; *lekhaka*—escribano; *śūdra*—nacido en una familia *śūdra*; *śrī-candraśekhara*—de nombre Candraśekhara; *tāṅra ghare*—en su casa; *rahilā*—permaneció; *prabhu*—el Señor; *svatantra*—independiente; *īśvara*—el controlador supremo.

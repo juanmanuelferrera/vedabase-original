@@ -1,9 +1,9 @@
 ### CC Madhya 1.104
 
-> গোদাবরীতীর-বনে বৃন্দাবন-ভ্রম ।
+> গোদাবরীতীর-বনে বৃন্দাবন-ভ্রম ।\
 > রামানন্দ রায় সহ তাহাঞি মিলন ॥১০৪॥
 
-> godāvarī-tīra-vane vṛndāvana-bhrama
+> godāvarī-tīra-vane vṛndāvana-bhrama\
 > rāmānanda rāya saha tāhāñi milana
 
 *godāvarī-tīra*—on the bank of the river Godāvarī; *vane*—in the forest; *vṛndāvana-bhrama*—mistook as Vṛndāvana; *rāmānandarāya*—of the name Rāmānanda Rāya; *saha*—with; *tāhāñi*—there; *milana*—meeting.

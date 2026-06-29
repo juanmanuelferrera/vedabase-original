@@ -1,11 +1,11 @@
 ### CC Madhya 19.167
 
-> অন্যাভিলাষিতা-শূন্যং জ্ঞান-কর্মাদ্যনাবৃতম্ ।
+> অন্যাভিলাষিতা-শূন্যং জ্ঞান-কর্মাদ্যনাবৃতম্ ।\
 > আনুকূল্যেন কৃষ্ণানুশীলনং ভক্তিরুত্তমা ॥১৬৭॥
 
-> anyābhilāṣitā-śūnyaṁ
-> jñāna-karmādy-anāvṛtam
-> ānukūlyena kṛṣṇānu-
+> anyābhilāṣitā-śūnyaṁ\
+> jñāna-karmādy-anāvṛtam\
+> ānukūlyena kṛṣṇānu-\
 > śīlanaṁ bhaktir uttamā
 
 *anya-abhilāṣitā-śūnyam*—sin deseos aparte de los del servicio al Señor Kṛṣṇa, o sin deseos materiales (tales como los de comer carne, el sexo ilícito, el juego de azar y la adicción a los intoxicantes); *jñāna*—por el conocimiento de la filosofía del monista māyāvādī; *karma*—por actividades fruitivas; *ādi*—por la práctica artificial del desapego, por la práctica mecánica del *yoga*, por el estudio de la filosofía *sāṅkhya*, etc.; *anāvṛtam*—libre de; *ānukūlyena*—favorable; *kṛṣṇa-anuśīlanam*—cultivo del servicio en relación con Kṛṣṇa; *bhaktiḥ uttamā*—servicio devocional de primera clase.

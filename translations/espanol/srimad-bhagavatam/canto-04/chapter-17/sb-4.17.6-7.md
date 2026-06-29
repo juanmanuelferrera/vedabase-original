@@ -1,18 +1,18 @@
 ### SB 4.17.6-7
 
-> यच्चान्यदपि कृष्णस्य भवान्भगवतः प्रभोः ।
-> श्रवः सुश्रवसः पुण्यं पूर्वदेहकथाश्रयम् ॥६॥
-> भक्ताय मेऽनुरक्ताय तव चाधोक्षजस्य च ।
+> यच्चान्यदपि कृष्णस्य भवान्भगवतः प्रभोः ।\
+> श्रवः सुश्रवसः पुण्यं पूर्वदेहकथाश्रयम् ॥६॥\
+> भक्ताय मेऽनुरक्ताय तव चाधोक्षजस्य च ।\
 > वक्तुमर्हसि योऽदुह्यद्वैन्यरूपेण गामिमाम् ॥७॥
 
-> yac cānyad api kṛṣṇasya
-> bhavān bhagavataḥ prabhoḥ
-> śravaḥ suśravasaḥ puṇyaṁ
+> yac cānyad api kṛṣṇasya\
+> bhavān bhagavataḥ prabhoḥ\
+> śravaḥ suśravasaḥ puṇyaṁ\
 > pūrva-deha-kathāśrayam
 
-> bhaktāya me 'nuraktāya
-> tava cādhokṣajasya ca
-> vaktum arhasi yo 'duhyad
+> bhaktāya me 'nuraktāya\
+> tava cādhokṣajasya ca\
+> vaktum arhasi yo 'duhyad\
 > vainya-rūpeṇa gām imām
 
 *yat*—que; *ca*—y; *anyat*—otro; *api*—ciertamente; *kṛṣṇasya*—de Kṛṣṇa; *bhavān*—tu noble persona; *bhagavataḥ*—de la Suprema Personalidad de Dios; *prabhoḥ*—poderosa; *śravaḥ*—gloriosas actividades; *su-śravasaḥ*—de quien es muy grato escuchar; *puṇyam*—piadoso; *pūrva-deha*—de Su encarnación anterior; *kathā-āśrayam*—en relación con el relato; *bhaktāya*—al devoto; *me*—a mí; *anuraktāya*—con gran atención; *tava*—de ti; *ca*—y; *adhokṣajasya*—del Señor, conocido con el nombre de Adhokṣaja; *ca*—también; *vaktum arhasi*—narra, por favor; *yaḥ*—el que; *aduhyat*—ordeñó; *vainya-rūpeṇa*—en la forma de hijo del rey Vena; *gām*—vaca, la Tierra; *imām*—a esta.

@@ -1,9 +1,9 @@
 ### CC Adi 14.73
 
-> উচ্ছিষ্ট-গর্তে ত্যক্ত-হাণ্ডীর উপর ।
+> উচ্ছিষ্ট-গর্তে ত্যক্ত-হাণ্ডীর উপর ।\
 > বসিয়াছেন সুখে প্রভু দেব-বিশ্বম্ভর ॥৭৩॥
 
-> ucchiṣṭa-garte tyakta-hāṇḍīra upara
+> ucchiṣṭa-garte tyakta-hāṇḍīra upara\
 > basiyāchena sukhe prabhu deva-viśvambhara
 
 *ucchiṣṭa-garte*—en el foso donde se arrojaban los restos de comida; *tyakta*—desechadas; *hāṇḍīra*—ollas; *upara*—encima; *basiyāchena*—se sentó; *sukhe*—muy plácidamente; *prabhu*—el Señor; *deva*—el Dios Supremo; *viśvambhara*—el sustentador del universo.

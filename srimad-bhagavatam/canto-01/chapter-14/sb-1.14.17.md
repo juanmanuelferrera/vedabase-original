@@ -1,11 +1,11 @@
 ### SB 1.14.17
 
-> सूर्यं हतप्रभं पश्य ग्रहमर्दं मिथो दिवि ।
+> सूर्यं हतप्रभं पश्य ग्रहमर्दं मिथो दिवि ।\
 > ससङ्कुलैर्भूतगणैर्ज्वलिते इव रोदसी ॥१७॥
 
-> sūryaṁ hata-prabhaṁ paśya
-> graha-mardaṁ mitho divi
-> sasaṅkulair bhūta-gaṇair
+> sūryaṁ hata-prabhaṁ paśya\
+> graha-mardaṁ mitho divi\
+> sasaṅkulair bhūta-gaṇair\
 > jvalite iva rodasī
 
 *sūryam*—the sun; *hata-prabham*—its rays declining; *paśya*—just see; *graha-mardam*—clashes of the stars; *mithaḥ*—among one another; *divi*—in the sky; *sa-saṅkulaiḥ*—being mixed with; *bhūta-gaṇaiḥ*—by the living entities; *jvalite*—being ignited; *iva*—as if; *rodasī*—crying.

@@ -1,9 +1,9 @@
 ### CC Antya 3.221
 
-> আচার্য কহেন, — “তুমি না করিহ ভয় ।
+> আচার্য কহেন, — “তুমি না করিহ ভয় ।\
 > সেই আচরিব, যেই শাস্ত্রমত হয় ॥২২১॥
 
-> ācārya kahena,--"tumi nā kariha bhaya
+> ācārya kahena,--"tumi nā kariha bhaya\
 > sei ācariba, yei śāstra-mata haya
 
 *ācārya kahena*—Advaita Ācārya dijo; *tumi*—tú; *nā*—no; *kariha*—tengas; *bhaya*—temor; *sei ācariba*—me comportaré de esa manera; *yei*—lo que sea; *śāstra-mata*—sancionado por las escrituras reveladas; *haya*—es.

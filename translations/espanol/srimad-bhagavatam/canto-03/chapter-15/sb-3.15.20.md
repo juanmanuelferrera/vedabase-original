@@ -1,13 +1,13 @@
 ### SB 3.15.20
 
-> यत्सङ्कुलं हरिपदानतिमात्रदृष्टैर्
-> वैदूर्यमारकतहेममयैर्विमानैः ।
-> येषां बृहत्कटितटाः स्मितशोभिमुख्यः
+> यत्सङ्कुलं हरिपदानतिमात्रदृष्टैर्\
+> वैदूर्यमारकतहेममयैर्विमानैः ।\
+> येषां बृहत्कटितटाः स्मितशोभिमुख्यः\
 > कृष्णात्मनां न रज आदधुरुत्स्मयाद्यैः ॥२०॥
 
-> yat saṅkulaṁ hari-padānati-mātra-dṛṣṭair
-> vaidūrya-mārakata-hema-mayair vimānaiḥ
-> yeṣāṁ bṛhat-kaṭi-taṭāḥ smita-śobhi-mukhyaḥ
+> yat saṅkulaṁ hari-padānati-mātra-dṛṣṭair\
+> vaidūrya-mārakata-hema-mayair vimānaiḥ\
+> yeṣāṁ bṛhat-kaṭi-taṭāḥ smita-śobhi-mukhyaḥ\
 > kṛṣṇātmanāṁ na raja ādadhur utsmayādyaiḥ
 
 *yat*—esa morada Vaikuṇṭha; *saṅkulam*—está impregnada; *hari-pada*—en los dos pies de loto de Hari, la Suprema Personalidad de Dios; *ānati*—mediante reverencias; *mātra*—simplemente; *dṛṣṭaiḥ*—se obtienen; *vaidūrya*—lapislázuli; *mārakata*—esmeraldas; *hema*—oro; *mayaiḥ*—hechos de; *vimānaiḥ*—con aeroplanos; *yeṣām*—de esos pasajeros; *bṛhat*—anchas; *kaṭi-taṭāḥ*—caderas; *smita*—sonrientes; *śobhi*—hermosos; *mukhyaḥ*—rostros; *kṛṣṇa*—en Kṛṣṇa; *ātmanām*—cuyas mentes están absortas; *na*—no; *rajaḥ*—deseo sexual; *ādadhuḥ*—estimulan; *utsmaya-ādyaiḥ*—por tratos amistosos íntimos, risas y bromas.

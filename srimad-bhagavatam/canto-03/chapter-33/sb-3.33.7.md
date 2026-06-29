@@ -1,11 +1,11 @@
 ### SB 3.33.7
 
-> अहो बत श्वपचोऽतो गरीयान्यज्जिह्वाग्रे वर्तते नाम तुभ्यम् ।
+> अहो बत श्वपचोऽतो गरीयान्यज्जिह्वाग्रे वर्तते नाम तुभ्यम् ।\
 > तेपुस्तपस्ते जुहुवुः सस्नुरार्या ब्रह्मानूचुर्नाम गृणन्ति ये ते ॥७॥
 
-> aho bata śva-paco 'to garīyān
-> yaj-jihvāgre vartate nāma tubhyam
-> tepus tapas te juhuvuḥ sasnur āryā
+> aho bata śva-paco 'to garīyān\
+> yaj-jihvāgre vartate nāma tubhyam\
+> tepus tapas te juhuvuḥ sasnur āryā\
 > brahmānūcur nāma gṛṇanti ye te
 
 *aho bata*—oh, how glorious; *śva-pacaḥ*—a dog-eater; *ataḥ*—hence; *garīyān*—worshipable; *yat*—of whom; *jihvā-agre*—on the tip of the tongue; *vartate*—is; *nāma*—the holy name; *tubhyam*—unto You; *tepuḥ tapaḥ*—practiced austerities; *te*—they; *juhuvuḥ*—executed fire sacrifices; *sasnuḥ*—took bath in the sacred rivers; *āryāḥ*—Āryans; *brahma anūcuḥ*—studied the *Vedas*; *nāma*—the holy name; *gṛṇanti*—accept; *ye*—they who; *te*—Your.

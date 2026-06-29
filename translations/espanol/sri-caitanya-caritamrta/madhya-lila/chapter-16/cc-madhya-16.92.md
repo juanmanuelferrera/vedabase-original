@@ -1,9 +1,9 @@
 ### CC Madhya 16.92
 
-> শুনিয়া প্রভুর বাণী মনে বিচারয় ।
+> শুনিয়া প্রভুর বাণী মনে বিচারয় ।\
 > প্রভু-সনে অতি হঠ কভু ভাল নয় ॥৯২॥
 
-> śuniyā prabhura vāṇī mane vicāraya
+> śuniyā prabhura vāṇī mane vicāraya\
 > prabhu-sane ati haṭha kabhu bhāla naya
 
 *śuniyā*—al oír; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *vāṇī*—las palabras; *mane*—en sus mentes; *vicāraya*—consideraron; *prabhu-sane*—con el Señor Caitanya Mahāprabhu; *ati*—demasiadas; *haṭha*—artimañas; *kabhu*—en ningún momento; *bhāla naya*—no es nada bueno.

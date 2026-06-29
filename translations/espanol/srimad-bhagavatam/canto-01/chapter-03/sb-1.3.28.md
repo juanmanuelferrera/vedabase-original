@@ -1,11 +1,11 @@
 ### SB 1.3.28
 
-> एते चांशकलाः पुंसः कृष्णस्तु भगवान्स्वयम् ।
+> एते चांशकलाः पुंसः कृष्णस्तु भगवान्स्वयम् ।\
 > इन्द्रारिव्याकुलं लोकं मृडयन्ति युगे युगे ॥२८॥
 
-> ete cāṁśa-kalāḥ puṁsaḥ
-> kṛṣṇas tu bhagavān svayam
-> indrāri-vyākulaṁ lokaṁ
+> ete cāṁśa-kalāḥ puṁsaḥ\
+> kṛṣṇas tu bhagavān svayam\
+> indrāri-vyākulaṁ lokaṁ\
 > mṛḍayanti yuge yuge
 
 *ete*—todas estas; *ca*—y; *aṁśa*—porciones plenarias; *kalāḥ*—porciones de las porciones plenarias; *puṁsaḥ*—del Supremo; *kṛṣṇaḥ*—el Señor Kṛṣṇa; *tu*—pero; *bhagavān*—la Personalidad de Dios; *svayam*—en persona; *indra-ari*—los enemigos de Indra; *vyākulam*—perturbaron; *lokam*—todos los planetas; *mṛḍayanti*—da protección; *yuge yuge*—en diferentes épocas.

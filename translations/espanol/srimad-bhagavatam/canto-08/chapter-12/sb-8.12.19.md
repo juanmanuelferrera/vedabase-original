@@ -1,11 +1,11 @@
 ### SB 8.12.19
 
-> आवर्तनोद्वर्तनकम्पितस्तन प्रकृष्टहारोरुभरैः पदे पदे
+> आवर्तनोद्वर्तनकम्पितस्तन प्रकृष्टहारोरुभरैः पदे पदे\
 > प्रभज्यमानामिव मध्यतश्चलत्पदप्रवालं नयतीं ततस्ततः ॥१९॥
 
-> āvartanodvartana-kampita-stana-
-> prakṛṣṭa-hāroru-bharaiḥ pade pade
-> prabhajyamānām iva madhyataś calat-
+> āvartanodvartana-kampita-stana-\
+> prakṛṣṭa-hāroru-bharaiḥ pade pade\
+> prabhajyamānām iva madhyataś calat-\
 > pada-pravālaṁ nayatīṁ tatas tataḥ
 
 *āvartana*—por la caída; *udvartana*—y el rebotar; *kampita*—temblando; *stana*—de los dos senos; *prakṛṣṭa*—hermosos; *hāra*—y de collares de flores; *uru-bharaiḥ*—debido a la pesada carga; *pade pade*—a cada paso; *prabhajyamānām iva*—como si se quebrase; *madhyataḥ*—en la porción media del cuerpo; *calat*—moviéndose de esa forma; *pada-pravālam*—pies rojizos como el coral; *nayatīm*—moviéndose; *tataḥ tataḥ*—de un lugar a otro.

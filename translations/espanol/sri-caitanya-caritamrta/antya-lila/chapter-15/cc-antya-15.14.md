@@ -1,13 +1,13 @@
 ### CC Antya 15.14
 
-> সৌন্দর্যামৃতসিন্ধুভঙ্গললনা-চিত্তাদ্রিসংপ্লাবকঃ
-> কর্ণানন্দি-সনর্মরম্যবচনঃ কোটীন্দুশীতাঙ্গকঃ ।
-> সৌরভ্যামৃতসংপ্লবাবৃতজগৎ পীযূষরম্যাধরঃ
+> সৌন্দর্যামৃতসিন্ধুভঙ্গললনা-চিত্তাদ্রিসংপ্লাবকঃ\
+> কর্ণানন্দি-সনর্মরম্যবচনঃ কোটীন্দুশীতাঙ্গকঃ ।\
+> সৌরভ্যামৃতসংপ্লবাবৃতজগৎ পীযূষরম্যাধরঃ\
 > শ্রীগোপেন্দ্রসুতঃ স কর্ষতি বলাৎ পঞ্চেন্দ্রিয়াণ্যালি মে ॥১৪॥
 
-> saundaryāmṛta-sindhu-bhaṅga-lalanā-cittādri-saṁplāvakaḥ
-> karṇānandi-sanarma-ramya-vacanaḥ koṭīndu-śītāṅgakaḥ
-> saurabhyāmṛta-samplavāvṛta-jagat pīyūṣa-ramyādharaḥ
+> saundaryāmṛta-sindhu-bhaṅga-lalanā-cittādri-saṁplāvakaḥ\
+> karṇānandi-sanarma-ramya-vacanaḥ koṭīndu-śītāṅgakaḥ\
+> saurabhyāmṛta-samplavāvṛta-jagat pīyūṣa-ramyādharaḥ\
 > śrī-gopendra-sutaḥ sa karṣati balāt pañcendriyāṇy āli me
 
 *saundarya*—Su belleza; *amṛta-sindhu*—del océano de néctar; *bhaṅga*—por las olas; *lalanā*—de las mujeres; *citta*—los corazones; *adri*—colinas; *saṁplāvakaḥ*—que inunda; *karṇa*—por los oídos; *ānandi*—que da placer; *sanarma*—gozoso; *ramya*—bello; *vacanaḥ*—cuya voz; *koṭi-indu*—que diez millones de lunas; *śīta*—más refrescante; *aṅgakaḥ*—cuyo cuerpo; *saurabhya*—Su fragancia; *amṛta*—de néctar; *samplava*—por la inundación; *āvṛta*—cubierto; *jagat*—todo el universo; *pīyūṣa*—néctar; *ramya*—bellos; *adharaḥ*—cuyos labios; *śrī-gopa-indra*—de Nanda Mahārāja; *sutaḥ*—el hijo; *saḥ*—Él; *karṣati*—atrae; *balāt*—por la fuerza; *pañca-indriyāṇi*—los cinco sentidos; *āli*—¡oh, querida amiga!; *me*—Mis.

@@ -1,11 +1,11 @@
 ### Bg 1.11
 
-> अयनेषु च सर्वेषु यथाभागमवस्थिताः ।
+> अयनेषु च सर्वेषु यथाभागमवस्थिताः ।\
 > भीष्ममेवाभिरक्षन्तु भवन्तः सर्व एव हि ॥११॥
 
-> ayaneṣu ca sarveṣu
-> yathā-bhāgam avasthitāḥ
-> bhīṣmam evābhirakṣantu
+> ayaneṣu ca sarveṣu\
+> yathā-bhāgam avasthitāḥ\
+> bhīṣmam evābhirakṣantu\
 > bhavantaḥ sarva eva hi
 
 *ayaneṣu*—en los puntos estratégicos; *ca*—también; *sarveṣu*—en todas partes; *yathā-bhāgam*—según están dispuestos en las diferentes posiciones; *avasthitāḥ*—situados; *bhīṣmam*—al abuelo Bhīṣma; *eva*—ciertamente; *abhirakṣantu*—deben dar apoyo; *bhavantaḥ*—todos vosotros; *sarve*—respectivamente; *eva*—ciertamente; *hi*—y exactamente.

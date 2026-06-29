@@ -1,11 +1,11 @@
 ### SB 8.18.30
 
-> अद्य नः पितरस्तृप्ता अद्य नः पावितं कुलम
+> अद्य नः पितरस्तृप्ता अद्य नः पावितं कुलम\
 > अद्य स्विष्टः क्रतुरयं यद्भवानागतो गृहान ॥३०॥
 
-> adya naḥ pitaras tṛptā
-> adya naḥ pāvitaṁ kulam
-> adya sviṣṭaḥ kratur ayaṁ
+> adya naḥ pitaras tṛptā\
+> adya naḥ pāvitaṁ kulam\
+> adya sviṣṭaḥ kratur ayaṁ\
 > yad bhavān āgato gṛhān
 
 *adya*—today; *naḥ*—our; *pitaraḥ*—forefathers; *tṛptāḥ*—satisfied; *adya*—today; *naḥ*—our; *pāvitam*—purified; *kulam*—the whole family; *adya*—today; *su-iṣṭaḥ*—properly executed; *kratuḥ*—the sacrifice; *ayam*—this; *yat*—because; *bhavān*—Your Lordship; *āgataḥ*—arrived; *gṛhān*—at our residence.

@@ -1,9 +1,9 @@
 ### CC Madhya 24.29
 
-> এই যাঁহা নাহি, তাহা ভক্তি — ‘অহৈতুকী’ ।
+> এই যাঁহা নাহি, তাহা ভক্তি — ‘অহৈতুকী’ ।\
 > যাহা হৈতে বশ হয় শ্রীকৃষ্ণ কৌতুকী ॥২৯॥
 
-> ei yāṅhā nāhi, tāhā bhakti—'ahaitukī'
+> ei yāṅhā nāhi, tāhā bhakti—'ahaitukī'\
 > yāhā haite vaśa haya śrī-kṛṣṇa kautukī
 
 *ei*—these; *yāṅhā*—where; *nāhi*—not existing; *tāhā*—that; *bhakti*—the platform of devotional service; *ahaitukī*—unmotivated; *yāhā haite*—by which; *vaśa haya*—comes under control; *śrī-kṛṣṇa*—Lord Śrī Kṛṣṇa; *kautukī*—the most funny.

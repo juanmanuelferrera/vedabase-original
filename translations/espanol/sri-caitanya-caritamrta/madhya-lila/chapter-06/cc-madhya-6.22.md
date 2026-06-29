@@ -1,9 +1,9 @@
 ### CC Madhya 6.22
 
-> নিত্যানন্দ-গোসাঞিকে আচার্য কৈল নমস্কার ।
+> নিত্যানন্দ-গোসাঞিকে আচার্য কৈল নমস্কার ।\
 > সবে মেলি’ পুছে প্রভুর বার্তা বার বার ॥২২॥
 
-> nityānanda-gosāñike ācārya kaila namaskāra
+> nityānanda-gosāñike ācārya kaila namaskāra\
 > sabe meli' puche prabhura vārtā bāra bāra
 
 *nityānanda-gosāñike*—al Señor Nityānanda Prabhu; *ācārya*—Gopīnātha Ācārya; *kaila namaskāra*—ofreció reverencias; *sabe meli'*—encontrándose con todos ellos; *puche*—pregunta; *prabhura*—del Señor Caitanya Mahāprabhu; *vārtā*—noticias; *bāra bāra*—una y otra vez.

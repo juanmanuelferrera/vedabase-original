@@ -1,13 +1,13 @@
 ### SB 1.4.14
 
-> सूत उवाच
-> द्वापरे समनुप्राप्ते तृतीये युगपर्यये ।
+> सूत उवाच\
+> द्वापरे समनुप्राप्ते तृतीये युगपर्यये ।\
 > जातः पराशराद्योगी वासव्यां कलया हरेः ॥१४॥
 
-> sūta uvāca
-> dvāpare samanuprāpte
-> tṛtīye yuga-paryaye
-> jātaḥ parāśarād yogī
+> sūta uvāca\
+> dvāpare samanuprāpte\
+> tṛtīye yuga-paryaye\
+> jātaḥ parāśarād yogī\
 > vāsavyāṁ kalayā hareḥ
 
 *sūtaḥ*—Sūta Gosvāmī; *uvāca*—said; *dvāpare*—in the second millennium; *samanuprāpte*—on the advent of; *tṛtīye*—third; *yuga*—millennium; *paryaye*—in the place of; *jātaḥ*—was begotten; *parāśarāt*—by Parāśara; *yogī*—the great sage; *vāsavyām*—in the womb of the daughter of Vasu; *kalayā*—in the plenary portion; *hareḥ*—of the Personality of Godhead.

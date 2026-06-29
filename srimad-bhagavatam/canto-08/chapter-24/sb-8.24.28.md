@@ -1,11 +1,11 @@
 ### SB 8.24.28
 
-> नमस्ते पुरुषश्रेष्ठ स्थित्युत्पत्त्यप्ययेश्वर
+> नमस्ते पुरुषश्रेष्ठ स्थित्युत्पत्त्यप्ययेश्वर\
 > भक्तानां नः प्रपन्नानां मुख्यो ह्यात्मगतिर्विभो ॥२८॥
 
-> namas te puruṣa-śreṣṭha
-> sthity-utpatty-apyayeśvara
-> bhaktānāṁ naḥ prapannānāṁ
+> namas te puruṣa-śreṣṭha\
+> sthity-utpatty-apyayeśvara\
+> bhaktānāṁ naḥ prapannānāṁ\
 > mukhyo hy ātma-gatir vibho
 
 *namaḥ*—I offer my respectful obeisances; *te*—unto You; *puruṣa-śreṣṭha*—the best of all living entities, the best of all enjoyers; *sthiti*—of maintenance; *utpatti*—creation; *apyaya*—and destruction; *īśvara*—the Supreme Lord; *bhaktānām*—of Your devotees; *naḥ*—like us; *prapannānām*—those who are surrendered; *mukhyaḥ*—the supreme; *hi*—indeed; *ātma-gatiḥ*—the supreme destination; *vibho*—Lord Viṣṇu.

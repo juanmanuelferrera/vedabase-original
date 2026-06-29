@@ -1,11 +1,11 @@
 ### SB 9.15.25
 
-> स वै रत्नं तु तद्दृष्ट्वा आत्मैश्वर्यातिशायनम
+> स वै रत्नं तु तद्दृष्ट्वा आत्मैश्वर्यातिशायनम\
 > तन्नाद्रियताग्निहोत्र्यां साभिलाषः सहैहयः ॥२५॥
 
-> sa vai ratnaṁ tu tad dṛṣṭvā
-> ātmaiśvaryātiśāyanam
-> tan nādriyatāgnihotryāṁ
+> sa vai ratnaṁ tu tad dṛṣṭvā\
+> ātmaiśvaryātiśāyanam\
+> tan nādriyatāgnihotryāṁ\
 > sābhilāṣaḥ sahaihayaḥ
 
 *saḥ*—he (Kārtavīryārjuna); *vai*—indeed; *ratnam*—a great source of wealth; *tu*—indeed; *tat*—the *kāmadhenu* in the possession of Jamadagni; *dṛṣṭvā*—by observing; *ātma-aiśvarya*—his own personal opulence; *ati-śāyanam*—which was exceeding; *tat*—that; *na*—not; *ādriyata*—appreciated very much; *agnihotryām*—in that cow, which was useful for executing the *agnihotra* sacrifice; *sa-abhilāṣaḥ*—became desirous; *sa-haihayaḥ*—with his own men, the Haihayas.

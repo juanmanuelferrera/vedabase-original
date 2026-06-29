@@ -1,11 +1,11 @@
 ### SB 3.7.26
 
-> उपर्यधश्च ये लोका भूमेर्मित्रात्मजासते ।
+> उपर्यधश्च ये लोका भूमेर्मित्रात्मजासते ।\
 > तेषां संस्थां प्रमाणं च भूर्लोकस्य च वर्णय ॥२६॥
 
-> upary adhaś ca ye lokā
-> bhūmer mitrātmajāsate
-> teṣāṁ saṁsthāṁ pramāṇaṁ ca
+> upary adhaś ca ye lokā\
+> bhūmer mitrātmajāsate\
+> teṣāṁ saṁsthāṁ pramāṇaṁ ca\
 > bhūr-lokasya ca varṇaya
 
 *upari*—on the head; *adhaḥ*—underneath; *ca*—also; *ye*—which; *lokāḥ*—planets; *bhūmeḥ*—of the earth; *mitra-ātmaja*—O son of Mitrā (Maitreya Muni); *āsate*—do exist; *teṣām*—their; *saṁsthām*—situation; *pramāṇam ca*—also their measurement; *bhūḥ-lokasya*—of the earthly planets; *ca*—also; *varṇaya*—please describe.

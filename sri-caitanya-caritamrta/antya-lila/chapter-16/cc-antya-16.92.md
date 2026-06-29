@@ -1,9 +1,9 @@
 ### CC Antya 16.92
 
-> তার অল্প লঞা প্রভু জিহ্বাতে যদি দিলা ।
+> তার অল্প লঞা প্রভু জিহ্বাতে যদি দিলা ।\
 > আর সব গোবিন্দের আঁচলে বান্ধিলা ॥৯২॥
 
-> tāra alpa lañā prabhu jihvāte yadi dilā
+> tāra alpa lañā prabhu jihvāte yadi dilā\
 > āra saba govindera āṅcale bāndhilā
 
 *tāra*—of that; *alpa*—very little; *lañā*—taking; *prabhu*—Śrī Caitanya Mahāprabhu; *jihvāte*—on the tongue; *yadi*—when; *dilā*—put; *āra saba*—all the balance; *govindera*—of Govinda; *āṅcale*—at the end of the wrapper; *bāndhilā*—bound.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.189
 
-> রাত্রি-দিন কুঞ্জে ক্রীড়া করে রাধা-সঙ্গে ৷
+> রাত্রি-দিন কুঞ্জে ক্রীড়া করে রাধা-সঙ্গে ৷\
 > কৈশোর বয়স সফল কৈল ক্রীড়া-রঙ্গে ৷৷ ১৮৯ ৷৷ ॥১৮৯॥
 
-> rātri-dina kuñje krīḍā kare rādhā-saṅge
+> rātri-dina kuñje krīḍā kare rādhā-saṅge\
 > kaiśora vayasa saphala kaila krīḍā-raṅge
 
 *rātri-dina*—día y noche; *kuñje*—en los jardines o bosquecillos de Vṛndāvana; *krīḍā*—pasatiempos; *kare*—realiza; *rādhā-saṅge*—con Rādhārāṇī; *kaiśora*—la pre-juventud; *vayasa*—la edad; *sa-phala*—fructífera; *kaila*—hizo; *krīḍā-raṅge*—deleitándose en diferentes pasatiempos.

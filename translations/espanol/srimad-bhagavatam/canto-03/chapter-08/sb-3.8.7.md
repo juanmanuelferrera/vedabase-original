@@ -1,11 +1,11 @@
 ### SB 3.8.7
 
-> प्रोक्तं किलैतद्भगवत्तमेन निवृत्तिधर्माभिरताय तेन ।
+> प्रोक्तं किलैतद्भगवत्तमेन निवृत्तिधर्माभिरताय तेन ।\
 > सनत्कुमाराय स चाह पृष्टः साङ्ख्यायनायाङ्ग धृतव्रताय ॥७॥
 
-> proktaṁ kilaitad bhagavattamena
-> nivṛtti-dharmābhiratāya tena
-> sanat-kumārāya sa cāha pṛṣṭaḥ
+> proktaṁ kilaitad bhagavattamena\
+> nivṛtti-dharmābhiratāya tena\
+> sanat-kumārāya sa cāha pṛṣṭaḥ\
 > sāṅkhyāyanāyāṅga dhṛta-vratāya
 
 *proktam*—se dijo; *kila*—ciertamente; *etat*—esto; *bhagavattamena*—por Śrī Saṅkarṣaṇa; *nivṛtti*—renunciación; *dharma-abhiratāya*—a aquel que ha hecho este voto religioso; *tena*—por Él; *sanat-kumārāya*—a Sanat-kumāra; *saḥ*—él; *ca*—también; *āha*—dijo; *pṛṣṭaḥ*—cuando se le preguntó; *sāṅkhyāyanāya*—al gran sabio Sāṅkhyāyana; *aṅga*—mi querido Vidura; *dhṛta-vratāya*—a aquel que ha hecho semejante voto.

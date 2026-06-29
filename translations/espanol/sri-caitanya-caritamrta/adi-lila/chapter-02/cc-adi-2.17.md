@@ -1,11 +1,11 @@
 ### CC Adi 2.17
 
-> মুনয়ো বাতবাসনাঃ শ্রমণা ঊর্দ্ধ্বমন্থিনঃ ।
+> মুনয়ো বাতবাসনাঃ শ্রমণা ঊর্দ্ধ্বমন্থিনঃ ।\
 > ব্রহ্মাখ্যং ধাম তে যান্তি শান্তাঃ সন্ন্যাসিনোঽমলাঃ ॥১৭॥
 
-> munayo vāta-vāsanāḥ
-> śramaṇā ūrdhva-manthinaḥ
-> brahmākhyaṁ dhāma te yānti
+> munayo vāta-vāsanāḥ\
+> śramaṇā ūrdhva-manthinaḥ\
+> brahmākhyaṁ dhāma te yānti\
 > śāntāḥ sannyāsino 'malāḥ
 
 *munayaḥ*—santos; *vāta-vāsanāḥ*—desnudos; *śramanāḥ*—que realizan severas penitencias físicas; *ūrdhva*—elevado; *manthinaḥ*—cuyo semen; *brahma-ākhyam*—conocido como Brahmaloka; *dhāma*—a la morada; *te*—ellos; *yānti*—van; *śāntāḥ*—ecuánimes en el Brahman; *sannyāsinaḥ*—que están en la orden de vida de renuncia; *amalāḥ*—puros.

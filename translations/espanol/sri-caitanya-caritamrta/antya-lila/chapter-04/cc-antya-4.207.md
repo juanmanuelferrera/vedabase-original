@@ -1,9 +1,9 @@
 ### CC Antya 4.207
 
-> দোলযাত্রা দেখি’ প্রভু তাঁরে বিদায় দিলা ।
+> দোলযাত্রা দেখি’ প্রভু তাঁরে বিদায় দিলা ।\
 > বৃন্দাবনে যে করিবেন, সব শিখাইলা ॥২০৭॥
 
-> dola-yātrā dekhi' prabhu tāṅre vidāya dilā
+> dola-yātrā dekhi' prabhu tāṅre vidāya dilā\
 > vṛndāvane ye karibena, saba śikhāilā
 
 *dola-yātrā*—el festival de Dola-yātrā; *dekhi'*—viendo; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a él; *vidāya dilā*—se despidió; *vṛndāvane*—en Vṛndāvana; *ye karibena*—lo que haría; *saba*—todo; *śikhāilā*—instruyó.

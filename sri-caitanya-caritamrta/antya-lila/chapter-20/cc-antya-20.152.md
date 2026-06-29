@@ -1,9 +1,9 @@
 ### CC Antya 20.152
 
-> শ্রোতার পদরেণু করোঁ মস্তক-ভূষণ ।
+> শ্রোতার পদরেণু করোঁ মস্তক-ভূষণ ।\
 > তোমরা এ-অমৃত পিলে সফল হৈল শ্রম ॥১৫২॥
 
-> śrotāra pada-reṇu karoṅ mastaka-bhūṣaṇa
+> śrotāra pada-reṇu karoṅ mastaka-bhūṣaṇa\
 > tomarā e-amṛta pile saphala haila śrama
 
 *śrotāra*—of the audience; *pada-reṇu*—the dust of the lotus feet; *karoṅ*—I make; *mastaka-bhūṣaṇa*—a decoration on my head; *tomarā*—all of you; *e-amṛta*—this nectar; *pile*—have drunk; *sa-phala*—successful; *haila*—has become; *śrama*—my labor.

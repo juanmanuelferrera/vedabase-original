@@ -1,11 +1,11 @@
 ### SB 4.5.24
 
-> दृष्ट्वा संज्ञपनं योगं पशूनां स पतिर्मखे ।
+> दृष्ट्वा संज्ञपनं योगं पशूनां स पतिर्मखे ।\
 > यजमानपशोः कस्य कायात्तेनाहरच्छिरः ॥२४॥
 
-> dṛṣṭvā saṁjñapanaṁ yogaṁ
-> paśūnāṁ sa patir makhe
-> yajamāna-paśoḥ kasya
+> dṛṣṭvā saṁjñapanaṁ yogaṁ\
+> paśūnāṁ sa patir makhe\
+> yajamāna-paśoḥ kasya\
 > kāyāt tenāharac chiraḥ
 
 *dṛṣṭvā*—habiendo visto; *saṁjñapanam*—para matar a los animales en el sacrificio; *yogam*—el artilugio; *paśūnām*—de los animales; *saḥ*—él (Vīrabhadra); *patiḥ*—el señor; *makhe*—en el sacrificio; *yajamāna-paśoḥ*—que era un animal en forma de director del sacrificio; *kasya*—de Dakṣa; *kāyāt*—del cuerpo; *tena*—con ese (instrumento); *aharat*—cortó; *śiraḥ*—la cabeza.

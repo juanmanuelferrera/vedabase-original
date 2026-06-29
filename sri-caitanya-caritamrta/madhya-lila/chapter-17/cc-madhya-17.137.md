@@ -1,9 +1,9 @@
 ### CC Madhya 17.137
 
-> ব্রহ্মানন্দ হৈতে পূর্ণানন্দ লীলারস ।
+> ব্রহ্মানন্দ হৈতে পূর্ণানন্দ লীলারস ।\
 > ব্রহ্মজ্ঞানী আকর্ষিয়া করে আত্মবশ ॥১৩৭॥
 
-> brahmānanda haite pūrṇānanda līlā-rasa
+> brahmānanda haite pūrṇānanda līlā-rasa\
 > brahma-jñānī ākarṣiyā kare ātma-vaśa
 
 *brahma-ānanda*—the pleasure of self-realization; *haite*—from; *pūrṇa-ānanda*—complete pleasure; *līlā-rasa*—the mellows of the pastimes of the Lord; *brahma-jñānī*—those who are on the platform of Brahman understanding; *ākarṣiyā*—attracting; *kare*—make; *ātma-vaśa*—subordinate to Kṛṣṇa.

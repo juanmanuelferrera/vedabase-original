@@ -2,7 +2,7 @@
 
 > बाहवो लोकपालानां प्रायशः क्षेमकर्मणा ॥६॥
 
-> bāhavo loka-pālānāṁ
+> bāhavo loka-pālānāṁ\
 > prāyaśaḥ kṣema-karmaṇām
 
 *bāhavaḥ*—arms; *loka-pālānām*—of the governing deities of the planets, the demigods; *prāyaśaḥ*—almost always; *kṣema-karmaṇām*—of those who are leaders and protectors of the general mass.

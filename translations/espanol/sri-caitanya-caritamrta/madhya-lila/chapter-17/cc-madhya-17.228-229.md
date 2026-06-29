@@ -1,14 +1,14 @@
 ### CC Madhya 17.228-229
 
-> অন্য-দেশ প্রেম উছলে ‘বৃন্দাবন’ নামে ।
-> সাক্ষাৎ ভ্রময়ে এবে সেই বৃন্দাবনে ॥২২৮॥
-> প্রেমে গরগর মন রাত্রি-দিবসে ।
+> অন্য-দেশ প্রেম উছলে ‘বৃন্দাবন’ নামে ।\
+> সাক্ষাৎ ভ্রময়ে এবে সেই বৃন্দাবনে ॥২২৮॥\
+> প্রেমে গরগর মন রাত্রি-দিবসে ।\
 > স্নান-ভিক্ষাদি-নির্বাহ করেন অভ্যাসে ॥২২৯॥
 
-> anya-deśa prema uchale 'vṛndāvana'-nāme
+> anya-deśa prema uchale 'vṛndāvana'-nāme\
 > sākṣāt bhramaye ebe sei vṛndāvane
 
-> preme garagara mana rātri-divase
+> preme garagara mana rātri-divase\
 > snāna-bhikṣādi-nirvāha karena abhyāse
 
 *anya-deśa*—en otras regiones; *prema*—el amor; *uchale*—aumenta; *vṛndāvana-nāme*—por el nombre de Vṛndāvana; *sākṣāt*—directamente; *bhramaye*—viaja; *ebe*—ahora; *sei vṛndāvane*—en esa Vṛndāvana; *preme*—en amor extático; *garagara*—vacilante; *mana*—la mente; *rātri-divase*—día y noche; *snāna-bhikṣā-ādi*—bañarse y comer; *nirvāha*—cumplir; *karena*—hace; *abhyāse*—por hábito.

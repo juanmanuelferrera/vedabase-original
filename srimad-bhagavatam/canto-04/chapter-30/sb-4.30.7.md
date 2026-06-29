@@ -1,13 +1,13 @@
 ### SB 4.30.7
 
-> पीनायताष्टभुजमण्डलमध्यलक्ष्म्या
-> स्पर्धच्छ्रिया परिवृतो वनमालयाद्यः ।
-> बर्हिष्मतः पुरुष आह सुतान्प्रपन्नान्
+> पीनायताष्टभुजमण्डलमध्यलक्ष्म्या\
+> स्पर्धच्छ्रिया परिवृतो वनमालयाद्यः ।\
+> बर्हिष्मतः पुरुष आह सुतान्प्रपन्नान्\
 > पर्जन्यनादरुतया सघृणावलोकः ॥७॥
 
-> pīnāyatāṣṭa-bhuja-maṇḍala-madhya-lakṣmyā
-> spardhac-chriyā parivṛto vana-mālayādyaḥ
-> barhiṣmataḥ puruṣa āha sutān prapannān
+> pīnāyatāṣṭa-bhuja-maṇḍala-madhya-lakṣmyā\
+> spardhac-chriyā parivṛto vana-mālayādyaḥ\
+> barhiṣmataḥ puruṣa āha sutān prapannān\
 > parjanya-nāda-rutayā saghṛṇāvalokaḥ
 
 *pīna*—stout; *āyata*—long; *aṣṭa*—eight; *bhuja*—arms; *maṇḍala*—encirclement; *madhya*—in the midst of; *lakṣmyā*—with the goddess of fortune; *spardhat*—contending; *śriyā*—whose beauty; *parivṛtaḥ*—encircled; *vana-mālayā*—by a flower garland; *ādyaḥ*—the original Personality of Godhead; *barhiṣmataḥ*—of King Prācīnabarhi; *puruṣaḥ*—the Supreme Personality of Godhead; *āha*—addressed; *sutān*—the sons; *prapannān*—surrendered; *parjanya*—like a cloud; *nāda*—whose sound; *rutayā*—by a voice; *sa-ghṛṇa*—with mercy; *avalokaḥ*—His glancing.

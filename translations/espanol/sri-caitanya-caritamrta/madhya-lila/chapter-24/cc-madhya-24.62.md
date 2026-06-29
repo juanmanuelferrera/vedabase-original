@@ -1,9 +1,9 @@
 ### CC Madhya 24.62
 
-> তবে করে ভক্তিবাধক কর্ম, অবিদ্যা নাশ ।
+> তবে করে ভক্তিবাধক কর্ম, অবিদ্যা নাশ ।\
 > শ্রবণাদ্যের ফল ‘প্রেমা’ করয়ে প্রকাশ ॥৬২॥
 
-> tabe kare bhakti-bādhaka karma, avidyā nāśa
+> tabe kare bhakti-bādhaka karma, avidyā nāśa\
 > śravaṇādyera phala 'premā' karaye prakāśa
 
 *tabe*—después de eso; *kare*—hace; *bhakti-bādhaka*—impedimentos en el sendero del servicio devocional; *karma*—actividades; *avidyā*—ignorancia; *nāśa*—destrucción; *śravaṇa-ādyera*—de oír, cantar, etcétera; *phala*—el resultado; *premā*—amor por Dios; *karaye prakāśa*—provoca la manifestación de.

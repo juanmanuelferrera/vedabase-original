@@ -1,6 +1,6 @@
 ### CC Adi 1.102
 
-> ei candra sūrya dui parama sadaya
+> ei candra sūrya dui parama sadaya\
 > jagatera bhāgye gauḍe karilā udaya
 
 *ei*—estes; *candra*—lua; *sūrya*—sol; *dui*—dois; *parama*—muito; *sa-daya*—bondosos; *jagatera*—das pessoas do mundo; *bhāgye*—para a fortuna; *gauḍe*—na terra de Gauḍa; *karilā*—fizeram; *udaya*—aparecimento.

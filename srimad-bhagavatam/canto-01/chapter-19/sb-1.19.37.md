@@ -1,11 +1,11 @@
 ### SB 1.19.37
 
-> अतः पृच्छामि संसिद्धिं योगिनां परमं गुरुम् ।
+> अतः पृच्छामि संसिद्धिं योगिनां परमं गुरुम् ।\
 > पुरुषस्येह यत्कार्यं म्रियमाणस्य सर्वथा ॥३७॥
 
-> ataḥ pṛcchāmi saṁsiddhiṁ
-> yogināṁ paramaṁ gurum
-> puruṣasyeha yat kāryaṁ
+> ataḥ pṛcchāmi saṁsiddhiṁ\
+> yogināṁ paramaṁ gurum\
+> puruṣasyeha yat kāryaṁ\
 > mriyamāṇasya sarvathā
 
 *ataḥ*—therefore; *pṛcchāmi*—beg to inquire; *saṁsiddhim*—the way of perfection; *yoginām*—of the saints; *paramam*—the supreme; *gurum*—the spiritual master; *puruṣasya*—of a person; *iha*—in this life; *yat*—whatever; *kāryam*—duty; *mriyamāṇasya*—of one who is going to die; *sarvathā*—in every way.

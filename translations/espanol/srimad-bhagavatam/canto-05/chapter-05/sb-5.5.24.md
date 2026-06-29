@@ -1,11 +1,11 @@
 ### SB 5.5.24
 
-> धृता तनूरुशती मे पुराणी येनेह सत्त्वं परमं पवित्रम
+> धृता तनूरुशती मे पुराणी येनेह सत्त्वं परमं पवित्रम\
 > शमो दमः सत्यमनुग्रहश्च तपस्तितिक्षानुभवश्च यत्र ॥२४॥
 
-> dhṛtā tanūr uśatī me purāṇī
-> yeneha sattvaṁ paramaṁ pavitram
-> śamo damaḥ satyam anugrahaś ca
+> dhṛtā tanūr uśatī me purāṇī\
+> yeneha sattvaṁ paramaṁ pavitram\
+> śamo damaḥ satyam anugrahaś ca\
 > tapas titikṣānubhavaś ca yatra
 
 *dhṛtā*—mantenido mediante la educación trascendental; *tanūḥ*—cuerpo; *uśatī*—libre de contaminación material; *me*—Mío; *purāṇī*—eterno; *yena*—por quien; *iha*—en el mundo material; *sattvam*—la modalidad de la bondad; *paramam*—suprema; *pavitram*—purificada; *śamaḥ*—control de la mente; *damaḥ*—control de los sentidos; *satyam*—veracidad; *anugrahaḥ*—misericordia; *ca*—y; *tapaḥ*—austeridad; *titikṣā*—tolerancia; *anubhavaḥ*—percepción de Dios y de la entidad viviente; *ca*—y; *yatra*—donde.

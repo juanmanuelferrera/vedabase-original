@@ -1,13 +1,13 @@
 ### CC Madhya 1.58
 
-> যঃ কৌমারহরঃ স এব হি বরস্তা এব চৈত্রক্ষপা-
-> স্তে চোন্মীলিতমালতীসুরভয়ঃ প্রৌঢ়াঃ কদম্বানিলাঃ ।
-> সা চৈবাস্মি তথাপি তত্র সুরতব্যাপারলীলাবিধৌ
+> যঃ কৌমারহরঃ স এব হি বরস্তা এব চৈত্রক্ষপা-\
+> স্তে চোন্মীলিতমালতীসুরভয়ঃ প্রৌঢ়াঃ কদম্বানিলাঃ ।\
+> সা চৈবাস্মি তথাপি তত্র সুরতব্যাপারলীলাবিধৌ\
 > রেবারোধসি বেতসীতরুতলে চেতঃ সমুৎকণ্ঠতে ॥৫৮॥
 
-> yaḥ kaumāra-haraḥ sa eva hi varas tā eva caitra-kṣapās
-> te conmīlita-mālatī-surabhayaḥ prauḍhāḥ kadambānilāḥ
-> sā caivāsmi tathāpi tatra surata-vyāpāra-līlā-vidhau
+> yaḥ kaumāra-haraḥ sa eva hi varas tā eva caitra-kṣapās\
+> te conmīlita-mālatī-surabhayaḥ prauḍhāḥ kadambānilāḥ\
+> sā caivāsmi tathāpi tatra surata-vyāpāra-līlā-vidhau\
 > revā-rodhasi vetasī-taru-tale cetaḥ samutkaṇṭhate
 
 *yaḥ*—esa misma persona que; *kaumāra-haraḥ*—el ladrón de mi corazón durante la juventud; *saḥ*—él; *eva hi*—ciertamente; *varaḥ*—amante; *tāḥ*—estas; *eva*—ciertamente; *caitra-kṣapāḥ*—las noches de luna del mes de Caitra; *te*—esas; *ca*—y; *unmīlita*—fructificadas; *mālatī*—de las flores mālatī; *surabhayaḥ*—fragancias; *prauḍhāḥ*—plenas; *kadamba*—con la fragancia de la flor kadamba; *anilāḥ*—las brisas; *sā*—esa; *ca*—también; *eva*—ciertamente; *asmi*—soy; *tathāpi*—aun así; *tatra*—allí; *surata-vyāpāra*—en intercambios íntimos; *līlā*—de pasatiempos; *vidhau*—en la forma; *revā*—del río llamado Revā; *rodhasi*—en la orilla; *vetasī*—de nombre Vetasī; *taru-tale*—bajo el árbol; *cetaḥ*—mi mente; *samutkaṇṭhate*—anhela ir.

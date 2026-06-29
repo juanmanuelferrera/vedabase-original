@@ -1,9 +1,9 @@
 ### CC Adi 10.144
 
-> বাইশ ঘড়া জল দিনে ভরেন রামাই ।
+> বাইশ ঘড়া জল দিনে ভরেন রামাই ।\
 > গোবিন্দ-আজ্ঞায় সেবা করেন নন্দাই ॥১৪৪॥
 
-> bāiśa ghaḍā jala dine bharena rāmāi
+> bāiśa ghaḍā jala dine bharena rāmāi\
 > govinda-ājñāya sevā karena nandāi
 
 *bāiśa*—veintidós; *ghaḍā*—grandes cántaros de agua; *jala*—agua; *dine*—a diario; *bharena*—llenaba; *rāmāi*—de nombre Rāmāi; *govinda-ājñāya*—por orden de Govinda; *sevā*—servicio; *karena*—prestaba; *nandāi*—de nombre Nandāi.

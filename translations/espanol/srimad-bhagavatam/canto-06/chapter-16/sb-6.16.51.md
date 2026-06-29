@@ -1,11 +1,11 @@
 ### SB 6.16.51
 
-> अहं वै सर्वभूतानि भूतात्मा भूतभावनः
+> अहं वै सर्वभूतानि भूतात्मा भूतभावनः\
 > शब्दब्रह्म परं ब्रह्म ममोभे शाश्वती तनू ॥५१॥
 
-> ahaṁ vai sarva-bhūtāni
-> bhūtātmā bhūta-bhāvanaḥ
-> śabda-brahma paraṁ brahma
+> ahaṁ vai sarva-bhūtāni\
+> bhūtātmā bhūta-bhāvanaḥ\
+> śabda-brahma paraṁ brahma\
 > mamobhe śāśvatī tanū
 
 *aham*—Yo; *vai*—en verdad; *sarva-bhūtāni*—expandido en diversas formas de entidades vivientes; *bhūta-ātmā*—la Superalma de todas las entidades vivientes (su director y disfrutador supremo); *bhūta-bhāvanaḥ*—la causa de la manifestación de todas las entidades vivientes; *śabda-brahma*—la vibración sonora trascendental (el *mantra* Hare Kṛṣṇa); *param brahma*—la Verdad Absoluta Suprema; *mama*—Míos; *ubhe*—ambos (es decir, la forma de sonido y la forma de identidad espiritual); *śāśvatī*—eternos; *tanū*—dos cuerpos.

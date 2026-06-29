@@ -1,25 +1,25 @@
 ### SB 9.4.33-35
 
-> गवां रुक्मविषाणीनां रूप्याङ्घ्रीणां सुवाससाम
-> पयःशीलवयोरूप वत्सोपस्करसम्पदाम ॥३३॥
-> प्राहिणोत्साधुविप्रेभ्यो गृहेषु न्यर्बुदानि षट
-> भोजयित्वा द्विजानग्रे स्वाद्वन्नं गुणवत्तमम ॥३४॥
-> लब्धकामैरनुज्ञआतः पारणायोपचक्रमे
+> गवां रुक्मविषाणीनां रूप्याङ्घ्रीणां सुवाससाम\
+> पयःशीलवयोरूप वत्सोपस्करसम्पदाम ॥३३॥\
+> प्राहिणोत्साधुविप्रेभ्यो गृहेषु न्यर्बुदानि षट\
+> भोजयित्वा द्विजानग्रे स्वाद्वन्नं गुणवत्तमम ॥३४॥\
+> लब्धकामैरनुज्ञआतः पारणायोपचक्रमे\
 > तस्य तर्ह्यतिथिः साक्षाद्दुर्वासा भगवानभूत ॥३५॥
 
-> gavāṁ rukma-viṣāṇīnāṁ
-> rūpyāṅghrīṇāṁ suvāsasām
-> payaḥśīla-vayo-rūpa-
+> gavāṁ rukma-viṣāṇīnāṁ\
+> rūpyāṅghrīṇāṁ suvāsasām\
+> payaḥśīla-vayo-rūpa-\
 > vatsopaskara-sampadām
 
-> prāhiṇot sādhu-viprebhyo
-> gṛheṣu nyarbudāni ṣaṭ
-> bhojayitvā dvijān agre
+> prāhiṇot sādhu-viprebhyo\
+> gṛheṣu nyarbudāni ṣaṭ\
+> bhojayitvā dvijān agre\
 > svādv annaṁ guṇavattamam
 
-> labdha-kāmair anujñātaḥ
-> pāraṇāyopacakrame
-> tasya tarhy atithiḥ sākṣād
+> labdha-kāmair anujñātaḥ\
+> pāraṇāyopacakrame\
+> tasya tarhy atithiḥ sākṣād\
 > durvāsā bhagavān abhūt
 
 *gavām*—vacas; *rukma-viṣāṇīnām*—cuyos cuernos estaban cubiertos con láminas de oro; *rūpya-aṅghrīṇām*—con las pezuñas cubiertas con láminas de plata; *su-vāsasām*—muy bien adornadas con mantos; *payaḥ-śīla*—con las ubres llenas; *vayaḥ*—jóvenes; *rūpa*—bonitas; *vatsa-upaskara-sampadām*—con hermosos terneros; *prāhiṇot*—dio como caridad; *sādhu-viprebhyaḥ*—a los *brāhmaṇas* y personas santas; *gṛheṣu*—(que llegaron) a su casa; *nyarbudāni*—diez *karors* (cien millones); *ṣaṭ*—seis veces; *bhojayitvā*—darles de comer; *dvijān agre*—primero a los *brāhmaṇas*; *svādu annam*—platos muy sabrosos; *guṇavat-tamam*—muy deliciosos; *labdha-kāmaiḥ*—por aquellos *brāhmaṇas*, que estaban completamente satisfechos; *anujñātaḥ*—con su permiso; *pāraṇāya*—para completar el *dvādaśī*; *upacakrame*—estaba a punto de observar la ceremonia final; *tasya*—de él (de Ambarīṣa); *tarhi*—inmediatamente; *atithiḥ*—visita no deseada o no invitada; *sākṣāt*—directamente; *durvāsāḥ*—el gran místico Durvāsā; *bhagavān*—muy poderoso; *abhūt*—se presentó de visita.

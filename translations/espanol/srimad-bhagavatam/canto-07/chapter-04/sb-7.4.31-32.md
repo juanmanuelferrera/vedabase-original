@@ -1,21 +1,21 @@
 ### SB 7.4.31-32
 
-> ब्रह्मण्यः शीलसम्पन्नः सत्यसन्धो जितेन्द्रियः
-> आत्मवत्सर्वभूतानामेकप्रियसुहृत्तमः ॥३१॥
-> दासवत्सन्नतार्याङ्घ्रिः पितृवद्दीनवत्सलः
-> भ्रातृवत्सदृशे स्निग्धो गुरुष्वीश्वरभावनः
+> ब्रह्मण्यः शीलसम्पन्नः सत्यसन्धो जितेन्द्रियः\
+> आत्मवत्सर्वभूतानामेकप्रियसुहृत्तमः ॥३१॥\
+> दासवत्सन्नतार्याङ्घ्रिः पितृवद्दीनवत्सलः\
+> भ्रातृवत्सदृशे स्निग्धो गुरुष्वीश्वरभावनः\
 > विद्यार्थरूपजन्माढ्यो मानस्तम्भविवर्जितः ॥३२॥
 
-> brahmaṇyaḥ śīla-sampannaḥ
-> satya-sandho jitendriyaḥ
-> ātmavat sarva-bhūtānām
+> brahmaṇyaḥ śīla-sampannaḥ\
+> satya-sandho jitendriyaḥ\
+> ātmavat sarva-bhūtānām\
 > eka-priya-suhṛttamaḥ
 
-> dāsavat sannatāryāṅghriḥ
-> pitṛvad dīna-vatsalaḥ
-> bhrātṛvat sadṛśe snigdho
-> guruṣv īśvara-bhāvanaḥ
-> vidyārtha-rūpa-janmāḍhyo
+> dāsavat sannatāryāṅghriḥ\
+> pitṛvad dīna-vatsalaḥ\
+> bhrātṛvat sadṛśe snigdho\
+> guruṣv īśvara-bhāvanaḥ\
+> vidyārtha-rūpa-janmāḍhyo\
 > māna-stambha-vivarjitaḥ
 
 *brahmaṇyaḥ*—con la cultura de un buen *brāhmaṇa*; *śīla-sampannaḥ*—dotado de todas las buenas cualidades; *satya-sandhaḥ*—decidido a comprender la Verdad Absoluta; *jita-indriyaḥ*—con perfecto dominio de la mente y los sentidos; *ātma-vat*—como la Superalma; *sarva-bhūtānām*—de todas las entidades vivientes; *eka-priya*—el que era querido; *suhṛt-tamaḥ*—el mejor amigo; *dāsa-vat*—como un humilde sirviente; *sannata*—siempre obediente; *ārya-aṅghriḥ*—a los pies de loto de grandes personas; *pitṛ-vat*—igual que un padre; *dīna-vatsalaḥ*—bondadoso con los pobres; *bhrātṛ-vat*—como un hermano; *sadṛśe*—con sus iguales; *snigdhaḥ*—muy afectuoso; *guruṣu*—a los maestros espirituales; *īśvara-bhāvanaḥ*—a quienes consideraba iguales a la Suprema Personalidad de Dios; *vidyā*—educación; *artha*—riquezas; *rūpa*—belleza; *janma*—aristocracia o nobleza; *āḍhyaḥ*—dotado de; *māna*—orgullo; *stambha*—desvergüenza; *vivarjitaḥ*—completamente libre de.

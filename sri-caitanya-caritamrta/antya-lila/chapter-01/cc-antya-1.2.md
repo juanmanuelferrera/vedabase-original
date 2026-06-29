@@ -1,11 +1,11 @@
 ### CC Antya 1.2
 
-> দুর্গমে পথি মেঽন্ধস্য স্খলৎপাদগতের্মুহুঃ ।
+> দুর্গমে পথি মেঽন্ধস্য স্খলৎপাদগতের্মুহুঃ ।\
 > স্বকৃপা-যষ্টিদানেন সন্তঃ সন্ত্ববলম্বনম্ ॥২॥
 
-> durgame pathi me 'ndhasya
-> skhalat-pāda-gater muhuḥ
-> sva-kṛpā-yaṣṭi-dānena
+> durgame pathi me 'ndhasya\
+> skhalat-pāda-gater muhuḥ\
+> sva-kṛpā-yaṣṭi-dānena\
 > santaḥ santv avalambanam
 
 *durgame*—very difficult; *pathi*—on the path; *me*—of me; *andhasya*—one who is blind; *skhalat*—slipping; *pāda*—on feet; *gateḥ*—whose manner of moving; *muhuḥ*—again and again; *sva-kṛpā*—of their own mercy; *yaṣṭi*—the stick; *dānena*—by giving; *santaḥ*—those saintly persons; *santu*—let that become; *avalambanam*—my support.

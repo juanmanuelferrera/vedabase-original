@@ -1,11 +1,11 @@
 ### SB 9.24.59
 
-> अक्षौहिणीनां पतिभिरसुरैर्नृपलाञ्छनैः
+> अक्षौहिणीनां पतिभिरसुरैर्नृपलाञ्छनैः\
 > भुव आक्रम्यमाणाया अभाराय कृतोद्यमः ॥५९॥
 
-> akṣauhiṇīnāṁ patibhir
-> asurair nṛpa-lāñchanaiḥ
-> bhuva ākramyamāṇāyā
+> akṣauhiṇīnāṁ patibhir\
+> asurair nṛpa-lāñchanaiḥ\
+> bhuva ākramyamāṇāyā\
 > abhārāya kṛtodyamaḥ
 
 *akṣauhiṇīnām*—de reyes que poseen un gran poder militar; *patibhiḥ*—por esos reyes o gobiernos; *asuraiḥ*—demonios, en realidad (pues no necesitan ese poder militar, pero lo crean sin necesidad); *nṛpa-lāñchanaiḥ*—que en realidad no están capacitados para ser reyes (aunque de alguna forma se han hecho con el gobierno); *bhuvaḥ*—sobre la superficie de la Tierra; *ākramyamāṇāyāḥ*—amenazarse y atacarse entre sí; *abhārāya*—preparar el terreno para disminuir el número de demonios de la superficie de la Tierra; *kṛta-udyamaḥ*—entusiastas (gastan todos los ingresos del estado en aumentar el poderío militar).

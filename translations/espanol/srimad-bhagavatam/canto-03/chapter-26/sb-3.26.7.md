@@ -1,11 +1,11 @@
 ### SB 3.26.7
 
-> तदस्य संसृतिर्बन्धः पारतन्त्र्यं च तत्कृतम् ।
+> तदस्य संसृतिर्बन्धः पारतन्त्र्यं च तत्कृतम् ।\
 > भवत्यकर्तुरीशस्य साक्षिणो निर्वृतात्मनः ॥७॥
 
-> tad asya saṁsṛtir bandhaḥ
-> pāra-tantryaṁ ca tat-kṛtam
-> bhavaty akartur īśasya
+> tad asya saṁsṛtir bandhaḥ\
+> pāra-tantryaṁ ca tat-kṛtam\
+> bhavaty akartur īśasya\
 > sākṣiṇo nirvṛtātmanaḥ
 
 *tat*—del concepto erróneo; *asya*—del alma condicionada; *saṁsṛtiḥ*—vida condicionada; *bandhaḥ*—cautiverio; *pāra-tantryam*—subordinación; *ca*—y; *tat-kṛtam*—hecha por esa; *bhavati*—es; *akartuḥ*—del que no actúa; *īśasya*—independiente; *sākṣiṇaḥ*—el testigo; *nirvṛta-ātmanaḥ*—dichosa por naturaleza.

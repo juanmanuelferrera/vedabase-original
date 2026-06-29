@@ -1,11 +1,11 @@
 ### Bg 5.21
 
-> बाह्यस्पर्शेष्वसक्तात्मा विन्दत्यात्मनि यत्सुखम् ।
+> बाह्यस्पर्शेष्वसक्तात्मा विन्दत्यात्मनि यत्सुखम् ।\
 > स ब्रह्मयोगयुक्तात्मा सुखमक्षयमश्नुते ॥२१॥
 
-> bāhya-sparśeṣv asaktātmā
-> vindaty ātmani yat sukham
-> sa brahma-yoga-yuktātmā
+> bāhya-sparśeṣv asaktātmā\
+> vindaty ātmani yat sukham\
+> sa brahma-yoga-yuktātmā\
 > sukham akṣayam aśnute
 
 *bāhya-sparśeṣu*—en el placer externo de los sentidos; *asakta-ātmā*—aquel que no está así apegado; *vindati*—disfruta; *ātmani*—en el yo; *yat*—aquello que; *sukham*—felicidad; *saḥ*—aquel; *brahma-yoga*—concentrado en el Brahman; *yukta-ātmā*—conectado con el yo; *sukham*—felicidad; *akṣayam*—ilimitado; *aśnute*—disfruta.

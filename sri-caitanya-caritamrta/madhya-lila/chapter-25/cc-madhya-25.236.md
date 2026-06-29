@@ -1,9 +1,9 @@
 ### CC Madhya 25.236
 
-> প্রভু কহে, — “মহাপ্রসাদ আন’ এই স্থানে ।
+> প্রভু কহে, — “মহাপ্রসাদ আন’ এই স্থানে ।\
 > সবা-সঙ্গে ইহাঁ আজি করিমু ভোজনে ।।” ॥ ২৩৬ ॥
 
-> prabhu kahe,-"mahā-prasāda āna' ei sthāne
+> prabhu kahe,-"mahā-prasāda āna' ei sthāne\
 > sabā-saṅge ihāṅ āji karimu bhojane"
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *mahā-prasāda āna'*—bring *mahā-prasāda*; *ei sthāne*—to this place; *sabā-saṅge*—with all; *ihāṅ*—here; *āji*—today; *karimu bhojane*—I shall dine.

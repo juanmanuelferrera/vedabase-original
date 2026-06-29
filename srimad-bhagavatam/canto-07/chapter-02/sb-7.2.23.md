@@ -1,11 +1,11 @@
 ### SB 7.2.23
 
-> यथाम्भसा प्रचलता तरवोऽपि चला इव
+> यथाम्भसा प्रचलता तरवोऽपि चला इव\
 > चक्षुषा भ्राम्यमाणेन दृश्यते चलतीव भूः ॥२३॥
 
-> yathāmbhasā pracalatā
-> taravo 'pi calā iva
-> cakṣuṣā bhrāmyamāṇena
+> yathāmbhasā pracalatā\
+> taravo 'pi calā iva\
+> cakṣuṣā bhrāmyamāṇena\
 > dṛśyate calatīva bhūḥ
 
 *yathā*—just as; *ambhasā*—by water; *pracalatā*—moving; *taravaḥ*—the trees (on the bank of the river); *api*—also; *calāḥ*—moving; *iva*—as if; *cakṣuṣā*—by the eye; *bhrāmyamāṇena*—moving; *dṛśyate*—is seen; *calatī*—moving; *iva*—as if; *bhūḥ*—the ground.

@@ -1,9 +1,9 @@
 ### CC Madhya 14.55
 
-> আপনে রথের পাছে ঠেলে মাথা দিয়া  ।
+> আপনে রথের পাছে ঠেলে মাথা দিয়া  ।\
 > হড়্ হড়্ করি, রথ চলিল ধাইয়া ॥৫৫॥
 
-> āpane rathera pāche ṭhele māthā diyā
+> āpane rathera pāche ṭhele māthā diyā\
 > haḍ haḍ kari, ratha calila dhāiyā
 
 *āpane*—personalmente; *rathera pāche*—en la parte trasera del carro; *ṭhele*—empuja; *māthā diyā*—con Su cabeza; *haḍ haḍ kari*—produciendo un sonido traqueteante; *ratha*—el carro; *calila*—comenzó a moverse; *dhāiyā*—corriendo.

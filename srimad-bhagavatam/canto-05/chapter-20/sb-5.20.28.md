@@ -1,11 +1,11 @@
 ### SB 5.20.28
 
-> अन्तःप्रविश्य भूतानि यो बिभर्त्यात्मकेतुभिः
+> अन्तःप्रविश्य भूतानि यो बिभर्त्यात्मकेतुभिः\
 > अन्तर्यामीश्वरः साक्षात्पातु नो यद्वशे स्फुटम ॥२८॥
 
-> antaḥ-praviśya bhūtāni
-> yo bibharty ātma-ketubhiḥ
-> antaryāmīśvaraḥ sākṣāt
+> antaḥ-praviśya bhūtāni\
+> yo bibharty ātma-ketubhiḥ\
+> antaryāmīśvaraḥ sākṣāt\
 > pātu no yad-vaśe sphuṭam
 
 *antaḥ-praviśya*—entering within; *bhūtāni*—all living entities; *yaḥ*—who; *bibharti*—maintains; *ātma-ketubhiḥ*—by the functions of the inner airs (*prāṇa, apāna,* etc.); *antaryāmī*—the Supersoul within; *īśvaraḥ*—the Supreme person; *sākṣāt*—directly; *pātu*—please maintain; *naḥ*—us; *yat-vaśe*—under whose control; *sphuṭam*—the cosmic manifestation.

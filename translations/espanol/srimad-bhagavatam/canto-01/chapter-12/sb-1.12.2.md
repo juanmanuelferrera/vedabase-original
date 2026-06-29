@@ -1,11 +1,11 @@
 ### SB 1.12.2
 
-> तस्य जन्म महाबुद्धेः कर्माणि च महात्मनः ।
+> तस्य जन्म महाबुद्धेः कर्माणि च महात्मनः ।\
 > निधनं च यथैवासीत्स प्रेत्य गतवान्यथा ॥२॥
 
-> tasya janma mahā-buddheḥ
-> karmāṇi ca mahātmanaḥ
-> nidhanaṁ ca yathaivāsīt
+> tasya janma mahā-buddheḥ\
+> karmāṇi ca mahātmanaḥ\
+> nidhanaṁ ca yathaivāsīt\
 > sa pretya gatavān yathā
 
 *tasya*—su (de Mahārāja Parīkṣit); *janma*—nacimiento; *mahā-buddheḥ*—de gran inteligencia; *karmāṇi*—actividades; *ca*—también; *mahā-ātmanaḥ*—del gran devoto; *nidhanam*—muerte; *ca*—también; *yathā*—tal como fue; *eva*—por supuesto; *āsīt*—ocurrió; *saḥ*—él; *pretya*—destino después de morir; *gatavān*—alcanzó; *yathā*—tal como fue.

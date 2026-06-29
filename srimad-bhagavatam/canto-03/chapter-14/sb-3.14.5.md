@@ -1,13 +1,13 @@
 ### SB 3.14.5
 
-> मैत्रेय उवाच
-> साधु वीर त्वया पृष्टमवतारकथां हरेः ।
+> मैत्रेय उवाच\
+> साधु वीर त्वया पृष्टमवतारकथां हरेः ।\
 > यत्त्वं पृच्छसि मर्त्यानां मृत्युपाशविशातनीम् ॥५॥
 
-> maitreya uvāca
-> sādhu vīra tvayā pṛṣṭam
-> avatāra-kathāṁ hareḥ
-> yat tvaṁ pṛcchasi martyānāṁ
+> maitreya uvāca\
+> sādhu vīra tvayā pṛṣṭam\
+> avatāra-kathāṁ hareḥ\
+> yat tvaṁ pṛcchasi martyānāṁ\
 > mṛtyu-pāśa-viśātanīm
 
 *maitreyaḥ uvāca*—Maitreya said; *sādhu*—devotee; *vīra*—O warrior; *tvayā*—by you; *pṛṣṭam*—inquired; *avatāra-kathām*—topics on the incarnation of the Lord; *hareḥ*—of the Personality of Godhead; *yat*—that which; *tvam*—your good self; *pṛcchasi*—asking me; *martyānām*—of those who are destined for death; *mṛtyu-pāśa*—the chain of birth and death; *viśātanīm*—source of liberation.

@@ -1,9 +1,9 @@
 ### CC Madhya 21.68
 
-> রুদ্রগণ আইলা লক্ষ কোটি-বদন ।
+> রুদ্রগণ আইলা লক্ষ কোটি-বদন ।\
 > ইন্দ্রগণ আইলা লক্ষ কোটি-নয়ন ॥৬৮॥
 
-> rudra-gaṇa āilā lakṣa koṭi-vadana
+> rudra-gaṇa āilā lakṣa koṭi-vadana\
 > indra-gaṇa āilā lakṣa koṭi-nayana
 
 *rudra-gaṇa*—los Śivas; *āilā*—llegaron; *lakṣa koṭi-vadana*—que poseían cien mil y diez millones de rostros; *indra-gaṇa*—los Indras; *āilā*—llegaron; *lakṣa*—cien mil; *koṭi*—diez millones; *nayana*—ojos.

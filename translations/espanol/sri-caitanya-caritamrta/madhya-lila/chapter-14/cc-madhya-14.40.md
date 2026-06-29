@@ -1,9 +1,9 @@
 ### CC Madhya 14.40
 
-> প্রভু না খাইলে, কেহ না করে ভোজন ।
+> প্রভু না খাইলে, কেহ না করে ভোজন ।\
 > স্বরূপ-গোসাঞি তবে কৈল নিবেদন ॥৪০॥
 
-> prabhu nā khāile, keha nā kare bhojana
+> prabhu nā khāile, keha nā kare bhojana\
 > svarupa-gosāñi tabe kaila nivedana
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *nā khāile*—sin comer; *keha*—nadie; *nā*—no; *kare bhojana*—acepta el prasādam; *svarūpa-gosāñi*—Svarūpa Dāmodara Gosvāmī; *tabe*—en ese momento; *kaila nivedana*—hizo una petición.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.114
 
-> গোসাঞির স্থানে আচার্য কৈল আগমন ।
+> গোসাঞির স্থানে আচার্য কৈল আগমন ।\
 > ভট্টাচার্যের নামে তাঁরে কৈল নিমন্ত্রণ ॥১১৪॥
 
-> gosāñira sthāne ācārya kaila āgamana
+> gosāñira sthāne ācārya kaila āgamana\
 > bhaṭṭācāryera nāme tāṅre kaila nimantraṇa
 
 *gosāñira sthāne*—to the place where Śrī Caitanya Mahāprabhu was staying; *ācārya*—Gopīnātha Ācārya; *kaila*—did; *āgamana*—coming; *bhaṭṭācāryera nāme*—on behalf of Sārvabhauma Bhaṭṭācārya; *tāṅre*—unto Him; *kaila*—made; *nimantraṇa*—invitation.

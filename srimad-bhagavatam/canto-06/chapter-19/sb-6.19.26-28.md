@@ -1,25 +1,25 @@
 ### SB 6.19.26-28
 
-> कन्या च विन्देत समग्रलक्षणं पतिं त्ववीरा हतकिल्बिषां गतिम
-> मृतप्रजा जीवसुता धनेश्वरी सुदुर्भगा सुभगा रूपमग्र्यम ॥२६॥
-> विन्देद्विरूपा विरुजा विमुच्यते य आमयावीन्द्रियकल्यदेहम
-> एतत्पठन्नभ्युदये च कर्मण्यनन्ततृप्तिः पितृदेवतानाम ॥२७॥
-> तुष्टाः प्रयच्छन्ति समस्तकामान्होमावसाने हुतभुक्ष्रीहरिश्च
+> कन्या च विन्देत समग्रलक्षणं पतिं त्ववीरा हतकिल्बिषां गतिम\
+> मृतप्रजा जीवसुता धनेश्वरी सुदुर्भगा सुभगा रूपमग्र्यम ॥२६॥\
+> विन्देद्विरूपा विरुजा विमुच्यते य आमयावीन्द्रियकल्यदेहम\
+> एतत्पठन्नभ्युदये च कर्मण्यनन्ततृप्तिः पितृदेवतानाम ॥२७॥\
+> तुष्टाः प्रयच्छन्ति समस्तकामान्होमावसाने हुतभुक्ष्रीहरिश्च\
 > राजन्महन्मरुतां जन्म पुण्यं दितेर्व्रतं चाभिहितं महत्ते ॥२८॥
 
-> kanyā ca vindeta samagra-lakṣaṇaṁ
-> patiṁ tv avīrā hata-kilbiṣāṁ gatim
-> mṛta-prajā jīva-sutā dhaneśvarī
+> kanyā ca vindeta samagra-lakṣaṇaṁ\
+> patiṁ tv avīrā hata-kilbiṣāṁ gatim\
+> mṛta-prajā jīva-sutā dhaneśvarī\
 > sudurbhagā subhagā rūpam agryam
 
-> vinded virūpā virujā vimucyate
-> ya āmayāvīndriya-kalya-deham
-> etat paṭhann abhyudaye ca karmaṇy
+> vinded virūpā virujā vimucyate\
+> ya āmayāvīndriya-kalya-deham\
+> etat paṭhann abhyudaye ca karmaṇy\
 > ananta-tṛptiḥ pitṛ-devatānām
 
-> tuṣṭāḥ prayacchanti samasta-kāmān
-> homāvasāne huta-bhuk śrī-hariś ca
-> rājan mahan marutāṁ janma puṇyaṁ
+> tuṣṭāḥ prayacchanti samasta-kāmān\
+> homāvasāne huta-bhuk śrī-hariś ca\
+> rājan mahan marutāṁ janma puṇyaṁ\
 > diter vrataṁ cābhihitaṁ mahat te
 
 *kanyā*—an unmarried girl; *ca*—and; *vindeta*—can get; *samagralakṣaṇam*—possessing all good qualities; *patim*—a husband; *tu*—and; *avīrā*—a woman without a husband or son; *hata-kilbiṣām*—free from fault; *gatim*—the destination; *mṛta-prajā*—a woman whose children are dead; *jīva-sutā*—a woman whose child has a long duration of life; *dhana-īśvarī*—possessing wealth; *su-durbhagā*—unfortunate; *su-bhagā*—fortunate; *rūpam*—beauty; *agryam*—excellent; *vindet*—can get; *virūpā*—an ugly woman; *virujā*—from the disease; *vimucyate*—is freed; *yaḥ*—he who; *āmayā-vī*—a diseased man; *indriya-kalya-deham*—an able body; *etat*—this; *paṭhan*—reciting; *abhyudaye ca karmaṇi*—and in a sacrificial ceremony in which oblations are offered to the forefathers and demigods; *ananta*—unlimited; *tṛptiḥ*—satisfaction; *pitṛ-devatānām*—of the forefathers and demigods; *tuṣṭāḥ*—being pleased; *prayacchanti*—they bestow; *samasta*—all; *kāmān*—desires; *homa-avasāne*—on the completion of the ceremony; *huta-bhuk*—the enjoyer of the sacrifice; *śrī-hariḥ*—Lord Viṣṇu; *ca*—also; *rājan*—O King; *mahat*—great; *marutām*—of the Maruts; *janma*—birth; *puṇyam*—pious; *diteḥ*—of Diti; *vratam*—the vow; *ca*—also; *abhihitam*—explained; *mahat*—great; *te*—to you.

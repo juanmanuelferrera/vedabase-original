@@ -1,11 +1,11 @@
 ### SB 3.29.8
 
-> अभिसन्धाय यो हिंसां दम्भं मात्सर्यमेव वा ।
+> अभिसन्धाय यो हिंसां दम्भं मात्सर्यमेव वा ।\
 > संरम्भी भिन्नदृग्भावं मयि कुर्यात्स तामसः ॥८॥
 
-> abhisandhāya yo hiṁsāṁ
-> dambhaṁ mātsaryam eva vā
-> saṁrambhī bhinna-dṛg bhāvaṁ
+> abhisandhāya yo hiṁsāṁ\
+> dambhaṁ mātsaryam eva vā\
+> saṁrambhī bhinna-dṛg bhāvaṁ\
 > mayi kuryāt sa tāmasaḥ
 
 *abhisandhāya*—teniendo en vista; *yaḥ*—el que; *hiṁsām*—violencia; *dambham*—orgullo; *mātsaryam*—envidia; *eva*—en verdad; *vā*—o; *saṁrambhī*—iracundo; *bhinna*—separada; *dṛk*—cuya visión; *bhāvam*—servicio devocional; *mayi*—a Mí; *kuryāt*—haga; *saḥ*—él; *tāmasaḥ*—bajo la modalidad de la ignorancia.

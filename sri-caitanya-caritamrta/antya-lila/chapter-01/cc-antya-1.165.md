@@ -1,13 +1,13 @@
 ### CC Antya 1.165
 
-> অয়ং নয়নদণ্ডিতপ্রবরপুণ্ডরীকপ্রভঃ
-> প্রভাতি নবজাগুড়-দ্যুতিবিড়ম্বি-পীতাম্বরঃ ।
-> অরণ্যজপরিষ্ক্রিয়া-দমিতদিব্যবেশাদরো
+> অয়ং নয়নদণ্ডিতপ্রবরপুণ্ডরীকপ্রভঃ\
+> প্রভাতি নবজাগুড়-দ্যুতিবিড়ম্বি-পীতাম্বরঃ ।\
+> অরণ্যজপরিষ্ক্রিয়া-দমিতদিব্যবেশাদরো\
 > হরিন্মণিমনোহরদ্যুতিভিরুজ্জ্বলাঙ্গো হরিঃ ॥১৬৫॥
 
-> ayaṁ nayana-daṇḍita-pra vara-puṇḍarīka-prabhaḥ
-> prabhāti nava-jāguḍa-dyuti-viḍambi-pītāmbaraḥ
-> araṇyaja-pariṣkriyā-damita-divya-veśādaro
+> ayaṁ nayana-daṇḍita-pra vara-puṇḍarīka-prabhaḥ\
+> prabhāti nava-jāguḍa-dyuti-viḍambi-pītāmbaraḥ\
+> araṇyaja-pariṣkriyā-damita-divya-veśādaro\
 > harin-maṇi-manohara-dyutibhir ujjvalāṅgo hariḥ
 
 *ayam*—this; *nayana*—by whose beautiful eyes; *daṇḍita*—defeated; *pravara*—best; *puṇḍarīka-prabhaḥ*—the luster of the white lotus flower; *prabhāti*—looks beautiful; *nava-jāguḍa-dyuti*—the brilliance of newly painted *viḍambi*; *viḍambi*—deriding; *pīta-ambaraḥ*—whose yellow dress; *araṇya-ja*—picked up from the forest; *pariṣkriyā*—by whose ornaments; *damita*—subdued; *divya-veśa-ādaraḥ*—the hankering for first-class dress; *harin-maṇi*—of emeralds; *manohara*—mind-attracting; *dyutibhiḥ*—with splendor; *ujjvala-aṅgaḥ*—whose beautiful body; *hariḥ*—the Supreme Personality of Godhead.

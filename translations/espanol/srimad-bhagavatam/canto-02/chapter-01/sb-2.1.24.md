@@ -1,11 +1,11 @@
 ### SB 2.1.24
 
-> विशेषस्तस्य देहोऽयं स्थविष्ठश्च स्थवीयसाम् ।
+> विशेषस्तस्य देहोऽयं स्थविष्ठश्च स्थवीयसाम् ।\
 > यत्रेदं व्यज्यते विश्वं भूतं भव्यं भवच्च सत् ॥२४॥
 
-> viśeṣas tasya deho 'yaṁ
-> sthaviṣṭhaś ca sthavīyasām
-> yatredaṁ vyajyate viśvaṁ
+> viśeṣas tasya deho 'yaṁ\
+> sthaviṣṭhaś ca sthavīyasām\
+> yatredaṁ vyajyate viśvaṁ\
 > bhūtaṁ bhavyaṁ bhavac ca sat
 
 *viśeṣaḥ*—personal; *tasya*—Su; *dehaḥ*—cuerpo; *ayam*—este; *sthaviṣṭhaḥ*—sumamente material; *ca*—y; *sthavīyasām*—de toda la materia; *yatra*—en donde; *idam*—todos estos fenómenos; *vyajyate*—se experimenta; *viśvam*—universo; *bhūtam*—pasado; *bhavyam*—futuro; *bhavat*—presente; *ca*—y; *sat*—resultantes.

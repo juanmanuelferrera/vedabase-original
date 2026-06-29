@@ -1,25 +1,25 @@
 ### SB 7.6.11-13
 
-> कथं प्रियाया अनुकम्पितायाः सङ्गं रहस्यं रुचिरांश्च मन्त्रान
-> सुहृत्सु तत्स्नेहसितः शिशूनां कलाक्षराणामनुरक्तचित्तः ॥११॥
-> पुत्रान्स्मरंस्ता दुहितॄर्हृदय्या भ्रातॄन्स्वसॄर्वा पितरौ च दीनौ
-> गृहान्मनोज्ञओरुपरिच्छदांश्च वृत्तीश्च कुल्याः पशुभृत्यवर्गान ॥१२॥
-> त्यजेत कोशस्कृदिवेहमानः कर्माणि लोभादवितृप्तकामः
+> कथं प्रियाया अनुकम्पितायाः सङ्गं रहस्यं रुचिरांश्च मन्त्रान\
+> सुहृत्सु तत्स्नेहसितः शिशूनां कलाक्षराणामनुरक्तचित्तः ॥११॥\
+> पुत्रान्स्मरंस्ता दुहितॄर्हृदय्या भ्रातॄन्स्वसॄर्वा पितरौ च दीनौ\
+> गृहान्मनोज्ञओरुपरिच्छदांश्च वृत्तीश्च कुल्याः पशुभृत्यवर्गान ॥१२॥\
+> त्यजेत कोशस्कृदिवेहमानः कर्माणि लोभादवितृप्तकामः\
 > औपस्थ्यजैह्वं बहुमन्यमानः कथं विरज्येत दुरन्तमोहः ॥१३॥
 
-> kathaṁ priyāyā anukampitāyāḥ
-> saṅgaṁ rahasyaṁ rucirāṁś ca mantrān
-> suhṛtsu tat-sneha-sitaḥ śiśūnāṁ
+> kathaṁ priyāyā anukampitāyāḥ\
+> saṅgaṁ rahasyaṁ rucirāṁś ca mantrān\
+> suhṛtsu tat-sneha-sitaḥ śiśūnāṁ\
 > kalākṣarāṇām anurakta-cittaḥ
 
-> putrān smaraṁs tā duhitṝr hṛdayyā
-> bhrātṝn svasṝr vā pitarau ca dīnau
-> gṛhān manojñoru-paricchadāṁś ca
+> putrān smaraṁs tā duhitṝr hṛdayyā\
+> bhrātṝn svasṝr vā pitarau ca dīnau\
+> gṛhān manojñoru-paricchadāṁś ca\
 > vṛttīś ca kulyāḥ paśu-bhṛtya-vargān
 
-> tyajeta kośas-kṛd ivehamānaḥ
-> karmāṇi lobhād avitṛpta-kāmaḥ
-> aupasthya-jaihvaṁ bahu-manyamānaḥ
+> tyajeta kośas-kṛd ivehamānaḥ\
+> karmāṇi lobhād avitṛpta-kāmaḥ\
+> aupasthya-jaihvaṁ bahu-manyamānaḥ\
 > kathaṁ virajyeta duranta-mohaḥ
 
 *katham*—cómo; *priyāyāḥ*—de la muy querida esposa; *anukampitāyāḥ*—siempre cariñosa y comprensiva; *saṅgam*—la compañía; *rahasyam*—solitario; *rucirān*—** muy agradables y aceptables; *ca*—y; *mantrān*—instrucciones; *suhṛtsu*—a la esposa e hijos; *tat-sneha-sitaḥ*—atado por su afecto; *śiśūnām*—a los niños pequeños; *kala-akṣarāṇām*—hablando con palabras incompletas; *anurakta-cittaḥ*—una persona cuya mente está atraída; *putrān*—a los hijos; *smaran*—pensando; *tāḥ*—en ellos; *duhitṝr*—las hijas (casadas y viviendo en casa de sus maridos); *hṛdayyāḥ*—que siempre están en el fondo del corazón; *bhrātṝn*—los hermanos; *svasṝr vā*—o las hermanas; *pitarau*—padre y madre; *ca*—y; *dīnau*—que en la vejez son prácticamente inválidos; *gṛhān*—asuntos domésticos; *manojña*—muy atractivos; *uru*—mucho; *paricchadān*—mobiliario; *ca*—y; *vṛttīḥ*—grandes fuentes de ingresos (industria, negocios); *ca*—y; *kulyāḥ*—en relación con la familia; *paśu*—de animales (vacas, elefantes y otros animales domésticos); *bhṛtya*—sirvientes y sirvientas; *vargān*—grupos; *tyajeta*—puede abandonar; *kośaḥ-kṛt*—el gusano de seda; *iva*—como; *īhamānaḥ*—realizando; *karmāṇi*—diversas actividades; *lobhāt*—debido a deseos insaciables; *avitṛpta-kāmaḥ*—cuyos deseos, que van en aumento, nunca se sacian; *aupasthya*—placer de los genitales; *jaihvam*—y de la lengua; *bahu-manyamānaḥ*—considerando muy importante; *katham*—cómo; *virajyeta*—puede abandonar; *duranta-mohaḥ*—en una gran ilusión.

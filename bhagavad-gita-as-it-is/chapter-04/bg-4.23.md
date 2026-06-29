@@ -1,11 +1,11 @@
 ### Bg 4.23
 
-> गतसङ्गस्य मुक्तस्य ज्ञानावस्थितचेतसः ।
+> गतसङ्गस्य मुक्तस्य ज्ञानावस्थितचेतसः ।\
 > यज्ञायाचरतः कर्म समग्रं प्रविलीयते ॥२३॥
 
-> gata-saṅgasya muktasya
-> jñānāvasthita-cetasaḥ
-> yajñāyācarataḥ karma
+> gata-saṅgasya muktasya\
+> jñānāvasthita-cetasaḥ\
+> yajñāyācarataḥ karma\
 > samagraṁ pravilīyate
 
 *gata-saṅgasya*—unattached to the modes of material nature; *muktasya*—of the liberated; *jñāna-avasthita*—situated in transcendence; *cetasaḥ*—of such wisdom; *yajñāya*—for the sake of Yajña (Kṛṣṇa); *ācarataḥ*—so acting; *karma*—work; *samagram*—in total; *pravilīyate*—merges entirely.

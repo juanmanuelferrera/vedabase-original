@@ -1,9 +1,9 @@
 ### CC Adi 1.19
 
-> এই তিন ঠাকুর গৌড়ীয়াকে করিয়াছেন আত্মসাৎ ।
+> এই তিন ঠাকুর গৌড়ীয়াকে করিয়াছেন আত্মসাৎ ।\
 > এ তিনের চরণ বন্দোঁ, তিনে মোর নাথ ॥১৯॥
 
-> ei tina ṭhākura gauḍīyāke kariyāchena ātmasāt
+> ei tina ṭhākura gauḍīyāke kariyāchena ātmasāt\
 > e tinera caraṇa vandoṅ, tine mora nātha
 
 *ei*—these; *tina*—three; *ṭhākura*—Deities; *gauḍīyāke*—the Gauḍīya Vaiṣṇavas; *kariyāchena*—have done; *ātmasāt*—absorbed; *e*—these; *tinera*—of the three; *caraṇa*—lotus feet; *vandoṅ*—I worship; *tine*—these three; *mora*—my; *nātha*—Lords.

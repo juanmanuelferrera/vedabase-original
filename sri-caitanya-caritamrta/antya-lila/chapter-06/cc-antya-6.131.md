@@ -1,9 +1,9 @@
 ### CC Antya 6.131
 
-> তোমার কৃপা বিনা কেহ ‘চৈতন্য’ না পায়  ।
+> তোমার কৃপা বিনা কেহ ‘চৈতন্য’ না পায়  ।\
 > তুমি কৃপা কৈলে তাঁরে অধমেহ পায় ॥১৩১॥
 
-> tomāra kṛpā vinā keha 'caitanya' nā pāya
+> tomāra kṛpā vinā keha 'caitanya' nā pāya\
 > tumi kṛpā kaile tāṅre adhameha pāya
 
 *tomāra kṛpā*—Your mercy; *vinā*—without; *keha*—anyone; *caitanya*—Lord Śrī Caitanya Mahāprabhu; *nā pāya*—cannot get; *tumi kṛpā kaile*—if You are merciful; *tāṅre*—Him; *adhameha*—even the fallen soul; *pāya*—can get.

@@ -1,11 +1,11 @@
 ### SB 3.7.30
 
-> यज्ञस्य च वितानानि योगस्य च पथः प्रभो ।
+> यज्ञस्य च वितानानि योगस्य च पथः प्रभो ।\
 > नैष्कर्म्यस्य च साङ्ख्यस्य तन्त्रं वा भगवत्स्मृतम् ॥३०॥
 
-> yajñasya ca vitānāni
-> yogasya ca pathaḥ prabho
-> naiṣkarmyasya ca sāṅkhyasya
+> yajñasya ca vitānāni\
+> yogasya ca pathaḥ prabho\
+> naiṣkarmyasya ca sāṅkhyasya\
 > tantraṁ vā bhagavat-smṛtam
 
 *yajñasya*—of sacrifices; *ca*—also; *vitānāni*—expansions; *yogasya*—of the mystic powers; *ca*—also; *pathaḥ*—ways; *prabho*—O my lord; *naiṣkarmyasya*—of knowledge; *ca*—and; *sāṅkhyasya*—of analytical studies; *tantram*—the path of devotional service; *vā*—as well as; *bhagavat*—in relation with the Personality of Godhead; *smṛtam*—regulative principles.

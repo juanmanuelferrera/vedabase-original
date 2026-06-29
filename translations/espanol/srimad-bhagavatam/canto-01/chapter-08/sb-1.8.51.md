@@ -1,11 +1,11 @@
 ### SB 1.8.51
 
-> स्त्रीणां मद्धतबन्धूनां द्रोहो योऽसाविहोत्थितः ।
+> स्त्रीणां मद्धतबन्धूनां द्रोहो योऽसाविहोत्थितः ।\
 > कर्मभिर्गृहमेधीयैर्नाहं कल्पो व्यपोहितुम् ॥५१॥
 
-> strīṇāṁ mad-dhata-bandhūnāṁ
-> droho yo 'sāv ihotthitaḥ
-> karmabhir gṛhamedhīyair
+> strīṇāṁ mad-dhata-bandhūnāṁ\
+> droho yo 'sāv ihotthitaḥ\
+> karmabhir gṛhamedhīyair\
 > nāhaṁ kalpo vyapohitum
 
 *strīṇām*—de las mujeres; *mat*—por mí; *hata-bandhūnām*—de los amigos que son matados; *drohaḥ*—enemistad; *yaḥ*—esa; *asau*—todos esos; *iha*—con esto; *utthitaḥ*—se ha acumulado; *karmabhiḥ*—a fuerza de trabajo; *gṛhamedhīyaiḥ*—por personas dedicadas al bienestar material; *na*—nunca; *aham*—yo; *kalpaḥ*—puedo esperar; *vyapohitum*—reparando lo mismo.

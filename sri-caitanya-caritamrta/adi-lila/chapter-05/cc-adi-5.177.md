@@ -1,9 +1,9 @@
 ### CC Adi 5.177
 
-> কিংবা, দোঁহা না মানিঞা হও ত’ পাষণ্ড ।
+> কিংবা, দোঁহা না মানিঞা হও ত’ পাষণ্ড ।\
 > একে মানি’ আরে না মানি, — এইমত ভণ্ড ॥১৭৭॥
 
-> kiṁvā, doṅhā nā māniñā hao ta' pāṣaṇḍa
+> kiṁvā, doṅhā nā māniñā hao ta' pāṣaṇḍa\
 > eke māni' āre nā māni,—ei-mata bhaṇḍa
 
 *kiṁvā*—otherwise; *doṅhā*—both of Them; *nā*—not; *māniñā*—accepting; *hao*—you become; *ta'*—certainly; *pāṣaṇḍa*—atheist; *eke*—one of Them; *māni'*—accepting; *āre*—the other; *nāmāni*—not accepting; *ei-mata*—this kind of faith; *bhaṇḍa*—hypocrisy.

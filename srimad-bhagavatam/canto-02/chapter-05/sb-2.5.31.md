@@ -1,14 +1,14 @@
 ### SB 2.5.31
 
-> तैजसात्तु विकुर्वाणादिन्द्रियाणि दशाभवन् ।
-> ज्ञानशक्तिः क्रियाशक्तिर्बुद्धिः प्राणश्च तैजसौ ।
+> तैजसात्तु विकुर्वाणादिन्द्रियाणि दशाभवन् ।\
+> ज्ञानशक्तिः क्रियाशक्तिर्बुद्धिः प्राणश्च तैजसौ ।\
 > श्रोत्रं त्वग्घ्राणदृग्जिह्वा वाग्दोर्मेढ्राङ्घ्रिपायवः ॥३१॥
 
-> taijasāt tu vikurvāṇād
-> indriyāṇi daśābhavan
-> jñāna-śaktiḥ kriyā-śaktir
-> buddhiḥ prāṇaś ca taijasau
-> śrotraṁ tvag-ghrāṇa-dṛg-jihvā
+> taijasāt tu vikurvāṇād\
+> indriyāṇi daśābhavan\
+> jñāna-śaktiḥ kriyā-śaktir\
+> buddhiḥ prāṇaś ca taijasau\
+> śrotraṁ tvag-ghrāṇa-dṛg-jihvā\
 > vāg-dor-meḍhrāṅghri-pāyavaḥ
 
 *taijasāt*—by the passionate egoism; *tu*—but; *vikurvāṇāt*—transformation of; *indriyāṇi*—the senses; *daśa*—ten; *abhavan*—generated; *jñāna-śaktiḥ*—the five senses for acquiring knowledge; *kriyā-śaktiḥ*—the five senses of activities; *buddhiḥ*—intelligence; *prāṇaḥ*—the living energy; *ca*—also; *taijasau*—all products of the mode of passion; *śrotram*—the sense for hearing; *tvak*—the sense for touching; *ghrāṇa*—the sense for smelling; *dṛk*—the sense for seeing; *jihvāḥ*—the sense for tasting; *vāk*—the sense for speaking; *doḥ*—the sense for handling; *meḍhra*—the genitals; *aṅghri*—the legs; *pāyavaḥ*—the sense for evacuating.

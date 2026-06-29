@@ -1,11 +1,11 @@
 ### SB 4.16.27
 
-> दिशो विजित्याप्रतिरुद्धचक्रः स्वतेजसोत्पाटितलोकशल्यः ।
+> दिशो विजित्याप्रतिरुद्धचक्रः स्वतेजसोत्पाटितलोकशल्यः ।\
 > सुरासुरेन्द्रैरुपगीयमान महानुभावो भविता पतिर्भुवः ॥२७॥
 
-> diśo vijityāpratiruddha-cakraḥ
-> sva-tejasotpāṭita-loka-śalyaḥ
-> surāsurendrair upagīyamāna-
+> diśo vijityāpratiruddha-cakraḥ\
+> sva-tejasotpāṭita-loka-śalyaḥ\
+> surāsurendrair upagīyamāna-\
 > mahānubhāvo bhavitā patir bhuvaḥ
 
 *diśaḥ*—all directions; *vijitya*—conquering; *apratiruddha*—without check; *cakraḥ*—his influence or power; *sva-tejasā*—by his own prowess; *utpāṭita*—uprooted; *loka-śalyaḥ*—the miseries of the citizens; *sura*—of demigods; *asura*—of demons; *indraiḥ*—by the chiefs; *upagīyamāna*—being glorified; *mahā-anubhāvaḥ*—the great soul; *bhavitā*—he will become; *patiḥ*—the lord; *bhuvaḥ*—of the world.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.88
 
-> এই মত হাস্যরসে করেন ভোজন ।
+> এই মত হাস্যরসে করেন ভোজন ।\
 > অর্ধ-অর্ধ খাঞা প্রভু ছাড়েন ব্যঞ্জন ॥৮৮॥
 
-> ei mata hāsya-rase karena bhojana
+> ei mata hāsya-rase karena bhojana\
 > ardha-ardha khāñā prabhu chāḍena vyañjana
 
 *eimata*—in this way; *hāsya-rase*—jokingly; *karena*—does; *bhojana*—eating; *ardha-ardha*—half and half; *khāñā*—after eating; *prabhu*—the Lord; *chāḍena*—gives up; *vyañjana*—all the vegetables.

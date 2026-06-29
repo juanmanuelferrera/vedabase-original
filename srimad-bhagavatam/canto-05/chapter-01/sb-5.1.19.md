@@ -1,11 +1,11 @@
 ### SB 5.1.19
 
-> त्वं त्वब्जनाभाङ्घ्रिसरोजकोश दुर्गाश्रितो निर्जितषट्सपत्नः
+> त्वं त्वब्जनाभाङ्घ्रिसरोजकोश दुर्गाश्रितो निर्जितषट्सपत्नः\
 > भुङ्क्ष्वेह भोगान्पुरुषातिदिष्टान्विमुक्तसङ्गः प्रकृतिं भजस्व ॥१९॥
 
-> tvaṁ tv abja-nābhāṅghri-saroja-kośa-
-> durgāśrito nirjita-ṣaṭ-sapatnaḥ
-> bhuṅkṣveha bhogān puruṣātidiṣṭān
+> tvaṁ tv abja-nābhāṅghri-saroja-kośa-\
+> durgāśrito nirjita-ṣaṭ-sapatnaḥ\
+> bhuṅkṣveha bhogān puruṣātidiṣṭān\
 > vimukta-saṅgaḥ prakṛtiṁ bhajasva
 
 *tvam*—yourself; *tu*—then; *abja-nābha*—of the Supreme Personality of Godhead, whose navel is like a lotus flower; *aṅghri*—feet; *saroja*—lotus; *kośa*—hole; *durga*—the stronghold; *āśritaḥ*—taken shelter of; *nirjita*—conquered; *ṣaṭ-sapatnaḥ*—the six enemies (the mind and five senses); *bhuṅkṣva*—enjoy; *iha*—in this material world; *bhogān*—enjoyable things; *puruṣa*—by the Supreme person; *atidiṣṭān*—extraordinarily ordered; *vimukta*—liberated; *saṅgaḥ*—from material association; *prakṛtim*—constitutional position; *bhajasva*—enjoy.

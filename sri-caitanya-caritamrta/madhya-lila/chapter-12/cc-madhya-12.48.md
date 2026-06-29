@@ -1,9 +1,9 @@
 ### CC Madhya 12.48
 
-> রাজার মিলনে ভিক্ষুকের দুই লোক নাশ ।
+> রাজার মিলনে ভিক্ষুকের দুই লোক নাশ ।\
 > পরলোক রহু, লোকে করে উপহাস ॥৪৮॥
 
-> rājāra milane bhikṣukera dui loka nāśa
+> rājāra milane bhikṣukera dui loka nāśa\
 > paraloka rahu, loke kare upahāsa
 
 *rājāramilane*—by meeting with a king; *bhikṣukera*—of the mendicant; *dui loka*—in two worlds; *nāśa*—destruction; *para-loka*—spiritual world; *rahu*—let alone; *loke*—in this material world; *kare*—do; *upahāsa*—joking.

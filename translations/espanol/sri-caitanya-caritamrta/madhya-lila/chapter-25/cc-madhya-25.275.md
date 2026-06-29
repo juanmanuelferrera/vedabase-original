@@ -1,13 +1,13 @@
 ### CC Madhya 25.275
 
-> সেই সরোবরে গিয়া, হংস-চক্রবাক হঞা,
-> সদা তাহাঁ করহ বিলাস ৷
-> খণ্ডিবে সকল দুঃখ, পাইবা পরম সুখ,
+> সেই সরোবরে গিয়া, হংস-চক্রবাক হঞা,\
+> সদা তাহাঁ করহ বিলাস ৷\
+> খণ্ডিবে সকল দুঃখ, পাইবা পরম সুখ,\
 > অনায়াসে হবে প্রেমোল্লাস ॥২৭৫॥
 
-> sei sarovare giyā, haṁsa-cakravāka hañā,
-> sadā tāhāṅ karaha vilāsa
-> khaṇḍibe sakala duḥkha, pāibā parama sukha,
+> sei sarovare giyā, haṁsa-cakravāka hañā,\
+> sadā tāhāṅ karaha vilāsa\
+> khaṇḍibe sakala duḥkha, pāibā parama sukha,\
 > anāyāse habe premollāsa
 
 *sei sarovare giyā*—yendo a ese lago donde existen los grupos de flores de loto; *haṁsa-cakravāka hañā*—convirtiéndose en cisnes o aves cakravāka; *sadā*—siempre; *tāhāṅ*—allí; *karaha vilāsa*—disfrutad la vida; *khaṇḍibe*—serán disminuidas; *sakala duḥkha*—todas las ansiedades y miserias materiales; *pāibā*—obtendréis; *parama sukha*—la felicidad suprema; *anāyāse*—muy fácilmente; *habe*—habrá; *prema-ullāsa*—júbilo en el amor por Dios.

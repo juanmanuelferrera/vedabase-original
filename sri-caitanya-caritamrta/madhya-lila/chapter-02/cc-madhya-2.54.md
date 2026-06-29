@@ -1,13 +1,13 @@
 ### CC Madhya 2.54
 
-> গরুড়ের সন্নিধানে, রহি’ করে দরশনে,
-> সে আনন্দের কি কহিব ব’লে ।
-> গরুড়-স্তম্ভের তলে, আছে এক নিম্ন খালে,
+> গরুড়ের সন্নিধানে, রহি’ করে দরশনে,\
+> সে আনন্দের কি কহিব ব’লে ।\
+> গরুড়-স্তম্ভের তলে, আছে এক নিম্ন খালে,\
 > সে খাল ভরিল অশ্রুজলে ॥৫৪॥
 
-> garuḍera sannidhāne, rahi' kare daraśane,
-> se ānandera ki kahiba ba'le
-> garuḍa-stambhera tale, āche eka nimna khāle,
+> garuḍera sannidhāne, rahi' kare daraśane,\
+> se ānandera ki kahiba ba'le\
+> garuḍa-stambhera tale, āche eka nimna khāle,\
 > se khāla bharila aśru-jale
 
 *garuḍera*—Garuḍa; *sannidhāne*—near; *rahi'*—staying; *kare*—does; *daraśane*—seeing; *se ānandera*—of that bliss; *ki*—what; *kahiba*—I shall say; *ba'le*—on the strength; *garuḍa*—of the statue of Garuḍa; *stambhera*—of the column; *tale*—underneath; *āche*—there is; *eka*—one; *nimna*—low; *khāle*—ditch; *se khāla*—that ditch; *bharila*—became filled; *aśru-jale*—with the water of tears.

@@ -1,11 +1,11 @@
 ### SB 1.13.16
 
-> युधिष्ठिरो लब्धराज्यो दृष्ट्वा पौत्रं कुलन्धरम् ।
+> युधिष्ठिरो लब्धराज्यो दृष्ट्वा पौत्रं कुलन्धरम् ।\
 > भ्रातृभिर्लोकपालाभैर्मुमुदे परया श्रिया ॥१६॥
 
-> yudhiṣṭhiro labdha-rājyo
-> dṛṣṭvā pautraṁ kulan-dharam
-> bhrātṛbhir loka-pālābhair
+> yudhiṣṭhiro labdha-rājyo\
+> dṛṣṭvā pautraṁ kulan-dharam\
+> bhrātṛbhir loka-pālābhair\
 > mumude parayā śriyā
 
 *yudhiṣṭhiraḥ*—Yudhiṣṭhira; *labdha-rājyaḥ*—en posesión de su reino paterno; *dṛṣṭvā*—al ver; *pautram*—el nieto; *kulam-dharam*—muy adecuado para la dinastía; *bhrātṛbhiḥ*—por los hermanos; *loka-pālābhaiḥ*—que eran todos administradores expertos; *mumude*—disfrutó de la vida; *parayā*—extraordinaria; *śriyā*—opulencia.

@@ -1,9 +1,9 @@
 ### CC Adi 4.108
 
-> রাধিকার ভাব যৈছে উদ্ধবদর্শনে ।
+> রাধিকার ভাব যৈছে উদ্ধবদর্শনে ।\
 > সেই ভাবে মত্ত প্রভু রহে রাত্রিদিনে ॥১০৮॥
 
-> rādhikāra bhāva yaiche uddhava-darśane
+> rādhikāra bhāva yaiche uddhava-darśane\
 > sei bhāve matta prabhu rahe rātri-dine
 
 *rādhikāra*—of Śrīmatī Rādhārāṇī; *bhāva*—emotion; *yaiche*—just as; *uddhava-darśane*—in seeing Śrī Uddhava; *sei*—that; *bhāve*—in the state; *matta*—maddened; *prabhu*—Lord Caitanya Mahāprabhu; *rahe*—remains; *rātri-dine*—day and night.

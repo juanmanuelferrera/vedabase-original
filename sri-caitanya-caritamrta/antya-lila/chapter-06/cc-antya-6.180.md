@@ -1,9 +1,9 @@
 ### CC Antya 6.180
 
-> শিবানন্দে পত্রী দিল বিনয় করিয়া ।
+> শিবানন্দে পত্রী দিল বিনয় করিয়া ।\
 > ‘আমার পুত্রেরে তুমি দিবা বাহুড়িয়া’ ॥১৮০॥
 
-> śivānande patrī dila vinaya kariyā
+> śivānande patrī dila vinaya kariyā\
 > 'āmāra putrere tumi dibā bāhuḍiyā'
 
 *śivānande*—unto Śivānanda Sena; *patrī*—a letter; *dila*—sent; *vinaya kariya*—with great humility; *āmāra putrere*—my son; *tumi*—you; *dibā*—please give; *bāhuḍiyā*—returning.

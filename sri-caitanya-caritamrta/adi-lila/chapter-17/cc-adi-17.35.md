@@ -1,9 +1,9 @@
 ### CC Adi 17.35
 
-> কপাট দিয়া কীর্তন করে পরম আবেশে ।
+> কপাট দিয়া কীর্তন করে পরম আবেশে ।\
 > পাষণ্ডী হাসিতে আইসে, না পায় প্রবেশে ॥৩৫॥
 
-> kapāṭa diyā kīrtana kare parama āveśe
+> kapāṭa diyā kīrtana kare parama āveśe\
 > pāṣaṇḍī hāsite āise, nā pāya praveśe
 
 *kapāṭa*—door; *diyā*—closing; *kīrtana*—chanting; *kare*—performed; *parama*—very high; *āveśe*—in an ecstatic condition; *pāṣaṇḍī*—nonbelievers; *hāsite*—to laugh; *āise*—come; *nā*—does not; *pāya*—get; *praveśe*—entrance.

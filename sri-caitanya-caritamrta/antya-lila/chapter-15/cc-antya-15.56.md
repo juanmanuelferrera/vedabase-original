@@ -1,9 +1,9 @@
 ### CC Antya 15.56
 
-> কোটিমন্মথমোহন মুরলীবদন ।
+> কোটিমন্মথমোহন মুরলীবদন ।\
 > অপার সৌন্দর্যে হরে জগন্নেত্র-মন ॥৫৬॥
 
-> koṭi-manmatha-mohana muralī-vadana
+> koṭi-manmatha-mohana muralī-vadana\
 > apāra saundarye hare jagan-netra-mana
 
 *koṭi*—ten million; *manmatha*—Cupids; *mohana*—enchanting; *muralī-vadana*—with His flute to His lips; *apāra*—unlimited; *saundarye*—by the beauty; *hare*—enchants; *jagat*—of the whole world; *netra-mana*—the eyes and mind.

@@ -1,11 +1,11 @@
 ### SB 8.10.56
 
-> दृष्ट्वा मृधे गरुडवाहमिभारिवाह आविध्य शूलमहिनोदथ कालनेमिः
+> दृष्ट्वा मृधे गरुडवाहमिभारिवाह आविध्य शूलमहिनोदथ कालनेमिः\
 > तल्लीलया गरुडमूर्ध्नि पतद्गृहीत्वा तेनाहनन्नृप सवाहमरिं त्र्यधीशः ॥५६॥
 
-> dṛṣṭvā mṛdhe garuḍa-vāham ibhāri-vāha
-> āvidhya śūlam ahinod atha kālanemiḥ
-> tal līlayā garuḍa-mūrdhni patad gṛhītvā
+> dṛṣṭvā mṛdhe garuḍa-vāham ibhāri-vāha\
+> āvidhya śūlam ahinod atha kālanemiḥ\
+> tal līlayā garuḍa-mūrdhni patad gṛhītvā\
 > tenāhanan nṛpa savāham ariṁ tryadhīśaḥ
 
 *dṛṣṭvā*—al ver; *mṛdhe*—en el campo de batalla; *garuḍa-vāham*—a la Suprema Personalidad de Dios, montado en Garuḍa; *ibhāri-vāhaḥ*—el demonio, montado en un enorme león; *āvidhya*—volteando; *śūlam*—el tridente; *ahinot*—se lo lanzó; *atha*—así; *kālanemiḥ*—el demonio Kālanemi; *tat*—el ataque del demonio contra el Señor Supremo; *līlayā*—con toda facilidad; *garuḍa-mūrdhni*—sobre la cabeza de Garuḍa, Su ave portadora; *patat*—mientras caía; *gṛhītvā*—tras atraparlo inmediatamente, sin dificultad; *tena*—y con la misma arma; *ahanat*—mató; *nṛpa*—¡oh, rey!; *sa-vāham*—con su montura; *arim*—al enemigo; *tri-adhīśaḥ*—la Suprema Personalidad de Dios, el propietario de los tres mundos.

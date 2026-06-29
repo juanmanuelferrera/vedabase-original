@@ -1,11 +1,11 @@
 ### SB 1.3.21
 
-> ततः सप्तदशे जातः सत्यवत्यां पराशरात् ।
+> ततः सप्तदशे जातः सत्यवत्यां पराशरात् ।\
 > चक्रे वेदतरोः शाखा दृष्ट्वा पुंसोऽल्पमेधसः ॥२१॥
 
-> tataḥ saptadaśe jātaḥ
-> satyavatyāṁ parāśarāt
-> cakre veda-taroḥ śākhā
+> tataḥ saptadaśe jātaḥ\
+> satyavatyāṁ parāśarāt\
+> cakre veda-taroḥ śākhā\
 > dṛṣṭvā puṁso 'lpa-medhasaḥ
 
 *tataḥ*—thereafter; *saptadaśe*—in the seventeenth incarnation; *jātaḥ*—advented; *satyavatyām*—in the womb of Satyavatī; *parāśarāt*—by Parāśara Muni; *cakre*—prepared; *veda-taroḥ*—of the desire tree of the *Vedas*; *śākhāḥ*—branches; *dṛṣṭvā*—be seeing; *puṁsaḥ*—the people in general; *alpa-medhasaḥ*—less intelligent.

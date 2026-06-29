@@ -1,11 +1,11 @@
 ### SB 4.18.22
 
-> तथाहयो दन्दशूकाः सर्पा नागाश्च तक्षकम् ।
+> तथाहयो दन्दशूकाः सर्पा नागाश्च तक्षकम् ।\
 > विधाय वत्सं दुदुहुर्बिलपात्रे विषं पयः ॥२२॥
 
-> tathāhayo dandaśūkāḥ
-> sarpā nāgāś ca takṣakam
-> vidhāya vatsaṁ duduhur
+> tathāhayo dandaśūkāḥ\
+> sarpā nāgāś ca takṣakam\
+> vidhāya vatsaṁ duduhur\
 > bila-pātre viṣaṁ payaḥ
 
 *tathā*—de manera similar; *ahayaḥ*—las serpientes sin capuchas; *dandaśūkāḥ*—los escorpiones; *sarpāḥ*—las cobras; *nāgāḥ*—las grandes serpientes; *ca*—y; *takṣakam*—a Takṣaka, líder de las serpientes; *vidhāya*—convertir; *vatsam*—ternero; *duduhuḥ*—ordeñaron; *bila-pātre*—las guaridas de serpientes como vasija; *viṣam*—veneno; *payaḥ*—como leche.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.39
 
-> আমি — বিজ্ঞ, এই মূর্খে ‘বিষয়’ কেনে দিব ?
+> আমি — বিজ্ঞ, এই মূর্খে ‘বিষয়’ কেনে দিব ?\
 > স্ব-চরণামৃত দিয়া ‘বিষয়’ ভুলাইব ॥৩৯॥
 
-> āmi--vijña, ei mūrkhe 'viṣaya' kene diba?
+> āmi--vijña, ei mūrkhe 'viṣaya' kene diba?\
 > sva-caraṇāmṛta diyā 'viṣaya' bhulāiba
 
 *āmi*—Yo; *vijña*—omnisciente; *ei mūrkhe*—a este necio; *viṣaya*—disfrute material; *kene diba*—¿por qué habría de darle?; *sva-caraṇa-amṛta*—el néctar del refugio de Mis pies de loto; *diyā*—dando; *viṣaya*—la idea del disfrute material; *bhulāiba*—le haré olvidar.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.61
 
-> সে-কালে বল্লভ-ভট্ট রহে আড়াইল-গ্রামে ।
+> সে-কালে বল্লভ-ভট্ট রহে আড়াইল-গ্রামে ।\
 > মহাপ্রভু আইলা শুনি’ আইল তাঁর স্থানে ॥৬১॥
 
-> se-kāle vallabha-bhaṭṭa rahe āḍāila-grāme
+> se-kāle vallabha-bhaṭṭa rahe āḍāila-grāme\
 > mahāprabhu āilā śuni' āila tāṅra sthāne
 
 *se-kāle*—en aquel tiempo; *vallabha-bhaṭṭa*—Vallabha Bhaṭṭa; *rahe*—residía; *āḍāila-grāme*—en la aldea conocida como Āḍāila; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *āilā*—ha llegado; *śuni'*—al oír; *āila*—fue; *tāṅra sthāne*—a Su lugar.

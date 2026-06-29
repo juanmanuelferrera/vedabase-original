@@ -1,9 +1,9 @@
 ### CC Madhya 25.164
 
-> এত কহি’ উঠিয়া চলিলা গৌরহরি ।
+> এত কহি’ উঠিয়া চলিলা গৌরহরি ।\
 > নমস্কার করে লোক হরিধ্বনি করি ॥১৬৪॥
 
-> eta kahi' uṭhiyā calilā gaurahari
+> eta kahi' uṭhiyā calilā gaurahari\
 > namaskāra kare loka hari-dhvani kari
 
 *eta kahi'*—after speaking that; *uṭhiyā*—standing; *calilā*—began to walk; *gaurahari*—Śrī Gaurasundara, Śrī Caitanya Mahāprabhu; *namaskāra kare loka*—all the people offered their obeisances; *hari-dhvani kari*—loudly chanting the Hare Kṛṣṇa *mahā-mantra.*

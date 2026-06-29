@@ -1,11 +1,11 @@
 ### SB 2.10.3
 
-> भूतमात्रेन्द्रियधियां जन्म सर्ग उदाहृतः ।
+> भूतमात्रेन्द्रियधियां जन्म सर्ग उदाहृतः ।\
 > ब्रह्मणो गुणवैषम्याद्विसर्गः पौरुषः स्मृतः ॥३॥
 
-> bhūta-mātrendriya-dhiyāṁ
-> janma sarga udāhṛtaḥ
-> brahmaṇo guṇa-vaiṣamyād
+> bhūta-mātrendriya-dhiyāṁ\
+> janma sarga udāhṛtaḥ\
+> brahmaṇo guṇa-vaiṣamyād\
 > visargaḥ pauruṣaḥ smṛtaḥ
 
 *bhūta*—los cinco elementos toscos (el cielo, etc.); *mātrā*—objetos percibidos por los sentidos; *indriya*—los sentidos; *dhiyām*—de la mente; *janma*—creación; *sargaḥ*—manifestación; *udāhṛtaḥ*—se denomina «la creación»; *brahmaṇaḥ*—de Brahmā, el primer *puruṣa*; *guṇa-vaiṣamyāt*—por interacción de las tres modalidades de la naturaleza; *visargaḥ*—nueva creación; *pauruṣaḥ*—actividades resultantes de la naturaleza; *smṛtaḥ*—se conoce así.

@@ -1,9 +1,9 @@
 ### CC Madhya 14.154
 
-> একথা শুনিয়া প্রভুর আনন্দ অপার ।
+> একথা শুনিয়া প্রভুর আনন্দ অপার ।\
 > ‘কহ, কহ, দামোদর’, — বলে বার বার ॥১৫৪॥
 
-> e-kathā śuniyā prabhura ānanda apāra
+> e-kathā śuniyā prabhura ānanda apāra\
 > 'kaha, kaha, dāmodara',-bale bāra bāra
 
 *e-kathā śuniyā*—al oír esta descripción; *prabhura*—de Śrī Caitanya Mahāprabhu; *ānanda apāra*—felicidad ilimitada; *kaha kaha*—por favor, sigue hablando; *dāmodara*—Mi querido Dāmodara; *bale bāra bāra*—dijo una y otra vez.

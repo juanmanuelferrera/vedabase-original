@@ -1,13 +1,13 @@
 ### CC Madhya 2.92
 
-> সংক্ষেপে এই সূত্র কৈল, যেই ইহাঁ না লিখিল,
-> আগে তাহা করিব বিস্তার ।
-> যদি তত দিন জিয়ে, মহাপ্ৰভুর কৃপা হয়ে,
+> সংক্ষেপে এই সূত্র কৈল, যেই ইহাঁ না লিখিল,\
+> আগে তাহা করিব বিস্তার ।\
+> যদি তত দিন জিয়ে, মহাপ্ৰভুর কৃপা হয়ে,\
 > ইচ্ছা ভরি’ করিব বিচার ॥৯২॥
 
-> saṅkṣepe ei sūtra kaila, yei ihāṅ nā likhila,
-> āge tāhā kariba vistāra
-> yadi tata dina jiye, mahāprabhura kṛpā haye,
+> saṅkṣepe ei sūtra kaila, yei ihāṅ nā likhila,\
+> āge tāhā kariba vistāra\
+> yadi tata dina jiye, mahāprabhura kṛpā haye,\
 > icchā bhari' kariba vicāra
 
 *saṅkṣepe*—in brief; *ei sūtra*—these notes; *kaila*—I have made; *yei*—whatever; *ihāṅ*—in this; *nā likhila*—I could not write; *āge*—in the future; *tāhā*—that; *kariba*—I shall make; *vistāra*—expansion; *yadi*—if; *tata*—so many; *dina*—days; *jiye*—I live; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *kṛpā*—the mercy; *haye*—there is; *icchā bhari'*—satisfying the desire; *kariba*—I shall do; *vicāra*—consideration.

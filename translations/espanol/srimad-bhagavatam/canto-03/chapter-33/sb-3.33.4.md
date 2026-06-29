@@ -1,11 +1,11 @@
 ### SB 3.33.4
 
-> स त्वं भृतो मे जठरेण नाथ कथं नु यस्योदर एतदासीत् ।
+> स त्वं भृतो मे जठरेण नाथ कथं नु यस्योदर एतदासीत् ।\
 > विश्वं युगान्ते वटपत्र एकः शेते स्म मायाशिशुरङ्घ्रिपानः ॥४॥
 
-> sa tvaṁ bhṛto me jaṭhareṇa nātha
-> kathaṁ nu yasyodara etad āsīt
-> viśvaṁ yugānte vaṭa-patra ekaḥ
+> sa tvaṁ bhṛto me jaṭhareṇa nātha\
+> kathaṁ nu yasyodara etad āsīt\
+> viśvaṁ yugānte vaṭa-patra ekaḥ\
 > śete sma māyā-śiśur aṅghri-pānaḥ
 
 *saḥ*—esa misma persona; *tvam*—Tú; *bhṛtaḥ*—nació; *me jaṭhareṇa*—de mi abdomen; *nātha*—¡oh, mi Señor!; *katham*—cómo; *nu*—entonces; *yasya*—de quien; *udare*—en el vientre; *etat*—este; *āsīt*—reposa; *viśvam*—universo; *yuga-ante*—al final del milenio; *vaṭa-patre*—en la hoja de un árbol de los banianos; *ekaḥ*—solo; *śete sma*—Tú Te acuestas; *māyā*—poseyendo poderes inconcebibles; *śiśuḥ*—un bebé; *aṅghri*—Tu dedo gordo del pie; *pānaḥ*—chupando.

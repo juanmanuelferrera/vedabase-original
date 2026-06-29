@@ -1,9 +1,9 @@
 ### CC Madhya 16.26
 
-> শিবানন্দ-সেন করে সব সমাধান  ।
+> শিবানন্দ-সেন করে সব সমাধান  ।\
 > ঘাটিয়াল প্রবোধি’ দেন সবারে বাসা-স্থান ॥২৬॥
 
-> śivānanda-sena kare saba samādhāna
+> śivānanda-sena kare saba samādhāna\
 > ghāṭiyāla prabodhi' dena sabāre vāsā-sthāna
 
 *śivānanda-sena*—Śivānanda Sena; *kare*—does; *saba samādhāna*—all arrangements; *ghāṭiyāla*—the men in charge of levying taxes; *prabodhi'*—satisfying; *dena*—gives; *sabāre*—to everyone; *vāsā-sthāna*—resting places.

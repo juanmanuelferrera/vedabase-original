@@ -1,9 +1,9 @@
 ### CC Antya 6.315
 
-> প্রসাদান্ন পসারির যত না বিকায় ।
+> প্রসাদান্ন পসারির যত না বিকায় ।\
 > দুই-তিন দিন হৈলে ভাত সড়ি’ যায় ॥৩১৫॥
 
-> prasādānna pasārira yata nā vikāya
+> prasādānna pasārira yata nā vikāya\
 > dui-tina dina haile bhāta saḍi' yāya
 
 *prasāda-anna*—alimento del Señor Jagannātha; *pasārira*—de los comerciantes; *yata*—la cantidad que; *nā vikāya*—no se vende; *dui-tina dina*—dos y tres días; *haile*—después de; *bhāta*—el arroz; *saḍi' yāya*—se descompone.

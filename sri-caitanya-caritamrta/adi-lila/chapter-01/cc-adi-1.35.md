@@ -1,9 +1,9 @@
 ### CC Adi 1.35
 
-> মন্ত্রগুরু আর যত শিক্ষাগুরুগণ ।
+> মন্ত্রগুরু আর যত শিক্ষাগুরুগণ ।\
 > তাঁহার চরণ আগে করিয়ে বন্দন ॥৩৫॥
 
-> mantra-guru āra yata śikṣā-guru-gaṇa
+> mantra-guru āra yata śikṣā-guru-gaṇa\
 > tāṅhāra caraṇa āge kariye vandana
 
 *mantra-guru*—the initiating spiritual master; *āra*—and also; *yata*—as many (as there are); *śikṣā-guru-gaṇa*—all the instructing spiritual masters; *tāṅhāra*—of all of them; *caraṇa*—unto the lotus feet; *āge*—at first; *kariye*—I offer; *vandana*—respectful obeisances.

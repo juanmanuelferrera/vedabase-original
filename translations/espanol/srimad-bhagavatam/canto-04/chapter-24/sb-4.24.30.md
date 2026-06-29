@@ -1,11 +1,11 @@
 ### SB 4.24.30
 
-> अथ भागवता यूयं प्रियाः स्थ भगवान्यथा ।
+> अथ भागवता यूयं प्रियाः स्थ भगवान्यथा ।\
 > न मद्भागवतानां च प्रेयानन्योऽस्ति कर्हिचित् ॥३०॥
 
-> atha bhāgavatā yūyaṁ
-> priyāḥ stha bhagavān yathā
-> na mad bhāgavatānāṁ ca
+> atha bhāgavatā yūyaṁ\
+> priyāḥ stha bhagavān yathā\
+> na mad bhāgavatānāṁ ca\
 > preyān anyo 'sti karhicit
 
 *atha*—por lo tanto; *bhāgavatāḥ*—devotos; *yūyam*—todos ustedes; *priyāḥ*—muy queridos para mí; *stha*—son; *bhagavān*—la Suprema Personalidad de Dios; *yathā*—como; *na*—no; *mat*—que yo; *bhāgavatānām*—de los devotos; *ca*—también; *preyān*—muy querido; *anyaḥ*—otros; *asti*—hay; *karhicit*—en ningún momento.

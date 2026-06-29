@@ -1,11 +1,11 @@
 ### SB 1.13.45
 
-> तस्माज्जह्यङ्ग वैक्लव्यमज्ञानकृतमात्मनः ।
+> तस्माज्जह्यङ्ग वैक्लव्यमज्ञानकृतमात्मनः ।\
 > कथं त्वनाथाः कृपणा वर्तेरंस्ते च मां विना ॥४५॥
 
-> tasmāj jahy aṅga vaiklavyam
-> ajñāna-kṛtam ātmanaḥ
-> kathaṁ tv anāthāḥ kṛpaṇā
+> tasmāj jahy aṅga vaiklavyam\
+> ajñāna-kṛtam ātmanaḥ\
+> kathaṁ tv anāthāḥ kṛpaṇā\
 > varteraṁs te ca māṁ vinā
 
 *tasmāt*—por consiguiente; *jahi*—abandona; *aṅga*—¡oh, rey!; *vaiklavyam*—disparidad mental; *ajñāna*—ignorancia; *kṛtam*—debido a; *ātmanaḥ*—de ti mismo; *katham*—cómo; *tu*—pero; *anāthāḥ*—desamparado; *kṛpaṇāḥ*—pobres criaturas; *varteran*—ser capaz de sobrevivir; *te*—ellos; *ca*—también; *mām*—mí; *vinā*—sin.

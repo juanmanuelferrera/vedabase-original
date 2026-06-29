@@ -1,13 +1,13 @@
 ### CC Antya 17.56
 
-> কহিতেই হইল স্মৃতি, চিত্তে হইল কৃষ্ণস্ফূর্তি,
-> সখীরে কহে হঞা বিস্মিতে ।
-> “যারে চাহি ছাড়িতে, সেই শুঞা আছে চিত্তে,
+> কহিতেই হইল স্মৃতি, চিত্তে হইল কৃষ্ণস্ফূর্তি,\
+> সখীরে কহে হঞা বিস্মিতে ।\
+> “যারে চাহি ছাড়িতে, সেই শুঞা আছে চিত্তে,\
 > কোন রীতে না পারি ছাড়িতে ।।” ॥ ৫৬ ॥
 
-> kahitei ha-ila smṛti, citte haila kṛṣṇa-sphūrti,
-> sakhīre kahe hañā vismite
-> "yāre cāhi chāḍite, sei śuñā āche citte,
+> kahitei ha-ila smṛti, citte haila kṛṣṇa-sphūrti,\
+> sakhīre kahe hañā vismite\
+> "yāre cāhi chāḍite, sei śuñā āche citte,\
 > kona rīte nā pāri chāḍite"
 
 *kahitei*—mientras hablaba; *ha-ila*—hubo; *smṛti*—recuerdo; *citte*—en el corazón; *haila*—hubo; *kṛṣṇa-sphūrti*—la aparición de Kṛṣṇa; *sakhīre*—a las amigas; *kahe*—dijo; *hañā vismite*—muy asombrada; *yāre*—a Aquel a quien; *cāhi chāḍite*—quiero abandonar; *sei*—esa persona; *śuñā āche*—está yaciendo; *citte*—en el corazón; *kona rīte*—de ningún modo; *nā pāri*—no soy capaz; *chāḍite*—de abandonar.

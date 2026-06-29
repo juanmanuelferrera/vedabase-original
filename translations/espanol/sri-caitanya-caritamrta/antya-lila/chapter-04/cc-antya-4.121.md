@@ -1,9 +1,9 @@
 ### CC Antya 4.121
 
-> ভিক্ষা-অবশেষ-পাত্র গোবিন্দ তারে দিলা ।
+> ভিক্ষা-অবশেষ-পাত্র গোবিন্দ তারে দিলা ।\
 > প্রসাদ পাঞা সনাতন প্রভুপাশে আইলা ॥১২১॥
 
-> bhikṣā-avaśeṣa-pātra govinda tāre dilā
+> bhikṣā-avaśeṣa-pātra govinda tāre dilā\
 > prasāda pāñā sanātana prabhu-pāśe āilā
 
 *bhikṣā-avaśeṣa*—de los restos de comida; *pātra*—plato; *govinda*—Govinda; *tāre dilā*—le entregó; *prasāda pāñā*—después de tomar los restos de comida; *sanātana*—Sanātana Gosvāmī; *prabhu-pāśe*—ante el Señor Śrī Caitanya Mahāprabhu; *āilā*—vino.

@@ -1,11 +1,11 @@
 ### SB 6.1.50
 
-> पञ्चभिः कुरुते स्वार्थान्पञ्च वेदाथ पञ्चभिः
+> पञ्चभिः कुरुते स्वार्थान्पञ्च वेदाथ पञ्चभिः\
 > एकस्तु षोडशेन त्रीन्स्वयं सप्तदशोऽश्नुते ॥५०॥
 
-> pañcabhiḥ kurute svārthān
-> pañca vedātha pañcabhiḥ
-> ekas tu ṣoḍaśena trīn
+> pañcabhiḥ kurute svārthān\
+> pañca vedātha pañcabhiḥ\
+> ekas tu ṣoḍaśena trīn\
 > svayaṁ saptadaśo 'śnute
 
 *pañcabhiḥ*—with the five working senses (voice, arms, legs, anus and genitals); *kurute*—performs; *sva-arthān*—his desired interests; *pañca*—the five objects of the senses (sound, form, touch, aroma and taste); *veda*—knows; *atha*—thus; *pañcabhiḥ*—by the five senses of perception (hearing, seeing, smelling, tasting and feeling); *ekaḥ*—the one; *tu*—but; *ṣoḍaśena*—by these fifteen items and the mind; *trīn*—the three categories of experience (happiness, distress and a mixture of both); *svayam*—he, the living entity himself; *saptadaśaḥ*—the seventeenth item; *aśnute*—enjoys.

@@ -1,11 +1,11 @@
 ### SB 5.7.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > भरतस्तु महाभागवतो यदा भगवतावनितलपरिपालनाय सञ्चिन्तितस्तदनुशासनपरःपञ्चजनीं विश्वरूपदुहितरमुपयेमे ॥१॥
 
 >
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > bharatas tu mahā-bhāgavato yadā bhagavatāvani-tala-paripālanāya sañcintitas tad-anuśāsana-paraḥ pañcajanīṁ viśvarūpa-duhitaram upayeme.
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī said; *bharataḥ*—Mahārāja Bharata; *tu*—but; *mahā-bhāgavataḥ*—a *mahā-bhāgavata,* most exalted devotee of the Lord; *yadā*—when; *bhagavatā*—by the order of his father, Lord Ṛṣabhadeva; *avani-tala*—the surface of the globe; *paripālanāya*—for ruling over; *sañcintitaḥ*—made up his mind; *tat-anuśāsana-paraḥ*—engaged in governing the globe; *pañcajanīm*—Pañcajanī; *viśvarūpa-duhitaram*—the daughter of Viśvarūpa; *upayeme*—married.

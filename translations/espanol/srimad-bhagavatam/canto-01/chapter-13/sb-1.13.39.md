@@ -1,13 +1,13 @@
 ### SB 1.13.39
 
-> युधिष्ठिर उवाच
-> नाहं वेद गतिं पित्रोर्भगवन्क्व गतावितः ।
+> युधिष्ठिर उवाच\
+> नाहं वेद गतिं पित्रोर्भगवन्क्व गतावितः ।\
 > अम्बा वा हतपुत्रार्ता क्व गता च तपस्विनी ॥३९॥
 
-> yudhiṣṭhira uvāca
-> nāhaṁ veda gatiṁ pitror
-> bhagavan kva gatāv itaḥ
-> ambā vā hata-putrārtā
+> yudhiṣṭhira uvāca\
+> nāhaṁ veda gatiṁ pitror\
+> bhagavan kva gatāv itaḥ\
+> ambā vā hata-putrārtā\
 > kva gatā ca tapasvinī
 
 *yudhiṣṭhiraḥ uvāca*—Mahārāja Yudhiṣṭhira dijo; *na*—no; *aham*—yo; *veda*—lo sé; *gatim*—partida; *pitroḥ*—de los tíos; *bhagavan*—¡oh, personalidad divina!; *kva*—dónde; *gatau*—ido; *itaḥ*—de este lugar; *ambā*—tía materna; *vā*—ni; *hata-putrā*—desprovista de sus hijos; *ārtā*—afligida; *kva*—dónde; *gatā*—ido; *ca*—también; *tapasvinī*—asceta.

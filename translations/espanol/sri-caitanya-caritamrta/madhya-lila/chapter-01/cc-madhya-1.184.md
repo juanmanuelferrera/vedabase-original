@@ -1,9 +1,9 @@
 ### CC Madhya 1.184
 
-> তাঁরা দুইজন জানাইলা প্রভুর গোচরে ।
+> তাঁরা দুইজন জানাইলা প্রভুর গোচরে ।\
 > রূপ, সাকরমল্লিক আইলা তোমা’ দেখিবারে ॥১৮৪॥
 
-> tāṅrā dui-jana jānāilā prabhura gocare
+> tāṅrā dui-jana jānāilā prabhura gocare\
 > rūpa, sākara-mallika āilā tomā' dekhibāre
 
 *tāṅrā*—ellos; *dui-jana*—las dos personas; *jānāilā*—informaron; *prabhura*—del Señor Caitanya Mahāprabhu; *gocare*—en presencia; *rūpa*—Rūpa Gosvāmī; *sākara-mallika*—y Sanātana Gosvāmī; *āilā*—han venido; *tomā'*—a Vos; *dekhibāre*—a ver.

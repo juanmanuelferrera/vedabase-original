@@ -1,11 +1,11 @@
 ### SB 3.16.32
 
-> द्वाःस्थावादिश्य भगवान्विमानश्रेणिभूषणम् ।
+> द्वाःस्थावादिश्य भगवान्विमानश्रेणिभूषणम् ।\
 > सर्वातिशयया लक्ष्म्या जुष्टं स्वं धिष्ण्यमाविशत् ॥३२॥
 
-> dvāḥsthāv ādiśya bhagavān
-> vimāna-śreṇi-bhūṣaṇam
-> sarvātiśayayā lakṣmyā
+> dvāḥsthāv ādiśya bhagavān\
+> vimāna-śreṇi-bhūṣaṇam\
+> sarvātiśayayā lakṣmyā\
 > juṣṭaṁ svaṁ dhiṣṇyam āviśat
 
 *dvāḥ-sthau*—to the doorkeepers; *ādiśya*—just directing them; *bhagavān*—the Supreme Personality of Godhead; *vimāna-śreṇi-bhūṣaṇam*—always decorated with first-class airplanes; *sarva-atiśayayā*—in every respect extensively opulent; *lakṣmyā*—opulences; *juṣṭam*—bedecked with; *svam*—His own; *dhiṣṇyam*—abode; *āviśat*—went back.

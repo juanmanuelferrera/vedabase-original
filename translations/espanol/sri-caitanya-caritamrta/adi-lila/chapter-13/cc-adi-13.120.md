@@ -1,13 +1,13 @@
 ### CC Adi 13.120
 
-> মিশ্র — বৈষ্ণব, শান্ত, অলম্পট, শুদ্ধ, দান্ত,
-> ধনভোগে নাহি অভিমান ।
-> পুত্রের প্রভাবে যত, ধন আসি’ মিলে, তত,
+> মিশ্র — বৈষ্ণব, শান্ত, অলম্পট, শুদ্ধ, দান্ত,\
+> ধনভোগে নাহি অভিমান ।\
+> পুত্রের প্রভাবে যত, ধন আসি’ মিলে, তত,\
 > বিষ্ণুপ্রীতে দ্বিজে দেন দান ॥১২০॥
 
-> miśra--vaiṣṇava, śānta, alampaṭa, śuddha, dānta,
-> dhana-bhoge nāhi abhimāna
-> putrera prabhāve yata, dhana āsi' mile, tata,
+> miśra--vaiṣṇava, śānta, alampaṭa, śuddha, dānta,\
+> dhana-bhoge nāhi abhimāna\
+> putrera prabhāve yata, dhana āsi' mile, tata,\
 > viṣṇu-prīte dvije dena dāna
 
 *miśra*—Jagannātha Miśra; *vaiṣṇava*—un gran devoto; *śānta*—pacífico; *alampaṭa*—muy moderado; *śuddha*—purificado; *dānta*—controlado; *dhana-bhoge*—en lo que respecta a disfrutar de felicidad material; *nāhi*—no hay; *abhimāna*—deseo; *putrera*—de su hijo; *prabhāve*—por la influencia; *yata*—cuantas; *dhana*—riquezas; *āsi'*—viniendo; *mile*—recibe; *tata*—todo ello; *viṣṇu-prīte*—para la satisfacción del Señor Viṣṇu; *dvije*—a los *brāhmaṇas*; *dena*—da; *dāna*—en caridad.

@@ -1,9 +1,9 @@
 ### CC Madhya 10.93
 
-> প্রভুর আগমন তেঁহ তাহাঁঞি শুনিল ৷
+> প্রভুর আগমন তেঁহ তাহাঁঞি শুনিল ৷\
 > শীঘ্র নীলাচল যাইতে তাঁর ইচ্ছা হৈল ৷৷ ৯৩ ৷৷ ॥৯৩॥
 
-> prabhura āgamana teṅha tāhāṅi śunila
+> prabhura āgamana teṅha tāhāṅi śunila\
 > śīghra nīlācala yāite tāṅra icchā haila
 
 *prabhura āgamana*—el regreso de Śrī Caitanya Mahāprabhu; *teṅha*—él; *tāhāṅi*—allí; *śunila*—oyó; *śīghra*—muy pronto; *nīlācala*—a Jagannātha Purī; *yāite*—ir; *tāṅra*—su; *icchā*—deseo; *haila*—surgió.

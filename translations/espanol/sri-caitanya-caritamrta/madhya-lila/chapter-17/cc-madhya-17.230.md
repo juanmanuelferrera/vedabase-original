@@ -1,9 +1,9 @@
 ### CC Madhya 17.230
 
-> এইমত প্রেম — যাবৎ ভ্রমিল ‘বার’ বন ৷
+> এইমত প্রেম — যাবৎ ভ্রমিল ‘বার’ বন ৷\
 > একত্র লিখিলুঁ, সর্বত্র না যায় বর্ণন ॥২৩০॥
 
-> ei-mata prema--yāvat bhramila 'bāra' vana
+> ei-mata prema--yāvat bhramila 'bāra' vana\
 > ekatra likhiluṅ, sarvatra nā yāya varṇana
 
 *ei-mata*—de este modo; *prema*—amor extático; *yāvat*—mientras; *bhramila*—recorrió; *bāra vana*—los doce bosques de Vṛndāvana; *ekatra*—en un solo lugar; *likhiluṅ*—he escrito; *sarvatra*—en todas partes; *nā yāya varṇana*—no se puede describir.

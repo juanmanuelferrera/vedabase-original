@@ -1,9 +1,9 @@
 ### CC Madhya 1.148
 
-> বৃন্দাবন যাইতে কৈল গৌড়েরে গমন ।
+> বৃন্দাবন যাইতে কৈল গৌড়েরে গমন ।\
 > প্রতাপরুদ্র কৈল পথে বিবিধ সেবন ॥১৪৮॥
 
-> vṛndāvana yāite kaila gauḍere gamana
+> vṛndāvana yāite kaila gauḍere gamana\
 > pratāparudra kaila pathe vividha sevana
 
 *vṛndāvana yāite*—to go to Vṛndāvana; *kaila*—did; *gauḍere*—to Bengal; *gamana*—going; *pratāparudra*—King Pratāparudra; *kaila*—performed; *pathe*—on the road; *vividha*—various; *sevana*—services.

@@ -1,9 +1,9 @@
 ### CC Madhya 11.57
 
-> বাহ্যজ্ঞান নাহি, সে-কালে কৃষ্ণনাম শুনি’ ।
+> বাহ্যজ্ঞান নাহি, সে-কালে কৃষ্ণনাম শুনি’ ।\
 > আলিঙ্গন করিবেন তোমায় ‘বৈষ্ণব’ জানি’ ॥৫৭॥
 
-> bāhya-jñāna nāhi, se-kāle kṛṣṇa-nāma śuni,
+> bāhya-jñāna nāhi, se-kāle kṛṣṇa-nāma śuni,\
 > āliṅgana karibena tomāya 'vaiṣṇava' jāni'
 
 *bāhya-jñāna nāhi*—without external consciousness; *se-kāle*—at that time; *kṛṣṇa-nāma śuni'*—by hearing the holy name of Lord Kṛṣṇa; *āliṅgana karibena*—He will embrace; *tomāya*—you; *vaiṣṇava jāni'*—taking you to be a Vaiṣṇava.

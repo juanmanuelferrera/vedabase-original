@@ -1,13 +1,13 @@
 ### SB 3.33.1
 
-> मैत्रेय उवाच
-> एवं निशम्य कपिलस्य वचो जनित्रीसा कर्दमस्य दयिता किल देवहूतिः ।
+> मैत्रेय उवाच\
+> एवं निशम्य कपिलस्य वचो जनित्रीसा कर्दमस्य दयिता किल देवहूतिः ।\
 > विस्रस्तमोहपटला तमभिप्रणम्यतुष्टाव तत्त्वविषयाङ्कितसिद्धिभूमिम् ॥१॥
 
-> maitreya uvāca
-> evaṁ niśamya kapilasya vaco janitrī
-> sā kardamasya dayitā kila devahūtiḥ
-> visrasta-moha-paṭalā tam abhipraṇamya
+> maitreya uvāca\
+> evaṁ niśamya kapilasya vaco janitrī\
+> sā kardamasya dayitā kila devahūtiḥ\
+> visrasta-moha-paṭalā tam abhipraṇamya\
 > tuṣṭāva tattva-viṣayāṅkita-siddhi-bhūmim
 
 *maitreyaḥ uvāca*—Maitreya said; *evam*—thus; *niśamya*—having heard; *kapilasya*—of Lord Kapila; *vacaḥ*—the words; *janitrī*—the mother; *sā*—she; *kardamasya*—of Kardama Muni; *dayitā*—the dear wife; *kila*—namely; *devahūtiḥ*—Devahūti; *visrasta*—freed from; *moha-paṭalā*—the covering of illusion; *tam*—unto Him; *abhipraṇamya*—having offered obeisances; *tuṣṭāva*—recited prayers; *tattva*—basic principles; *viṣaya*—in the matter of; *aṅkita*—the author; *siddhi*—of liberation; *bhūmim*—the background.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.191
 
-> ‘ভট্টাচার্য’, জানি — তুমি সাক্ষাৎ বৃহস্পতি ।
+> ‘ভট্টাচার্য’, জানি — তুমি সাক্ষাৎ বৃহস্পতি ।\
 > শাস্ত্রব্যাখ্যা করিতে ঐছে কারো নাহি শক্তি ॥১৯১॥
 
-> 'bhaṭṭācārya', jāni—tumi sākṣāt bṛhaspati
+> 'bhaṭṭācārya', jāni—tumi sākṣāt bṛhaspati\
 > śāstra-vyākhyā karite aiche kāro nāhi śakti
 
 *bhaṭṭācārya*—My dear Bhaṭṭācārya; *jāni*—I know; *tumi*—you; *sākṣāt*—directly; *bṛhaspati*—the learned priest of the demigods named Bṛhaspati; *śāstra-vyākhyā*—explanation of the scriptures; *karite*—to do; *aiche*—such; *kāro*—of anyone else; *nāhi*—there is not; *śakti*—power.

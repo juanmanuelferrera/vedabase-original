@@ -1,11 +1,11 @@
 ### SB 6.10.28
 
-> सर्वे प्रयासा अभवन्विमोघाः कृताः कृता देवगणेषु दैत्यैः
+> सर्वे प्रयासा अभवन्विमोघाः कृताः कृता देवगणेषु दैत्यैः\
 > कृष्णानुकूलेषु यथा महत्सु क्षुद्रैः प्रयुक्ता ऊषती रूक्षवाचः ॥२८॥
 
-> sarve prayāsā abhavan vimoghāḥ
-> kṛtāḥ kṛtā deva-gaṇeṣu daityaiḥ
-> kṛṣṇānukūleṣu yathā mahatsu
+> sarve prayāsā abhavan vimoghāḥ\
+> kṛtāḥ kṛtā deva-gaṇeṣu daityaiḥ\
+> kṛṣṇānukūleṣu yathā mahatsu\
 > kṣudraiḥ prayuktā ūṣatī rūkṣa-vācaḥ
 
 *sarve*—all; *prayāsāḥ*—endeavors; *abhavan*—were; *vimoghāḥ*—futile; *kṛtāḥ*—performed; *kṛtāḥ*—again performed; *deva-gaṇeṣu*—unto the demigods; *daityaiḥ*—by the demons; *kṛṣṇa-anukūleṣu*—who were always protected by Kṛṣṇa; *yathā*—just as; *mahatsu*—unto the Vaiṣṇavas; *kṣudraiḥ*—by insignificant persons; *prayuktāḥ*—used; *ūṣatīḥ*—unfavorable; *rūkṣa*—rough; *vācaḥ*—words.

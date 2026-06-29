@@ -1,9 +1,9 @@
 ### CC Antya 8.8
 
-> পরমানন্দ-পুরী কৈল চরণ বন্দন ।
+> পরমানন্দ-পুরী কৈল চরণ বন্দন ।\
 > পুরী-গোসাঞি কৈল তাঁরে দৃঢ় আলিঙ্গন ॥৮॥
 
-> paramānanda-purī kaila caraṇa vandana
+> paramānanda-purī kaila caraṇa vandana\
 > purī-gosāñi kaila tāṅre dṛḍha āliṅgana
 
 *paramānanda-purī*—Paramānanda Purī; *kaila*—hizo; *caraṇa*—a los pies; *vandana*—ofrecer reverencias; *purī-gosāñi*—Rāmacandra Purī; *kaila*—hizo; *tāṅre*—a él; *dṛḍha*—fuerte; *āliṅgana*—abrazo.

@@ -1,26 +1,26 @@
 ### Bg 6.20-23
 
-> यत्रोपरमते चित्तं निरुद्धं योगसेवया ।
-> यत्र चैवात्मनात्मानं पश्यन्नात्मनि तुष्यति ॥२०॥
-> सुखमात्यन्तिकं यत्तद् बुद्धिग्राह्यमतीन्द्रियम् ।
-> वेत्ति यत्र न चैवायं स्थितश्चलति तत्त्वतः ॥२१॥
-> यं लब्ध्वा चापरं लाभं मन्यते नाधिकं ततः ।
-> यस्मिन्स्थितो न दुःखेन गुरुणापि विचाल्यते ॥२२॥
+> यत्रोपरमते चित्तं निरुद्धं योगसेवया ।\
+> यत्र चैवात्मनात्मानं पश्यन्नात्मनि तुष्यति ॥२०॥\
+> सुखमात्यन्तिकं यत्तद् बुद्धिग्राह्यमतीन्द्रियम् ।\
+> वेत्ति यत्र न चैवायं स्थितश्चलति तत्त्वतः ॥२१॥\
+> यं लब्ध्वा चापरं लाभं मन्यते नाधिकं ततः ।\
+> यस्मिन्स्थितो न दुःखेन गुरुणापि विचाल्यते ॥२२॥\
 > तं विद्याद् दुःखसंयोगवियोगं योगसंज्ञितम् ॥२३॥
 
-> yatroparamate cittaṁ
-> niruddhaṁ yoga-sevayā
-> yatra caivātmanātmānaṁ
-> paśyann ātmani tuṣyati
-> sukham ātyantikaṁ yat tad
-> buddhi-grāhyam atīndriyam
-> vetti yatra na caivāyaṁ
-> sthitaś calati tattvataḥ
-> yaṁ labdhvā cāparaṁ lābhaṁ
-> manyate nādhikaṁ tataḥ
-> yasmin sthito na duḥkhena
-> guruṇāpi vicālyate
-> taṁ vidyād duḥkha-saṁyoga-
+> yatroparamate cittaṁ\
+> niruddhaṁ yoga-sevayā\
+> yatra caivātmanātmānaṁ\
+> paśyann ātmani tuṣyati\
+> sukham ātyantikaṁ yat tad\
+> buddhi-grāhyam atīndriyam\
+> vetti yatra na caivāyaṁ\
+> sthitaś calati tattvataḥ\
+> yaṁ labdhvā cāparaṁ lābhaṁ\
+> manyate nādhikaṁ tataḥ\
+> yasmin sthito na duḥkhena\
+> guruṇāpi vicālyate\
+> taṁ vidyād duḥkha-saṁyoga-\
 > viyogaṁ yoga-saṁjñitam
 
 *yatra*—en esa circunstancia; *uparamate*—cuando uno siente felicidad trascendental; *cittam*—actividades mentales; *niruddham*—absteniéndose de la materia; *yoga-sevayā*—mediante la ejecución de yoga; *yatra*—en que; *ca*—también; *eva*—ciertamente; *ātmanā*—por medio de la mente pura; *ātmānam*—el yo; *paśyan*—entendiendo la posición; *ātmani*—en el yo; *tuṣyati*—uno se satisface; *sukham*—felicidad; *ātyantikam*—suprema; *yat*—en la cual; *tat*—esa; *buddhi*—la inteligencia; *grāhyam*—aceptable; *atīndriyam*—trascendental; *vetti*—sabe; *yatra*—en donde; *na*—nunca; *ca*—también; *eva*—ciertamente; *ayam*—en este; *sthitaḥ*—situado; *calati*—se mueve; *tattvataḥ*—de la verdad; *yam*—aquello que; *labdhvā*—mediante el logro; *ca*—también; *aparam*—cualquier otro; *lābham*—ganancia; *manyate*—no le importa; *na*—nunca; *adhikam*—más que eso; *tataḥ*—de aquello; *yasmin*—en el cual; *sthitaḥ*—estando situado; *na*—nunca; *duḥkhena*—por las miserias; *guruṇāpi*—aunque sea muy difícil; *vicālyate*—se desestabiliza; *tam*—eso; *vidyāt*—has de saber; *duḥkha-saṁyoga*—las miserias del contacto material; *viyogam*—exterminación; *yoga-saṁjñitam*—trance en yoga.

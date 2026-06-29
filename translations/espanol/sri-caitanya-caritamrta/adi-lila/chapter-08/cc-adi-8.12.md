@@ -1,9 +1,9 @@
 ### CC Adi 8.12
 
-> হেন কৃপাময় চৈতন্য না ভজে যেই জন ।
+> হেন কৃপাময় চৈতন্য না ভজে যেই জন ।\
 > সর্বোত্তম হইলেও তারে অসুরে গণন ॥১২॥
 
-> hena kṛpāmaya caitanya nā bhaje yei jana
+> hena kṛpāmaya caitanya nā bhaje yei jana\
 > sarvottama ha-ileo tāre asure gaṇana
 
 *hena*—tal; *kṛpāmaya*—misericordioso; *caitanya*—el Señor Śrī Caitanya; *nā*—no; *bhaje*—adora; *yei*—quien; *jana*—persona; *sarvottama*—supremo; *ha-ileo*—a pesar de ser; *tāre*—a él; *asure*—entre los demonios; *gaṇana*—el cómputo.

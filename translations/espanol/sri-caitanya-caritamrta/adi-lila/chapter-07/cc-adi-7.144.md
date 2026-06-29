@@ -1,9 +1,9 @@
 ### CC Adi 7.144
 
-> পঞ্চম পুরুষার্থ সেই প্রেম-মহাধন ।
+> পঞ্চম পুরুষার্থ সেই প্রেম-মহাধন ।\
 > কৃষ্ণের মাধুর্য-রস করায় আস্বাদন ॥১৪৪॥
 
-> pañcama puruṣārtha sei prema-mahādhana
+> pañcama puruṣārtha sei prema-mahādhana\
 > kṛṣṇera mādhurya-rasa karāya āsvādana
 
 *pañcama*—quinto; *puruṣa-artha*—meta de la vida; *sei*—eso; *prema*—amor por Dios; *mahā-dhana*—la riqueza primordial; *kṛṣṇera*—del Señor Kṛṣṇa; *mādhurya*—amor conyugal; *rasa*—melosidad; *karāya*—hace que; *āsvādana*—se saboree.

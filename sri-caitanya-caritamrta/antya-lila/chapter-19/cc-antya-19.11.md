@@ -1,9 +1,9 @@
 ### CC Antya 19.11
 
-> নীলাচলে আছি আমি তোমার আজ্ঞাতে ।
+> নীলাচলে আছি আমি তোমার আজ্ঞাতে ।\
 > যাবৎ জীব, তাবৎ আমি নারিব ছাড়িতে ।।” ॥ ১১ ॥
 
-> nīlācale āchi āmi tomāra ājñāte
+> nīlācale āchi āmi tomāra ājñāte\
 > yāvat jība, tāvat āmi nāriba chāḍite'
 
 *nīlācale*—Jagannātha Purī, Nīlācala; *āchi āmi*—I am; *tomāra ājñāte*—on the basis of your order; *yāvat jība*—as long as I live; *tāvat*—so long; *āmi*—I; *nāriba*—shall not be able; *chāḍite*—to leave.

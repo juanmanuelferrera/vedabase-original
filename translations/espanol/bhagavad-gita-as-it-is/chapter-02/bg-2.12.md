@@ -1,11 +1,11 @@
 ### Bg 2.12
 
-> न त्वेवाहं जातु नासं न त्वं नेमे जनाधिपाः ।
+> न त्वेवाहं जातु नासं न त्वं नेमे जनाधिपाः ।\
 > न चैव न भविष्यामः सर्वे वयमतः परम् ॥१२॥
 
-> na tv evāhaṁ jātu nāsaṁ
-> na tvaṁ neme janādhipāḥ
-> na caiva na bhaviṣyāmaḥ
+> na tv evāhaṁ jātu nāsaṁ\
+> na tvaṁ neme janādhipāḥ\
+> na caiva na bhaviṣyāmaḥ\
 > sarve vayam ataḥ param
 
 *na*—nunca; *tu*—pero; *eva*—ciertamente; *aham*—yo; *jātu*—llegar a ser; *na*—nunca; *āsam*—existió; *na*—no es así; *tvam*—tú; *na*—no; *ime*—todos estos; *janadhipāḥ*—reyes; *na*—nunca; *ca*—también; *eva*—ciertamente; *na*—así no; *bhaviṣyāmaḥ*—existiremos; *sarve*—todos nosotros; *vayam*—nosotros; *ataḥ param*—de aquí en adelante.

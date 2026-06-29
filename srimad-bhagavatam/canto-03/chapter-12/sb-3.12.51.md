@@ -1,11 +1,11 @@
 ### SB 3.12.51
 
-> अहो अद्भुतमेतन्मे व्यापृतस्यापि नित्यदा ।
+> अहो अद्भुतमेतन्मे व्यापृतस्यापि नित्यदा ।\
 > न ह्येधन्ते प्रजा नूनं दैवमत्र विघातकम् ॥५१॥
 
-> aho adbhutam etan me
-> vyāpṛtasyāpi nityadā
-> na hy edhante prajā nūnaṁ
+> aho adbhutam etan me\
+> vyāpṛtasyāpi nityadā\
+> na hy edhante prajā nūnaṁ\
 > daivam atra vighātakam
 
 *aho*—alas; *adbhutam*—it is wonderful; *etat*—this; *me*—for me; *vyāpṛtasya*—being busy; *api*—although; *nityadā*—always; *na*—does not; *hi*—certainly; *edhante*—generate; *prajāḥ*—living entities; *nūnam*—however; *daivam*—destiny; *atra*—herein; *vighātakam*—against.

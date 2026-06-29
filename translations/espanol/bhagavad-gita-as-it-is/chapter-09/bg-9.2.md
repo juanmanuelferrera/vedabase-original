@@ -1,11 +1,11 @@
 ### Bg 9.2
 
-> राजविद्या राजगुह्यं पवित्रमिदमुत्तमम् ।
+> राजविद्या राजगुह्यं पवित्रमिदमुत्तमम् ।\
 > प्रत्यक्षावगमं धर्म्यं सुसुखं कर्तुमव्ययम् ॥२॥
 
-> rāja-vidyā rāja-guhyaṁ
-> pavitram idam uttamam
-> pratyakṣāvagamaṁ dharmyaṁ
+> rāja-vidyā rāja-guhyaṁ\
+> pavitram idam uttamam\
+> pratyakṣāvagamaṁ dharmyaṁ\
 > susukhaṁ kartum avyayam
 
 *rāja-vidyā*—el rey de la educación; *rāja-guhyam*—el rey del conocimiento confidencial; *pavitram*—el más puro; *idam*—este; *uttamam*—trascendental; *pratyakṣa*—experimentado directamente; *avagamam*—entendido; *dharmyam*—el principio de la religión; *susukham*—muy feliz; *kartum*—de realizar; *avyayam*—imperecedero.

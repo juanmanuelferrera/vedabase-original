@@ -1,9 +1,9 @@
 ### CC Adi 5.49
 
-> অষ্টম শ্লোকের কৈল সংক্ষেপে বিবরণ ।
+> অষ্টম শ্লোকের কৈল সংক্ষেপে বিবরণ ।\
 > নবম শ্লোকের অর্থ শুন দিয়া মন ॥৪৯॥
 
-> aṣṭama ślokera kaila saṅkṣepe vivaraṇa
+> aṣṭama ślokera kaila saṅkṣepe vivaraṇa\
 > navama ślokera artha śuna diyā mana
 
 *aṣṭama*—octavo; *ślokera*—del verso; *kaila*—he hecho; *saṅkṣepe*—brevemente; *vivaraṇa*—descripción; *navama*—el noveno; *ślokera*—del verso; *artha*—el significado; *śuna*—por favor escuchen; *diyā mana*—con atención mental.

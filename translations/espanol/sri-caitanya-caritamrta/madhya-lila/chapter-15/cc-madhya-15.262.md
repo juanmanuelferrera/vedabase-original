@@ -1,9 +1,9 @@
 ### CC Madhya 15.262
 
-> কিম্বা নিজ-প্রাণ যদি করি বিমোচন ।
+> কিম্বা নিজ-প্রাণ যদি করি বিমোচন ।\
 > দুই যোগ্য নহে, দুই শরীর ব্রাহ্মণ ॥২৬২॥
 
-> kimvā nija-prāṇa yadi kari vimocana
+> kimvā nija-prāṇa yadi kari vimocana\
 > dui yogya nahe, dui śarīra brāhmaṇa
 
 *kimvā*—o bien; *nija-prāṇa*—mi propia vida; *yadi*—si; *kari vimocana*—renuncio a ella; *dui*—ambas acciones; *yogya nahe*—no son apropiadas; *dui śarīra*—ambos cuerpos; *brāhmaṇa*—brāhmaṇas.

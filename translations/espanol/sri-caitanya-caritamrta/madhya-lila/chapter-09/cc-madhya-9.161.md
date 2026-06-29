@@ -1,9 +1,9 @@
 ### CC Madhya 9.161
 
-> এবে সে জানিনু কৃষ্ণভক্তি সর্বোপরি ৷
+> এবে সে জানিনু কৃষ্ণভক্তি সর্বোপরি ৷\
 > কৃতার্থ করিলে, মোরে কহিলে কৃপা করি’ ৷৷ ১৬১ ৷৷ ॥১৬১॥
 
-> ebe se jāninu kṛṣṇa-bhakti sarvopari
+> ebe se jāninu kṛṣṇa-bhakti sarvopari\
 > kṛtārtha karile, more kahile kṛpā kari'
 
 *ebe*—ahora; *se*—eso; *jāninu*—comprendo; *kṛṣṇa-bhakti*—el servicio devocional al Señor Kṛṣṇa; *sarva-upari*—por encima de todo; *kṛta-artha*—afortunado; *karile*—me has hecho; *more*—a mí; *kahile*—has hablado; *kṛpā kari'*—por Tu misericordia sin causa.

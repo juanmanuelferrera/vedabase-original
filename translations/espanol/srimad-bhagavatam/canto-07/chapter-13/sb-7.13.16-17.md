@@ -1,17 +1,17 @@
 ### SB 7.13.16-17
 
-> बिभर्षि कायं पीवानं सोद्यमो भोगवान्यथा
-> वित्तं चैवोद्यमवतां भोगो वित्तवतामिह
-> भोगिनां खलु देहोऽयं पीवा भवति नान्यथा ॥१६॥
-> न ते शयानस्य निरुद्यमस्य ब्रह्मन्नु हार्थो यत एव भोगः
+> बिभर्षि कायं पीवानं सोद्यमो भोगवान्यथा\
+> वित्तं चैवोद्यमवतां भोगो वित्तवतामिह\
+> भोगिनां खलु देहोऽयं पीवा भवति नान्यथा ॥१६॥\
+> न ते शयानस्य निरुद्यमस्य ब्रह्मन्नु हार्थो यत एव भोगः\
 > अभोगिनोऽयं तव विप्र देहः पीवा यतस्तद्वद नः क्षमं चेत ॥१७॥
 
-> bibharṣi kāyaṁ pīvānaṁ
+> bibharṣi kāyaṁ pīvānaṁ\
 > sodyamo bhogavān yathā
 
-> vittaṁ caivodyamavatāṁ
-> bhogo vittavatām iha
-> bhogināṁ khalu deho 'yaṁ
+> vittaṁ caivodyamavatāṁ\
+> bhogo vittavatām iha\
+> bhogināṁ khalu deho 'yaṁ\
 > pīvā bhavati nānyathā
 
 *bibharṣi*—tú mantienes; *kāyam*—un cuerpo; *pīvānam*—gordo; *sa-udyamaḥ*—el que se esfuerza; *bhogavān*—el que disfruta; *yathā*—como; *vittam*—dinero; *ca*—también; *eva*—ciertamente; *udyama-vatām*—de personas siempre dedicadas al crecimiento económico; *bhogaḥ*—la complacencia de los sentidos; *vitta-vatām*—para las personas que poseen riquezas en abundancia; *iha*—en este mundo; *bhoginām*—de los disfrutadores, *karmīs*; *khalu*—en verdad; *dehaḥ*—el cuerpo; *ayam*—este; *pīvā*—muy grueso; *bhavati*—se vuelve; *na*—no; *anyathā*—de otra manera.

@@ -1,11 +1,11 @@
 ### Bg 1.10
 
-> अपर्याप्तं तदस्माकं बलं भीष्माभिरक्षितम् ।
+> अपर्याप्तं तदस्माकं बलं भीष्माभिरक्षितम् ।\
 > पर्याप्तं त्विदमेतेषां बलं भीमाभिरक्षितम् ॥१०॥
 
-> aparyāptaṁ tad asmākaṁ
-> balaṁ bhīṣmābhirakṣitam
-> paryāptaṁ tv idam eteṣāṁ
+> aparyāptaṁ tad asmākaṁ\
+> balaṁ bhīṣmābhirakṣitam\
+> paryāptaṁ tv idam eteṣāṁ\
 > balaṁ bhīmābhirakṣitam
 
 *aparyāptam*—immeasurable; *tat*—that; *asmākam*—of ours; *balam*—strength; *bhīṣma*—by Grandfather Bhīṣma; *abhirakṣitam*—perfectly protected; *paryāptam*—limited; *tu*—but; *idam*—all these; *eteṣām*—of the Pāṇḍavas; *balam*—strength; *bhīma*—by Bhīma; *abhirakṣitam*—carefully protected.

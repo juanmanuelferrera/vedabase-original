@@ -1,11 +1,11 @@
 ### Bg 1.45
 
-> यदि मामप्रतीकारमशस्त्रं शस्त्रपाणयः ।
+> यदि मामप्रतीकारमशस्त्रं शस्त्रपाणयः ।\
 > धार्तराष्ट्रा रणे हन्युस्तन्मे क्षेमतरं भवेत् ॥४५॥
 
-> yadi mām apratīkāram
-> aśastraṁ śastra-pāṇayaḥ
-> dhārtarāṣṭrā raṇe hanyus
+> yadi mām apratīkāram\
+> aśastraṁ śastra-pāṇayaḥ\
+> dhārtarāṣṭrā raṇe hanyus\
 > tan me kṣemataraṁ bhavet
 
 *yadi*—incluso si; *mām*—a mí; *apratīkāram*—sin ofrecer resistencia; *aśastram*—sin estar totalmente equipado; *śastra-pāṇayaḥ*—aquellos con armas en sus manos; *dhārtarāṣṭrāḥ*—los hijos de Dhṛtarāṣṭra; *raṇe*—en el campo de batalla; *hanyuḥ*—puede que maten; *tat*—eso; *me*—mío; *kṣemataram*—mejor; *bhavet*—se vuelva.

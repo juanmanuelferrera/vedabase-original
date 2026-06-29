@@ -1,9 +1,9 @@
 ### CC Madhya 11.45
 
-> pāpī nīca uddhārite tāṅra avatāra
+> pāpī nīca uddhārite tāṅra avatāra\
 > jagāi mādhāi teṅha karilā uddhāra
 
-> pāpī nīca uddhārite tāṅra avatāra
+> pāpī nīca uddhārite tāṅra avatāra\
 > jagāi mādhāi teṅha karilā uddhāra
 
 *pāpī*—pecaminosos; *nīca*—de bajo nacimiento; *uddhārite*—para liberar; *tāṅra*—Su; *avatāra*—encarnación; *jagāi*—Jagāi; *mādhāi*—Mādhāi; *teṅha*—Él; *karilā uddhāra*—liberó.

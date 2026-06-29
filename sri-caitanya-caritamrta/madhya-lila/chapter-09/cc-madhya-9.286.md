@@ -1,9 +1,9 @@
 ### CC Madhya 9.286
 
-> শুনিয়া চলিলা প্রভু তাঁরে দেখিবারে ।
+> শুনিয়া চলিলা প্রভু তাঁরে দেখিবারে ।\
 > বিপ্রগৃহে বসি’ আছেন, দেখিলা তাঁহারে ॥২৮৬॥
 
-> śuniyā calilā prabhu tāṅre dekhibāre
+> śuniyā calilā prabhu tāṅre dekhibāre\
 > vipra-gṛhe vasi' āchena, dekhilā tāṅhāre
 
 *śuniyā*—hearing; *calilā*—went; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—him; *dekhibāre*—to see; *vipra-gṛhe*—at the house of the *brāhmaṇa*; *vasi'*—sitting; *āchena*—was; *dekhilā*—saw; *tāṅhāre*—him.

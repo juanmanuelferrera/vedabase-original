@@ -1,11 +1,11 @@
 ### SB 4.12.45
 
-> धन्यं यशस्यमायुष्यं पुण्यं स्वस्त्ययनं महत् ।
+> धन्यं यशस्यमायुष्यं पुण्यं स्वस्त्ययनं महत् ।\
 > स्वर्ग्यं ध्रौव्यं सौमनस्यं प्रशस्यमघमर्षणम् ॥४५॥
 
-> dhanyaṁ yaśasyam āyuṣyaṁ
-> puṇyaṁ svasty-ayanaṁ mahat
-> svargyaṁ dhrauvyaṁ saumanasyaṁ
+> dhanyaṁ yaśasyam āyuṣyaṁ\
+> puṇyaṁ svasty-ayanaṁ mahat\
+> svargyaṁ dhrauvyaṁ saumanasyaṁ\
 > praśasyam agha-marṣaṇam
 
 *dhanyam*—otorgar riquezas; *yaśasyam*—otorgar prestigio; *āyuṣyam*—hacer aumentar la duración de la vida; *puṇyam*—sagrada; *svasti-ayanam*—crear buenos auspicios; *mahat*—grande; *svargyam*—otorgar el logro de los planetas celestiales; *dhrauvyam*—de Dhruvaloka; *saumanasyam*—agradable para la mente; *praśasyam*—gloriosa; *agha-marṣaṇam*—contrarrestar toda clase de actividades pecaminosas.

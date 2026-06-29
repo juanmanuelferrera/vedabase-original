@@ -1,9 +1,9 @@
 ### CC Adi 8.60
 
-> তাঁহার অনন্ত গুণ কে করু প্রকাশ ।
+> তাঁহার অনন্ত গুণ কে করু প্রকাশ ।\
 > তাঁর প্রিয় শিষ্য ইঁহ — পণ্ডিত হরিদাস ॥৬০॥
 
-> tāṅhāra ananta guṇa ke karu prakāśa
+> tāṅhāra ananta guṇa ke karu prakāśa\
 > tāṅra priya śiṣya iṅha--paṇḍita haridāsa
 
 *tāṅhāra*—sus; *ananta*—ilimitadas; *guṇa*—cualidades; *ke*—quién; *karu*—puede; *prakāśa*—manifestar; *tāṅra*—su; *priya*—querido; *śiṣya*—discípulo; *iṅha*—esta persona; *paṇḍita haridāsa*—de nombre Haridāsa Paṇḍita.

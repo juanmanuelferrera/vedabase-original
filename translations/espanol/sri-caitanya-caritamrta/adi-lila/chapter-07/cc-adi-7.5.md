@@ -1,9 +1,9 @@
 ### CC Adi 7.5
 
-> পঞ্চতত্ত্ব — একবস্তু, নাহি কিছু ভেদ ।
+> পঞ্চতত্ত্ব — একবস্তু, নাহি কিছু ভেদ ।\
 > রস আস্বাদিতে তবু বিবিধ বিভেদ ॥৫॥
 
-> pañca-tattva--eka-vastu, nāhi kichu bheda
+> pañca-tattva--eka-vastu, nāhi kichu bheda\
 > rasa āsvādite tabu vividha vibheda
 
 *pañca-tattva*—las cinco verdades; *eka-vastu*—son una en cinco; *nāhi*—no hay; *kichu*—ninguna; *bheda*—diferencia; *rasa*—melosidades; *āsvādite*—para saborear; *tabu*—aun así; *vividha*—variedades; *vibheda*—diferencias.

@@ -1,11 +1,11 @@
 ### SB 3.4.16
 
-> कर्माण्यनीहस्य भवोऽभवस्य ते दुर्गाश्रयोऽथारिभयात्पलायनम् ।
+> कर्माण्यनीहस्य भवोऽभवस्य ते दुर्गाश्रयोऽथारिभयात्पलायनम् ।\
 > कालात्मनो यत्प्रमदायुताश्रमः स्वात्मन्रतेः खिद्यति धीर्विदामिह ॥१६॥
 
-> karmāṇy anīhasya bhavo 'bhavasya te
-> durgāśrayo 'thāri-bhayāt palāyanam
-> kālātmano yat pramadā-yutāśramaḥ
+> karmāṇy anīhasya bhavo 'bhavasya te\
+> durgāśrayo 'thāri-bhayāt palāyanam\
+> kālātmano yat pramadā-yutāśramaḥ\
 > svātman-rateḥ khidyati dhīr vidām iha
 
 *karmāṇi*—actividades; *anīhasya*—de aquel que no tiene ningún deseo; *bhavaḥ*—nacimiento; *abhavasya*—de aquel que nunca nace; *te*—Tu; *durga-āśrayaḥ*—refugiarse en el fuerte; *atha*—después; *ari-bhayāt*—por temor a los enemigos; *palāyanam*—huye; *kāla-ātmanaḥ*—de aquel que es el controlador del tiempo eterno; *yat*—que; *pramadā-āyuta*—en la compañía de mujeres; *āśramaḥ*—vida hogareña; *sva-ātman*—en Ti mismo; *rateḥ*—aquel que disfruta; *khidyati*—se perturba; *dhīḥ*—inteligencia; *vidām*—de los eruditos; *iha*—en este mundo.

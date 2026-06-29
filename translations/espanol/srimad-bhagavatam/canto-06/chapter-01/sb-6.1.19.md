@@ -1,11 +1,11 @@
 ### SB 6.1.19
 
-> सकृन्मनः कृष्णपदारविन्दयोर्निवेशितं तद्गुणरागि यैरिह
+> सकृन्मनः कृष्णपदारविन्दयोर्निवेशितं तद्गुणरागि यैरिह\
 > न ते यमं पाशभृतश्च तद्भटान्स्वप्नेऽपि पश्यन्ति हि चीर्णनिष्कृताः ॥१९॥
 
-> sakṛn manaḥ kṛṣṇa-padāravindayor
-> niveśitaṁ tad-guṇa-rāgi yair iha
-> na te yamaṁ pāśa-bhṛtaś ca tad-bhaṭān
+> sakṛn manaḥ kṛṣṇa-padāravindayor\
+> niveśitaṁ tad-guṇa-rāgi yair iha\
+> na te yamaṁ pāśa-bhṛtaś ca tad-bhaṭān\
 > svapne 'pi paśyanti hi cīrṇa-niṣkṛtāḥ
 
 *sakṛt*—una vez solamente; *manaḥ*—la mente; *kṛṣṇa-pada-aravindayoḥ*—a los dos pies de loto de Kṛṣṇa; *niveśitam*—completamente entregada; *tat*—de Kṛṣṇa; *guṇa-rāgi*—que de alguna forma está apegada a las cualidades, el nombre, la fama y los objetos; *yaiḥ*—por quien; *iha*—en este mundo; *na*—no; *te*—esas personas; *yamam*—Yamarāja, el superintendente de la muerte; *pāśa-bhṛtaḥ*—quienes llevan cuerdas (para apresar a los pecadores); *ca*—y; *tat*—sus; *bhaṭān*—enviados; *svapne api*—ni siquiera en sueños; *paśyanti*—ven; *hi*—en verdad; *cīrṇa-niṣkṛtāḥ*—que han realizado el tipo correcto de expiación.

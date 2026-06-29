@@ -1,11 +1,11 @@
 ### SB 4.25.22
 
-> सुनासां सुदतीं बालां सुकपोलां वराननाम् ।
+> सुनासां सुदतीं बालां सुकपोलां वराननाम् ।\
 > समविन्यस्तकर्णाभ्यां बिभ्रतीं कुण्डलश्रियम् ॥२२॥
 
-> sunāsāṁ sudatīṁ bālāṁ
-> sukapolāṁ varānanām
-> sama-vinyasta-karṇābhyāṁ
+> sunāsāṁ sudatīṁ bālāṁ\
+> sukapolāṁ varānanām\
+> sama-vinyasta-karṇābhyāṁ\
 > bibhratīṁ kuṇḍala-śriyam
 
 *su-nāsām*—nariz muy bella; *su-datīm*—dientes muy bellos; *bālām*—la joven; *su-kapolām*—hermosa frente; *vara-ānanām*—hermoso rostro; *sama*—por igual; *vinyasta*—dispuestos; *karṇābhyām*—ambas orejas; *bibhratīm*—deslumbrantes; *kuṇḍala-śriyam*—con hermosos pendientes.

@@ -1,11 +1,11 @@
 ### SB 4.24.64
 
-> सृष्टं स्वशक्त्येदमनुप्रविष्टश्चतुर्विधं पुरमात्मांशकेन ।
+> सृष्टं स्वशक्त्येदमनुप्रविष्टश्चतुर्विधं पुरमात्मांशकेन ।\
 > अथो विदुस्तं पुरुषं सन्तमन्तर्भुङ्क्ते हृषीकैर्मधु सारघं यः ॥६४॥
 
-> sṛṣṭaṁ sva-śaktyedam anupraviṣṭaś
-> catur-vidhaṁ puram ātmāṁśakena
-> atho vidus taṁ puruṣaṁ santam antar
+> sṛṣṭaṁ sva-śaktyedam anupraviṣṭaś\
+> catur-vidhaṁ puram ātmāṁśakena\
+> atho vidus taṁ puruṣaṁ santam antar\
 > bhuṅkte hṛṣīkair madhu sāra-ghaṁ yaḥ
 
 *sṛṣṭam*—in the creation; *sva-śaktyā*—by Your own potency; *idam*—this cosmic manifestation; *anupraviṣṭaḥ*—entering afterward; *catuḥ-vidham*—four kinds of; *puram*—bodies; *ātma-aṁśakena*—by Your own part and parcel; *atho*—therefore; *viduḥ*—know; *tam*—him; *puruṣam*—the enjoyer; *santam*—existing; *antaḥ*—within; *bhuṅkte*—enjoys; *hṛṣīkaiḥ*—by the senses; *madhu*—sweetness; *sāra-gham*—honey; *yaḥ*—one who.

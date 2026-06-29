@@ -1,11 +1,11 @@
 ### SB 4.22.50
 
-> कर्माणि च यथाकालं यथादेशं यथाबलम् ।
+> कर्माणि च यथाकालं यथादेशं यथाबलम् ।\
 > यथोचितं यथावित्तमकरोद्ब्रह्मसात्कृतम् ॥५०॥
 
-> karmāṇi ca yathā-kālaṁ
-> yathā-deśaṁ yathā-balam
-> yathocitaṁ yathā-vittam
+> karmāṇi ca yathā-kālaṁ\
+> yathā-deśaṁ yathā-balam\
+> yathocitaṁ yathā-vittam\
 > akarod brahma-sāt-kṛtam
 
 *karmāṇi*—activities; *ca*—also; *yathā-kālam*—befitting time and circumstances; *yathā-deśam*—befitting the place and situation; *yathā-balam*—befitting one's own strength; *yathā-ucitam*—as far as possible; *yathā-vittam*—as far as one can spend money in this connection; *akarot*—performed; *brahma-sāt*—in the Absolute Truth; *kṛtam*—did.

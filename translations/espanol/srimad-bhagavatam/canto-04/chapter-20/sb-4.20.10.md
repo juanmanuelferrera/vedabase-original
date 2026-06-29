@@ -1,11 +1,11 @@
 ### SB 4.20.10
 
-> परित्यक्तगुणः सम्यग्दर्शनो विशदाशयः ।
+> परित्यक्तगुणः सम्यग्दर्शनो विशदाशयः ।\
 > शान्तिं मे समवस्थानं ब्रह्म कैवल्यमश्नुते ॥१०॥
 
-> parityakta-guṇaḥ samyag
-> darśano viśadāśayaḥ
-> śāntiṁ me samavasthānaṁ
+> parityakta-guṇaḥ samyag\
+> darśano viśadāśayaḥ\
+> śāntiṁ me samavasthānaṁ\
 > brahma kaivalyam aśnute
 
 *parityakta-guṇaḥ*—el que deja de relacionarse con las modalidades materiales de la naturaleza; *samyak*—ecuánime; *darśanaḥ*—cuya visión; *viśada*—libre de contaminación; *āśayaḥ*—cuya mente o corazón; *śāntim*—paz; *me*—a Mí; *samavasthānam*—igual situación; *brahma*—espíritu; *kaivalyam*—libertad de la contaminación material; *aśnute*—alcanza.

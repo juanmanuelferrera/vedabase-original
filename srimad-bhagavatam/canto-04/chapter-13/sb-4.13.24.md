@@ -1,11 +1,11 @@
 ### SB 4.13.24
 
-> एतदाख्याहि मे ब्रह्मन्सुनीथात्मजचेष्टितम् ।
+> एतदाख्याहि मे ब्रह्मन्सुनीथात्मजचेष्टितम् ।\
 > श्रद्दधानाय भक्ताय त्वं परावरवित्तमः ॥२४॥
 
-> etad ākhyāhi me brahman
-> sunīthātmaja-ceṣṭitam
-> śraddadhānāya bhaktāya
+> etad ākhyāhi me brahman\
+> sunīthātmaja-ceṣṭitam\
+> śraddadhānāya bhaktāya\
 > tvaṁ parāvara-vittamaḥ
 
 *etat*—all these; *ākhyāhi*—please describe; *me*—unto me; *brahman*—O great *brāhmaṇa*; *sunīthā-ātmaja*—of the son of Sunīthā, Vena; *ceṣṭitam*—activities; *śraddadhānāya*—faithful; *bhaktāya*—unto your devotee; *tvam*—you; *para-avara*—with past and future; *vit-tamaḥ*—well conversant.

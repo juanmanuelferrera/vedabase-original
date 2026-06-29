@@ -1,13 +1,13 @@
 ### CC Madhya 13.141
 
-> নহে গোপী যোগেশ্বর, পদকমল তোমার,
-> ধ্যান করি’ পাইবে সন্তোষ ।
-> তোমার বাক্য-পরিপাটী, তার মধ্যে কুটিনাটী,
+> নহে গোপী যোগেশ্বর, পদকমল তোমার,\
+> ধ্যান করি’ পাইবে সন্তোষ ।\
+> তোমার বাক্য-পরিপাটী, তার মধ্যে কুটিনাটী,\
 > শুনি’ গোপীর আরো বাঢ়ে রোষ ॥১৪১॥
 
-> nahe gopī yogeśvara, pada-kamala tomāra,
-> dhyāna kari' pāibe santoṣa
-> tomāra vākya-paripāṭī, tāra madhye kuṭināṭī,
+> nahe gopī yogeśvara, pada-kamala tomāra,\
+> dhyāna kari' pāibe santoṣa\
+> tomāra vākya-paripāṭī, tāra madhye kuṭināṭī,\
 > śuni' gopīra āro bāḍhe roṣa
 
 *nahe*—not; *gopī*—*gopīs*; *yogeśvara*—masters of mystic yoga practice; *pada-kamala tomāra*—Your lotus feet; *dhyāna kari'*—by meditation; *pāibe santoṣa*—we get satisfaction; *tomāra*—Your; *vākya*—words; *paripāṭī*—very kindly composed; *tāra madhye*—within that; *kuṭināṭī*—duplicity; *śuni'*—hearing; *gopīra*—of the *gopīs*; *āro*—more and more; *bāḍhe*—increases; *roṣa*—anger.

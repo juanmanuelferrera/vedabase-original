@@ -1,11 +1,11 @@
 ### SB 4.9.56
 
-> प्राकारैर्गोपुरागारैः शातकुम्भपरिच्छदैः ।
+> प्राकारैर्गोपुरागारैः शातकुम्भपरिच्छदैः ।\
 > सर्वतोऽलङ्कृतं श्रीमद् विमानशिखरद्युभिः ॥५६॥
 
-> prākārair gopurāgāraiḥ
-> śātakumbha-paricchadaiḥ
-> sarvato 'laṅkṛtaṁ śrīmad-
+> prākārair gopurāgāraiḥ\
+> śātakumbha-paricchadaiḥ\
+> sarvato 'laṅkṛtaṁ śrīmad-\
 > vimāna-śikhara-dyubhiḥ
 
 *prākāraiḥ*—with surrounding walls; *gopura*—city gates; *āgāraiḥ*—with houses; *śātakumbha*—golden; *paricchadaiḥ*—with ornamental work; *sarvataḥ*—on all sides; *alaṅkṛtam*—decorated; *śrīmat*—valuable, beautiful; *vimāna*—airplanes; *śikhara*—domes; *dyubhiḥ*—glittering.

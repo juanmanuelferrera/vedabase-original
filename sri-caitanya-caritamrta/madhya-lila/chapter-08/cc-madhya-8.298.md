@@ -1,9 +1,9 @@
 ### CC Madhya 8.298
 
-> দুইজনে নীলাচলে রহিব একসঙ্গে ।
+> দুইজনে নীলাচলে রহিব একসঙ্গে ।\
 > সুখে গোঙাইব কাল কৃষ্ণকথা-রঙ্গে ॥২৯৮॥
 
-> dui-jane nīlācale rahiba eka-saṅge
+> dui-jane nīlācale rahiba eka-saṅge\
 > sukhe goṅāiba kāla kṛṣṇa-kathā-raṅge
 
 *dui-jane*—both of us; *nīlācale*—at Jagannātha Purī; *rahiba*—shall stay; *eka-saṅge*—together; *sukhe*—in happiness; *goṅāiba*—shall pass; *kāla*—time; *kṛṣṇa-kathā-raṅge*—in the pleasure of discussing topics about Kṛṣṇa.

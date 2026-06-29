@@ -1,9 +1,9 @@
 ### CC Madhya 16.177
 
-> প্রতীত করিয়ে — যদি নিরস্ত্র হঞা ।
+> প্রতীত করিয়ে — যদি নিরস্ত্র হঞা ।\
 > আসিবেক পাঁচ-সাত ভৃত্য সঙ্গে লঞা ।।” ॥ ১৭৭ ॥
 
-> pratīta kariye—yadi nirastra hañā
+> pratīta kariye—yadi nirastra hañā\
 > āsibeka pāṅca-sāta bhṛtya saṅge lañā?"
 
 *pratīta*—understood; *kariye*—I make; *yadi*—if; *nirastra hañā*—being without weapons; *āsibeka*—he will come; *pāṅca-sāta*—five to seven; *bhṛtya*—servants; *saṅge*—in company; *lañā*—taking.

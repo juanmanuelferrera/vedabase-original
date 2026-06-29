@@ -1,9 +1,9 @@
 ### CC Madhya 5.123
 
-> তাঁর ভক্তিবশে গোপাল তাঁরে আজ্ঞা দিল ।
+> তাঁর ভক্তিবশে গোপাল তাঁরে আজ্ঞা দিল ।\
 > গোপাল লইয়া সেই কটকে আইল ॥১২৩॥
 
-> tāṅra bhakti-vaśe gopāla tāṅre ājñā dila
+> tāṅra bhakti-vaśe gopāla tāṅre ājñā dila\
 > gopāla la-iyā sei kaṭake āila
 
 *tāṅra*—su; *bhakti-vaśe*—bajo la obligación del servicio devocional; *gopāla*—el Señor Gopāla; *tāṅre*—a Él; *ājñā dila*—dio la orden; *gopāla*—la Deidad de Gopāla; *la-iyā*—llevándose; *sei*—ese rey; *kaṭake*—a la ciudad de Kaṭaka; *āila*—regresó.

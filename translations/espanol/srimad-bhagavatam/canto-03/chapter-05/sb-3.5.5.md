@@ -1,11 +1,11 @@
 ### SB 3.5.5
 
-> करोति कर्माणि कृतावतारो यान्यात्मतन्त्रो भगवांस्त्र्यधीशः ।
+> करोति कर्माणि कृतावतारो यान्यात्मतन्त्रो भगवांस्त्र्यधीशः ।\
 > यथा ससर्जाग्र इदं निरीहः संस्थाप्य वृत्तिं जगतो विधत्ते ॥५॥
 
-> karoti karmāṇi kṛtāvatāro
-> yāny ātma-tantro bhagavāṁs tryadhīśaḥ
-> yathā sasarjāgra idaṁ nirīhaḥ
+> karoti karmāṇi kṛtāvatāro\
+> yāny ātma-tantro bhagavāṁs tryadhīśaḥ\
+> yathā sasarjāgra idaṁ nirīhaḥ\
 > saṁsthāpya vṛttiṁ jagato vidhatte
 
 *karoti*—las hace; *karmāṇi*—actividades trascendentales; *kṛta*—aceptando; *avatāraḥ*—encarnaciones; *yāni*—todas esas; *ātma-tantraḥ*—independiente en Sí mismo; *bhagavān*—la Personalidad de Dios; *tri-adhīśaḥ*—el Señor de los tres mundos; *yathā*—tanto como; *sasarja*—creó; *agre*—en el principio; *idam*—esta manifestación cósmica; *nirīhaḥ*—aunque no tiene deseos; *saṁsthāpya*—estableciendo; *vṛttim*—medios de sustento; *jagataḥ*—de los universos; *vidhatte*—mientras Él regula.

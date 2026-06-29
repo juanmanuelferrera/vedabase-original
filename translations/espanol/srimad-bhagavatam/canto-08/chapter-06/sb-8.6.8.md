@@ -1,13 +1,13 @@
 ### SB 8.6.8
 
-> श्रीब्रह्मोवाच
-> अजातजन्मस्थितिसंयमाया गुणाय निर्वाणसुखार्णवाय
+> श्रीब्रह्मोवाच\
+> अजातजन्मस्थितिसंयमाया गुणाय निर्वाणसुखार्णवाय\
 > अणोरणिम्नेऽपरिगण्यधाम्ने महानुभावाय नमो नमस्ते ॥८॥
 
-> śrī-brahmovāca
-> ajāta-janma-sthiti-saṁyamāyā-
-> guṇāya nirvāṇa-sukhārṇavāya
-> aṇor aṇimne 'parigaṇya-dhāmne
+> śrī-brahmovāca\
+> ajāta-janma-sthiti-saṁyamāyā-\
+> guṇāya nirvāṇa-sukhārṇavāya\
+> aṇor aṇimne 'parigaṇya-dhāmne\
 > mahānubhāvāya namo namas te
 
 *śrī-brahmā uvāca*—el Señor Brahmā dijo; *ajāta-janma-sthiti-saṁyamāya*—a la Suprema Personalidad de Dios, que nunca nace pero que Se manifiesta una y otra vez en infinidad de encarnaciones; *aguṇāya*—nunca afligido por las modalidades materiales de la naturaleza (*sattva-guṇa*, *rajo-guṇa* y *tamo-guṇa*); *nirvāṇa-sukha-arṇavāya*—al océano de la bienaventuranza eterna, más allá de la existencia material; *aṇoḥ aṇimne*—más pequeño que el átomo; *aparigaṇya-dhāmne*—cuyos rasgos corporales no pueden concebirse mediante la especulación mental; *mahā-anubhāvāya*—cuya existencia es inconcebible; *namaḥ*—ofrecer reverencias; *namaḥ*—ofrecer de nuevo reverencias; *te*—a Ti.

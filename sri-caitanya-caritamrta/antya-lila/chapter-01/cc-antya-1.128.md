@@ -1,13 +1,13 @@
 ### CC Antya 1.128
 
-> সুধানাং চান্দ্রীণামপি মধুরিমোন্মাদ-দমনী
-> দধানা রাধাদিপ্রণয়ঘনসারৈঃ সুরভিতাম্ ।
-> সমন্তাৎ সন্তাপোদ্গম-বিষমসংসার-সরণী-
+> সুধানাং চান্দ্রীণামপি মধুরিমোন্মাদ-দমনী\
+> দধানা রাধাদিপ্রণয়ঘনসারৈঃ সুরভিতাম্ ।\
+> সমন্তাৎ সন্তাপোদ্গম-বিষমসংসার-সরণী-\
 > প্রণীতাং তে তৃষ্ণাং হরতু হরিলীলা-শিখরিণী ॥১২৮॥
 
-> sudhānāṁ cāndrīṇām api madhurimonmāda-damanī
-> dadhānā rādhādi-praṇaya-ghana-sāraiḥ surabhitām
-> samantāt santāpodgama-viṣama-saṁsāra-saraṇī-
+> sudhānāṁ cāndrīṇām api madhurimonmāda-damanī\
+> dadhānā rādhādi-praṇaya-ghana-sāraiḥ surabhitām\
+> samantāt santāpodgama-viṣama-saṁsāra-saraṇī-\
 > praṇītāṁ te tṛṣṇāṁ haratu hari-līlā-śikhariṇī
 
 *sudhānām*—of the nectar; *cāndrīṇām*—produced on the moon; *api*—even; *madhurimā*—the sweetness; *unmāda-damanī*—overpowering the pride; *dadhānā*—distributing; *rādhā-ādi*—of Śrīmatī Rādhārāṇī and Her companions; *praṇaya-ghana*—of the concentrated loving affairs; *sāraiḥ*—by the essence; *surabhitām*—a good fragrance; *samantāt*—everywhere; *santāpa*—miserable conditions; *udgama*—generating; *viṣama*—very dangerous; *saṁsāra-saraṇī*—on the path of material existence; *praṇītām*—created; *te*—your; *tṛṣṇām*—desires; *haratu*—let it take away; *hari-līlā*—the pastimes of Śrī Kṛṣṇa; *śikhariṇī*—exactly like a combination of yogurt and sugar candy.

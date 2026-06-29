@@ -1,14 +1,14 @@
 ### CC Adi 13.54-55
 
-> শ্রীশচী-জগন্নাথ, শ্রীমাধবপুরী ।
-> কেশব ভারতী, আর শ্রীঈশ্বর পুরী ॥৫৪॥
-> অদ্বৈত আচার্য, আর পণ্ডিত শ্রীবাস ।
+> শ্রীশচী-জগন্নাথ, শ্রীমাধবপুরী ।\
+> কেশব ভারতী, আর শ্রীঈশ্বর পুরী ॥৫৪॥\
+> অদ্বৈত আচার্য, আর পণ্ডিত শ্রীবাস ।\
 > আচার্যরত্ন, বিদ্যানিধি, ঠাকুর হরিদাস ॥৫৫॥
 
-> śrī-śacī-jagannātha, śrī-mādhava-purī
+> śrī-śacī-jagannātha, śrī-mādhava-purī\
 > keśava bhāratī, āra śrī-īśvara purī
 
-> advaita ācārya, āra paṇḍita śrīvāsa
+> advaita ācārya, āra paṇḍita śrīvāsa\
 > ācāryaratna, vidyānidhi, ṭhākura haridāsa
 
 *śrī-śacī-jagannātha*—Śrīmatī Śacidevī and Jagannātha Miśra; *śrī-mādhava purī*—Śrī Mādhavendra Purī; *keśava bhāratī*—of the name Keśava Bhāratī; *āra*—and; *śrī-īśvara purī*—of the name Śrī Īśvara Purī; *advaitaācārya*—of the name Advaita Ācārya; *āra*—and; *paṇḍita śrīvāsa*—of the name Śrīvāsa Paṇḍita; *ācārya-ratna*—of the name Ācāryaratna; *vidyānidhi*—of the name Vidyānidhi; *ṭhākura haridāsa*—of the name Ṭhākura Haridāsa.

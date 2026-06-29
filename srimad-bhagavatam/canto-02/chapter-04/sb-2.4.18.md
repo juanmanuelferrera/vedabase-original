@@ -1,11 +1,11 @@
 ### SB 2.4.18
 
-> किरातहूणान्ध्रपुलिन्दपुल्कशा आभीरशुम्भा यवनाः खसादयः ।
+> किरातहूणान्ध्रपुलिन्दपुल्कशा आभीरशुम्भा यवनाः खसादयः ।\
 > येऽन्ये च पापा यदपाश्रयाश्रयाः शुध्यन्ति तस्मै प्रभविष्णवे नमः ॥१८॥
 
-> kirāta-hūṇāndhra-pulinda-pulkaśā
-> ābhīra-śumbhā yavanāḥ khasādayaḥ
-> ye 'nye ca pāpā yad-apāśrayāśrayāḥ
+> kirāta-hūṇāndhra-pulinda-pulkaśā\
+> ābhīra-śumbhā yavanāḥ khasādayaḥ\
+> ye 'nye ca pāpā yad-apāśrayāśrayāḥ\
 > śudhyanti tasmai prabhaviṣṇave namaḥ
 
 *kirāta*—a province of old Bhārata; *hūṇa*—part of Germany and Russia; *āndhra*—a province of southern India; *pulinda*—the Greeks; *pulkaśāḥ*—another province; *ābhīra*—part of old Sind; *śumbhāḥ*—another province; *yavanāḥ*—the Turks; *khasa-ādayaḥ*—the Mongolian province; *ye*—even those; *anye*—others; *ca*—also; *pāpāḥ*—addicted to sinful acts; *yat*—whose; *apāśraya-āśrayāḥ*—having taken shelter of the devotees of the Lord; *śudhyanti*—at once purified; *tasmai*—unto Him; *prabhaviṣṇave*—unto the powerful Viṣṇu; *namaḥ*—my respectful obeisances.

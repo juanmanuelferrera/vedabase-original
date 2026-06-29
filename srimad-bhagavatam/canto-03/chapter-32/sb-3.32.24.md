@@ -1,11 +1,11 @@
 ### SB 3.32.24
 
-> यदास्य चित्तमर्थेषु समेष्विन्द्रियवृत्तिभिः ।
+> यदास्य चित्तमर्थेषु समेष्विन्द्रियवृत्तिभिः ।\
 > न विगृह्णाति वैषम्यं प्रियमप्रियमित्युत ॥२४॥
 
-> yadāsya cittam artheṣu
-> sameṣv indriya-vṛttibhiḥ
-> na vigṛhṇāti vaiṣamyaṁ
+> yadāsya cittam artheṣu\
+> sameṣv indriya-vṛttibhiḥ\
+> na vigṛhṇāti vaiṣamyaṁ\
 > priyam apriyam ity uta
 
 *yadā*—when; *asya*—of the devotee; *cittam*—the mind; *artheṣu*—in the sense objects; *sameṣu*—same; *indriya-vṛttibhiḥ*—by the activities of the senses; *na*—not; *vigṛhṇāti*—does perceive; *vaiṣamyam*—difference; *priyam*—agreeable; *apriyam*—not agreeable; *iti*—thus; *uta*—certainly.

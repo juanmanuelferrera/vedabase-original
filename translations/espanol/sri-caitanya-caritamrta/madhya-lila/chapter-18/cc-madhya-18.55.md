@@ -1,9 +1,9 @@
 ### CC Madhya 18.55
 
-> প্রস্তাবে কহিলুঁ গোপাল-কৃপার আখ্যান ।
+> প্রস্তাবে কহিলুঁ গোপাল-কৃপার আখ্যান ।\
 > তবে মহাপ্ৰভু গেলা ‘শ্রীকাম্যবন’ ॥৫৫॥
 
-> prastāve kahiluṅ gopāla-kṛpāra ākhyāna
+> prastāve kahiluṅ gopāla-kṛpāra ākhyāna\
 > tabe mahāprabhu gelā 'śrī-kāmyavana'
 
 *prastāve*—en el curso del relato; *kahiluṅ*—he narrado; *gopāla-kṛpāra*—de la misericordia de Gopāla; *ākhyāna*—descripción; *tabe*—después de esto; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *gelā*—fue; *śrī-kāmya-vana*—a Śrī Kāmyavana.

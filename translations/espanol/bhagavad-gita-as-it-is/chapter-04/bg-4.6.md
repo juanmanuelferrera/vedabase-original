@@ -1,11 +1,11 @@
 ### Bg 4.6
 
-> अजोऽपि सन्नव्ययात्मा भूतानामीश्वरोऽपि सन् ।
+> अजोऽपि सन्नव्ययात्मा भूतानामीश्वरोऽपि सन् ।\
 > प्रकृतिं स्वामधिष्ठाय सम्भवाम्यात्ममायया ॥६॥
 
-> ajo'pi sann avyayātmā
-> bhūtānām īśvaro'pi san
-> prakṛtiṁ svām adhiṣṭhāya
+> ajo'pi sann avyayātmā\
+> bhūtānām īśvaro'pi san\
+> prakṛtiṁ svām adhiṣṭhāya\
 > sambhavāmy ātma-māyayā
 
 *ajaḥ*—que no nace; *api*—aunque; *san*—siendo así; *avyaya*—sin deterioro; *ātmā*—cuerpo; *bhūtānām*—todos aquellos que nacen; *īśvaraḥ*—el Señor Supremo; *api*—aunque; *san*—siendo así; *prakṛtim*—forma trascendental; *svām*—de Mi Mismo; *adhiṣṭhāya*—estando situado así; *sambhavāmi*—Me encarno; *ātma-māyayā*—mediante Mi energía interna.

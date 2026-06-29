@@ -1,13 +1,13 @@
 ### SB 7.10.18
 
-> श्रीभगवानुवाच
-> त्रिःसप्तभिः पिता पूतः पितृभिः सह तेऽनघ
+> श्रीभगवानुवाच\
+> त्रिःसप्तभिः पिता पूतः पितृभिः सह तेऽनघ\
 > यत्साधोऽस्य कुले जातो भवान्वै कुलपावनः ॥१८॥
 
-> śrī-bhagavān uvāca
-> triḥ-saptabhiḥ pitā pūtaḥ
-> pitṛbhiḥ saha te 'nagha
-> yat sādho 'sya kule jāto
+> śrī-bhagavān uvāca\
+> triḥ-saptabhiḥ pitā pūtaḥ\
+> pitṛbhiḥ saha te 'nagha\
+> yat sādho 'sya kule jāto\
 > bhavān vai kula-pāvanaḥ
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *triḥ-saptabhiḥ*—siete multiplicado por tres (es decir, veintiuno); *pitā*—el padre; *pūtaḥ*—purificado; *pitṛbhiḥ*—con tus antepasados; *saha*—todos juntos; *te*—tuyos; *anagha*—¡oh, personalidad sin pecado (Prahlāda Mahārāja)!; *yat*—debido a; *sādho*—¡oh, gran persona santa!; *asya*—de esta persona; *kule*—en la dinastía; *jātaḥ*—nació; *bhavān*—tú; *vai*—en verdad; *kula-pāvanaḥ*—el purificador de toda la dinastía.

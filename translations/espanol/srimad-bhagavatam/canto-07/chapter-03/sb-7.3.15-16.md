@@ -1,18 +1,18 @@
 ### SB 7.3.15-16
 
-> न ददर्श प्रतिच्छन्नं वल्मीकतृणकीचकैः
-> पिपीलिकाभिराचीर्णं मेदस्त्वङ्मांसशोणितम ॥१५॥
-> तपन्तं तपसा लोकान्यथाभ्रापिहितं रविम
+> न ददर्श प्रतिच्छन्नं वल्मीकतृणकीचकैः\
+> पिपीलिकाभिराचीर्णं मेदस्त्वङ्मांसशोणितम ॥१५॥\
+> तपन्तं तपसा लोकान्यथाभ्रापिहितं रविम\
 > विलक्ष्य विस्मितः प्राह हसंस्तं हंसवाहनः ॥१६॥
 
-> na dadarśa praticchannaṁ
-> valmīka-tṛṇa-kīcakaiḥ
-> pipīlikābhir ācīrṇaṁ
+> na dadarśa praticchannaṁ\
+> valmīka-tṛṇa-kīcakaiḥ\
+> pipīlikābhir ācīrṇaṁ\
 > medas-tvaṅ-māṁsa-śoṇitam
 
-> tapantaṁ tapasā lokān
-> yathābhrāpihitaṁ ravim
-> vilakṣya vismitaḥ prāha
+> tapantaṁ tapasā lokān\
+> yathābhrāpihitaṁ ravim\
+> vilakṣya vismitaḥ prāha\
 > hasaṁs taṁ haṁsa-vāhanaḥ
 
 *na*—no; *dadarśa*—veía; *praticchannam*—cubierto; *valmīka*—por un hormiguero; *tṛṇa*—hierba; *kīcakaiḥ*—y cañas de bambú; *pipīlikābhiḥ*—por las hormigas; *ācīrṇam*—comido por todas partes; *medaḥ*—cuya grasa; *tvak*—piel; *māṁsa*—la carne; *śoṇitam*—y sangre; *tapantam*—calentando; *tapasā*—con una penitencia muy rigurosa; *lokān*—los tres mundos; *yathā*—tal como; *abhra*—por nubes; *apihitam*—cubierto; *ravim*—el Sol; *vilakṣya*—al ver; *vismitaḥ*—muy asombrado; *prāha*—dijo; *hasan*—sonriendo; *tam*—a él; *haṁsa-vāhanaḥ*—el Señor Brahmā, que monta en un avión en forma de cisne.

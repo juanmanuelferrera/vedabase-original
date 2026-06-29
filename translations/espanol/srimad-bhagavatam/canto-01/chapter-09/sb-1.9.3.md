@@ -1,11 +1,11 @@
 ### SB 1.9.3
 
-> भगवानपि विप्रर्षे रथेन सधनञ्जयः ।
+> भगवानपि विप्रर्षे रथेन सधनञ्जयः ।\
 > स तैर्व्यरोचत नृपः कुवेर इव गुह्यकैः ॥३॥
 
-> bhagavān api viprarṣe
-> rathena sa-dhanañjayaḥ
-> sa tair vyarocata nṛpaḥ
+> bhagavān api viprarṣe\
+> rathena sa-dhanañjayaḥ\
+> sa tair vyarocata nṛpaḥ\
 > kuvera iva guhyakaiḥ
 
 *bhagavān*—la Personalidad de Dios (Śrī Kṛṣṇa); *api*—también; *vipra-ṛṣe*—¡oh, sabio entre los *brāhmaṇas*!; *rathena*—en la cuadriga; *sa-dhanañjayaḥ*—con Dhanañjaya (Arjuna); *saḥ*—Él; *taiḥ*—por ellos; *vyarocata*—lucía sumamente aristocrático; *nṛpaḥ*—el rey (Yudhiṣṭhira); *kuvera*—Kuvera, el tesorero de los semidioses; *iva*—como; *guhyakaiḥ*—acompañantes conocidos como *guhyakas*.

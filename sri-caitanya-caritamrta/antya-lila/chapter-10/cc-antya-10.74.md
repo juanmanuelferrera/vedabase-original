@@ -1,9 +1,9 @@
 ### CC Antya 10.74
 
-> এক এক দন্ত যেন পৃথক্ পৃথক্ নড়ে ।
+> এক এক দন্ত যেন পৃথক্ পৃথক্ নড়ে ।\
 > ঐছে নড়ে দন্ত, — যেন ভূমে খসি’ পড়ে ॥৭৪॥
 
-> eka eka danta yena pṛthak pṛthak naḍe
+> eka eka danta yena pṛthak pṛthak naḍe\
 > aiche naḍe danta,—yena bhūme khasi' paḍe
 
 *eka eka*—each and every; *danta*—tooth; *yena*—as if; *pṛthak pṛthak*—separately; *naḍe*—shakes; *aiche*—like that; *naḍe*—shake; *danta*—the teeth; *yena*—as if; *bhūme*—on the ground; *khasi'*—becoming loose; *paḍe*—fall.

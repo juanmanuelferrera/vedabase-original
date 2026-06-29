@@ -1,9 +1,9 @@
 ### CC Madhya 14.242
 
-> জগন্নাথ দেখি’ করেন নর্তন-কীর্তন ।
+> জগন্নাথ দেখি’ করেন নর্তন-কীর্তন ।\
 > নরেন্দ্র জলক্রীড়া করে লঞা ভক্তগণ ॥২৪২॥
 
-> jagannātha dekhi' karena nartana-kīrtana
+> jagannātha dekhi' karena nartana-kīrtana\
 > narendre jala-krīḍā kare lañā bhakta-gaṇa
 
 *jagannātha*—Lord Jagannātha; *dekhi'*—after seeing; *karena*—performs; *nartana-kīrtana*—chanting and dancing; *narendre*—in the lake known as Narendrasarovara; *jala-krīḍā*—sporting in the water; *kare*—performs; *lañā bhakta-gaṇa*—with the devotees.

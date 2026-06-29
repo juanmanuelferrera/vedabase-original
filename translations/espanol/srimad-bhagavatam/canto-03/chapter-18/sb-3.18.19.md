@@ -1,11 +1,11 @@
 ### SB 3.18.19
 
-> तयोः स्पृधोस्तिग्मगदाहताङ्गयोः क्षतास्रवघ्राणविवृद्धमन्य्वोः ।
+> तयोः स्पृधोस्तिग्मगदाहताङ्गयोः क्षतास्रवघ्राणविवृद्धमन्य्वोः ।\
 > विचित्रमार्गांश्चरतोर्जिगीषया व्यभादिलायामिव शुष्मिणोर्मृधः ॥१९॥
 
-> tayoḥ spṛdhos tigma-gadāhatāṅgayoḥ
-> kṣatāsrava-ghrāṇa-vivṛddha-manyvoḥ
-> vicitra-mārgāṁś carator jigīṣayā
+> tayoḥ spṛdhos tigma-gadāhatāṅgayoḥ\
+> kṣatāsrava-ghrāṇa-vivṛddha-manyvoḥ\
+> vicitra-mārgāṁś carator jigīṣayā\
 > vyabhād ilāyām iva śuṣmiṇor mṛdhaḥ
 
 *tayoḥ*—a ellos; *spṛdhoḥ*—los dos combatientes; *tigma*—punzantes; *gadā*—por las mazas; *āhata*—lesionados; *aṅgayoḥ*—sus cuerpos; *kṣata-āsrava*—sangre saliendo de las heridas; *ghrāṇa*—olor; *vivṛddha*—aumentaba; *manyvoḥ*—furor; *vicitra*—de diversos tipos; *mārgān*—tácticas; *caratoḥ*—ejecutando; *jigīṣayā*—con deseo de vencer; *vyabhāt*—hacía recordar; *ilāyām*—disputándose una vaca (la Tierra); *iva*—como; *śuṣmiṇoḥ*—de dos toros; *mṛdhaḥ*—un choque.

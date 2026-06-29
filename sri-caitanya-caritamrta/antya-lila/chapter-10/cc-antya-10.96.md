@@ -1,9 +1,9 @@
 ### CC Antya 10.96
 
-> ‘সেবা’ লাগি’ কোটি ‘অপরাধ’ নাহি গণি  ।
+> ‘সেবা’ লাগি’ কোটি ‘অপরাধ’ নাহি গণি  ।\
 > স্ব-নিমিত্ত ‘অপরাধাভাসে’ ভয় মানি ।।” ৯৬ ॥৯৬॥
 
-> 'sevā' lāgi' koṭi 'aparādha' nāhi gaṇi
+> 'sevā' lāgi' koṭi 'aparādha' nāhi gaṇi\
 > sva-nimitta 'aparādhābhāse' bhaya māni"
 
 *sevā lāgi'*—for the matter of service; *koṭi aparādha*—ten million offenses; *nāhi gaṇi*—I do not care for; *sva-nimitta*—for my personal self; *aparādha-ābhāse*—by a glimpse of an offense; *bhaya māni*—I am afraid.

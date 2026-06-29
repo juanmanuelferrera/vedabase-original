@@ -1,13 +1,13 @@
 ### SB 2.7.25
 
-> वक्षःस्थलस्पर्शरुग्नमहेन्द्रवाह
-> दन्तैर्विडम्बितककुब्जुष ऊढहासम् ।
-> सद्योऽसुभिः सह विनेष्यति दारहर्तुर्
+> वक्षःस्थलस्पर्शरुग्नमहेन्द्रवाह\
+> दन्तैर्विडम्बितककुब्जुष ऊढहासम् ।\
+> सद्योऽसुभिः सह विनेष्यति दारहर्तुर्\
 > विस्फूर्जितैर्धनुष उच्चरतोऽधिसैन्ये ॥२५॥
 
-> vakṣaḥ-sthala-sparśa-rugna-mahendra-vāha-
-> dantair viḍambita-kakubjuṣa ūḍha-hāsam
-> sadyo 'subhiḥ saha vineṣyati dāra-hartur
+> vakṣaḥ-sthala-sparśa-rugna-mahendra-vāha-\
+> dantair viḍambita-kakubjuṣa ūḍha-hāsam\
+> sadyo 'subhiḥ saha vineṣyati dāra-hartur\
 > visphūrjitair dhanuṣa uccarato 'dhisainye
 
 *vakṣaḥ-sthala*—pecho; *sparśa*—tocado por; *rugna*—rota; *mahā-indra*—el rey del cielo; *vāha*—el transportador; *dantaiḥ*—por la trompa; *viḍambita*—iluminó; *kakup-juṣaḥ*—siendo así servidas todas las direcciones; *ūḍha-hāsam*—dominado por la risa; *sadyaḥ*—en un instante; *asubhiḥ*—por la vida; *saha*—juntamente con; *vineṣyati*—fue matado; *dāra-hartuḥ*—de aquel que raptó a la esposa; *visphūrjitaiḥ*—por el zumbido del arco; *dhanuṣaḥ*—arco; *uccarataḥ*—paseando rápidamente; *adhisainye*—en medio de los soldados combatientes de ambos bandos.

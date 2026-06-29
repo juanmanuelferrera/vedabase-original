@@ -1,11 +1,11 @@
 ### SB 3.15.16
 
-> यत्र नैःश्रेयसं नाम वनं कामदुघैर्द्रुमैः ।
+> यत्र नैःश्रेयसं नाम वनं कामदुघैर्द्रुमैः ।\
 > सर्वर्तुश्रीभिर्विभ्राजत्कैवल्यमिव मूर्तिमत् ॥१६॥
 
-> yatra naiḥśreyasaṁ nāma
-> vanaṁ kāma-dughair drumaiḥ
-> sarvartu-śrībhir vibhrājat
+> yatra naiḥśreyasaṁ nāma\
+> vanaṁ kāma-dughair drumaiḥ\
+> sarvartu-śrībhir vibhrājat\
 > kaivalyam iva mūrtimat
 
 *yatra*—en los planetas Vaikuṇṭhas; *naiḥśreyasam*—auspiciosos; *nāma*—llamados; *vanam*—bosques; *kāma-dughaiḥ*—que otorgan deseos; *drumaiḥ*—con árboles; *sarva*—todas; *ṛtu*—estaciones; *śrībhiḥ*—con flores y frutos; *vibhrājat*—espléndidos; *kaivalyam*—espiritual; *iva*—como; *mūrtimat*—personal.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.230
 
-> তোমার বহুত ভাগ্য কত প্ৰশংসিব ।
+> তোমার বহুত ভাগ্য কত প্ৰশংসিব ।\
 > আমি — ভাগ্যবান্, ইহার অবশেষ পাব ॥২৩০॥
 
-> tomāra bahuta bhāgya kata praśaṁsiba
+> tomāra bahuta bhāgya kata praśaṁsiba\
 > āmi—bhāgyavān, ihāra avaśeṣa pāba
 
 *tomāra*—your; *bahuta*—great; *bhāgya*—fortune; *kata*—how much; *praśaṁsiba*—shall I praise; *āmi*—I; *bhāgyavān*—fortunate; *ihāra*—of this; *avaśeṣa*—remnants; *pāba*—shall get.

@@ -1,9 +1,9 @@
 ### CC Madhya 23.124
 
-> তবে মহাপ্ৰভু তাঁর শিরে ধরি’ করে ।
+> তবে মহাপ্ৰভু তাঁর শিরে ধরি’ করে ।\
 > বর দিলা — ‘এই সব স্ফুরুক তোমারে’ ॥১২৪॥
 
-> tabe mahāprabhu tāṅra śire dhari' kare
+> tabe mahāprabhu tāṅra śire dhari' kare\
 > vara dilā'--ei saba sphuruka tomāre'
 
 *tabe*—después de eso; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅra*—de Sanātana Gosvāmī; *śire*—sobre la cabeza; *dhari'*—sosteniendo; *kare*—con la mano; *vara dilā*—otorgó la bendición; *ei saba*—todo esto; *sphuruka tomāre*—que se te manifieste debidamente.

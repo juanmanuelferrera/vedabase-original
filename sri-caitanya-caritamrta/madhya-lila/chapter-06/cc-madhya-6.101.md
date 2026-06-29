@@ -1,11 +1,11 @@
 ### CC Madhya 6.101
 
-> আসন্ বর্ণাস্ত্রয়ো হ্যস্য গৃহ্ণতোঽনুযুগং তনূঃ ।
+> আসন্ বর্ণাস্ত্রয়ো হ্যস্য গৃহ্ণতোঽনুযুগং তনূঃ ।\
 > শুক্লো রক্তস্তথা পীত ইদানীং কৃষ্ণতাং গতঃ ॥১০১॥
 
-> āsan varṇās trayo hy asya
-> gṛhṇato 'nu-yugaṁ tanūḥ
-> śuklo raktas tathā pīta
+> āsan varṇās trayo hy asya\
+> gṛhṇato 'nu-yugaṁ tanūḥ\
+> śuklo raktas tathā pīta\
 > idānīṁ kṛṣṇatāṁ gataḥ
 
 *āsan*—there were; *varṇāḥ*—colors; *trayaḥ*—three; *hi*—indeed; *asya*—of Him; *gṛhṇataḥ*—accepting; *anu-yugam*—according to the age; *tanūḥ*—bodies; *śuklaḥ*—white; *raktaḥ*—red; *tathā*—also; *pītaḥ*—yellow; *idānīm*—at the present moment; *kṛṣṇatām*—blackish; *gataḥ*—has accepted.

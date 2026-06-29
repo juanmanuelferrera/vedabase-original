@@ -1,11 +1,11 @@
 ### SB 6.3.19
 
-> धर्मं तु साक्षाद्भगवत्प्रणीतं न वै विदुरृषयो नापि देवाः
+> धर्मं तु साक्षाद्भगवत्प्रणीतं न वै विदुरृषयो नापि देवाः\
 > न सिद्धमुख्या असुरा मनुष्याः कुतो नु विद्याधरचारणादयः ॥१९॥
 
-> dharmaṁ tu sākṣād bhagavat-praṇītaṁ
-> na vai vidur ṛṣayo nāpi devāḥ
-> na siddha-mukhyā asurā manuṣyāḥ
+> dharmaṁ tu sākṣād bhagavat-praṇītaṁ\
+> na vai vidur ṛṣayo nāpi devāḥ\
+> na siddha-mukhyā asurā manuṣyāḥ\
 > kuto nu vidyādhara-cāraṇādayaḥ
 
 *dharmam*—verdaderos principios religiosos, o leyes genuinas de la religión; *tu*—pero; *sākṣāt*—directamente; *bhagavat*—por la Suprema Personalidad de Dios; *praṇītam*—dictados; *na*—no; *vai*—en verdad; *viduḥ*—conocen; *ṛṣayaḥ*—los grandes*ṛṣis*, como Bhṛgu; *na*—no; *api*—también; *devāḥ*—los semidioses; *na*—no; *siddha-mukhyāḥ*—los principales líderes de Siddhaloka; *asurāḥ*—los demonios; *manuṣyāḥ*—los habitantes de Bhūrloka, los seres humanos; *kutaḥ*—donde; *nu*—en verdad; *vidyādhara*—los semidioses inferiores conocidos con el nombre de *vidyādharas*; *cāraṇa*—los habitantes de los planetas en que las personas son por naturaleza grandes músicos y cantantes; *ādayaḥ*—y demás.

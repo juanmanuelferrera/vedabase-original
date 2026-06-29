@@ -1,9 +1,9 @@
 ### CC Madhya 25.108
 
-> আমার কৃপায় এই সব স্ফুরুক তোমারে ।”
+> আমার কৃপায় এই সব স্ফুরুক তোমারে ।”\
 > এত বলি’ তিন তত্ত্ব কহিলা তাঁহারে ॥১০৮॥
 
-> āmāra kṛpāya ei saba sphuruka tomāre"
+> āmāra kṛpāya ei saba sphuruka tomāre"\
 > eta bali' tina tattva kahilā tāṅhāre
 
 *āmāra*—Mi; *kṛpāya*—por misericordia; *ei saba*—todo esto; *sphuruka tomāre*—que se despierte en ti; *eta bali'*—diciendo esto; *tina tattva*—las tres verdades; *kahilā tāṅhāre*—se las explicó.

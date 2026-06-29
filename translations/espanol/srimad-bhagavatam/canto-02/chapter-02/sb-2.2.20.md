@@ -1,11 +1,11 @@
 ### SB 2.2.20
 
-> नाभ्यां स्थितं हृद्यधिरोप्य तस्मादुदानगत्योरसि तं नयेन्मुनिः ।
+> नाभ्यां स्थितं हृद्यधिरोप्य तस्मादुदानगत्योरसि तं नयेन्मुनिः ।\
 > ततोऽनुसन्धाय धिया मनस्वी स्वतालुमूलं शनकैर्नयेत ॥२०॥
 
-> nābhyāṁ sthitaṁ hṛdy adhiropya tasmād
-> udāna-gatyorasi taṁ nayen muniḥ
-> tato 'nusandhāya dhiyā manasvī
+> nābhyāṁ sthitaṁ hṛdy adhiropya tasmād\
+> udāna-gatyorasi taṁ nayen muniḥ\
+> tato 'nusandhāya dhiyā manasvī\
 > sva-tālu-mūlaṁ śanakair nayeta
 
 *nābhyām*—en el ombligo; *sthitam*—situado; *hṛdi*—en el corazón; *adhiropya*—colocando; *tasmāt*—desde ahí; *udāna*—elevándose; *gatyā*—fuerza; *urasi*—en el pecho; *tam*—después; *nayet*—debe tirar; *muniḥ*—el devoto meditativo; *tataḥ*—a ellos; *anusandhāya*—tan solo para buscar; *dhiyā*—mediante la inteligencia; *manasvī*—el meditativo; *sva-tālu-mūlam*—en la base del paladar; *śanakaiḥ*—lentamente; *nayeta*—pueda ser llevado dentro.

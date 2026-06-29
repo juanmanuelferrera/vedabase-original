@@ -1,11 +1,11 @@
 ### SB 8.19.26
 
-> यदृच्छालाभतुष्टस्य तेजो विप्रस्य वर्धते
+> यदृच्छालाभतुष्टस्य तेजो विप्रस्य वर्धते\
 > तत्प्रशाम्यत्यसन्तोषादम्भसेवाशुशुक्षणिः ॥२६॥
 
-> yadṛcchā-lābha-tuṣṭasya
-> tejo viprasya vardhate
-> tat praśāmyaty asantoṣād
+> yadṛcchā-lābha-tuṣṭasya\
+> tejo viprasya vardhate\
+> tat praśāmyaty asantoṣād\
 > ambhasevāśuśukṣaṇiḥ
 
 *yadṛcchā-lābha-tuṣṭasya*—who is satisfied by things obtained by the grace of God; *tejaḥ*—the brilliant effulgence; *viprasya*—of a *brāhmaṇa*; *vardhate*—increases; *tat*—that (effulgence); *praśāmyati*—is diminished; *asantoṣāt*—because of dissatisfaction; *ambhasā*—by pouring of water; *iva*—as; *āśuśukṣaṇiḥ*—a fire.

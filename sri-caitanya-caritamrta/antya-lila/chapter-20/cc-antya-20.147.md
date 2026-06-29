@@ -1,9 +1,9 @@
 ### CC Antya 20.147
 
-> সবার চরণ-কৃপা — ‘গুরু উপাধ্যায়ী’ ।
+> সবার চরণ-কৃপা — ‘গুরু উপাধ্যায়ী’ ।\
 > মোর বাণী — শিষ্যা, তারে বহুত নাচাই ॥১৪৭॥
 
-> sabāra caraṇa-kṛpā—'guru upādhyāyi'
+> sabāra caraṇa-kṛpā—'guru upādhyāyi'\
 > mora vāṇī—śiṣyā, tāre bahuta nācāi
 
 *sabāra*—of all of them; *caraṇa-kṛpā*—the mercy of the lotus feet; *guru upādhyāyī*—my teacher of Vedic instruction; *mora vāṇī*—my words; *śiṣyā*—the disciples; *tāre*—them; *bahuta nācāi*—I made dance in various ways.

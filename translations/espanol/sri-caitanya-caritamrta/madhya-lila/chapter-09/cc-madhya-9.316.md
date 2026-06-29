@@ -1,9 +1,9 @@
 ### CC Madhya 9.316
 
-> প্রভু আসি’ কৈল পম্পা-সরোবরে স্নান ৷
+> প্রভু আসি’ কৈল পম্পা-সরোবরে স্নান ৷\
 > পঞ্চবটী আসি, তাহাঁ করিল বিশ্রাম ৷৷ ৩১৬ ৷৷ ॥৩১৬॥
 
-> prabhu āsi' kaila pampā-sarovare snāna
+> prabhu āsi' kaila pampā-sarovare snāna\
 > pañcavaṭī āsi, tāhāṅ karila viśrāma
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *āsi'*—llegando; *kaila*—hizo; *pampā-sarovare*—en el lago conocido como Pampā; *snāna*—bañarse; *pañcavaṭī āsi*—luego llegando a Pañcavaṭī; *tāhāṅ*—allí; *karila*—tomó; *viśrāma*—descanso.

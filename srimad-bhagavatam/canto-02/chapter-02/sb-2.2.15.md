@@ -1,11 +1,11 @@
 ### SB 2.2.15
 
-> स्थिरं सुखं चासनमास्थितो यतिर्यदा जिहासुरिममङ्ग लोकम् ।
+> स्थिरं सुखं चासनमास्थितो यतिर्यदा जिहासुरिममङ्ग लोकम् ।\
 > काले च देशे च मनो न सज्जयेत्प्राणान्नियच्छेन्मनसा जितासुः ॥१५॥
 
-> sthiraṁ sukhaṁ cāsanam āsthito yatir
-> yadā jihāsur imam aṅga lokam
-> kāle ca deśe ca mano na sajjayet
+> sthiraṁ sukhaṁ cāsanam āsthito yatir\
+> yadā jihāsur imam aṅga lokam\
+> kāle ca deśe ca mano na sajjayet\
 > prāṇān niyacchen manasā jitāsuḥ
 
 *sthiram*—without being disturbed; *sukham*—comfortable; *ca*—also; *āsanam*—sitting accommodation; *āsthitaḥ*—being situated; *yatiḥ*—the sage; *yadā*—whenever; *jihāsuḥ*—desires to give up; *imam*—this; *aṅga*—O King; *lokam*—this body; *kāle*—in time; *ca*—and; *deśe*—in a proper place; *ca*—also; *manaḥ*—the mind; *na*—not; *sajjayet*—may not be perplexed; *prāṇān*—the senses; *niyacchet*—must control; *manasā*—by the mind; *jita-asuḥ*—conquering the life air.

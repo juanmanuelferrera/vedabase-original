@@ -1,11 +1,11 @@
 ### SB 6.17.13
 
-> एषामनुध्येयपदाब्जयुग्मं जगद्गुरुं मङ्गलमङ्गलं स्वयम
+> एषामनुध्येयपदाब्जयुग्मं जगद्गुरुं मङ्गलमङ्गलं स्वयम\
 > यः क्षत्रबन्धुः परिभूय सूरीन्प्रशास्ति धृष्टस्तदयं हि दण्ड्यः ॥१३॥
 
-> eṣām anudhyeya-padābja-yugmaṁ
-> jagad-guruṁ maṅgala-maṅgalaṁ svayam
-> yaḥ kṣatra-bandhuḥ paribhūya sūrīn
+> eṣām anudhyeya-padābja-yugmaṁ\
+> jagad-guruṁ maṅgala-maṅgalaṁ svayam\
+> yaḥ kṣatra-bandhuḥ paribhūya sūrīn\
 > praśāsti dhṛṣṭas tad ayaṁ hi daṇḍyaḥ
 
 *eṣām*—de todas estas (personalidades excelsas); *anudhyeya*—en los que se debe meditar constantemente; *pada-abja-yugmam*—cuyos dos pies de loto; *jagat-gurum*—el maestro espiritual del mundo entero; *maṅgala-maṅgalam*—la personificación del principio religioso más elevado; *svayam*—él mismo; *yaḥ*—aquel que; *kṣatra-bandhuḥ*—el más bajo de los *kṣatriyas*; *paribhūya*—pasando por encima de; *sūrīn*—los semidioses (como Brahmā y los demás); *paraśāsti*—riñe; *dhṛṣṭaḥ*—sin pudor; *tat*—por lo tanto; *ayam*—esta persona; *hi*—en verdad; *daṇḍhyaḥ*—ser castigada.

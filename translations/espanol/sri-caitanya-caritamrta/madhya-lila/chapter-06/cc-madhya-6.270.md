@@ -1,11 +1,11 @@
 ### CC Madhya 6.270
 
-> সালোক্য-সার্ষ্টি-সামীপ্য সারূপ্যৈকত্বমপ্যুত ৷
+> সালোক্য-সার্ষ্টি-সামীপ্য সারূপ্যৈকত্বমপ্যুত ৷\
 > দীয়মানং ন গৃহ্ণন্তি বিনা মৎ-সেবনং জনাঃ ॥২৭০॥
 
-> sālokya-sārṣṭi-sāmīpya-
-> sārūpyaikatvam apy uta
-> dīyamānaṁ na gṛhṇanti
+> sālokya-sārṣṭi-sāmīpya-\
+> sārūpyaikatvam apy uta\
+> dīyamānaṁ na gṛhṇanti\
 > vinā mat-sevanaṁ janāḥ
 
 *sālokya*—la liberación de vivir en el mismo planeta que el Señor; *sārṣṭi*—poseer opulencias exactamente como las del Señor; *sāmīpya*—asociarse siempre con el Señor; *sārūpya*—obtener un cuerpo como el del Señor; *ekatvam*—fusionarse en el cuerpo del Señor; *api*—aunque; *uta*—se dice; *dīyamānam*—siendo ofrecida; *na*—no; *gṛhṇanti*—aceptan; *vinā*—sin; *mat*—Mi; *sevanam*—servicio; *janāḥ*—los devotos puros.

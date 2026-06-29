@@ -1,13 +1,13 @@
 ### SB 3.10.11
 
-> मैत्रेय उवाच
-> गुणव्यतिकराकारो निर्विशेषोऽप्रतिष्ठितः ।
+> मैत्रेय उवाच\
+> गुणव्यतिकराकारो निर्विशेषोऽप्रतिष्ठितः ।\
 > पुरुषस्तदुपादानमात्मानं लीलयासृजत् ॥११॥
 
-> maitreya uvāca
-> guṇa-vyatikarākāro
-> nirviśeṣo 'pratiṣṭhitaḥ
-> puruṣas tad-upādānam
+> maitreya uvāca\
+> guṇa-vyatikarākāro\
+> nirviśeṣo 'pratiṣṭhitaḥ\
+> puruṣas tad-upādānam\
 > ātmānaṁ līlayāsṛjat
 
 *maitreyaḥ uvāca*—Maitreya dijo; *guṇa-vyatikara*—de las interacciones de las modalidades de la naturaleza material; *ākāraḥ*—fuente; *nirviśeṣaḥ*—sin diversidad; *apratiṣṭhitaḥ*—ilimitado; *puruṣaḥ*—de la Persona Suprema; *tat*—ese; *upādānam*—instrumento; *ātmānam*—la creación material; *līlayā*—mediante pasatiempos; *asṛjat*—creado.

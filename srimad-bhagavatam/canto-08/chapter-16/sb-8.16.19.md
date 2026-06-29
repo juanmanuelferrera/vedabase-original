@@ -1,11 +1,11 @@
 ### SB 8.16.19
 
-> क्व देहो भौतिकोऽनात्मा क्व चात्मा प्रकृतेः परः
+> क्व देहो भौतिकोऽनात्मा क्व चात्मा प्रकृतेः परः\
 > कस्य के पतिपुत्राद्या मोह एव हि कारणम ॥१९॥
 
-> kva deho bhautiko 'nātmā
-> kva cātmā prakṛteḥ paraḥ
-> kasya ke pati-putrādyā
+> kva deho bhautiko 'nātmā\
+> kva cātmā prakṛteḥ paraḥ\
+> kasya ke pati-putrādyā\
 > moha eva hi kāraṇam
 
 *kva*—where is; *dehaḥ*—this material body; *bhautikaḥ*—made of five elements; *anātmā*—not the spirit soul; *kva*—where is; *ca*—also; *ātmā*—the spirit soul; *prakṛteḥ*—to the material world; *paraḥ*—transcendental; *kasya*—of whom; *ke*—who is; *pati*—husband; *putra-ādyāḥ*—or son and so on; *mohaḥ*—illusion; *eva*—indeed; *hi*—certainly; *kāraṇam*—cause.

@@ -2,7 +2,7 @@
 
 > मज्जायाः पङ्क्तिरुत्पन्ना बृहती प्राणतोऽभव ॥४६॥
 
-> majjāyāḥ paṅktir utpannā
+> majjāyāḥ paṅktir utpannā\
 > bṛhatī prāṇato 'bhavat
 
 *majjāyāḥ*—de la médula ósea; *paṅktiḥ*—un tipo determinado de verso; *utpannā*—se manifestó; *bṛhatī*—otro tipo de verso; *prāṇataḥ*—de la respiración vital; *abhavat*—generado.

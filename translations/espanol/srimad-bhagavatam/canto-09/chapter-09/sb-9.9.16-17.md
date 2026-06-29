@@ -1,18 +1,18 @@
 ### SB 9.9.16-17
 
-> श्रुतो भगीरथाज्जज्ञए तस्य नाभोऽपरोऽभवत
-> सिन्धुद्वीपस्ततस्तस्मादयुतायुस्ततोऽभवत ॥१६॥
-> ऋतूपर्णो नलसखो योऽश्वविद्यामयान्नलात
+> श्रुतो भगीरथाज्जज्ञए तस्य नाभोऽपरोऽभवत\
+> सिन्धुद्वीपस्ततस्तस्मादयुतायुस्ततोऽभवत ॥१६॥\
+> ऋतूपर्णो नलसखो योऽश्वविद्यामयान्नलात\
 > दत्त्वाक्षहृदयं चास्मै सर्वकामस्तु तत्सुतम ॥१७॥
 
-> śruto bhagīrathāj jajñe
-> tasya nābho 'paro 'bhavat
-> sindhudvīpas tatas tasmād
+> śruto bhagīrathāj jajñe\
+> tasya nābho 'paro 'bhavat\
+> sindhudvīpas tatas tasmād\
 > ayutāyus tato 'bhavat
 
-> ṛtūparṇo nala-sakho
-> yo 'śva-vidyām ayān nalāt
-> dattvākṣa-hṛdayaṁ cāsmai
+> ṛtūparṇo nala-sakho\
+> yo 'śva-vidyām ayān nalāt\
+> dattvākṣa-hṛdayaṁ cāsmai\
 > sarvakāmas tu tat-sutam
 
 *śrutaḥ*—un hijo llamado Śruta; *bhagīrathāt*—de Bhagīratha; *jajñe*—nació; *tasya*—de Śruta; *nābhaḥ*—llamado Nābha; *aparaḥ*—distinto del Nābha de quien antes se habló; *abhavat*—nació; *sindhudvīpaḥ*—llamado Sindhudvīpa; *tataḥ*—de Nābha; *tasmāt*—de Sindhudvīpa; *ayutāyuḥ*—un hijo llamado Ayutāyu; *tataḥ*—a continuación; *abhavat*—nació; *ṛtūparṇaḥ*—un hijo llamado Ṛtūparṇa; *nala-sakhaḥ*—que era amigo de Nala; *yaḥ*—el que; *aśva-vidyām*—el arte de domar caballos; *ayāt*—obtuvo; *nalāt*—de Nala; *dattvā*—después de dar a cambio; *akṣa-hṛdayam*—los secretos del arte del juego; *ca*—y; *asmai*—a Nala; *sarvakāmaḥ*—llamado Sarvakāma; *tu*—en verdad; *tat-sutam*—su hijo (el hijo de Ṛtūparṇa).

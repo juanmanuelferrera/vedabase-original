@@ -1,9 +1,9 @@
 ### CC Antya 10.32
 
-> ফুট্কলাই চূর্ণ করি’ ঘৃতে ভাজাইল ।
+> ফুট্কলাই চূর্ণ করি’ ঘৃতে ভাজাইল ।\
 > চিনি-পাকে কর্পূরাদি দিয়া নাড়ু কৈল ॥৩২॥
 
-> phuṭkalāi cūrṇa kari' ghṛte bhājāila
+> phuṭkalāi cūrṇa kari' ghṛte bhājāila\
 > cini-pāke karpūrādi diyā nāḍu kaila
 
 *phuṭkalāi*—fused peas fried in ghee and soaked in sugar juice; *cūrṇa kari'*—making into powder; *ghṛte bhājāila*—fried with ghee; *cini-pāke*—cooking with sugar; *karpūra-ādi*—camphor and other ingredients; *diyā*—adding; *nāḍu kaila*—made round sweetmeat balls.

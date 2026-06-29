@@ -1,9 +1,9 @@
 ### CC Madhya 4.107
 
-> মলয়জ আন, যাঞা নীলাচল হৈতে ।
+> মলয়জ আন, যাঞা নীলাচল হৈতে ।\
 > অন্যে হৈতে নহে, তুমি চলহ ত্বরিতে ॥১০৭॥
 
-> malayaja āna, yāñā nīlācala haite
+> malayaja āna, yāñā nīlācala haite\
 > anye haite nahe, tumi calaha tvarite
 
 *malaya-ja*—sandalwood; *āna*—bring; *yāñā*—coming; *nīlācala haite*—from Jagannātha Purī; *anye*—others; *haite*—from; *nahe*—not; *tumi*—you; *calaha*—go; *tvarite*—quickly.

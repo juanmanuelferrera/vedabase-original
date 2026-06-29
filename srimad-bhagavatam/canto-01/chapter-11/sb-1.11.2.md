@@ -1,11 +1,11 @@
 ### SB 1.11.2
 
-> स उच्चकाशे धवलोदरो दरोऽप्युरुक्रमस्याधरशोणशोणिमा ।
+> स उच्चकाशे धवलोदरो दरोऽप्युरुक्रमस्याधरशोणशोणिमा ।\
 > दाध्मायमानः करकञ्जसम्पुटे यथाब्जखण्डे कलहंस उत्स्वनः ॥२॥
 
-> sa uccakāśe dhavalodaro daro
-> 'py urukramasyādharaśoṇa-śoṇimā
-> dādhmāyamānaḥ kara-kañja-sampuṭe
+> sa uccakāśe dhavalodaro daro\
+> 'py urukramasyādharaśoṇa-śoṇimā\
+> dādhmāyamānaḥ kara-kañja-sampuṭe\
 > yathābja-khaṇḍe kala-haṁsa utsvanaḥ
 
 *saḥ*—that; *uccakāśe*—became brilliant; *dhavala-udaraḥ*—white and fat-boweled; *daraḥ*—conchshell; *api*—although it is so; *urukramasya*—of the great adventurer; *adharaśoṇa*—by the transcendental quality of His lips; *śoṇimā*—reddened; *dādhmāyamānaḥ*—being sounded; *kara-kañja-sampuṭe*—being caught by the grip of the lotus hand; *yathā*—as it is; *abja-khaṇḍe*—by the stems of lotus flowers; *kala-haṁsaḥ*—ducking swan; *utsvanaḥ*—loudly sounding.

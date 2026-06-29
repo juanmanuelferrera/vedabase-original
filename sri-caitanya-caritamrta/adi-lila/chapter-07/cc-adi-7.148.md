@@ -1,9 +1,9 @@
 ### CC Adi 7.148
 
-> বেদময়-মূর্তি তুমি, — সাক্ষাৎ নারায়ণ ।
+> বেদময়-মূর্তি তুমি, — সাক্ষাৎ নারায়ণ ।\
 > ক্ষম অপরাধ, — পূর্বে যে কৈলুঁ নিন্দন ॥১৪৮॥
 
-> vedamaya-mūrti tumi,—sākṣāt nārāyaṇa
+> vedamaya-mūrti tumi,—sākṣāt nārāyaṇa\
 > kṣama aparādha,—pūrve ye kailuṅ nindana
 
 *veda-maya*—transformation of the Vedic knowledge; *mūrti*—form; *tumi*—You; *sākṣāt*—directly; *nārāyaṇa*—the Supreme Personality of Godhead; *kṣama*—excuse; *aparādha*—offense; *pūrve*—before; *ye*—that; *kailuṅ*—we have done; *nindana*—criticism.

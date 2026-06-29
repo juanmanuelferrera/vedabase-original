@@ -1,11 +1,11 @@
 ### SB 9.6.11
 
-> पितर्युपरतेऽभ्येत्य विकुक्षिः पृथिवीमिमाम
+> पितर्युपरतेऽभ्येत्य विकुक्षिः पृथिवीमिमाम\
 > शासदीजे हरिं यज्ञऐः शशाद इति विश्रुतः ॥११॥
 
-> pitary uparate 'bhyetya
-> vikukṣiḥ pṛthivīm imām
-> śāsad īje hariṁ yajñaiḥ
+> pitary uparate 'bhyetya\
+> vikukṣiḥ pṛthivīm imām\
+> śāsad īje hariṁ yajñaiḥ\
 > śaśāda iti viśrutaḥ
 
 *pitari*—cuando su padre; *uparate*—al ser liberado del reino; *abhyetya*—habiendo regresado; *vikukṣiḥ*—el hijo llamado Vikukṣi; *pṛthivīm*—el planeta Tierra; *imām*—este; *śāsat*—gobernando; *īje*—adoró; *harim*—a la Suprema Personalidad de Dios; *yajñaiḥ*—con celebraciones de sacrificio; *śaśa-adaḥ*—Śaśāda («el que comió un conejo»); *iti*—así; *viśrutaḥ*—conocido.

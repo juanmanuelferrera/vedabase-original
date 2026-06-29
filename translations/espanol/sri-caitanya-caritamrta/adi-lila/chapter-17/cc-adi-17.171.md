@@ -1,9 +1,9 @@
 ### CC Adi 17.171
 
-> সহজে যবন-শাস্ত্রে অদৃঢ় বিচার ।
+> সহজে যবন-শাস্ত্রে অদৃঢ় বিচার ।\
 > হাসি’ তাহে মহাপ্রভু পুছেন আর বার ॥১৭১॥
 
-> sahaje yavana-śāstre adṛḍha vicāra
+> sahaje yavana-śāstre adṛḍha vicāra\
 > hāsi' tāhe mahāprabhu puchena āra-vāra
 
 *sahaje*—por naturaleza; *yavana-śāstre*—en las Escrituras de los comedores de carne; *adṛḍha*—débil; *vicāra*—razonamiento; *hāsi'*—sonriendo; *tāhe*—de él; *mahāprabhu*—Caitanya Mahāprabhu; *puchena*—preguntó; *āra-vāra*—de nuevo.

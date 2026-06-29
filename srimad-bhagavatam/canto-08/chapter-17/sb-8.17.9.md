@@ -1,13 +1,13 @@
 ### SB 8.17.9
 
-> विश्वाय विश्वभवनस्थितिसंयमाय
-> स्वैरं गृहीतपुरुशक्तिगुणाय भूम्ने
-> स्वस्थाय शश्वदुपबृंहितपूर्णबोध
+> विश्वाय विश्वभवनस्थितिसंयमाय\
+> स्वैरं गृहीतपुरुशक्तिगुणाय भूम्ने\
+> स्वस्थाय शश्वदुपबृंहितपूर्णबोध\
 > व्यापादितात्मतमसे हरये नमस्ते ॥९॥
 
-> viśvāya viśva-bhavana-sthiti-saṁyamāya
-> svairaṁ gṛhīta-puru-śakti-guṇāya bhūmne
-> sva-sthāya śaśvad-upabṛṁhita-pūrṇa-bodha-
+> viśvāya viśva-bhavana-sthiti-saṁyamāya\
+> svairaṁ gṛhīta-puru-śakti-guṇāya bhūmne\
+> sva-sthāya śaśvad-upabṛṁhita-pūrṇa-bodha-\
 > vyāpāditātma-tamase haraye namas te
 
 *viśvāya*—unto the Supreme Personality of Godhead, who is actually the entire universe; *viśva*—of the universe; *bhavana*—creation; *sthiti*—maintenance; *saṁyamāya*—and annihilation; *svairam*—fully independent; *gṛhīta*—taking in hand; *puru*—completely; *śakti-guṇāya*—controlling the three modes of material nature; *bhūmne*—the supreme great; *sva-sthāya*—who is always situated in His original form; *śaśvat*—eternally; *upabṛṁhita*—achieved; *pūrṇa*—complete; *bodha*—knowledge; *vyāpādita*—completely vanquished; *ātma-tamase*—the illusory energy of Your Lordship; *haraye*—unto the Supreme Lord; *namaḥ te*—I offer my respectful obeisances unto You.

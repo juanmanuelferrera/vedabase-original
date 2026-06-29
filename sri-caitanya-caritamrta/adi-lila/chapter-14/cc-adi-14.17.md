@@ -1,9 +1,9 @@
 ### CC Adi 14.17
 
-> এই ত’ করিবে বৈষ্ণব-ধর্মের প্রচার ।
+> এই ত’ করিবে বৈষ্ণব-ধর্মের প্রচার ।\
 > ইহা হৈতে হবে দুই কুলের নিস্তার ॥১৭॥
 
-> ei ta' karibe vaiṣṇava-dharmera pracāra
+> ei ta' karibe vaiṣṇava-dharmera pracāra\
 > ihā haite habe dui kulera nistāra
 
 *ei ta'*—this child; *karibe*—will do; *vaiṣṇava*—of Vaiṣṇavism, or devotional service; *dharmera*—of the religion; *pracāra*—preaching; *ihā haite*—from this; *habe*—there will be; *dui*—two; *kulera*—dynasties; *nistāra*—deliverance.

@@ -1,11 +1,11 @@
 ### SB 4.25.29
 
-> नासां वरोर्वन्यतमा भुविस्पृक्पुरीमिमां वीरवरेण साकम् ।
+> नासां वरोर्वन्यतमा भुविस्पृक्पुरीमिमां वीरवरेण साकम् ।\
 > अर्हस्यलङ्कर्तुमदभ्रकर्मणा लोकं परं श्रीरिव यज्ञपुंसा ॥२९॥
 
-> nāsāṁ varorv anyatamā bhuvi-spṛk
-> purīm imāṁ vīra-vareṇa sākam
-> arhasy alaṅkartum adabhra-karmaṇā
+> nāsāṁ varorv anyatamā bhuvi-spṛk\
+> purīm imāṁ vīra-vareṇa sākam\
+> arhasy alaṅkartum adabhra-karmaṇā\
 > lokaṁ paraṁ śrīr iva yajña-puṁsā
 
 *na*—not; *āsām*—of these; *varoru*—O most fortunate one; *anya-tamā*—anyone; *bhuvi-spṛk*—touching the ground; *purīm*—city; *imām*—this; *vīra-vareṇa*—the great hero; *sākam*—along with; *arhasi*—you deserve; *alaṅkartum*—to decorate; *adabhra*—glorious; *karmaṇā*—whose activities; *lokam*—world; *param*—transcendental; *śrīḥ*—the goddess of fortune; *iva*—like; *yajña-puṁsā*—with the enjoyer of all *yajñas.*

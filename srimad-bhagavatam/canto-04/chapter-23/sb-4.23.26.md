@@ -1,11 +1,11 @@
 ### SB 4.23.26
 
-> सैषा नूनं व्रजत्यूर्ध्वमनु वैन्यं पतिं सती ।
+> सैषा नूनं व्रजत्यूर्ध्वमनु वैन्यं पतिं सती ।\
 > पश्यतास्मानतीत्यार्चिर्दुर्विभाव्येन कर्मणा ॥२६॥
 
-> saiṣā nūnaṁ vrajaty ūrdhvam
-> anu vainyaṁ patiṁ satī
-> paśyatāsmān atītyārcir
+> saiṣā nūnaṁ vrajaty ūrdhvam\
+> anu vainyaṁ patiṁ satī\
+> paśyatāsmān atītyārcir\
 > durvibhāvyena karmaṇā
 
 *sā*—she; *eṣā*—this; *nūnam*—certainly; *vrajati*—going; *ūrdhvam*—upward; *anu*—following; *vainyam*—the son of Vena; *patim*—husband; *satī*—chaste; *paśyata*—just see; *asmān*—us; *atītya*—overpassing; *arciḥ*—of the name Arci; *durvibhāvyena*—by inconceivable; *karmaṇā*—activities.

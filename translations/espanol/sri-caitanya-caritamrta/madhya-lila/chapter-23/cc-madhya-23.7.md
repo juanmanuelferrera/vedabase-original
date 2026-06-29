@@ -1,11 +1,11 @@
 ### CC Madhya 23.7
 
-> সম্যঙ্মসৃণিতস্বান্তো মমত্বাতিশয়াঙ্কিতঃ ।
+> সম্যঙ্মসৃণিতস্বান্তো মমত্বাতিশয়াঙ্কিতঃ ।\
 > ভাবঃ স এব সান্দ্রাত্মা বুধৈঃ প্রেমা নিগদ্যতে ॥৭॥
 
-> samyaṅ masṛṇita-svānto
-> mamatvātiśayāṅkitaḥ
-> bhāvaḥ sa eva sāndrātmā
+> samyaṅ masṛṇita-svānto\
+> mamatvātiśayāṅkitaḥ\
+> bhāvaḥ sa eva sāndrātmā\
 > budhaiḥ premā nigadyate
 
 *samyak*—completamente; *masṛṇita-svāntaḥ*—que hace blando el corazón; *mamatva*—de un sentido de posesión; *atiśaya-aṅkitaḥ*—marcado con abundancia; *bhāvaḥ*—emoción; *saḥ*—eso; *eva*—ciertamente; *sāndra-ātmā*—cuya naturaleza es muy condensada; *budhaiḥ*—por personas eruditas; *premā*—amor por Dios; *nigadyate*—se describe.

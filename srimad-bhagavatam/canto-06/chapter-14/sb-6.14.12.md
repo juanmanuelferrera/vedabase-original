@@ -1,11 +1,11 @@
 ### SB 6.14.12
 
-> रूपौदार्यवयोजन्म विद्यैश्वर्यश्रियादिभिः
+> रूपौदार्यवयोजन्म विद्यैश्वर्यश्रियादिभिः\
 > सम्पन्नस्य गुणैः सर्वैश्चिन्ता बन्ध्यापतेरभूत ॥१२॥
 
-> rūpaudārya-vayo-janma-
-> vidyaiśvarya-śriyādibhiḥ
-> sampannasya guṇaiḥ sarvaiś
+> rūpaudārya-vayo-janma-\
+> vidyaiśvarya-śriyādibhiḥ\
+> sampannasya guṇaiḥ sarvaiś\
 > cintā bandhyā-pater abhūt
 
 *rūpa*—with beauty; *audārya*—magnanimity; *vayaḥ*—youth; *janma*—aristocratic birth; *vidyā*—education; *aiśvarya*—opulence; *śriya-ādibhiḥ*—wealth and so on; *sampannasya*—endowed; *guṇaiḥ*—with good qualities; *sarvaiḥ*—all; *cintā*—anxiety; *bandhyā-pateḥ*—of Citraketu, the husband of so many sterile wives; *abhūt*—there was.

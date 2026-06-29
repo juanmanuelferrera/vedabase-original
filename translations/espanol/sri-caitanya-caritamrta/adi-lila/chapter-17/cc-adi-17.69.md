@@ -1,9 +1,9 @@
 ### CC Adi 17.69
 
-> মুরারিগুপ্ত-মুখে শুনি’ রাম-গুণগ্রাম ।
+> মুরারিগুপ্ত-মুখে শুনি’ রাম-গুণগ্রাম ।\
 > ললাটে লিখিল তাঁর ‘রামদাস’ নাম ॥৬৯॥
 
-> murāri-gupta-mukhe śuni' rāma-guṇa-grāma
+> murāri-gupta-mukhe śuni' rāma-guṇa-grāma\
 > lalāṭe likhila tāṅra 'rāmadāsa' nāma
 
 *murāri-gupta*—de Murāri Gupta; *mukhe*—de la boca; *śuni'*—al escuchar; *rāma*—del Señor Rāmacandra; *guṇa-grāma*—glorias; *lalāṭe*—en la frente; *likhila*—escribió; *tāṅra*—de Murāri Gupta; *rāma-dāsa*—el sirviente eterno del Señor Rāmacandra; *nāma*—el nombre.

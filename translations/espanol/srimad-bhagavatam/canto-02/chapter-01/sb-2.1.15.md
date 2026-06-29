@@ -1,11 +1,11 @@
 ### SB 2.1.15
 
-> अन्तकाले तु पुरुष आगते गतसाध्वसः ।
+> अन्तकाले तु पुरुष आगते गतसाध्वसः ।\
 > छिन्द्यादसङ्गशस्त्रेण स्पृहां देहेऽनु ये च तम् ॥१५॥
 
-> anta-kāle tu puruṣa
-> āgate gata-sādhvasaḥ
-> chindyād asaṅga-śastreṇa
+> anta-kāle tu puruṣa\
+> āgate gata-sādhvasaḥ\
+> chindyād asaṅga-śastreṇa\
 > spṛhāṁ dehe 'nu ye ca tam
 
 *anta-kāle*—en la última etapa de la vida; *tu*—pero; *puruṣaḥ*—una persona; *āgate*—habiendo llegado; *gata-sādhvasaḥ*—sin ningún temor a la muerte; *chindyāt*—debe cortar; *asaṅga*—desapego; *śastreṇa*—con el arma de; *spṛhām*—todos los deseos; *dehe*—en lo referente al tabernáculo material; *anu*—relacionado con; *ye*—todo lo que; *ca*—también; *tam*—ellos.

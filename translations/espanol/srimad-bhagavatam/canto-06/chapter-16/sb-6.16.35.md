@@ -1,11 +1,11 @@
 ### SB 6.16.35
 
-> तव विभवः खलु भगवन्जगदुदयस्थितिलयादीनि
+> तव विभवः खलु भगवन्जगदुदयस्थितिलयादीनि\
 > विश्वसृजस्तेऽंशांशास्तत्र मृषा स्पर्धन्ति पृथगभिमत्या ॥३५॥
 
-> tava vibhavaḥ khalu bhagavan
-> jagad-udaya-sthiti-layādīni
-> viśva-sṛjas te 'ṁśāṁśās
+> tava vibhavaḥ khalu bhagavan\
+> jagad-udaya-sthiti-layādīni\
+> viśva-sṛjas te 'ṁśāṁśās\
 > tatra mṛṣā spardhanti pṛthag abhimatyā
 
 *tava*—Tus; *vibhavaḥ*—opulencias; *khalu*—en verdad; *bhagavan*—¡oh, Suprema Personalidad de Dios!; *jagat*—de la manifestación cósmica; *udaya*—la creación; *sthiti*—sostenimiento; *laya-ādīni*—disolución, etc.; *viśva-sṛjaḥ*—los creadores del mundo manifestado; *te*—ellos; *aṁśa-aṁśāḥ*—partes de Tu porción plenaria; *tatra*—en eso; *mṛṣā*—en vano; *spardhanti*—rivales entre sí; *pṛthak*—de separación; *abhimatyā*—por un concepto falso.

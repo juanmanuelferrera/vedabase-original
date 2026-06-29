@@ -1,13 +1,13 @@
 ### CC Adi 13.105
 
-> সাবিত্রী, গৌরী, সরস্বতী, শচী, রম্ভা, অরুন্ধতী,
-> আর যত দেব-নারীগণ ।
-> নানা-দ্রব্যে পাত্র ভরি’, ব্রাহ্মণীর বেশ ধরি’,
+> সাবিত্রী, গৌরী, সরস্বতী, শচী, রম্ভা, অরুন্ধতী,\
+> আর যত দেব-নারীগণ ।\
+> নানা-দ্রব্যে পাত্র ভরি’, ব্রাহ্মণীর বেশ ধরি’,\
 > আসি’ সবে করে দরশন ॥১০৫॥
 
-> sāvitrī, gaurī, sarasvatī, śacī, rambhā, arundhatī
-> āra yata deva-nārīgaṇa
-> nānā-dravye pātra bhari', brāhmaṇīra veśa dhari',
+> sāvitrī, gaurī, sarasvatī, śacī, rambhā, arundhatī\
+> āra yata deva-nārīgaṇa\
+> nānā-dravye pātra bhari', brāhmaṇīra veśa dhari',\
 > āsi' sabe kare daraśana
 
 *sāvitrī*—the wife of Lord Brahmā; *gaurī*—the wife of Lord Śiva; *sarasvatī*—the wife of Lord Nṛsiṁhadeva; *śacī*—the wife of King Indra; *rambhā*—a dancing girl of heaven; *arundhatī*—the wife of Vasiṣṭha; *āra*—and; *yata*—all; *deva*—celestial; *nārī-gaṇa*—women; *nānā*—varieties; *dravye*—with gifts; *pātra bhari'*—filling up the baskets; *brāhmaṇīra*—in the forms of *brāhmaṇa* ladies; *veśa dhari'*—dressing like that; *āsi'*—coming there; *sabe*—all; *kare*—do; *daraśana*—visit.

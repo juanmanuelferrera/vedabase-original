@@ -1,9 +1,9 @@
 ### CC Antya 5.143
 
-> জরাসন্ধ কহে, — “কৃষ্ণ — পুরুষ-অধম ।
+> জরাসন্ধ কহে, — “কৃষ্ণ — পুরুষ-অধম ।\
 > তোর সঙ্গে না যুঝিমু, “যাহি বন্ধুহন্” ॥১৪৩॥
 
-> jarāsandha kahe,—"kṛṣṇa—puruṣa-adhama
+> jarāsandha kahe,—"kṛṣṇa—puruṣa-adhama\
 > tora saṅge nā yujhimu, "yāhi bandhu-han"
 
 *jarāsandha kahe*—Jarāsandha says; *kṛṣṇa*—Kṛṣṇa; *puruṣa-adhama*—the lowest of human beings; *tora saṅge*—with You; *nā yujhimu*—I shall not fight; *yāhi*—because; *bandhu-han*—killer of Your own relatives.

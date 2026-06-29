@@ -1,9 +1,9 @@
 ### CC Madhya 19.28
 
-> হেনকালে গেল রাজা উড়িয়া মারিতে ।
+> হেনকালে গেল রাজা উড়িয়া মারিতে ।\
 > সনাতনে কহে, — তুমি চল মোর সাথে ॥২৮॥
 
-> hena-kāle gela rājā uḍiyā mārite
+> hena-kāle gela rājā uḍiyā mārite\
 > sanātane kahe,—tumi cala mora sāthe
 
 *hena-kāle*—at this time; *gela*—went; *rājā*—the King; *uḍiyā mārite*—to attack the Orissa province; *sanātane kahe*—he said to Sanātana Gosvāmī; *tumi cala*—you come; *mora sāthe*—along with me.

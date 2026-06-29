@@ -1,9 +1,9 @@
 ### CC Adi 10.48
 
-> তাঁর উপশাখা, — যত কুলীনগ্রামী জন ।
+> তাঁর উপশাখা, — যত কুলীনগ্রামী জন ।\
 > সত্যরাজ-আদি — তাঁর কৃপার ভাজন ॥৪৮॥
 
-> tāṅra upaśākhā--yata kulīna-grāmī jana
+> tāṅra upaśākhā--yata kulīna-grāmī jana\
 > satyarāja-ādi--tāṅra kṛpāra bhājana
 
 *tāṅra upaśākhā*—su subrama; *yata*—todos; *kulīna-grāmī jana*—los habitantes de Kulīna-grāma; *satyarāja*—de nombre Satyarāja; *ādi*—encabezando la lista; *tāṅra*—su; *kṛpāra*—de misericordia; *bhājana*—receptor.

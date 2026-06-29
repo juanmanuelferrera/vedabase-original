@@ -1,11 +1,11 @@
 ### SB 5.13.12
 
-> क्वचित्क्वचित्क्षीणधनस्तु तस्मिन्शय्यासनस्थानविहारहीनः
+> क्वचित्क्वचित्क्षीणधनस्तु तस्मिन्शय्यासनस्थानविहारहीनः\
 > याचन्परादप्रतिलब्धकामः पारक्यदृष्टिर्लभतेऽवमानम ॥१२॥
 
-> kvacit kvacit kṣīṇa-dhanas tu tasmin
-> śayyāsana-sthāna-vihāra-hīnaḥ
-> yācan parād apratilabdha-kāmaḥ
+> kvacit kvacit kṣīṇa-dhanas tu tasmin\
+> śayyāsana-sthāna-vihāra-hīnaḥ\
+> yācan parād apratilabdha-kāmaḥ\
 > pārakya-dṛṣṭir labhate 'vamānam
 
 *kvacit kvacit*—sometimes; *kṣīṇa-dhanaḥ*—becoming bereft of all riches; *tu*—but; *tasmin*—in that forest; *śayyā*—of bedding for lying down; *āsana*—of a sitting place; *sthāna*—of a residential house; *vihāra*—of enjoyment with a family; *hīnaḥ*—being bereft; *yācan*—begging; *parāt*—from others (friends and relatives); *apratilabdha-kāmaḥ*—not getting his desires fulfilled; *pārakya-dṛṣṭiḥ*—becomes greedy for the wealth of others; *labhate*—he obtains; *avamānam*—dishonor.

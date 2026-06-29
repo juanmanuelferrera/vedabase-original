@@ -1,9 +1,9 @@
 ### CC Madhya 18.115
 
-> যেই মূঢ় কহে, — জীব ঈশ্বর হয় ‘সম’ ।
+> যেই মূঢ় কহে, — জীব ঈশ্বর হয় ‘সম’ ।\
 > সেইত ‘পাষণ্ডী’ হয়, দণ্ডে তারে যম ॥১১৫॥
 
-> yei mūḍha kahe,—jīva īśvara haya 'sama'
+> yei mūḍha kahe,—jīva īśvara haya 'sama'\
 > seita 'pāṣaṇḍī' haya, daṇḍe tāre yama
 
 *yei mūḍha*—any foolish person who; *kahe*—says; *jīva*—the living entity; *īśvara*—the supreme controller; *haya*—are; *sama*—equal; *seita*—he; *pāṣaṇḍī haya*—is a first-class atheist; *daṇḍe*—punishes; *tāre*—him; *yama*—the superintendent of death, Yamarāja.

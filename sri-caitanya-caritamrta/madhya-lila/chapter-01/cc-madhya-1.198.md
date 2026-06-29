@@ -1,9 +1,9 @@
 ### CC Madhya 1.198
 
-> মোর কর্ম, মোর হাতে-গলায় বান্ধিয়া ।
+> মোর কর্ম, মোর হাতে-গলায় বান্ধিয়া ।\
 > কু-বিষয়-বিষ্ঠা-গর্তে দিয়াছে ফেলাইয়া ॥১৯৮॥
 
-> mora karma, mora hāte-galāya bāndhiyā
+> mora karma, mora hāte-galāya bāndhiyā\
 > ku-viṣaya-viṣṭhā-garte diyāche phelāiyā
 
 *mora*—our; *karma*—activities; *mora*—our; *hāte*—on the hand; *galāya*—on the neck; *bāndhiyā*—binding; *ku-viṣaya*—of abominable objects of sense gratification; *viṣṭhā*—of the stool; *garte*—in the ditch; *diyāche phelāiyā*—have been thrown.

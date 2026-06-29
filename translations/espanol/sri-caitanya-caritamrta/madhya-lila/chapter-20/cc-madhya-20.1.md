@@ -1,11 +1,11 @@
 ### CC Madhya 20.1
 
-> বন্দেঽনন্তাদ্ভুতৈশ্বর্যং শ্রীচৈতন্যমহাপ্রভুম্ ।
+> বন্দেঽনন্তাদ্ভুতৈশ্বর্যং শ্রীচৈতন্যমহাপ্রভুম্ ।\
 > নীচোঽপি যৎপ্রসাদাৎ স্যাদ্ভক্তিশাস্ত্রপ্রবর্তকঃ ॥১॥
 
-> vande 'nantādbhutaiśvaryaṁ
-> śrī-caitanya-mahāprabhum
-> nīco 'pi yat-prasādāt syād
+> vande 'nantādbhutaiśvaryaṁ\
+> śrī-caitanya-mahāprabhum\
+> nīco 'pi yat-prasādāt syād\
 > bhakti-śāstra-pravartakaḥ
 
 *vande*—ofrezco mis respetuosas reverencias; *ananta*—ilimitadas; *adbhuta*—maravillosas; *aiśvaryam*—poseedor de opulencias; *śrī-caitanya-mahāprabhum*—a Śrī Caitanya Mahāprabhu; *nīcaḥ api*—incluso una persona en la condición más baja de vida; *yat-prasādāt*—por cuya misericordia; *syāt*—puede llegar a ser; *bhakti-śāstra*—de la ciencia del servicio devocional; *pravartakaḥ*—un inaugurador.

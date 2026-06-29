@@ -1,9 +1,9 @@
 ### CC Antya 18.81
 
-> রাধিকাদি গোপীগণ-সঙ্গে একত্র মেলি’ ।
+> রাধিকাদি গোপীগণ-সঙ্গে একত্র মেলি’ ।\
 > যমুনার জলে মহারঙ্গে করেন কেলি ॥৮১॥
 
-> rādhikādi gopī-gaṇa-saṅge ekatra meli'
+> rādhikādi gopī-gaṇa-saṅge ekatra meli'\
 > yamunāra jale mahā-raṅge karena keli
 
 *rādhikā-ādi*—encabezadas por Śrīmatī Rādhārāṇī; *gopī-gaṇa-saṅge*—con las gopīs; *ekatra meli'*—reuniéndose; *yamunāra*—del río Yamunā; *jale*—en el agua; *mahā-raṅge*—con gran regocijo deportivo; *karena keli*—realiza pasatiempos.

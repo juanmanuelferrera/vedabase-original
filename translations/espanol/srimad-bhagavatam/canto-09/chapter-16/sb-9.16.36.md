@@ -1,11 +1,11 @@
 ### SB 9.16.36
 
-> एष वः कुशिका वीरो देवरातस्तमन्वित
+> एष वः कुशिका वीरो देवरातस्तमन्वित\
 > अन्ये चाष्टकहारीत जयक्रतुमदादयः ॥३६॥
 
-> eṣa vaḥ kuśikā vīro
-> devarātas tam anvita
-> anye cāṣṭaka-hārīta-
+> eṣa vaḥ kuśikā vīro\
+> devarātas tam anvita\
+> anye cāṣṭaka-hārīta-\
 > jaya-kratumad-ādayaḥ
 
 *eṣaḥ*—este (Śunaḥśepha); *vaḥ*—como ustedes; *kuśikāḥ*—¡oh, Kuśikas!; *vīraḥ*—hijo mío; *devarātaḥ*—recibe el nombre de Devarāta; *tam*—a él; *anvita*—sencillamente obedezcan; *anye*—otros; *ca*—también; *aṣṭaka*—Aṣṭaka; *hārīta*—Hārīta; *jaya*—Jaya; *kratumat*—Kratumān; *ādayaḥ*—y otros.

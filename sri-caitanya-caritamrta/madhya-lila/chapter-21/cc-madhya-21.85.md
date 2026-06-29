@@ -1,9 +1,9 @@
 ### CC Madhya 21.85
 
-> কোন ব্রহ্মাণ্ড শতকোটি, কোন লক্ষকোটি ।
+> কোন ব্রহ্মাণ্ড শতকোটি, কোন লক্ষকোটি ।\
 > কোন নিযুতকোটি, কোন কোটি-কোটি ॥৮৫॥
 
-> kona brahmāṇḍa śata-koṭi, kona lakṣa-koṭi
+> kona brahmāṇḍa śata-koṭi, kona lakṣa-koṭi\
 > kona niyuta-koṭi, kona koṭi-koṭi
 
 *kona brahmāṇḍa*—some universes; *śata-koṭi*—one billion *yojanas*; *kona*—some; *lakṣa-koṭi*—one trillion *yojanas*; *kona*—some; *niyuta-koṭi*—ten trillion; *kona*—some; *koṭi-koṭi*—one hundred trillion.

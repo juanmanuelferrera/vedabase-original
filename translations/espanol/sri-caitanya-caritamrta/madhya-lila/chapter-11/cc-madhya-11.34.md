@@ -1,9 +1,9 @@
 ### CC Madhya 11.34
 
-> cāri gosāñira kaila rāya caraṇa vandana
+> cāri gosāñira kaila rāya caraṇa vandana\
 > yathā-yogya saba bhaktera karila milana
 
-> cāri gosāñira kaila rāya caraṇa vandana
+> cāri gosāñira kaila rāya caraṇa vandana\
 > yathā-yogya saba bhaktera karila milana
 
 *cāri gosāñira*—de los cuatro gosāñis, o maestros espirituales; *kaila*—realizó; *rāya*—Rāmānanda Rāya; *caraṇa vandana*—adorar los pies de loto; *yathā-yogya*—como es apropiado; *saba*—todos; *bhaktera*—de los devotos; *karila*—realizó; *milana*—encuentro.

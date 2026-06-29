@@ -1,9 +1,9 @@
 ### CC Madhya 3.115
 
-> এই পদ গাওয়াইয়া হর্ষে করেন নর্তন ৷
+> এই পদ গাওয়াইয়া হর্ষে করেন নর্তন ৷\
 > স্বেদ-কম্প-পুলকাশ্রু-হুঙ্কার-গর্জন ॥১১৫॥
 
-> ei pada gāoyāiyā harṣe karena nartana
+> ei pada gāoyāiyā harṣe karena nartana\
 > sveda-kampa-pulakāśru-huṅkāra-garjana
 
 *ei pada*—este verso; *gāoyāiyā*—haciendo cantar; *harṣe*—con placer; *karena*—hace; *nartana*—danza; *sveda*—transpiración; *kampa*—temblor; *pulaka*—erizamiento del vello; *aśru*—lágrimas de placer; *huṅkāra*—estruendo; *garjana*—bramidos.

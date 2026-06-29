@@ -1,11 +1,11 @@
 ### SB 5.10.20
 
-> स वै भवा लोकनिरीक्षणार्थमव्यक्तलिङ्गो विचरत्यपि स्वित
+> स वै भवा लोकनिरीक्षणार्थमव्यक्तलिङ्गो विचरत्यपि स्वित\
 > योगेश्वराणां गतिमन्धबुद्धिः कथं विचक्षीत गृहानुबन्धः ॥२०॥
 
-> sa vai bhavāḹ loka-nirīkṣaṇārtham
-> avyakta-liṅgo vicaraty api svit
-> yogeśvarāṇāṁ gatim andha-buddhiḥ
+> sa vai bhavāḹ loka-nirīkṣaṇārtham\
+> avyakta-liṅgo vicaraty api svit\
+> yogeśvarāṇāṁ gatim andha-buddhiḥ\
 > kathaṁ vicakṣīta gṛhānubandhaḥ
 
 *saḥ*—esa Suprema Personalidad de Dios, o Su encarnación, Kapiladeva; *vai*—en verdad; *bhavān*—Tu Gracia; *loka-nirīkṣaṇa-artham*—simplemente para estudiar las costumbres de la gente del mundo; *avyakta-liṅgaḥ*—sin manifestar tu verdadera identidad; *vicarati*—viajas por el mundo; *api svit*—si; *yoga-īśvarāṇām*—de todos los *yogīs* avanzados; *gatim*—las características o el verdadero comportamiento; *andha-buddhiḥ*—que están bajo la influencia de la ilusión y son ciegos en cuanto a conocimiento espiritual; *katham*—cómo; *vicakṣīta*—puedo saber; *gṛha-anubandhaḥ*—yo, que estoy atado por el apego a la vida familiar, la vida mundana.

@@ -1,11 +1,11 @@
 ### SB 2.5.33
 
-> तदा संहत्य चान्योन्यं भगवच्छक्तिचोदिताः ।
+> तदा संहत्य चान्योन्यं भगवच्छक्तिचोदिताः ।\
 > सदसत्त्वमुपादाय चोभयं ससृजुर्ह्यदः ॥३३॥
 
-> tadā saṁhatya cānyonyaṁ
-> bhagavac-chakti-coditāḥ
-> sad-asattvam upādāya
+> tadā saṁhatya cānyonyaṁ\
+> bhagavac-chakti-coditāḥ\
+> sad-asattvam upādāya\
 > cobhayaṁ sasṛjur hy adaḥ
 
 *tadā*—todos esos; *saṁhatya*—siendo ensamblados; *ca*—también; *anyonyam*—uno con el otro; *bhagavat*—por la Personalidad de Dios; *śakti*—energía; *coditāḥ*—siendo aplicada; *sat-asattvam*—en primer y segundo lugar; *upādāya*—aceptando; *ca*—también; *ubhayam*—ambas; *sasṛjuḥ*—empezaron a existir; *hi*—ciertamente; *adaḥ*—este universo.

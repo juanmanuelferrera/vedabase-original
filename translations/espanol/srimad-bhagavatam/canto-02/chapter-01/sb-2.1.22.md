@@ -1,13 +1,13 @@
 ### SB 2.1.22
 
-> राजोवाच
-> यथा सन्धार्यते ब्रह्मन्धारणा यत्र सम्मता ।
+> राजोवाच\
+> यथा सन्धार्यते ब्रह्मन्धारणा यत्र सम्मता ।\
 > यादृशी वा हरेदाशु पुरुषस्य मनोमलम् ॥२२॥
 
-> rājovāca
-> yathā sandhāryate brahman
-> dhāraṇā yatra sammatā
-> yādṛśī vā hared āśu
+> rājovāca\
+> yathā sandhāryate brahman\
+> dhāraṇā yatra sammatā\
+> yādṛśī vā hared āśu\
 > puruṣasya mano-malam
 
 *rājā uvāca*—el afortunado rey dijo; *yathā*—tal como es; *sandhāryate*—se crea el concepto; *Brahman*—¡oh, *brāhmaṇa*!; *dhāraṇā*—el concepto; *yatra*—dónde y cómo; *sammatā*—en resumen; *yādṛśī*—el medio por el cual; *vā*—o; *haret*—quitado; *āśu*—sin demora; *puruṣasya*—de una persona; *manaḥ*—de la mente; *malam*—cosas sucias.

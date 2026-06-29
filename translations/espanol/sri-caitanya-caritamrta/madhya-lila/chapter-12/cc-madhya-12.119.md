@@ -1,9 +1,9 @@
 ### CC Madhya 12.119
 
-> তবে প্রক্ষালন কৈল শ্রীজগমোহন ।
+> তবে প্রক্ষালন কৈল শ্রীজগমোহন ।\
 > ভোগমন্দির-আদি তবে কৈল প্রক্ষালন ॥১১৯॥
 
-> tabe prakṣālana kaila śrī-jagamohana
+> tabe prakṣālana kaila śrī-jagamohana\
 > bhoga-mandira-ādi tabe kaila prakṣālana
 
 *tabe*—después; *prakṣālana*—lavado; *kaila*—realizó; *śrī-jagamohana*—el área delante del templo; *bhoga-mandira*—el lugar donde se ofrece comida; *ādi*—y demás lugares; *tabe*—entonces; *kaila prakṣālana*—lavaron.

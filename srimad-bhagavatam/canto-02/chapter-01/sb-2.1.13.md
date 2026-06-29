@@ -1,11 +1,11 @@
 ### SB 2.1.13
 
-> खट्वाङ्गो नाम राजर्षिर्ज्ञात्वेयत्तामिहायुषः ।
+> खट्वाङ्गो नाम राजर्षिर्ज्ञात्वेयत्तामिहायुषः ।\
 > मुहूर्तात्सर्वमुत्सृज्य गतवानभयं हरिम् ॥१३॥
 
-> khaṭvāṅgo nāma rājarṣir
-> jñātveyattām ihāyuṣaḥ
-> muhūrtāt sarvam utsṛjya
+> khaṭvāṅgo nāma rājarṣir\
+> jñātveyattām ihāyuṣaḥ\
+> muhūrtāt sarvam utsṛjya\
 > gatavān abhayaṁ harim
 
 *khaṭvāṅgaḥ*—King Khaṭvāṅga; *nāma*—name; *rāja-ṛṣiḥ*—saintly king; *jñātvā*—by knowing; *iyattām*—duration; *iha*—in this world; *āyuṣaḥ*—of one's life; *muhūrtāt*—within only a moment; *sarvam*—everything; *utsṛjya*—leaving aside; *gatavān*—had undergone; *abhayam*—fully safe; *harim*—the Personality of Godhead.

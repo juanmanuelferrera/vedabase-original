@@ -1,9 +1,9 @@
 ### CC Madhya 1.263
 
-> তবে ত’ বল্লভ ভট্ট প্রভুরে মিলিলা ।
+> তবে ত’ বল্লভ ভট্ট প্রভুরে মিলিলা ।\
 > কৃষ্ণনামের অর্থ প্রভু তাঁহারে কহিলা ॥২৬৩॥
 
-> tabe ta' vallabha bhaṭṭa prabhure mililā
+> tabe ta' vallabha bhaṭṭa prabhure mililā\
 > kṛṣṇa-nāmera artha prabhu tāṅhāre kahilā
 
 *tabe ta'*—después de eso; *vallabha bhaṭṭa*—de nombre Vallabha Bhaṭṭa; *prabhure*—al Señor Śrī Caitanya Mahāprabhu; *mililā*—conoció; *kṛṣṇa-nāmera*—del santo nombre de Kṛṣṇa; *artha*—significado; *prabhu*—el Señor; *tāṅhāre*—a él; *kahilā*—explicó.

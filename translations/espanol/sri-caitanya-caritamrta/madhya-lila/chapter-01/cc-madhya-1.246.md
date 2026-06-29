@@ -1,9 +1,9 @@
 ### CC Madhya 1.246
 
-> ছয় বৎসর ঐছে প্রভু করিলা বিলাস ।
+> ছয় বৎসর ঐছে প্রভু করিলা বিলাস ।\
 > কভু ইতি-উতি, কভু ক্ষেত্রবাস ॥২৪৬॥
 
-> chaya vatsara aiche prabhu karilā vilāsa
+> chaya vatsara aiche prabhu karilā vilāsa\
 > kabhu iti-uti, kabhu kṣetra-vāsa
 
 *chaya vatsara*—seis años; *aiche*—de esa manera; *prabhu*—el Señor; *karilā*—realizó; *vilāsa*—pasatiempos; *kabhu*—a veces; *iti-uti*—aquí y allá; *kabhu*—a veces; *kṣetra-vāsa*—residiendo en Jagannātha Purī.

@@ -1,9 +1,9 @@
 ### CC Antya 11.98
 
-> ‘জয় জয় হরিদাস’ বলি’ কর হরিধ্বনি” ।
+> ‘জয় জয় হরিদাস’ বলি’ কর হরিধ্বনি” ।\
 > এত বলি’ মহাপ্রভু নাচেন আপনি ॥৯৮॥
 
-> 'jaya jaya haridāsa' bali' kara hari-dhvani"
+> 'jaya jaya haridāsa' bali' kara hari-dhvani"\
 > eta bali' mahāprabhu nācena āpani
 
 *jaya jaya*—¡todas las glorias!; *haridāsa*—a Haridāsa Ṭhākura; *bali'*—diciendo; *kara hari-dhvani*—canten el santo nombre del Señor; *eta bali'*—diciendo esto; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *nācena*—danza; *āpani*—personalmente.

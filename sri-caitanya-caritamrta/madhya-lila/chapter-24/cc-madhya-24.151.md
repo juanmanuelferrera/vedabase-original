@@ -1,11 +1,11 @@
 ### CC Madhya 24.151
 
-> “সরূপাণামেকশেষ একবিভক্তৌ” ।
-> উক্তার্থানামপ্ৰয়োগঃ ।
+> “সরূপাণামেকশেষ একবিভক্তৌ” ।\
+> উক্তার্থানামপ্ৰয়োগঃ ।\
 > রামশ্চ রামশ্চ রামশ্চ রামা ইতিবত্ ॥১৫১॥
 
-> "sarūpāṇām eka-śeṣa eka-vibhaktau"
-> uktārthānām aprayogaḥ
+> "sarūpāṇām eka-śeṣa eka-vibhaktau"\
+> uktārthānām aprayogaḥ\
 > rāmaś ca rāmaś ca rāmaś ca rāmā itivat
 
 *sa-rūpāṇām*—of words of the same form; *eka-śeṣaḥ*—only the last; *eka-vibhaktau*—in the same case; *ukta-arthānām*—of the previously spoken meanings; *aprayogaḥ*—nonapplication; *rāmaḥ ca*—and Rāma; *rāmaḥ ca*—and Rāma; *rāmaḥ ca*—and Rāma; *rāmāḥ itivat*—in this way, by one *rāma,* many *rāmas* are indicated.

@@ -1,11 +1,11 @@
 ### SB 3.10.14
 
-> सर्गो नवविधस्तस्य प्राकृतो वैकृतस्तु यः ।
+> सर्गो नवविधस्तस्य प्राकृतो वैकृतस्तु यः ।\
 > कालद्रव्यगुणैरस्य त्रिविधः प्रतिसङ्क्रमः ॥१४॥
 
-> sargo nava-vidhas tasya
-> prākṛto vaikṛtas tu yaḥ
-> kāla-dravya-guṇair asya
+> sargo nava-vidhas tasya\
+> prākṛto vaikṛtas tu yaḥ\
+> kāla-dravya-guṇair asya\
 > tri-vidhaḥ pratisaṅkramaḥ
 
 *sargaḥ*—creación; *nava-vidhaḥ*—de nueve diferentes clases; *tasya*—su; *prākṛtaḥ*—material; *vaikṛtaḥ*—por las modalidades de la naturaleza material; *tu*—pero; *yaḥ*—aquello que; *kāla*—tiempo eterno; *dravya*—materia; *guṇaiḥ*—cualidades; *asya*—su; *tri-vidhaḥ*—tres clases; *pratisaṅkramaḥ*—aniquilación.

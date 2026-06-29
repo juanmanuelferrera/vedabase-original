@@ -1,9 +1,9 @@
 ### CC Madhya 16.200
 
-> তাঁরে বিদায় দিল প্রভু সেই গ্রাম হৈতে ।
+> তাঁরে বিদায় দিল প্রভু সেই গ্রাম হৈতে ।\
 > সে-কালে তাঁর প্রেম-চেষ্টা না পারি বর্ণিতে ॥২০০॥
 
-> tāṅre vidāya dila prabhu sei grāma haite
+> tāṅre vidāya dila prabhu sei grāma haite\
 > se-kāle tāṅra prema-ceṣṭā nā pāri varṇite
 
 *tāṅre*—al gobernador; *vidāya dila*—Se despidió; *prabhu*—Śrī Caitanya Mahāprabhu; *sei grāma haite*—desde la aldea conocida como Pichaldā; *se-kāle*—en aquellos tiempos; *tāṅra*—sus; *prema-ceṣṭā*—actividades en amor extático; *nā pāri*—no soy capaz; *varṇite*—de describir.

@@ -1,11 +1,11 @@
 ### SB 1.4.32
 
-> तस्यैवं खिलमात्मानं मन्यमानस्य खिद्यतः ।
+> तस्यैवं खिलमात्मानं मन्यमानस्य खिद्यतः ।\
 > कृष्णस्य नारदोऽभ्यागादाश्रमं प्रागुदाहृतम् ॥३२॥
 
-> tasyaivaṁ khilam ātmānaṁ
-> manyamānasya khidyataḥ
-> kṛṣṇasya nārado 'bhyāgād
+> tasyaivaṁ khilam ātmānaṁ\
+> manyamānasya khidyataḥ\
+> kṛṣṇasya nārado 'bhyāgād\
 > āśramaṁ prāg udāhṛtam
 
 *tasya*—su; *evam*—así pues; *khilam*—inferior; *ātmānam*—alma; *manyamānasya*—pensando para si; *khidyataḥ*—lamentando; *kṛṣṇasya*—de Kṛṣṇa-dvaipāyana Vyāsa; *nāradaḥ abhyāgāt*—Nārada llegó allí; *āśramam*—la cabaña; *prāk*—antes; *udāhṛtam*—dijo.

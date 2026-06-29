@@ -1,9 +1,9 @@
 ### CC Antya 7.163
 
-> পণ্ডিতের ভাব-মুদ্রা কহন না যায় ।
+> পণ্ডিতের ভাব-মুদ্রা কহন না যায় ।\
 > ‘গদাধর-প্রাণনাথ’ নাম হৈল যায় ॥১৬৩॥
 
-> paṇḍitera bhāva-mudrā kahana nā yāya
+> paṇḍitera bhāva-mudrā kahana nā yāya\
 > 'gadādhara-prāṇa-nātha' nāma haila yāya
 
 *paṇḍitera*—de Gadādhara Paṇḍita; *bhāva-mudrā*—características y amor extático; *kahana nā yāya*—no se pueden describir; *gadādhara-prāṇa-nātha*—el Señor de la vida de Gadādhara; *nāma*—nombre; *haila*—se convirtió en; *yāya*—va.

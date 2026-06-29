@@ -1,9 +1,9 @@
 ### CC Adi 1.81
 
-> স্বয়ংরূপ কৃষ্ণের কায়ব্যূহ — তাঁর সম।
+> স্বয়ংরূপ কৃষ্ণের কায়ব্যূহ — তাঁর সম।\
 > ভক্ত সহিতে হয় তাঁহার আবরণ ॥৮১॥
 
-> svayaṁ-rūpa kṛṣṇera kāya-vyūha--tāṅra sama
+> svayaṁ-rūpa kṛṣṇera kāya-vyūha--tāṅra sama\
 > bhakta sahite haya tāṅhāra āvaraṇa
 
 *svayam-rūpa*—Su propia forma original (Kṛṣṇa con dos brazos); *kṛṣṇera*—del Señor Kṛṣṇa; *kāya-vyūha*—expansiones personales; *tāṅra*—con Él; *sama*—igual; *bhakta*—los devotos; *sahite*—asociados con; *haya*—son; *tāṅhāra*—Su; *āvaraṇa*—acompañamiento.

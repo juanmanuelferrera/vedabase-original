@@ -1,11 +1,11 @@
 ### SB 7.7.48
 
-> तस्मादर्थाश्च कामाश्च धर्माश्च यदपाश्रयाः
+> तस्मादर्थाश्च कामाश्च धर्माश्च यदपाश्रयाः\
 > भजतानीहयात्मानमनीहं हरिमीश्वरम ॥४८॥
 
-> tasmād arthāś ca kāmāś ca
-> dharmāś ca yad-apāśrayāḥ
-> bhajatānīhayātmānam
+> tasmād arthāś ca kāmāś ca\
+> dharmāś ca yad-apāśrayāḥ\
+> bhajatānīhayātmānam\
 > anīhaṁ harim īśvaram
 
 *tasmāt*—therefore; *arthāḥ*—ambitions for economic development; *ca*—and; *kāmāḥ*—ambitions for satisfaction of the senses; *ca*—also; *dharmāḥ*—duties of religion; *ca*—and; *yat*—upon whom; *apāśrayāḥ*—dependent; *bhajata*—worship; *anīhayā*—without desire for them; *ātmānam*—the Supersoul; *anīham*—indifferent; *harim*—the Supreme Personality of Godhead; *īśvaram*—the Lord.

@@ -1,9 +1,9 @@
 ### CC Adi 17.211
 
-> কৃষ্ণের কীর্তন করে নীচ বাড় বাড় ।
+> কৃষ্ণের কীর্তন করে নীচ বাড় বাড় ।\
 > এই পাপে নবদ্বীপ হইবে উজাড় ॥২১১॥
 
-> kṛṣṇera kīrtana kare nīca bāḍa bāḍa
+> kṛṣṇera kīrtana kare nīca bāḍa bāḍa\
 > ei pāpe navadvīpa ha-ibe ujāḍa
 
 *kṛṣṇera*—of Lord Kṛṣṇa; *kīrtana*—chanting; *kare*—does; *nīca*—lower class; *bāḍa bāḍa*—again and again; *ei pāpe*—by this sin; *navadvīpa*—the whole city of Navadvīpa; *ha-ibe*—will become; *ujāḍa*—deserted.

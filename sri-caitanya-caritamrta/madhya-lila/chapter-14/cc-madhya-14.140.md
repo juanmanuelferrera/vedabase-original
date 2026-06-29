@@ -1,9 +1,9 @@
 ### CC Madhya 14.140
 
-> প্রভু কহে, — কহ ব্রজের মানের প্রকার ।
+> প্রভু কহে, — কহ ব্রজের মানের প্রকার ।\
 > স্বরূপ কহে, — গোপীমান-নদী শতধার ॥১৪০॥
 
-> prabhu kahe,-kaha vrajera mānera prakāra
+> prabhu kahe,-kaha vrajera mānera prakāra\
 > svarūpa kahe,-gopī-māna-nadī śata-dhāra
 
 *prabhu kahe*—the Lord said; *kaha*—please tell; *vrajera*—of Vṛndāvana; *mānera*—of the egoistic pride; *prakāra*—the varieties; *svarūpa kahe*—Svarūpa Dāmodara replied; *gopī-māna*—the pride of the *gopīs*; *nadī*—like a river; *śata-dhāra*—with hundreds of branches.

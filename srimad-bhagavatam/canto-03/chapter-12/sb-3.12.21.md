@@ -1,11 +1,11 @@
 ### SB 3.12.21
 
-> अथाभिध्यायतः सर्गं दश पुत्राः प्रजज्ञिरे ।
+> अथाभिध्यायतः सर्गं दश पुत्राः प्रजज्ञिरे ।\
 > भगवच्छक्तियुक्तस्य लोकसन्तानहेतवः ॥२१॥
 
-> athābhidhyāyataḥ sargaṁ
-> daśa putrāḥ prajajñire
-> bhagavac-chakti-yuktasya
+> athābhidhyāyataḥ sargaṁ\
+> daśa putrāḥ prajajñire\
+> bhagavac-chakti-yuktasya\
 > loka-santāna-hetavaḥ
 
 *atha*—thus; *abhidhyāyataḥ*—while thinking of; *sargam*—creation; *daśa*—ten; *putrāḥ*—sons; *prajajñire*—were begotten; *bhagavat*—regarding the Personality of Godhead; *śakti*—potency; *yuktasya*—empowered with; *loka*—the world; *santāna*—generation; *hetavaḥ*—the causes.

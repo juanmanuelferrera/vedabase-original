@@ -1,11 +1,11 @@
 ### SB 3.33.15
 
-> प्रजापतेः कर्दमस्य तपोयोगविजृम्भितम् ।
+> प्रजापतेः कर्दमस्य तपोयोगविजृम्भितम् ।\
 > स्वगार्हस्थ्यमनौपम्यं प्रार्थ्यं वैमानिकैरपि ॥१५॥
 
-> prajāpateḥ kardamasya
-> tapo-yoga-vijṛmbhitam
-> sva-gārhasthyam anaupamyaṁ
+> prajāpateḥ kardamasya\
+> tapo-yoga-vijṛmbhitam\
+> sva-gārhasthyam anaupamyaṁ\
 > prārthyaṁ vaimānikair api
 
 *prajā-pateḥ*—del progenitor de la humanidad; *kardamasya*—Kardama Muni; *tapaḥ*—mediante la austeridad; *yoga*—mediante el *yoga*; *vijṛmbhitam*—enriquecidos; *sva-gārhasthyam*—su hogar y ajuar doméstico; *anaupamyam*—sin igual; *prārthyam*—envidiable; *vaimānikaiḥ*—por los ciudadanos del cielo; *api*—incluso.

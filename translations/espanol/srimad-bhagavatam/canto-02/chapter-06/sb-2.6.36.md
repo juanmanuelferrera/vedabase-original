@@ -1,11 +1,11 @@
 ### SB 2.6.36
 
-> नतोऽस्म्यहं तच्चरणं समीयुषां भवच्छिदं स्वस्त्ययनं सुमङ्गलम् ।
+> नतोऽस्म्यहं तच्चरणं समीयुषां भवच्छिदं स्वस्त्ययनं सुमङ्गलम् ।\
 > यो ह्यात्ममायाविभवं स्म पर्यगाद्यथा नभः स्वान्तमथापरे कुतः ॥३६॥
 
-> nato 'smy ahaṁ tac-caraṇaṁ samīyuṣāṁ
-> bhavac-chidaṁ svasty-ayanaṁ sumaṅgalam
-> yo hy ātma-māyā-vibhavaṁ sma paryagād
+> nato 'smy ahaṁ tac-caraṇaṁ samīyuṣāṁ\
+> bhavac-chidaṁ svasty-ayanaṁ sumaṅgalam\
+> yo hy ātma-māyā-vibhavaṁ sma paryagād\
 > yathā nabhaḥ svāntam athāpare kutaḥ
 
 *nataḥ*—permítaseme ofrecer mis reverencias; *asmi*—estoy; *aham*—yo; *tat*—del Señor; *caraṇam*—pies; *samīyuṣām*—del alma rendida; *bhava-chidam*—aquello que detiene la repetición del nacimiento y la muerte; *svasty-ayanam*—la percepción de una felicidad total; *su-maṅgalam*—plenamente auspicioso; *yaḥ*—aquel que; *hi*—exactamente; *ātma-māyā*—energías personales; *vibhavam*—potencia; *sma*—ciertamente; *paryagāt*—no puede calcular; *yathā*—tal como; *nabhaḥ*—el cielo; *sva-antam*—su propio límite; *atha*—por lo tanto; *apare*—otros; *kutaḥ*—cómo.

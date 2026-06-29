@@ -1,13 +1,13 @@
 ### SB 4.9.29
 
-> मैत्रेय उवाच
-> मातुः सपत्न्या वाग्बाणैर्हृदि विद्धस्तु तान्स्मरन् ।
+> मैत्रेय उवाच\
+> मातुः सपत्न्या वाग्बाणैर्हृदि विद्धस्तु तान्स्मरन् ।\
 > नैच्छन्मुक्तिपतेर्मुक्तिं तस्मात्तापमुपेयिवान् ॥२९॥
 
-> maitreya uvāca
-> mātuḥ sapatnyā vāg-bāṇair
-> hṛdi viddhas tu tān smaran
-> naicchan mukti-pater muktiṁ
+> maitreya uvāca\
+> mātuḥ sapatnyā vāg-bāṇair\
+> hṛdi viddhas tu tān smaran\
+> naicchan mukti-pater muktiṁ\
 > tasmāt tāpam upeyivān
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya respondió; *mātuḥ*—de su madre; *sa-patnyāḥ*—de la coesposa; *vāk-bāṇaiḥ*—con las flechas de las ingratas palabras; *hṛdi*—en el corazón; *viddhaḥ*—herido; *tu*—entonces; *tān*—todas ellas; *smaran*—recordando; *na*—no; *aicchat*—deseó; *mukti-pateḥ*—del Señor, cuyos pies de loto dan liberación; *muktim*—salvación; *tasmāt*—por lo tanto; *tāpam*—dolor; *upeyivān*—sufrió.

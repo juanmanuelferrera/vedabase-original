@@ -1,11 +1,11 @@
 ### SB 2.10.28
 
-> आसिसृप्सोः पुरः पुर्या नाभिद्वारमपानतः ।
+> आसिसृप्सोः पुरः पुर्या नाभिद्वारमपानतः ।\
 > तत्रापानस्ततो मृत्युः पृथक्त्वमुभयाश्रयम् ॥२८॥
 
-> āsisṛpsoḥ puraḥ puryā
-> nābhi-dvāram apānataḥ
-> tatrāpānas tato mṛtyuḥ
+> āsisṛpsoḥ puraḥ puryā\
+> nābhi-dvāram apānataḥ\
+> tatrāpānas tato mṛtyuḥ\
 > pṛthaktvam ubhayāśrayam
 
 *āsisṛpsoḥ*—deseando ir a todas partes; *puraḥ*—en diferentes cuerpos; *puryāḥ*—de un cuerpo; *nābhi-dvāram*—el ombligo o agujero abdominal; *apānataḥ*—se manifestó; *tatra*—después de eso; *apānaḥ*—detención de la fuerza vital; *tataḥ*—después de eso; *mṛtyuḥ*—muerte; *pṛthaktvam*—separadamente; *ubhaya*—ambas; *āśrayam*—refugio.

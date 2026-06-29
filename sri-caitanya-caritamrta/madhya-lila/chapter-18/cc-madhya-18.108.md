@@ -1,9 +1,9 @@
 ### CC Madhya 18.108
 
-> কিন্তু কাহোঁ ‘কৃষ্ণ’ দেখে, কাহোঁ ‘ভ্রম’ মানে ।
+> কিন্তু কাহোঁ ‘কৃষ্ণ’ দেখে, কাহোঁ ‘ভ্রম’ মানে ।\
 > স্থাণু-পুরুষে যৈছে বিপরীত-জ্ঞানে ॥১০৮॥
 
-> kintu kāhoṅ 'kṛṣṇa' dekhe, kāhoṅ 'bhrama' māne
+> kintu kāhoṅ 'kṛṣṇa' dekhe, kāhoṅ 'bhrama' māne\
 > sthāṇu-puruṣe yaiche viparīta-jñāne
 
 *kintu*—but; *kāhoṅ*—where; *kṛṣṇa*—Kṛṣṇa; *dekhe*—one sees; *kāhoṅ*—where; *bhrama māne*—mistakes; *sthāṇu-puruṣe*—the dry tree and a person; *yaiche*—as; *viparīta-jñāne*—by understanding one to be the other.

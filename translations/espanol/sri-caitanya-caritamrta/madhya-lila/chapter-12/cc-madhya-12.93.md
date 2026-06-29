@@ -1,9 +1,9 @@
 ### CC Madhya 12.93
 
-> সূক্ষ্ম ধূলি, তৃণ, কাঁকর, সব করহ দূর ।
+> সূক্ষ্ম ধূলি, তৃণ, কাঁকর, সব করহ দূর ।\
 > ভালমতে শোধন করহ প্রভুর অন্তঃপুর ॥৯৩॥
 
-> sūkṣma dhūli, tṛṇa, kāṅkara, saba karaha dūra
+> sūkṣma dhūli, tṛṇa, kāṅkara, saba karaha dūra\
 > bhāla-mate śodhana karaha prabhura antaḥpura
 
 *sūkṣma dhūli*—polvo fino; *tṛṇa*—paja; *kāṅkara*—granos de arena; *saba*—todo; *karaha*—haced; *dūra*—fuera; *bhāla-mate*—muy bien; *śodhana*—limpieza; *karaha*—haced; *prabhura*—del Señor; *antaḥpura*—el interior.

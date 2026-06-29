@@ -1,13 +1,13 @@
 ### CC Madhya 2.74
 
-> মারঃ স্বয়ং নু মধুরদ্যুতিমণ্ডলং নু
-> মাধুর্যমেব নু মনোনয়নামৃতং নু ।
-> বেণীমৃজো নু মম জীবিতবল্লভো নু
+> মারঃ স্বয়ং নু মধুরদ্যুতিমণ্ডলং নু\
+> মাধুর্যমেব নু মনোনয়নামৃতং নু ।\
+> বেণীমৃজো নু মম জীবিতবল্লভো নু\
 > কৃষ্ণোঽয়মভ্যুদয়তে মম লোচনায় ॥৭৪॥
 
-> māraḥ svayaṁ nu madhura-dyuti-maṇḍalaṁ nu
-> mādhuryam eva nu mano-nayanāmṛtaṁ nu
-> veṇī-mṛjo nu mama jīvita-vallabho nu
+> māraḥ svayaṁ nu madhura-dyuti-maṇḍalaṁ nu\
+> mādhuryam eva nu mano-nayanāmṛtaṁ nu\
+> veṇī-mṛjo nu mama jīvita-vallabho nu\
 > kṛṣṇo 'yam abhyudayate mama locanāya
 
 *māraḥ*—Cupid; *svayam*—personally; *nu*—whether; *madhura*—sweet; *dyuti*—of effulgence; *maṇḍalam*—encirclement; *nu*—whether; *mādhuryam*—sweetness; *eva*—even; *nu*—certainly; *manaḥ-nayana-amṛtam*—nectar for the mind and eyes; *nu*—whether; *veṇī-mṛjaḥ*—loosening of the hair; *nu*—whether; *mama*—My; *jīvita-vallabhaḥ*—the pleasure of the life and soul; *nu*—whether; *kṛṣṇaḥ*—Lord Kṛṣṇa; *ayam*—this; *abhyudayate*—manifests; *mama*—My; *locanāya*—for the eyes.

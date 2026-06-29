@@ -1,13 +1,13 @@
 ### SB 4.21.11
 
-> मैत्रेय उवाच
-> गङ्गायमुनयोर्नद्योरन्तरा क्षेत्रमावसन् ।
+> मैत्रेय उवाच\
+> गङ्गायमुनयोर्नद्योरन्तरा क्षेत्रमावसन् ।\
 > आरब्धानेव बुभुजे भोगान्पुण्यजिहासया ॥११॥
 
-> maitreya uvāca
-> gaṅgā-yamunayor nadyor
-> antarā kṣetram āvasan
-> ārabdhān eva bubhuje
+> maitreya uvāca\
+> gaṅgā-yamunayor nadyor\
+> antarā kṣetram āvasan\
+> ārabdhān eva bubhuje\
 > bhogān puṇya-jihāsayā
 
 *maitreyaḥ uvāca*—el gran santo Maitreya dijo; *gaṅgā*—el río Ganges; *yamunayoḥ*—del río Yamunā; *nadyoḥ*—de los dos ríos; *antarā*—entre; *kṣetram*—las tierras; *āvasan*—vivir allí; *ārabdhān*—destinados; *eva*—como; *bubhuje*—disfrutó; *bhogān*—fortunas; *puṇya*—actividades piadosas; *jihāsayā*—a fin de disminuir.

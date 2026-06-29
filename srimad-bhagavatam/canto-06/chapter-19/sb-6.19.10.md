@@ -1,11 +1,11 @@
 ### SB 6.19.10
 
-> प्रणमेद्दण्डवद्भूमौ भक्तिप्रह्वेण चेतसा
+> प्रणमेद्दण्डवद्भूमौ भक्तिप्रह्वेण चेतसा\
 > दशवारं जपेन्मन्त्रं ततः स्तोत्रमुदीरयेत ॥१०॥
 
-> praṇamed daṇḍavad bhūmau
-> bhakti-prahveṇa cetasā
-> daśa-vāraṁ japen mantraṁ
+> praṇamed daṇḍavad bhūmau\
+> bhakti-prahveṇa cetasā\
+> daśa-vāraṁ japen mantraṁ\
 > tataḥ stotram udīrayet
 
 *praṇamet*—should offer obeisances; *daṇḍa-vat*—like a stick; *bhūmau*—on the ground; *bhakti*—through devotion; *prahveṇa*—humble; *cetasā*—with a mind; *daśa-vāram*—ten times; *japet*—should utter; *mantram*—the *mantra*; *tataḥ*—then; *stotram*—prayer; *udīrayet*—should chant.

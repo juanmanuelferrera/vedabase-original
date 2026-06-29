@@ -1,9 +1,9 @@
 ### CC Madhya 4.86
 
-> দেখিয়া পুরীর প্রভাব লোকে চমৎকার ।
+> দেখিয়া পুরীর প্রভাব লোকে চমৎকার ।\
 > পূর্ব অন্নকূট যেন হৈল সাক্ষাৎকার ॥৮৬॥
 
-> dekhiyā purīra prabhāva loke camatkāra
+> dekhiyā purīra prabhāva loke camatkāra\
 > pūrva annakūṭa yena haila sākṣātkāra
 
 *dekhiyā*—by seeing; *purīra*—of Mādhavendra Purī; *prabhāva*—the influence; *loke*—all the people; *camatkāra*—struck with wonder; *pūrva*—formerly; *anna-kūṭa*—the Annakūṭa ceremony during the time of Kṛṣṇa; *yena*—as if; *haila*—became; *sākṣātkāra*—directly manifest.

@@ -1,11 +1,11 @@
 ### SB 4.2.9
 
-> श्रूयतां ब्रह्मर्षयो मे सहदेवाः सहाग्नयः ।
+> श्रूयतां ब्रह्मर्षयो मे सहदेवाः सहाग्नयः ।\
 > साधूनां ब्रुवतो वृत्तं नाज्ञानान्न च मत्सरात् ॥९॥
 
-> śrūyatāṁ brahmarṣayo me
-> saha-devāḥ sahāgnayaḥ
-> sādhūnāṁ bruvato vṛttaṁ
+> śrūyatāṁ brahmarṣayo me\
+> saha-devāḥ sahāgnayaḥ\
+> sādhūnāṁ bruvato vṛttaṁ\
 > nājñānān na ca matsarāt
 
 *śrūyatām*—hear; *brahma-ṛṣayaḥ*—O sages among the *brāhmaṇas*; *me*—unto me; *saha-devāḥ*—O demigods; *saha-agnayaḥ*—O fire-gods; *sādhūnām*—of the gentle; *bruvataḥ*—speaking; *vṛttam*—the manners; *na*—not; *ajñānāt*—from ignorance; *na ca*—and not; *matsarāt*—from envy.

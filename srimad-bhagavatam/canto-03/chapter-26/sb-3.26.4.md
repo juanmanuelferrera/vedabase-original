@@ -1,11 +1,11 @@
 ### SB 3.26.4
 
-> स एष प्रकृतिं सूक्ष्मां दैवीं गुणमयीं विभुः ।
+> स एष प्रकृतिं सूक्ष्मां दैवीं गुणमयीं विभुः ।\
 > यदृच्छयैवोपगतामभ्यपद्यत लीलया ॥४॥
 
-> sa eṣa prakṛtiṁ sūkṣmāṁ
-> daivīṁ guṇamayīṁ vibhuḥ
-> yadṛcchayaivopagatām
+> sa eṣa prakṛtiṁ sūkṣmāṁ\
+> daivīṁ guṇamayīṁ vibhuḥ\
+> yadṛcchayaivopagatām\
 > abhyapadyata līlayā
 
 *saḥ eṣaḥ*—that same Supreme Personality of Godhead; *prakṛtim*—material energy; *sūkṣmām*—subtle; *daivīm*—related to Viṣṇu; *guṇamayīm*—invested with the three modes of material nature; *vibhuḥ*—the greatest of the great; *yadṛcchayā*—of His own will; *iva*—quite; *upagatām*—obtained; *abhyapadyata*—He accepted; *līlayā*—as His pastime.

@@ -1,13 +1,13 @@
 ### SB 3.21.6
 
-> मैत्रेय उवाच
-> प्रजाः सृजेति भगवान्कर्दमो ब्रह्मणोदितः ।
+> मैत्रेय उवाच\
+> प्रजाः सृजेति भगवान्कर्दमो ब्रह्मणोदितः ।\
 > सरस्वत्यां तपस्तेपे सहस्राणां समा दश ॥६॥
 
-> maitreya uvāca
-> prajāḥ sṛjeti bhagavān
-> kardamo brahmaṇoditaḥ
-> sarasvatyāṁ tapas tepe
+> maitreya uvāca\
+> prajāḥ sṛjeti bhagavān\
+> kardamo brahmaṇoditaḥ\
+> sarasvatyāṁ tapas tepe\
 > sahasrāṇāṁ samā daśa
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya dijo; *prajāḥ*—hijos; *sṛja*—engendró; *iti*—de este modo; *bhagavān*—el venerable; *kardamaḥ*—Kardama Muni; *brahmaṇā*—del Señor Brahmā; *uditaḥ*—habiendo recibido la orden; *sarasvatyām*—a orillas del río Sarasvatī; *tapaḥ*—penitencia; *tepe*—practicó; *sahasrāṇām*—de miles; *samāḥ*—años; *daśa*—diez.

@@ -1,11 +1,11 @@
 ### SB 4.21.31
 
-> यत्पादसेवाभिरुचिस्तपस्विनामशेषजन्मोपचितं मलं धियः ।
+> यत्पादसेवाभिरुचिस्तपस्विनामशेषजन्मोपचितं मलं धियः ।\
 > सद्यः क्षिणोत्यन्वहमेधती सती यथा पदाङ्गुष्ठविनिःसृता सरित् ॥३१॥
 
-> yat-pāda-sevābhirucis tapasvinām
-> aśeṣa-janmopacitaṁ malaṁ dhiyaḥ
-> sadyaḥ kṣiṇoty anvaham edhatī satī
+> yat-pāda-sevābhirucis tapasvinām\
+> aśeṣa-janmopacitaṁ malaṁ dhiyaḥ\
+> sadyaḥ kṣiṇoty anvaham edhatī satī\
 > yathā padāṅguṣṭha-viniḥsṛtā sarit
 
 *yat-pāda*—whose lotus feet; *sevā*—service; *abhiruciḥ*—inclination; *tapasvinām*—persons undergoing severe penances; *aśeṣa*—innumerable; *janma*—birth; *upacitam*—acquire; *malam*—dirtiness; *dhiyaḥ*—mind; *sadyaḥ*—immediately; *kṣiṇoti*—destroys; *anvaham*—day after day; *edhatī*—increasing; *satī*—being; *yathā*—as; *pada-aṅguṣṭha*—the toes of His lotus feet; *viniḥsṛtā*—emanating from; *sarit*—water.

@@ -1,11 +1,11 @@
 ### SB 8.24.15
 
-> तमात्मनोऽनुग्रहार्थं प्रीत्या मत्स्यवपुर्धरम
+> तमात्मनोऽनुग्रहार्थं प्रीत्या मत्स्यवपुर्धरम\
 > अजानन्रक्षणार्थाय शफर्याः स मनो दधे ॥१५॥
 
-> tam ātmano 'nugrahārthaṁ
-> prītyā matsya-vapur-dharam
-> ajānan rakṣaṇārthāya
+> tam ātmano 'nugrahārthaṁ\
+> prītyā matsya-vapur-dharam\
+> ajānan rakṣaṇārthāya\
 > śapharyāḥ sa mano dadhe
 
 *tam*—al pez; *ātmanaḥ*—personal; *anugraha-artham*—para mostrar su favor; *prītyā*—muy complacido; *matsya-vapuḥ-dharam*—a la Suprema Personalidad de Dios, que había adoptado la forma de un pez; *ajānan*—sin saber de esto; *rakṣaṇa-arthāya*—simplemente para brindar protección; *śapharyāḥ*—del pez; *saḥ*—el rey; *manaḥ*—mente; *dadhe*—decidió.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.35
 
-> কাহাঁ তুমি — সাক্ষাৎ ঈশ্বর নারায়ণ ।
+> কাহাঁ তুমি — সাক্ষাৎ ঈশ্বর নারায়ণ ।\
 > কাহাঁ মুঞি — রাজসেবী বিষয়ী শূদ্রাধম ॥৩৫॥
 
-> kāhāṅ tumi—sākṣāt īśvara nārāyaṇa
+> kāhāṅ tumi—sākṣāt īśvara nārāyaṇa\
 > kāhāṅ muñi—rāja-sevī viṣayī śūdrādhama
 
 *kāhāṅ*—whereas; *tumi*—You; *sākṣāt*—directly; *īśvara nārāyaṇa*—the Supreme Personality of Godhead; *kāhāṅ*—whereas; *muñi*—I; *rāja-sevī*—government servant; *viṣayī*—materialist; *śūdra-adhama*—worse than a *śūdra,* or fourth-class man.

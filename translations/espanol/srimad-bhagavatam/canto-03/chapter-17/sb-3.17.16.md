@@ -1,11 +1,11 @@
 ### SB 3.17.16
 
-> तावादिदैत्यौ सहसा व्यज्यमानात्मपौरुषौ ।
+> तावादिदैत्यौ सहसा व्यज्यमानात्मपौरुषौ ।\
 > ववृधातेऽश्मसारेण कायेनाद्रिपती इव ॥१६॥
 
-> tāv ādi-daityau sahasā
-> vyajyamānātma-pauruṣau
-> vavṛdhāte 'śma-sāreṇa
+> tāv ādi-daityau sahasā\
+> vyajyamānātma-pauruṣau\
+> vavṛdhāte 'śma-sāreṇa\
 > kāyenādri-patī iva
 
 *tau*—aquellos dos; *ādi-daityau*—demonios del principio de la creación; *sahasā*—rápidamente; *vyajyamāna*—siendo manifiesta; *ātma*—propia; *pauruṣau*—destreza; *vavṛdhāte*—crecieron; *aśma-sāreṇa*—como el acero; *kāyena*—con constituciones físicas; *adri-patī*—dos grandes montañas; *iva*—como.

@@ -1,11 +1,11 @@
 ### SB 7.15.65
 
-> आत्मजायासुतादीनामन्येषां सर्वदेहिनाम
+> आत्मजायासुतादीनामन्येषां सर्वदेहिनाम\
 > यत्स्वार्थकामयोरैक्यं द्रव्याद्वैतं तदुच्यते ॥६५॥
 
-> ātma-jāyā-sutādīnām
-> anyeṣāṁ sarva-dehinām
-> yat svārtha-kāmayor aikyaṁ
+> ātma-jāyā-sutādīnām\
+> anyeṣāṁ sarva-dehinām\
+> yat svārtha-kāmayor aikyaṁ\
 > dravyādvaitaṁ tad ucyate
 
 *ātma*—del propio ser; *jāyā*—la esposa; *suta-ādīnām*—y los hijos; *anyeṣām*—de los familiares, etc.; *sarva-dehinām*—de todas las demás entidades vivientes; *yat*—cualquiera; *sva-artha-kāmayoḥ*—del propio objetivo y el propio beneficio; *aikyam*—unidad; *dravya-advaitam*—unidad de intereses; *tat ucyate*—se denomina.

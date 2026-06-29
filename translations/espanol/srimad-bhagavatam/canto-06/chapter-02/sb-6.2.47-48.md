@@ -1,18 +1,18 @@
 ### SB 6.2.47-48
 
-> य एतं परमं गुह्यमितिहासमघापहम
-> शृणुयाच्छ्रद्धया युक्तो यश्च भक्त्यानुकीर्तयेत ॥४७॥
-> न वै स नरकं याति नेक्षितो यमकिङ्करैः
+> य एतं परमं गुह्यमितिहासमघापहम\
+> शृणुयाच्छ्रद्धया युक्तो यश्च भक्त्यानुकीर्तयेत ॥४७॥\
+> न वै स नरकं याति नेक्षितो यमकिङ्करैः\
 > यद्यप्यमङ्गलो मर्त्यो विष्णुलोके महीयते ॥४८॥
 
-> ya etaṁ paramaṁ guhyam
-> itihāsam aghāpaham
-> śṛṇuyāc chraddhayā yukto
+> ya etaṁ paramaṁ guhyam\
+> itihāsam aghāpaham\
+> śṛṇuyāc chraddhayā yukto\
 > yaś ca bhaktyānukīrtayet
 
-> na vai sa narakaṁ yāti
-> nekṣito yama-kiṅkaraiḥ
-> yady apy amaṅgalo martyo
+> na vai sa narakaṁ yāti\
+> nekṣito yama-kiṅkaraiḥ\
+> yady apy amaṅgalo martyo\
 > viṣṇu-loke mahīyate
 
 *yaḥ*—todo el que; *etam*—esta; *paramam*—muy; *guhyam*—confidencial; *itihāsam*—narración histórica; *agha-apaham*—que libera de todas las reacciones de los pecados; *śṛṇuyāt*—escucha; *śraddhayā*—con fe; *yuktaḥ*—dotado de; *yaḥ*—aquel que; *ca*—también; *bhaktyā*—con gran devoción; *anukīrtayet*—repite; *na*—no; *vai*—en verdad; *saḥ*—esa persona; *narakam*—al infierno; *yāti*—va; *na*—no; *īkṣitaḥ*—es observado; *yama-kiṅkaraiḥ*—por los sirvientes de Yamarāja; *yadi api*—aunque; *amaṅgalaḥ*—no auspicioso; *martyaḥ*—una entidad viviente con cuerpo material; *viṣṇu-loke*—en el mundo espiritual; *mahīyate*—es bienvenido y recibido con gran respeto.

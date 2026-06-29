@@ -1,11 +1,11 @@
 ### SB 2.10.9
 
-> एकमेकतराभावे यदा नोपलभामहे ।
+> एकमेकतराभावे यदा नोपलभामहे ।\
 > त्रितयं तत्र यो वेद स आत्मा स्वाश्रयाश्रयः ॥९॥
 
-> ekam ekatarābhāve
-> yadā nopalabhāmahe
-> tritayaṁ tatra yo veda
+> ekam ekatarābhāve\
+> yadā nopalabhāmahe\
+> tritayaṁ tatra yo veda\
 > sa ātmā svāśrayāśrayaḥ
 
 *ekam*—uno; *ekatara*—otro; *abhāve*—en ausencia de; *yadā*—debido a; *na*—no; *upalabhāmahe*—perceptible; *tritayam*—en tres estados; *tatra*—ahí; *yaḥ*—el que; *veda*—que conoce; *saḥ*—él; *ātmā*—la Superalma; *sva*—propio; *āśraya*—refugio; *āśrayaḥ*—del refugio.

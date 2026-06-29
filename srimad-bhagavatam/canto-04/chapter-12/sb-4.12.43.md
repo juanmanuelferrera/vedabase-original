@@ -1,11 +1,11 @@
 ### SB 4.12.43
 
-> यः क्षत्रबन्धुर्भुवि तस्याधिरूढमन्वारुरुक्षेदपि वर्षपूगैः ।
+> यः क्षत्रबन्धुर्भुवि तस्याधिरूढमन्वारुरुक्षेदपि वर्षपूगैः ।\
 > षट्पञ्चवर्षो यदहोभिरल्पैः प्रसाद्य वैकुण्ठमवाप तत्पदम् ॥४३॥
 
-> yaḥ kṣatra-bandhur bhuvi tasyādhirūḍham
-> anv ārurukṣed api varṣa-pūgaiḥ
-> ṣaṭ-pañca-varṣo yad ahobhir alpaiḥ
+> yaḥ kṣatra-bandhur bhuvi tasyādhirūḍham\
+> anv ārurukṣed api varṣa-pūgaiḥ\
+> ṣaṭ-pañca-varṣo yad ahobhir alpaiḥ\
 > prasādya vaikuṇṭham avāpa tat-padam
 
 *yaḥ*—one who; *kṣatra-bandhuḥ*—the son of a *kṣatriya*; *bhuvi*—on the earth; *tasya*—of Dhruva; *adhirūḍham*—the exalted position; *anu*—after; *ārurukṣet*—can aspire to attain; *api*—even; *varṣa-pūgaiḥ*—after many years; *ṣaṭ-pañca-varṣaḥ*—five or six years old; *yat*—which; *ahobhiḥ alpaiḥ*—after a few days; *prasādya*—after pleasing; *vaikuṇṭham*—the Lord; *avāpa*—attained; *tat-padam*—His abode.

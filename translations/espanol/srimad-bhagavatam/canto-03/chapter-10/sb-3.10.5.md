@@ -1,11 +1,11 @@
 ### SB 3.10.5
 
-> तद्विलोक्याब्जसम्भूतो वायुना यदधिष्ठितः ।
+> तद्विलोक्याब्जसम्भूतो वायुना यदधिष्ठितः ।\
 > पद्ममम्भश्च तत्काल कृतवीर्येण कम्पितम् ॥५॥
 
-> tad vilokyābja-sambhūto
-> vāyunā yad-adhiṣṭhitaḥ
-> padmam ambhaś ca tat-kāla-
+> tad vilokyābja-sambhūto\
+> vāyunā yad-adhiṣṭhitaḥ\
+> padmam ambhaś ca tat-kāla-\
 > kṛta-vīryeṇa kampitam
 
 *tat vilokya*—mirando dentro de eso; *abja-sambhūtaḥ*—cuya fuente de nacimiento fue un loto; *vāyunā*—por el aire; *yat*—ese; *adhiṣṭhitaḥ*—sobre el cual estaba situado; *padmam*—loto; *ambhaḥ*—agua; *ca*—también; *tat-kāla-kṛta*—lo cual fue efectuado por el tiempo eterno; *vīryeṇa*—por su fuerza inherente; *kampitam*—temblando.

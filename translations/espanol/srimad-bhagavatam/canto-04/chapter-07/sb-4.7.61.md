@@ -1,11 +1,11 @@
 ### SB 4.7.61
 
-> इदं पवित्रं परमीशचेष्टितं यशस्यमायुष्यमघौघमर्षणम् ।
+> इदं पवित्रं परमीशचेष्टितं यशस्यमायुष्यमघौघमर्षणम् ।\
 > यो नित्यदाकर्ण्य नरोऽनुकीर्तयेद्धुनोत्यघं कौरव भक्तिभावतः ॥६१॥
 
-> idaṁ pavitraṁ param īśa-ceṣṭitaṁ
-> yaśasyam āyuṣyam aghaugha-marṣaṇam
-> yo nityadākarṇya naro 'nukīrtayed
+> idaṁ pavitraṁ param īśa-ceṣṭitaṁ\
+> yaśasyam āyuṣyam aghaugha-marṣaṇam\
+> yo nityadākarṇya naro 'nukīrtayed\
 > dhunoty aghaṁ kaurava bhakti-bhāvataḥ
 
 *idam*—este; *pavitram*—puro; *param*—supremo; *īśa-ceṣṭitam*—pasatiempo del Señor Supremo; *yaśasyam*—fama; *āyuṣyam*—vida de larga duración; *agha-ogha-marṣaṇam*—destruir pecados; *yaḥ*—quien; *nityadā*—siempre; *ākarṇya*—después de escuchar; *naraḥ*—una persona; *anukīrtayet*—debe narrar; *dhunoti*—purifica; *agham*—contaminación material; *kaurava*—¡oh, descendiente de Kuru!; *bhakti-bhāvataḥ*—con fe y devoción.

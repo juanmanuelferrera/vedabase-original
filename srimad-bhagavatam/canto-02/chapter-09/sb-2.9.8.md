@@ -1,11 +1,11 @@
 ### SB 2.9.8
 
-> दिव्यं सहस्राब्दममोघदर्शनो जितानिलात्मा विजितोभयेन्द्रियः ।
+> दिव्यं सहस्राब्दममोघदर्शनो जितानिलात्मा विजितोभयेन्द्रियः ।\
 > अतप्यत स्माखिललोकतापनं तपस्तपीयांस्तपतां समाहितः ॥८॥
 
-> divyaṁ sahasrābdam amogha-darśano
-> jitānilātmā vijitobhayendriyaḥ
-> atapyata smākhila-loka-tāpanaṁ
+> divyaṁ sahasrābdam amogha-darśano\
+> jitānilātmā vijitobhayendriyaḥ\
+> atapyata smākhila-loka-tāpanaṁ\
 > tapas tapīyāṁs tapatāṁ samāhitaḥ
 
 *divyam*—pertaining to the demigods in the higher planets; *sahasra*—one thousand; *abdam*—years; *amogha*—spotless, without a tinge of impurity; *darśanaḥ*—one who has such a vision of life; *jita*—controlled; *anila*—life; *ātmā*—mind; *vijita*—controlled over; *ubhaya*—both; *indriyaḥ*—one who has such senses; *atapyata*—executed penance; *sma*—in the past; *akhila*—all; *loka*—planet; *tāpanam*—enlightening; *tapaḥ*—penance; *tapīyān*—extremely hard penance; *tapatām*—of all the executors of penances; *samāhitaḥ*—thus situated.

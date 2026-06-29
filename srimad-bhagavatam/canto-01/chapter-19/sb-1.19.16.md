@@ -1,11 +1,11 @@
 ### SB 1.19.16
 
-> पुनश्च भूयाद्भगवत्यनन्ते रतिः प्रसङ्गश्च तदाश्रयेषु ।
+> पुनश्च भूयाद्भगवत्यनन्ते रतिः प्रसङ्गश्च तदाश्रयेषु ।\
 > महत्सु यां यामुपयामि सृष्टिं मैत्र्यस्तु सर्वत्र नमो द्विजेभ्यः ॥१६॥
 
-> punaś ca bhūyād bhagavaty anante
-> ratiḥ prasaṅgaś ca tad-āśrayeṣu
-> mahatsu yāṁ yām upayāmi sṛṣṭiṁ
+> punaś ca bhūyād bhagavaty anante\
+> ratiḥ prasaṅgaś ca tad-āśrayeṣu\
+> mahatsu yāṁ yām upayāmi sṛṣṭiṁ\
 > maitry astu sarvatra namo dvijebhyaḥ
 
 *punaḥ*—again; *ca*—and; *bhūyāt*—let it be; *bhagavati*—unto Lord Śrī Kṛṣṇa; *anante*—who has unlimited potency; *ratiḥ*—attracting; *prasaṅgaḥ*—association; *ca*—also; *tat*—His; *āśrayeṣu*—with those who are His devotees; *mahatsu*—within the material creation; *yām yām*—wherever; *upayāmi*—I may take; *sṛṣṭim*—my birth; *maitrī*—friendly relation; *astu*—let it be; *sarvatra*—everywhere; *namaḥ*—my obeisances; *dvijebhyaḥ*—unto the *brāhmaṇas.*

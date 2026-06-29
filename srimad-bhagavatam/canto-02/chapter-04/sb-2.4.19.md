@@ -1,11 +1,11 @@
 ### SB 2.4.19
 
-> स एष आत्मात्मवतामधीश्वरस्त्रयीमयो धर्ममयस्तपोमयः ।
+> स एष आत्मात्मवतामधीश्वरस्त्रयीमयो धर्ममयस्तपोमयः ।\
 > गतव्यलीकैरजशङ्करादिभिर्वितर्क्यलिङ्गो भगवान्प्रसीदताम् ॥१९॥
 
-> sa eṣa ātmātmavatām adhīśvaras
-> trayīmayo dharmamayas tapomayaḥ
-> gata-vyalīkair aja-śaṅkarādibhir
+> sa eṣa ātmātmavatām adhīśvaras\
+> trayīmayo dharmamayas tapomayaḥ\
+> gata-vyalīkair aja-śaṅkarādibhir\
 > vitarkya-liṅgo bhagavān prasīdatām
 
 *saḥ*—He; *eṣaḥ*—it is; *ātmā*—the Supersoul; *ātmavatām*—of the self-realized souls; *adhīśvaraḥ*—the Supreme Lord; *trayī-mayaḥ*—personified *Vedas*; *dharma-mayaḥ*—personified religious scripture; *tapaḥ-mayaḥ*—personified austerity; *gata-vyalīkaiḥ*—by those who are above all pretensions; *aja*—Brahmājī; *śaṅkara-ādibhiḥ*—by Lord Śiva and others; *vitarkya-liṅgaḥ*—one who is observed with awe and veneration; *bhagavān*—the Personality of Godhead; *prasīdatām*—be kind toward me.

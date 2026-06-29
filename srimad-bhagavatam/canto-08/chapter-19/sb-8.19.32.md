@@ -1,11 +1,11 @@
 ### SB 8.19.32
 
-> एष ते स्थानमैश्वर्यं श्रियं तेजो यशः श्रुतम
+> एष ते स्थानमैश्वर्यं श्रियं तेजो यशः श्रुतम\
 > दास्यत्याच्छिद्य शक्राय मायामाणवको हरिः ॥३२॥
 
-> eṣa te sthānam aiśvaryaṁ
-> śriyaṁ tejo yaśaḥ śrutam
-> dāsyaty ācchidya śakrāya
+> eṣa te sthānam aiśvaryaṁ\
+> śriyaṁ tejo yaśaḥ śrutam\
+> dāsyaty ācchidya śakrāya\
 > māyā-māṇavako hariḥ
 
 *eṣaḥ*—this person falsely appearing as a *brahmacārī*; *te*—of you; *sthānam*—the land in possession; *aiśvaryam*—the riches; *śriyam*—the material beauty; *tejaḥ*—the material power; *yaśaḥ*—the reputation; *śrutam*—the education; *dāsyati*—will give; *ācchidya*—taking from you; *śakrāya*—unto your enemy, Lord Indra; *māyā*—falsely appearing; *māṇavakaḥ*—a *brahmacārī* son of a living being; *hariḥ*—He is actually the Supreme Personality of Godhead, Hari.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.71
 
-> ত্রিমলয় দেখি’ গেলা ত্রিকালহস্তি-স্থানে ।
+> ত্রিমলয় দেখি’ গেলা ত্রিকালহস্তি-স্থানে ।\
 > মহাদেব দেখি’ তাঁরে করিল প্রণামে ॥৭১॥
 
-> trimalaya dekhi' gelā trikāla-hasti-sthāne
+> trimalaya dekhi' gelā trikāla-hasti-sthāne\
 > mahādeva dekhi' tāṅre karila praṇāme
 
 *trimalaya dekhi'*—after seeing Trimalaya; *gelā*—went; *trikāla-hasti-sthāne*—to the place named Trikāla-hasti; *mahādeva*—Lord Śiva; *dekhi'*—seeing; *tāṅre*—unto him; *karila praṇāme*—offered obeisances.

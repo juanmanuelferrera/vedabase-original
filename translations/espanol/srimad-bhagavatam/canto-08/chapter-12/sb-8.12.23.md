@@ -1,11 +1,11 @@
 ### SB 8.12.23
 
-> तस्याः कराग्रात्स तु कन्दुको यदा गतो विदूरं तमनुव्रजत्स्त्रियाः
+> तस्याः कराग्रात्स तु कन्दुको यदा गतो विदूरं तमनुव्रजत्स्त्रियाः\
 > वासः ससूत्रं लघु मारुतोऽहरद्भवस्य देवस्य किलानुपश्यतः ॥२३॥
 
-> tasyāḥ karāgrāt sa tu kanduko yadā
-> gato vidūraṁ tam anuvrajat-striyāḥ
-> vāsaḥ sasūtraṁ laghu māruto 'harad
+> tasyāḥ karāgrāt sa tu kanduko yadā\
+> gato vidūraṁ tam anuvrajat-striyāḥ\
+> vāsaḥ sasūtraṁ laghu māruto 'harad\
 > bhavasya devasya kilānupaśyataḥ
 
 *tasyāḥ*—de la hermosa mujer; *kara-agrāt*—de la mano; *saḥ*—esa; *tu*—pero; *kandukaḥ*—la pelota; *yadā*—cuando; *gataḥ*—se había ido; *vidūram*—lejos; *tam*—esa pelota; *anuvrajat*—salió tras ella; *striyāḥ*—de esa mujer; *vāsaḥ*—el vestido que La cubría; *sa-sūtram*—con el cinturón; *laghu*—porque era muy ligero; *mārutaḥ*—la brisa; *aharat*—se llevó; *bhavasya*—mientras el Señor Śiva; *devasya*—el semidiós principal; *kila*—en verdad; *anupaśyataḥ*—estaba siempre mirando.

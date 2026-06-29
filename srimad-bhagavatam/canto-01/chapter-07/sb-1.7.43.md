@@ -1,11 +1,11 @@
 ### SB 1.7.43
 
-> उवाच चासहन्त्यस्य बन्धनानयनं सती ।
+> उवाच चासहन्त्यस्य बन्धनानयनं सती ।\
 > मुच्यतां मुच्यतामेष ब्राह्मणो नितरां गुरुः ॥४३॥
 
-> uvāca cāsahanty asya
-> bandhanānayanaṁ satī
-> mucyatāṁ mucyatām eṣa
+> uvāca cāsahanty asya\
+> bandhanānayanaṁ satī\
+> mucyatāṁ mucyatām eṣa\
 > brāhmaṇo nitarāṁ guruḥ
 
 *uvāca*—said; *ca*—and; *asahantī*—being unbearable for her; *asya*—his; *bandhana*—being bound; *ānayanam*—bringing him; *satī*—the devoted; *mucyatām mucyatām*—just get him released; *eṣaḥ*—this; *brāhmaṇaḥ*—a *brāhmaṇa*; *nitarām*—our; *guruḥ*—teacher.

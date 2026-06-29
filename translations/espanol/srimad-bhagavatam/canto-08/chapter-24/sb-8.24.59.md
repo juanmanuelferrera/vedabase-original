@@ -1,11 +1,11 @@
 ### SB 8.24.59
 
-> सत्यव्रतस्य राजर्षेर्मायामत्स्यस्य शारङ्गिणः
+> सत्यव्रतस्य राजर्षेर्मायामत्स्यस्य शारङ्गिणः\
 > संवादं महदाख्यानं श्रुत्वा मुच्येत किल्बिषात ॥५९॥
 
-> satyavratasya rājarṣer
-> māyā-matsyasya śārṅgiṇaḥ
-> saṁvādaṁ mahad-ākhyānaṁ
+> satyavratasya rājarṣer\
+> māyā-matsyasya śārṅgiṇaḥ\
+> saṁvādaṁ mahad-ākhyānaṁ\
 > śrutvā mucyeta kilbiṣāt
 
 *satyavratasya*—del rey Satyavrata; *rāja-ṛṣeḥ*—del gran rey; *māyā-matsyasya*—y del *avatāra* pez; *śārṅgiṇaḥ*—que tenía un cuerno sobre la cabeza; *saṁvādam*—la descripción, o los tratos; *mahat-ākhyānam*—la gran historia; *śrutvā*—por escuchar; *mucyeta*—se libera; *kilbiṣāt*—de todas las reacciones pecaminosas.

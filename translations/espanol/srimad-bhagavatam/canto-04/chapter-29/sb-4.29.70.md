@@ -1,11 +1,11 @@
 ### SB 4.29.70
 
-> नाहं ममेति भावोऽयं पुरुषे व्यवधीयते ।
+> नाहं ममेति भावोऽयं पुरुषे व्यवधीयते ।\
 > यावद्बुद्धिमनोऽक्षार्थ गुणव्यूहो ह्यनादिमान् ॥७०॥
 
-> nāhaṁ mameti bhāvo 'yaṁ
-> puruṣe vyavadhīyate
-> yāvad buddhi-mano-'kṣārtha-
+> nāhaṁ mameti bhāvo 'yaṁ\
+> puruṣe vyavadhīyate\
+> yāvad buddhi-mano-'kṣārtha-\
 > guṇa-vyūho hy anādimān
 
 *na*—no; *aham*—yo; *mama*—mío; *iti*—así; *bhāvaḥ*—conciencia; *ayam*—esta; *puruṣe*—en la entidad viviente; *vyavadhīyate*—se separa; *yāvat*—mientras; *buddhi*—inteligencia; *manaḥ*—mente; *akṣa*—sentidos; *artha*—objetos de los sentidos; *guṇa*—de las cualidades materiales; *vyūhaḥ*—una manifestación; *hi*—ciertamente; *anādi-mān*—el cuerpo sutil (que existe desde tiempo inmemorial).

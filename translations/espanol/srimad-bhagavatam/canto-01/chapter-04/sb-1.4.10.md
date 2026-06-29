@@ -1,11 +1,11 @@
 ### SB 1.4.10
 
-> स सम्राट्कस्य वा हेतोः पाण्डूनां मानवर्धनः ।
+> स सम्राट्कस्य वा हेतोः पाण्डूनां मानवर्धनः ।\
 > प्रायोपविष्टो गङ्गायामनादृत्याधिराट्श्रियम् ॥१०॥
 
-> sa samrāṭ kasya vā hetoḥ
-> pāṇḍūnāṁ māna-vardhanaḥ
-> prāyopaviṣṭo gaṅgāyām
+> sa samrāṭ kasya vā hetoḥ\
+> pāṇḍūnāṁ māna-vardhanaḥ\
+> prāyopaviṣṭo gaṅgāyām\
 > anādṛtyādhirāṭ-śriyam
 
 *saḥ*—él; *samrāṭ*—el emperador; *kasya*—para qué; *vā*—o; *hetoḥ*—razón; *pāṇḍūnām*—de los hijos de Pāṇḍu; *māna-vardhanaḥ*—aquel que enriquece la familia; *prāya-upaviṣṭaḥ*—sentándose y ayunando; *gaṅgāyām*—en la ribera del Ganges; *anādṛtya*—haciendo caso omiso; *adhirāṭ*—reino adquirido; *śriyam*—opulencias.

@@ -1,9 +1,9 @@
 ### CC Antya 1.38
 
-> রূপ-গোসাঞি প্রভুপাশে করিলা গমন ।
+> রূপ-গোসাঞি প্রভুপাশে করিলা গমন ।\
 > প্রভুরে দেখিতে তাঁর উৎকণ্ঠিত মন ॥৩৮॥
 
-> rūpa-gosāñi prabhu-pāśe karilā gamana
+> rūpa-gosāñi prabhu-pāśe karilā gamana\
 > prabhure dekhite tāṅra utkaṇṭhita mana
 
 *rūpa-gosāñi*—of the name Rūpa Gosvāmī; *prabhu-pāśe*—the place of Śrī Caitanya Mahāprabhu; *karilā gamana*—departed for; *prabhure dekhite*—to see Lord Śrī Caitanya Mahāprabhu; *tāṅra*—his; *utkaṇṭhita*—full of anxiety; *mana*—mind.

@@ -1,19 +1,19 @@
 ### CC Antya 11.91-93
 
-> “হরিদাসের বিজয়োৎসব যে কৈল দর্শন ।
-> যে ইহাঁ নৃত্য কৈল, যে কৈল কীর্তন ॥৯১॥
-> যে তাঁরে বালুকা দিতে করিল গমন ।
-> তার মধ্যে মহোৎসবে যে কৈল ভোজন ॥৯২॥
-> অচিরে হইবে তা-সবার ‘কৃষ্ণপ্রাপ্তি’ ।
+> “হরিদাসের বিজয়োৎসব যে কৈল দর্শন ।\
+> যে ইহাঁ নৃত্য কৈল, যে কৈল কীর্তন ॥৯১॥\
+> যে তাঁরে বালুকা দিতে করিল গমন ।\
+> তার মধ্যে মহোৎসবে যে কৈল ভোজন ॥৯২॥\
+> অচিরে হইবে তা-সবার ‘কৃষ্ণপ্রাপ্তি’ ।\
 > হরিদাস-দরশনে হয় ঐছে ‘শক্তি’ ॥৯৩॥
 
-> "haridāsera vijayotsava ye kaila darśana
+> "haridāsera vijayotsava ye kaila darśana\
 > ye ihāṅ nṛtya kaila, ye kaila kīrtana
 
-> ye tāṅre vālukā dite karila gamana
+> ye tāṅre vālukā dite karila gamana\
 > tāra madhye mahotsave ye kaila bhojana
 
-> acire ha-ibe tā-sabāra 'kṛṣṇa-prāpti'
+> acire ha-ibe tā-sabāra 'kṛṣṇa-prāpti'\
 > haridāsa-daraśane haya aiche 'śakti'
 
 *haridāsera*—of Haridāsa Ṭhākura; *vijaya-utsava*—the festival of the passing away; *ye*—anyone who; *kaila darśana*—has seen; *ye*—anyone who; *ihāṅ*—here; *nṛtya kaila*—danced; *ye*—anyone who; *kaila kīrtana*—chanted; *ye*—anyone who; *tāṅre*—upon him; *vālukā dite*—to offer sand; *karila gamana*—came forward; *tāra madhye*—in that connection; *mahotsave*—in the festival; *ye*—anyone who; *kaila bhojana*—took *prasāda*; *acire*—very soon; *ha-ibe*—there will be; *tā-sabāra*—of all of them; *kṛṣṇa-prāpti*—attainment of Kṛṣṇa; *haridāsa-daraśane*—by seeing Haridāsa Ṭhākura; *haya*—there is; *aiche*—such; *śakti*—power.

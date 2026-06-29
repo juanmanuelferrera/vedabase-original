@@ -1,11 +1,11 @@
 ### SB 6.19.6
 
-> विष्णुपत्नि महामाये महापुरुषलक्षणे
+> विष्णुपत्नि महामाये महापुरुषलक्षणे\
 > प्रीयेथा मे महाभागे लोकमातर्नमोऽस्तु ते ॥६॥
 
-> viṣṇu-patni mahā-māye
-> mahāpuruṣa-lakṣaṇe
-> prīyethā me mahā-bhāge
+> viṣṇu-patni mahā-māye\
+> mahāpuruṣa-lakṣaṇe\
+> prīyethā me mahā-bhāge\
 > loka-mātar namo 'stu te
 
 *viṣṇu-patni*—¡oh, esposa del Señor Viṣṇu!; *mahā-māye*—¡oh, energía del Señor Viṣṇu!; *mahā-puruṣa-lakṣaṇe*—que posees las cualidades y opulencias del Señor Viṣṇu; *prīyethāḥ*—ten la bondad de complacerte; *me*—conmigo; *mahā-bhāge*—¡oh, diosa de la fortuna!; *loka-mātaḥ*—¡oh, madre del mundo!; *namaḥ*—reverencias; *astu*—sean; *te*—a ti.

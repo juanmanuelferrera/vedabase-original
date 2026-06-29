@@ -1,11 +1,11 @@
 ### SB 8.8.29
 
-> श्रियावलोकिता देवाः सप्रजापतयः प्रजाः
+> श्रियावलोकिता देवाः सप्रजापतयः प्रजाः\
 > शीलादिगुणसम्पन्ना लेभिरे निर्वृतिं पराम ॥२९॥
 
-> niḥsattvā lolupā rājan
-> nirudyogā gata-trapāḥ
-> yadā copekṣitā lakṣmyā
+> niḥsattvā lolupā rājan\
+> nirudyogā gata-trapāḥ\
+> yadā copekṣitā lakṣmyā\
 > babhūvur daitya-dānavāḥ
 
 *niḥsattvāḥ*—without strength; *lolupāḥ*—very greedy; *rājan*—O King; *nirudyogāḥ*—frustrated; *gata-trapāḥ*—shameless; *yadā*—when; *ca*—also; *upekṣitāḥ*—neglected; *lakṣmyā*—by the goddess of fortune; *babhūvuḥ*—they became; *daitya-dānavāḥ*—the demons and Rākṣasas.

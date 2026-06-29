@@ -1,11 +1,11 @@
 ### SB 4.11.25
 
-> स एव विश्वं सृजति स एवावति हन्ति च ।
+> स एव विश्वं सृजति स एवावति हन्ति च ।\
 > अथापि ह्यनहङ्कारान्नाज्यते गुणकर्मभिः ॥२५॥
 
-> sa eva viśvaṁ sṛjati
-> sa evāvati hanti ca
-> athāpi hy anahaṅkārān
+> sa eva viśvaṁ sṛjati\
+> sa evāvati hanti ca\
+> athāpi hy anahaṅkārān\
 > nājyate guṇa-karmabhiḥ
 
 *saḥ*—He; *eva*—certainly; *viśvam*—the universe; *sṛjati*—creates; *saḥ*—He; *eva*—certainly; *avati*—maintains; *hanti*—annihilates; *ca*—also; *atha api*—moreover; *hi*—certainly; *anahaṅkārāt*—from being without ego; *na*—not; *ajyate*—becomes entangled; *guṇa*—by the modes of material nature; *karmabhiḥ*—by activities.

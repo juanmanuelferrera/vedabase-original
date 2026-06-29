@@ -1,11 +1,11 @@
 ### SB 7.4.36
 
-> गुणैरलमसङ्ख्येयैर्माहात्म्यं तस्य सूच्यते
+> गुणैरलमसङ्ख्येयैर्माहात्म्यं तस्य सूच्यते\
 > वासुदेवे भगवति यस्य नैसर्गिकी रतिः ॥३६॥
 
-> guṇair alam asaṅkhyeyair
-> māhātmyaṁ tasya sūcyate
-> vāsudeve bhagavati
+> guṇair alam asaṅkhyeyair\
+> māhātmyaṁ tasya sūcyate\
+> vāsudeve bhagavati\
 > yasya naisargikī ratiḥ
 
 *guṇaiḥ*—with spiritual qualities; *alam*—what need; *asaṅkhyeyaiḥ*—which are innumerable; *māhātmyam*—the greatness; *tasya*—of him (Prahlāda Mahārāja); *sūcyate*—is indicated; *vāsudeve*—to Lord Kṛṣṇa, the son of Vasudeva; *bhagavati*—the Supreme Personality of Godhead; *yasya*—of whom; *naisargikī*—natural; *ratiḥ*—attachment.

@@ -1,13 +1,13 @@
 ### Bg 2.6
 
-> न चैतद्विद्मः कतरन्नो गरीयो
-> यद्वा जयेम यदि वा नो जयेयुः ।
-> यानेव हत्वा न जिजीविषामस्-
+> न चैतद्विद्मः कतरन्नो गरीयो\
+> यद्वा जयेम यदि वा नो जयेयुः ।\
+> यानेव हत्वा न जिजीविषामस्-\
 > तेऽवस्थिताः प्रमुखे धार्तराष्ट्राः ॥६॥
 
-> na caitad vidmaḥ kataran no garīyo
-> yad vā jayema yadi vā no jayeyuḥ
-> yān eva hatvā na jijīviṣāmas
+> na caitad vidmaḥ kataran no garīyo\
+> yad vā jayema yadi vā no jayeyuḥ\
+> yān eva hatvā na jijīviṣāmas\
 > te 'vasthitāḥ pramukhe dhārtarāṣṭrāḥ
 
 *na*—nor; *ca*—also; *etat*—this; *vidmaḥ*—do know; *katarat*—which; *naḥ*—us; *garīyaḥ*—better; *yat*—what; *vā*—either; *jayema*—conquer us; *yadi*—if; *vā*—or; *naḥ*—us; *jayeyuḥ*—conquer; *yān*—those; *eva*—certainly; *hatvā*—by killing; *na*—never; *jijīviṣāmaḥ*—want to live; *te*—all of them; *avasthitāḥ*—are situated; *pramukhe*—in the front; *dhārtarāṣṭrāḥ*—the sons of Dhṛtarāṣṭra.

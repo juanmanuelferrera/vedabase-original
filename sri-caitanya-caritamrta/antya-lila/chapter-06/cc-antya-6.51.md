@@ -2,7 +2,7 @@
 
 > দধি, চিড়া ভক্ষণ করাহ মোর গণে ।” শুনি’ আনন্দিত হৈল রঘুনাথ মনে ॥৫১॥
 
-> dadhi, ciḍā bhakṣaṇa karāha mora gaṇe"
+> dadhi, ciḍā bhakṣaṇa karāha mora gaṇe"\
 > śuni' ānandita haila raghunātha mane
 
 *dadhi*—yogurt; *ciḍā*—chipped rice; *bhakṣaṇa karāha*—feed; *mora gaṇe*—My associates; *śuni'*—hearing; *ānandita haila*—became very happy; *raghunātha*—Raghunātha dāsa; *mane*—in the mind.

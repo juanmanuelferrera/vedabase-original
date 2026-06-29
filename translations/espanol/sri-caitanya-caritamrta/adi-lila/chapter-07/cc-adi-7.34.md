@@ -1,9 +1,9 @@
 ### CC Adi 7.34
 
-> চব্বিশ বৎসর ছিলা গৃহস্থ-আশ্রমে ।
+> চব্বিশ বৎসর ছিলা গৃহস্থ-আশ্রমে ।\
 > পঞ্চবিংশতি বর্ষে কৈল যতিধর্মে ॥৩৪॥
 
-> cabbiśa vatsara chilā gṛhastha-āśrame
+> cabbiśa vatsara chilā gṛhastha-āśrame\
 > pañca-viṁśati varṣe kaila yati-dharme
 
 *cabbiśa*—veinticuatro; *vatsara*—años; *chilā*—permaneció; *gṛhastha*—vida de casado; *āśrame*—la orden de; *pañca*—cinco; *viṁśati*—veinte; *varṣe*—en el año; *kaila*—hizo; *yati-dharme*—aceptó la orden de *sannyāsa*.

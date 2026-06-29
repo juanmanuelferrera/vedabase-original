@@ -1,11 +1,11 @@
 ### SB 1.13.31
 
-> अजातशत्रुः कृतमैत्रो हुताग्निर्विप्रान्नत्वा तिलगोभूमिरुक्मैः ।
+> अजातशत्रुः कृतमैत्रो हुताग्निर्विप्रान्नत्वा तिलगोभूमिरुक्मैः ।\
 > गृहं प्रविष्टो गुरुवन्दनाय न चापश्यत्पितरौ सौबलीं च ॥३१॥
 
-> ajāta-śatruḥ kṛta-maitro hutāgnir
-> viprān natvā tila-go-bhūmi-rukmaiḥ
-> gṛhaṁ praviṣṭo guru-vandanāya
+> ajāta-śatruḥ kṛta-maitro hutāgnir\
+> viprān natvā tila-go-bhūmi-rukmaiḥ\
+> gṛhaṁ praviṣṭo guru-vandanāya\
 > na cāpaśyat pitarau saubalīṁ ca
 
 *ajāta*—never born; *śatruḥ*—enemy; *kṛta*—having performed; *maitraḥ*—worshiping the demigods; *huta-agniḥ*—and offering fuel in the fire; *viprān*—the *brāhmaṇas*; *natvā*—offering obeisances; *tila-go-bhūmi-rukmaiḥ*—along with grains, cows, land and gold; *gṛham*—within the palace; *praviṣṭaḥ*—having entered into; *guru-vandanāya*—for offering respect to the elderly members; *na*—did not; *ca*—also; *apaśyat*—see; *pitarau*—his uncles; *saubalīm*—Gāndhārī; *ca*—also.

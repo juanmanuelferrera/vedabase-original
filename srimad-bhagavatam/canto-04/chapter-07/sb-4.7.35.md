@@ -1,13 +1,13 @@
 ### SB 4.7.35
 
-> सिद्धा ऊचुः
-> अयं त्वत्कथामृष्टपीयूषनद्यां मनोवारणः क्लेशदावाग्निदग्धः ।
+> सिद्धा ऊचुः\
+> अयं त्वत्कथामृष्टपीयूषनद्यां मनोवारणः क्लेशदावाग्निदग्धः ।\
 > तृषार्तोऽवगाढो न सस्मार दावं न निष्क्रामति ब्रह्मसम्पन्नवन्नः ॥३५॥
 
-> siddhā ūcuḥ
-> ayaṁ tvat-kathā-mṛṣṭa-pīyūṣa-nadyāṁ
-> mano-vāraṇaḥ kleśa-dāvāgni-dagdhaḥ
-> tṛṣārto 'vagāḍho na sasmāra dāvaṁ
+> siddhā ūcuḥ\
+> ayaṁ tvat-kathā-mṛṣṭa-pīyūṣa-nadyāṁ\
+> mano-vāraṇaḥ kleśa-dāvāgni-dagdhaḥ\
+> tṛṣārto 'vagāḍho na sasmāra dāvaṁ\
 > na niṣkrāmati brahma-sampannavan naḥ
 
 *siddhāḥ*—the Siddhas; *ūcuḥ*—prayed; *ayam*—this; *tvat-kathā*—Your pastimes; *mṛṣṭa*—pure; *pīyūṣa*—of nectar; *nadyām*—in the river; *manaḥ*—of the mind; *vāraṇaḥ*—the elephant; *kleśa*—sufferings; *dāva-agni*—by the forest fire; *dagdhaḥ*—burned; *tṛṣā*—thirst; *ārtaḥ*—afflicted; *avagāḍhaḥ*—being immersed; *na sasmāra*—does not remember; *dāvam*—the forest fire or the miseries; *na niṣkrāmati*—not come out; *brahma*—the Absolute; *sampanna-vat*—like having merged; *naḥ*—our.

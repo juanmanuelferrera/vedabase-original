@@ -1,11 +1,11 @@
 ### SB 6.1.48
 
-> मनसैव पुरे देवः पूर्वरूपं विपश्यति
+> मनसैव पुरे देवः पूर्वरूपं विपश्यति\
 > अनुमीमांसतेऽपूर्वं मनसा भगवानजः ॥४८॥
 
-> manasaiva pure devaḥ
-> pūrva-rūpaṁ vipaśyati
-> anumīmāṁsate 'pūrvaṁ
+> manasaiva pure devaḥ\
+> pūrva-rūpaṁ vipaśyati\
+> anumīmāṁsate 'pūrvaṁ\
 > manasā bhagavān ajaḥ
 
 *manasā*—con la mente; *eva*—en verdad; *pure*—en su morada, o dentro del corazón de todos en forma de Superalma; *devaḥ*—el semidiós Yamarāja (*dīvyatīti devaḥ*: cuando alguien está siempre brillante e iluminado, recibe el nombre de *deva*); *pūrva-rūpam*—la condición religiosa o irreligiosa del pasado; *vipaśyati*—observa completamente; *anumīmāṁsate*—considera; *apūrvam*—la condición futura; *manasā*—con su mente; *bhagavān*—que es omnipotente; *ajaḥ*—como el Señor Brahmā.

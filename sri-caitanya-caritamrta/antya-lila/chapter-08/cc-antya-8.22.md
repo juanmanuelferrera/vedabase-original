@@ -1,9 +1,9 @@
 ### CC Antya 8.22
 
-> শুনি’ মাধবেন্দ্র-মনে ক্রোধ উপজিল ।
+> শুনি’ মাধবেন্দ্র-মনে ক্রোধ উপজিল ।\
 > ‘দূর, দূর, পাপিষ্ঠ’ বলি’ ভর্ৎসনা করিল ॥২২॥
 
-> śuni' mādhavendra-mane krodha upajila
+> śuni' mādhavendra-mane krodha upajila\
 > 'dūra, dūra, pāpiṣṭha' bali' bhartsanā karila
 
 *śuni'*—hearing; *mādhavendra*—of Mādhavendra Purī; *mane*—in the mind; *krodha*—anger; *upajila*—arose; *dūra dūra*—get out; *pāpiṣṭha*—you sinful rascal; *bali'*—saying; *bhartsanā karila*—he chastised.

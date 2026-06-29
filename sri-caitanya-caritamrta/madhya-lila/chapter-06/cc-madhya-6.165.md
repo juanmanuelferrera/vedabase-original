@@ -1,11 +1,11 @@
 ### CC Madhya 6.165
 
-> অপরেয়মিতস্ত্বন্যাং প্ৰকৃতিং বিদ্ধি মে পরাম্ ।
+> অপরেয়মিতস্ত্বন্যাং প্ৰকৃতিং বিদ্ধি মে পরাম্ ।\
 > জীবভূতাং মহাবাহো যয়েদং ধার্যতে জগৎ ॥১৬৫॥
 
-> apareyam itas tv anyāṁ
-> prakṛtiṁ viddhi me parām
-> jīva-bhūtāṁ mahā-bāho
+> apareyam itas tv anyāṁ\
+> prakṛtiṁ viddhi me parām\
+> jīva-bhūtāṁ mahā-bāho\
 > yayedaṁ dhāryate jagat
 
 *aparā*—inferior; *iyam*—this; *itaḥ*—from this; *tu*—but; *anyām*—another; *prakṛtim*—nature; *viddhi*—know; *me*—My; *parām*—transcendental; *jīva-bhūtām*—existing as the living entities; *mahā-bāho*—O mighty-armed one; *yayā*—by which; *idam*—this; *dhāryate*—is sustained; *jagat*—material world.

@@ -1,9 +1,9 @@
 ### CC Adi 17.7
 
-> বায়ুব্যাধিচ্ছলে কৈল প্রেম পরকাশ ।
+> বায়ুব্যাধিচ্ছলে কৈল প্রেম পরকাশ ।\
 > ভক্তগণ লঞা কৈল বিবিধ বিলাস ॥৭॥
 
-> vāyu-vyādhi-cchale kaila prema parakāśa
+> vāyu-vyādhi-cchale kaila prema parakāśa\
 > bhakta-gaṇa lañā kaila vividha vilāsa
 
 *vāyu-vyādhi*—disease caused by disturbance of the air in the body; *chale*—on the plea of; *kaila*—made; *prema*—love of Godhead; *parakāśa*—manifestation; *bhakta-gaṇa*—the devotees; *lañā*—taking with Him; *kaila*—did; *vividha*—varieties of; *vilāsa*—pastimes.

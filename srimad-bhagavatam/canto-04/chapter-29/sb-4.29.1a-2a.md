@@ -1,22 +1,22 @@
 ### SB 4.29.1a-2a
 
-> सर्वेषामेव जन्तूनां
-> सततं देहपोषणे
-> अस्ति प्रज्ञा समायत्ता
-> को विशेषस्तदा नृणाम्
-> लब्ध्वेहान्ते मनुष्यत्वं
-> हित्वा देहाद्यसद्ग्रहम्
-> आत्मसृत्या विहायेदं
+> सर्वेषामेव जन्तूनां\
+> सततं देहपोषणे\
+> अस्ति प्रज्ञा समायत्ता\
+> को विशेषस्तदा नृणाम्\
+> लब्ध्वेहान्ते मनुष्यत्वं\
+> हित्वा देहाद्यसद्ग्रहम्\
+> आत्मसृत्या विहायेदं\
 > जीवात्मा स विशिष्यते ॥१-२॥
 
-> sarveṣām eva jantūnāṁ
-> satataṁ deha-poṣaṇe
-> asti prajñā samāyattā
+> sarveṣām eva jantūnāṁ\
+> satataṁ deha-poṣaṇe\
+> asti prajñā samāyattā\
 > ko viśeṣas tadā nṛṇām
 
-> labdhvehānte manuṣyatvaṁ
-> hitvā dehādy-asad-graham
-> ātma-sṛtyā vihāyedaṁ
+> labdhvehānte manuṣyatvaṁ\
+> hitvā dehādy-asad-graham\
+> ātma-sṛtyā vihāyedaṁ\
 > jīvātmā sa viśiṣyate
 
 *sarveṣām*—all; *eva*—certainly; *jantūnām*—of animals; *satatam*—always; *deha-poṣaṇe*—to maintain the body; *asti*—there is; *prajñā*—intelligence; *samāyattā*—resting on; *kaḥ*—what; *viśeṣaḥ*—difference; *tadā*—then; *nṛṇām*—of the human beings; *labdhvā*—having attained; *iha*—here; *ante*—at the end of many births; *manuṣyatvam*—a human life; *hitvā*—after giving up; *deha-ādi*—in the gross and subtle body; *asat-graham*—an incorrect conception of life; *ātma*—of spiritual knowledge; *sṛtyā*—by the path; *vihāya*—having abandoned; *idam*—this body; *jīva-ātmā*—the individual spirit soul; *saḥ*—that; *viśiṣyate*—becomes prominent.

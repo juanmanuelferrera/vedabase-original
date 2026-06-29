@@ -1,11 +1,11 @@
 ### SB 9.4.3
 
-> इमे अङ्गिरसः सत्रमासतेऽद्य सुमेधसः
+> इमे अङ्गिरसः सत्रमासतेऽद्य सुमेधसः\
 > षष्ठं षष्ठमुपेत्याहः कवे मुह्यन्ति कर्मणि ॥३॥
 
-> ime aṅgirasaḥ satram
-> āsate 'dya sumedhasaḥ
-> ṣaṣṭhaṁ ṣaṣṭham upetyāhaḥ
+> ime aṅgirasaḥ satram\
+> āsate 'dya sumedhasaḥ\
+> ṣaṣṭhaṁ ṣaṣṭham upetyāhaḥ\
 > kave muhyanti karmaṇi
 
 *ime*—all these; *aṅgirasaḥ*—descendants of the dynasty of Aṅgirā; *satram*—sacrifice; *āsate*—are performing; *adya*—today; *sumedhasaḥ*—who are all very intelligent; *ṣaṣṭham*—sixth; *ṣaṣṭham*—sixth; *upetya*—after achieving; *ahaḥ*—day; *kave*—O best of learned men; *muhyanti*—become bewildered; *karmaṇi*—in discharging fruitive activities.

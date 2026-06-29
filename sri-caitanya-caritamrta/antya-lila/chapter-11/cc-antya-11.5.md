@@ -1,9 +1,9 @@
 ### CC Antya 11.5
 
-> জয় গৌরদেহ কৃষ্ণ স্বয়ং ভগবান্ ।
+> জয় গৌরদেহ কৃষ্ণ স্বয়ং ভগবান্ ।\
 > কৃপা করি’ দেহ’ প্রভু, নিজ-পদ-দান ॥৫॥
 
-> jaya gaura-deha kṛṣṇa svayaṁ bhagavān
+> jaya gaura-deha kṛṣṇa svayaṁ bhagavān\
 > kṛpā kari' deha' prabhu, nija-pada-dāna
 
 *jaya*—all glories; *gaura-deha*—to the transcendental body of Śrī Caitanya Mahāprabhu; *kṛṣṇa*—Lord Kṛṣṇa; *svayam*—personally; *bhagavān*—the Supreme Personality of Godhead; *kṛpā kari'*—being merciful; *deha'*—please give; *prabhu*—my Lord; *nija-pada-dāna*—shelter at Your lotus feet.

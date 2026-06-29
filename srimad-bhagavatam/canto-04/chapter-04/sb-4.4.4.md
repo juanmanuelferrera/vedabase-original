@@ -1,11 +1,11 @@
 ### SB 4.4.4
 
-> तामन्वगच्छन्द्रुतविक्रमां सतीमेकां त्रिनेत्रानुचराः सहस्रशः ।
+> तामन्वगच्छन्द्रुतविक्रमां सतीमेकां त्रिनेत्रानुचराः सहस्रशः ।\
 > सपार्षदयक्षा मणिमन्मदादयः पुरोवृषेन्द्रास्तरसा गतव्यथाः ॥४॥
 
-> tām anvagacchan druta-vikramāṁ satīm
-> ekāṁ tri-netrānucarāḥ sahasraśaḥ
-> sa-pārṣada-yakṣā maṇiman-madādayaḥ
+> tām anvagacchan druta-vikramāṁ satīm\
+> ekāṁ tri-netrānucarāḥ sahasraśaḥ\
+> sa-pārṣada-yakṣā maṇiman-madādayaḥ\
 > puro-vṛṣendrās tarasā gata-vyathāḥ
 
 *tām*—her (Satī); *anvagacchan*—followed; *druta-vikramām*—leaving rapidly; *satīm*—Satī; *ekām*—alone; *tri-netra*—of Lord Śiva (who has three eyes); *anucarāḥ*—the followers; *sahasraśaḥ*—by thousands; *sa-pārṣada-yakṣāḥ*—accompanied by his personal associates and the Yakṣas; *maṇimat-mada-ādayaḥ*—Maṇimān, Mada, etc.; *puraḥ-vṛṣa-indrāḥ*—having the Nandī bull in front; *tarasā*—swiftly; *gata-vyathāḥ*—without fear.

@@ -1,9 +1,9 @@
 ### CC Adi 17.302
 
-> তিহঁ শ্যাম, — বংশীমুখ, গোপবিলাসী ।
+> তিহঁ শ্যাম, — বংশীমুখ, গোপবিলাসী ।\
 > ইহঁ গৌর — কভু দ্বিজ, কভু ত’ সন্ন্যাসী ॥৩০২॥
 
-> tihaṅ śyāma,--vaṁśī-mukha, gopa-vilāsī
+> tihaṅ śyāma,--vaṁśī-mukha, gopa-vilāsī\
 > ihaṅ gaura--kabhu dvija, kabhu ta' sannyāsī
 
 *tihaṅ*—en el *kṛṣṇa-līlā*; *śyāma*—de tez oscura; *vaṁśī-mukha*—con una flauta en la boca; *gopa-vilāsī*—alguien que disfruta como un pastorcillo de vacas; *ihaṅ*—ahora; *gaura*—de tez clara; *kabhu*—a veces; *dvija*—*brāhmaṇa*; *kabhu*—a veces; *ta'*—ciertamente; *sannyāsī*—en la orden de renuncia.

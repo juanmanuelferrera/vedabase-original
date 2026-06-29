@@ -1,11 +1,11 @@
 ### SB 3.5.51
 
-> ततो वयं मत्प्रमुखा यदर्थे बभूविमात्मन्करवाम किं ते ।
+> ततो वयं मत्प्रमुखा यदर्थे बभूविमात्मन्करवाम किं ते ।\
 > त्वं नः स्वचक्षुः परिदेहि शक्त्या देव क्रियार्थे यदनुग्रहाणाम् ॥५१॥
 
-> tato vayaṁ mat-pramukhā yad-arthe
-> babhūvimātman karavāma kiṁ te
-> tvaṁ naḥ sva-cakṣuḥ paridehi śaktyā
+> tato vayaṁ mat-pramukhā yad-arthe\
+> babhūvimātman karavāma kiṁ te\
+> tvaṁ naḥ sva-cakṣuḥ paridehi śaktyā\
 > deva kriyārthe yad-anugrahāṇām
 
 *tataḥ*—therefore; *vayam*—all of us; *mat-pramukhāḥ*—coming from the total cosmos, the *mahat-tattva*; *yat-arthe*—for the purpose of which; *babhūvima*—created; *ātman*—O Supreme Self; *karavāma*—shall do; *kim*—what; *te*—Your service; *tvam*—Yourself; *naḥ*—to us; *sva-cakṣuḥ*—personal plan; *paridehi*—specifically grant us; *śaktyā*—with potency to work; *deva*—O Lord; *kriyā-arthe*—for acting; *yat*—from which; *anugrahāṇām*—of those who are specifically favored.

@@ -1,11 +1,11 @@
 ### SB 3.26.18
 
-> अन्तः पुरुषरूपेण कालरूपेण यो बहिः ।
+> अन्तः पुरुषरूपेण कालरूपेण यो बहिः ।\
 > समन्वेत्येष सत्त्वानां भगवानात्ममायया ॥१८॥
 
-> antaḥ puruṣa-rūpeṇa
-> kāla-rūpeṇa yo bahiḥ
-> samanvety eṣa sattvānāṁ
+> antaḥ puruṣa-rūpeṇa\
+> kāla-rūpeṇa yo bahiḥ\
+> samanvety eṣa sattvānāṁ\
 > bhagavān ātma-māyayā
 
 *antaḥ*—within; *puruṣa-rūpeṇa*—in the form of Supersoul; *kāla-rūpeṇa*—in the form of time; *yaḥ*—He who; *bahiḥ*—without; *samanveti*—exists; *eṣaḥ*—He; *sattvānām*—of all living entities; *bhagavān*—the Supreme Personality of Godhead; *ātma-māyayā*—by His potencies.

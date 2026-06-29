@@ -1,11 +1,11 @@
 ### SB 7.5.2
 
-> तौ राज्ञआ प्रापितं बालं प्रह्लादं नयकोविदम
+> तौ राज्ञआ प्रापितं बालं प्रह्लादं नयकोविदम\
 > पाठयामासतुः पाठ्यानन्यांश्चासुरबालकान ॥२॥
 
-> tau rājñā prāpitaṁ bālaṁ
-> prahlādaṁ naya-kovidam
-> pāṭhayām āsatuḥ pāṭhyān
+> tau rājñā prāpitaṁ bālaṁ\
+> prahlādaṁ naya-kovidam\
+> pāṭhayām āsatuḥ pāṭhyān\
 > anyāṁś cāsura-bālakān
 
 *tau*—those two (Ṣaṇḍa and Amarka); *rājñā*—by the King; *prāpitam*—sent; *bālam*—the boy; *prahlādam*—named Prahlāda; *naya-kovidam*—who was aware of moral principles; *pāṭhayām āsatuḥ*—instructed; *pāṭhyān*—books of material knowledge; *anyān*—other; *ca*—also; *asura-bālakān*—sons of the *asuras.*

@@ -1,11 +1,11 @@
 ### SB 3.32.8
 
-> द्विपरार्धावसाने यः प्रलयो ब्रह्मणस्तु ते ।
+> द्विपरार्धावसाने यः प्रलयो ब्रह्मणस्तु ते ।\
 > तावदध्यासते लोकं परस्य परचिन्तकाः ॥८॥
 
-> dvi-parārdhāvasāne yaḥ
-> pralayo brahmaṇas tu te
-> tāvad adhyāsate lokaṁ
+> dvi-parārdhāvasāne yaḥ\
+> pralayo brahmaṇas tu te\
+> tāvad adhyāsate lokaṁ\
 > parasya para-cintakāḥ
 
 *dvi-parārdha*—dos *parārdhas*; *avasāne*—al final de; *yaḥ*—que; *pralayaḥ*—muerte; *brahmaṇaḥ*—del Señor Brahmā; *tu*—ciertamente; *te*—ellos; *tāvat*—mientras; *adhyāsate*—moran; *lokam*—en el planeta; *parasya*—del Supremo; *para-cintakāḥ*—pensando en la Suprema Personalidad de Dios.

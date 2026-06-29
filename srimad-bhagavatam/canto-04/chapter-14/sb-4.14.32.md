@@ -1,11 +1,11 @@
 ### SB 4.14.32
 
-> नायमर्हत्यसद्वृत्तो नरदेववरासनम् ।
+> नायमर्हत्यसद्वृत्तो नरदेववरासनम् ।\
 > योऽधियज्ञपतिं विष्णुं विनिन्दत्यनपत्रपः ॥३२॥
 
-> nāyam arhaty asad-vṛtto
-> naradeva-varāsanam
-> yo 'dhiyajña-patiṁ viṣṇuṁ
+> nāyam arhaty asad-vṛtto\
+> naradeva-varāsanam\
+> yo 'dhiyajña-patiṁ viṣṇuṁ\
 > vinindaty anapatrapaḥ
 
 *na*—never; *ayam*—this man; *arhati*—deserves; *asat-vṛttaḥ*—full of impious activities; *nara-deva*—of the worldly king or worldly god; *vara-āsanam*—the exalted throne; *yaḥ*—he who; *adhiyajña-patim*—the master of all sacrifices; *viṣṇum*—Lord Viṣṇu; *vinindati*—insults; *anapatrapaḥ*—shameless.

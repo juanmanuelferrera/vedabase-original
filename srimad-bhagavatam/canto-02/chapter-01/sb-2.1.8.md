@@ -1,11 +1,11 @@
 ### SB 2.1.8
 
-> इदं भागवतं नाम पुराणं ब्रह्मसम्मितम् ।
+> इदं भागवतं नाम पुराणं ब्रह्मसम्मितम् ।\
 > अधीतवान्द्वापरादौ पितुर्द्वैपायनादहम् ॥८॥
 
-> idaṁ bhāgavataṁ nāma
-> purāṇaṁ brahma-sammitam
-> adhītavān dvāparādau
+> idaṁ bhāgavataṁ nāma\
+> purāṇaṁ brahma-sammitam\
+> adhītavān dvāparādau\
 > pitur dvaipāyanād aham
 
 *idam*—this; *bhāgavatam*—*Śrīmad-Bhāgavatam*; *nāma*—of the name; *purāṇam*—Vedic supplement; *brahma-sammitam*—approved as the essence of the *Vedas*; *adhītavān*—studied; *dvāpara-ādau*—at the end of the Dvāpara-yuga; *pituḥ*—from my father; *dvaipāyanāt*—Dvaipāyana Vyāsadeva; *aham*—myself.

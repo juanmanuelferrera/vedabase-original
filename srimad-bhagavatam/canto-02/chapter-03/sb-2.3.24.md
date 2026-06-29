@@ -1,11 +1,11 @@
 ### SB 2.3.24
 
-> तदश्मसारं हृदयं बतेदं यद्गृह्यमाणैर्हरिनामधेयैः ।
+> तदश्मसारं हृदयं बतेदं यद्गृह्यमाणैर्हरिनामधेयैः ।\
 > न विक्रियेताथ यदा विकारो नेत्रे जलं गात्ररुहेषु हर्षः ॥२४॥
 
-> tad aśma-sāraṁ hṛdayaṁ batedaṁ
-> yad gṛhyamāṇair hari-nāma-dheyaiḥ
-> na vikriyetātha yadā vikāro
+> tad aśma-sāraṁ hṛdayaṁ batedaṁ\
+> yad gṛhyamāṇair hari-nāma-dheyaiḥ\
+> na vikriyetātha yadā vikāro\
 > netre jalaṁ gātra-ruheṣu harṣaḥ
 
 *tat*—that; *aśma-sāram*—is steel-framed; *hṛdayam*—heart; *bata idam*—certainly that; *yat*—which; *gṛhyamāṇaiḥ*—in spite of chanting; *hari-nāma*—the holy name of the Lord; *dheyaiḥ*—by concentration of the mind; *na*—does not; *vikriyeta*—change; *atha*—thus; *yadā*—when; *vikāraḥ*—reaction; *netre*—in the eyes; *jalam*—tears; *gātra-ruheṣu*—at the pores; *harṣaḥ*—eruptions of ecstasy.

@@ -1,13 +1,13 @@
 ### SB 4.7.36
 
-> यजमान्युवाच
-> स्वागतं ते प्रसीदेश तुभ्यं नमः श्रीनिवास श्रिया कान्तया त्राहि नः ।
+> यजमान्युवाच\
+> स्वागतं ते प्रसीदेश तुभ्यं नमः श्रीनिवास श्रिया कान्तया त्राहि नः ।\
 > त्वामृतेऽधीश नाङ्गैर्मखः शोभते शीर्षहीनः कबन्धो यथा पुरुषः ॥३६॥
 
-> yajamāny uvāca
-> svāgataṁ te prasīdeśa tubhyaṁ namaḥ
-> śrīnivāsa śriyā kāntayā trāhi naḥ
-> tvām ṛte 'dhīśa nāṅgair makhaḥ śobhate
+> yajamāny uvāca\
+> svāgataṁ te prasīdeśa tubhyaṁ namaḥ\
+> śrīnivāsa śriyā kāntayā trāhi naḥ\
+> tvām ṛte 'dhīśa nāṅgair makhaḥ śobhate\
 > śīrṣa-hīnaḥ ka-bandho yathā puruṣaḥ
 
 *yajamānī*—la esposa de Dakṣa; *uvāca*—oró; *su-āgatam*—auspicioso advenimiento; *te*—Tuyo; *prasīda*—siéntete satisfecho; *īśa*—mi querido Señor; *tubhyam*—a Ti; *namaḥ*—reverencias respetuosas; *śrīnivāsa*—¡oh, morada de la diosa de la fortuna!; *śriyā*—con Lakṣmī; *kāntayā*—Tu esposa; *trāhi*—protege; *naḥ*—a nosotros; *tvām*—Tú; *ṛte*—sin; *adhīśa*—¡oh, controlador supremo!; *na*—no; *aṅgaiḥ*—con miembros del cuerpo; *makhaḥ*—el recinto de sacrificio; *śobhate*—es hermoso; *śīrṣa-hīnaḥ*—sin la cabeza; *ka-bandhaḥ*—que solo tiene cuerpo; *yathā*—como; *puruṣaḥ*—una persona.

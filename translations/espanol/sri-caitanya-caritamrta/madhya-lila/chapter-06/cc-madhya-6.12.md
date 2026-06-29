@@ -1,9 +1,9 @@
 ### CC Madhya 6.12
 
-> ‘সূদ্দীপ্ত সাত্ত্বিক’ এই নাম যে ‘প্রলয়’ ।
+> ‘সূদ্দীপ্ত সাত্ত্বিক’ এই নাম যে ‘প্রলয়’ ।\
 > নিত্যসিদ্ধ ভক্তে সে ‘সূদ্দীপ্ত ভাব’ হয় ॥১২॥
 
-> 'sūddīpta sāttvika' ei nāma ye 'pralaya'
+> 'sūddīpta sāttvika' ei nāma ye 'pralaya'\
 > nitya-siddha bhakte se 'sūddīpta bhāva' haya
 
 *su-uddīpta sāttvika*—de nombre sūddīpta-sāttvika; *ei*—esta; *nāma*—llamada; *ye*—la cual; *pralaya*—devastación; *nitya-siddha*—eternamente perfeccionado; *bhakte*—en el devoto; *se*—ese; *su-uddīpta bhāva*—éxtasis conocido como sūddīpta; *haya*—se manifiesta.

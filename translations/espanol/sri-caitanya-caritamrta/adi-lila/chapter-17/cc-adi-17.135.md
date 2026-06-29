@@ -1,9 +1,9 @@
 ### CC Adi 17.135
 
-> এত কহি’ সন্ধ্যাকালে চলে গৌররায় ।
+> এত কহি’ সন্ধ্যাকালে চলে গৌররায় ।\
 > কীর্তনের কৈল প্রভু তিন সম্প্রদায় ॥১৩৫॥
 
-> eta kahi' sandhyā-kale cāle gaurarāya
+> eta kahi' sandhyā-kale cāle gaurarāya\
 > kīrtanera kaila prabhu tina sampradāya
 
 *eta kahi'*—diciendo esto; *sandhyā-kāle*—por la tarde; *cale*—salió; *gaura-rāya*—Gaurasundara; *kīrtanera*—de realizar saṅkīrtana; *kaila*—formó; *prabhu*—el Señor; *tina*—tres; *sampradāya*—grupos.

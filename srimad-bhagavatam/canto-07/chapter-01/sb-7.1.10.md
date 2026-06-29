@@ -1,11 +1,11 @@
 ### SB 7.1.10
 
-> यदा सिसृक्षुः पुर आत्मनः परो रजः सृजत्येष पृथक्स्वमायया
+> यदा सिसृक्षुः पुर आत्मनः परो रजः सृजत्येष पृथक्स्वमायया\
 > सत्त्वं विचित्रासु रिरंसुरीश्वरः शयिष्यमाणस्तम ईरयत्यसौ ॥१०॥
 
-> yadā sisṛkṣuḥ pura ātmanaḥ paro
-> rajaḥ sṛjaty eṣa pṛthak sva-māyayā
-> sattvaṁ vicitrāsu riraṁsur īśvaraḥ
+> yadā sisṛkṣuḥ pura ātmanaḥ paro\
+> rajaḥ sṛjaty eṣa pṛthak sva-māyayā\
+> sattvaṁ vicitrāsu riraṁsur īśvaraḥ\
 > śayiṣyamāṇas tama īrayaty asau
 
 *yadā*—when; *sisṛkṣuḥ*—desiring to create; *puraḥ*—material bodies; *ātmanaḥ*—for the living entities; *paraḥ*—the Supreme Personality of Godhead; *rajaḥ*—the mode of passion; *sṛjati*—manifests; *eṣaḥ*—He; *pṛthak*—separately, predominantly; *sva-māyayā*—by His own creative energy; *sattvam*—the mode of goodness; *vicitrāsu*—in various types of bodies; *riraṁsuḥ*—desiring to act; *īśvaraḥ*—the Personality of Godhead; *śayiṣyamāṇaḥ*—being about to conclude; *tamaḥ*—the mode of ignorance; *īrayati*—causes to rise; *asau*—that Supreme.

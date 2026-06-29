@@ -1,9 +1,9 @@
 ### CC Madhya 8.3
 
-> পূর্ব-রীতে প্রভু আগে গমন করিলা ৷
+> পূর্ব-রীতে প্রভু আগে গমন করিলা ৷\
 > ‘জিয়ড়নৃসিংহ’-ক্ষেত্রে কতদিনে গেলা ৷৷ ৩ ৷৷ ॥৩॥
 
-> pūrva-rīte prabhu āge gamana karilā
+> pūrva-rīte prabhu āge gamana karilā\
 > 'jiyaḍa-nṛsiṁha'-kṣetre kata-dine gelā
 
 *pūrva-rīte*—conforme a Su programa previo; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *āge*—adelante; *gamana*—marcha; *karilā*—realizó; *jiyaḍa-nṛsiṁha*—de nombre Jiyaḍa-nṛsiṁha; *kṣetre*—en el lugar de peregrinaje; *kata-dine*—al cabo de algunos días; *gelā*—llegó.

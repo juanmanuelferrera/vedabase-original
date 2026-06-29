@@ -1,9 +1,9 @@
 ### SB 5.18.1
 
-> श्रीशुक उवाच
+> श्रीशुक उवाच\
 > तथा च भद्रश्रवा नाम धर्मसुतस्तत्कुलपतयः पुरुषा भद्राश्ववर्षे साक्षाद्भगवतोवासुदेवस्य प्रियां तनुं धर्ममयीं हयशीर्षाभिधानां परमेण समाधिनासन्निधाप्येदमभिगृणन्त उपधावन्ति ॥१॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > tathā ca bhadraśravā nāma dharma-sutas tat-kula-patayaḥ puruṣā bhadrāśva-varṣe sākṣād bhagavato vāsudevasya priyāṁ tanuṁ dharmamayīṁ hayaśīrṣābhidhānāṁ parameṇa samādhinā sannidhāpyedam abhigṛṇanta upadhāvanti.
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī dijo; *tathā ca*—del mismo modo (tal como el Señor Śiva adora a Saṅkarṣaṇa en Ilāvṛta-varṣa); *bhadra-śravā*—Bhadraśravā; *nāma*—con el nombre de; *dharma-sutaḥ*—el hijo de Dharmarāja; *tat*—de él; *kula-patayaḥ*—los jefes de la dinastía; *puruṣāḥ*—todos los habitantes; *bhadrāśva-varṣe*—en la región de Bhadrāśva-varṣa; *sākṣāt*—directamente; *bhagavataḥ*—de la Suprema Personalidad de Dios; *vāsudevasya*—del Señor Vāsudeva; *priyām tanum*—forma muy querida; *dharma-mayīm*—quien tiene a Su cargo los principios religiosos; *hayaśīrṣa-abhidhānām*—Hayaśīrṣa, la encarnación del Señor (también llamado Hayagrīva); *parameṇa samādhinā*—con la forma de trance más elevada; *sannidhāpya*—acercándose; *idam*—esto; *abhigṛṇantaḥ*—cantando; *upadhāvanti*—adoran.

@@ -1,11 +1,11 @@
 ### SB 4.11.24
 
-> न चैते पुत्रक भ्रातुर्हन्तारो धनदानुगाः ।
+> न चैते पुत्रक भ्रातुर्हन्तारो धनदानुगाः ।\
 > विसर्गादानयोस्तात पुंसो दैवं हि कारणम् ॥२४॥
 
-> na caite putraka bhrātur
-> hantāro dhanadānugāḥ
-> visargādānayos tāta
+> na caite putraka bhrātur\
+> hantāro dhanadānugāḥ\
+> visargādānayos tāta\
 > puṁso daivaṁ hi kāraṇam
 
 *na*—never; *ca*—also; *ete*—all these; *putraka*—my dear son; *bhrātuḥ*—of your brother; *hantāraḥ*—killers; *dhanada*—of Kuvera; *anugāḥ*—followers; *visarga*—of birth; *ādānayoḥ*—of death; *tāta*—my dear son; *puṁsaḥ*—of a living entity; *daivam*—the Supreme; *hi*—certainly; *kāraṇam*—the cause.

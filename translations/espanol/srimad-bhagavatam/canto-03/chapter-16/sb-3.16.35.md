@@ -1,11 +1,11 @@
 ### SB 3.16.35
 
-> तावेव ह्यधुना प्राप्तौ पार्षदप्रवरौ हरेः ।
+> तावेव ह्यधुना प्राप्तौ पार्षदप्रवरौ हरेः ।\
 > दितेर्जठरनिर्विष्टं काश्यपं तेज उल्बणम् ॥३५॥
 
-> tāv eva hy adhunā prāptau
-> pārṣada-pravarau hareḥ
-> diter jaṭhara-nirviṣṭaṁ
+> tāv eva hy adhunā prāptau\
+> pārṣada-pravarau hareḥ\
+> diter jaṭhara-nirviṣṭaṁ\
 > kāśyapaṁ teja ulbaṇam
 
 *tau*—esos dos porteros; *eva*—ciertamente; *hi*—dirigidos; *adhunā*—ahora; *prāptau*—habiendo obtenido; *pārṣada-pravarau*—importantes compañeros; *hareḥ*—de la Suprema Personalidad de Dios; *diteḥ*—de Diti; *jaṭhara*—vientre; *nirviṣṭam*—entrando; *kāśyapam*—de Kaśyapa Muni; *tejaḥ*—semen; *ulbaṇam*—muy fuerte.

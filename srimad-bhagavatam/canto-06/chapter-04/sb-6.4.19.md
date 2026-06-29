@@ -1,11 +1,11 @@
 ### SB 6.4.19
 
-> मनसैवासृजत्पूर्वं प्रजापतिरिमाः प्रजाः
+> मनसैवासृजत्पूर्वं प्रजापतिरिमाः प्रजाः\
 > देवासुरमनुष्यादीन्नभःस्थलजलौकसः ॥१९॥
 
-> manasaivāsṛjat pūrvaṁ
-> prajāpatir imāḥ prajāḥ
-> devāsura-manuṣyādīn
+> manasaivāsṛjat pūrvaṁ\
+> prajāpatir imāḥ prajāḥ\
+> devāsura-manuṣyādīn\
 > nabhaḥ-sthala-jalaukasaḥ
 
 *manasā*—by the mind; *eva*—indeed; *asṛjat*—created; *pūrvam*—in the beginning; *prajāpatiḥ*—the *prajāpati* (Dakṣa); *imāḥ*—these; *prajāḥ*—living entities; *deva*—the demigods; *asura*—the demons; *manuṣya-ādīn*—and other living entities, headed by the human beings; *nabhaḥ*—in the skies; *sthala*—on the land; *jala*—or within the water; *okasaḥ*—who have their abodes.

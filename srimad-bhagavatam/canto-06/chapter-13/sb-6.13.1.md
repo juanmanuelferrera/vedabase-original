@@ -1,13 +1,13 @@
 ### SB 6.13.1
 
-> श्रीशुक उवाच
-> वृत्रे हते त्रयो लोका विना शक्रेण भूरिद
+> श्रीशुक उवाच\
+> वृत्रे हते त्रयो लोका विना शक्रेण भूरिद\
 > सपाला ह्यभवन्सद्यो विज्वरा निर्वृतेन्द्रियाः ॥१॥
 
-> śrī-śuka uvāca
-> vṛtre hate trayo lokā
-> vinā śakreṇa bhūrida
-> sapālā hy abhavan sadyo
+> śrī-śuka uvāca\
+> vṛtre hate trayo lokā\
+> vinā śakreṇa bhūrida\
+> sapālā hy abhavan sadyo\
 > vijvarā nirvṛtendriyāḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *vṛtre hate*—when Vṛtrāsura was killed; *trayaḥ lokāḥ*—the three planetary systems (upper, middle and lower); *vinā*—except; *śakreṇa*—Indra, who is also called Śakra; *bhūri-da*—O Mahārāja Parīkṣit, giver of great charity; *sa-pālāḥ*—with the rulers of the various planets; *hi*—indeed; *abhavan*—became; *sadyaḥ*—immediately; *vijvarāḥ*—without fear of death; *nirvṛta*—very much pleased; *indriyāḥ*—whose senses.

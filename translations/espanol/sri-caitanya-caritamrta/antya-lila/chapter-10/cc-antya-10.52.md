@@ -1,9 +1,9 @@
 ### CC Antya 10.52
 
-> জললীলা করি’ গোবিন্দ চলিলা আলয় ।
+> জললীলা করি’ গোবিন্দ চলিলা আলয় ।\
 > নিজগণ লঞা প্রভু গেলা দেবালয় ॥৫২॥
 
-> jala-līlā kari' govinda calilā ālaya
+> jala-līlā kari' govinda calilā ālaya\
 > nija-gaṇa lañā prabhu gelā devālaya
 
 *jala-līlā kari'*—después de concluir los pasatiempos en el agua; *govinda*—el Señor Jagannātha en Su forma móvil de Govinda; *calilā ālaya*—regresó a Su lugar; *nija-gaṇa*—Sus devotos; *lañā*—tomando; *prabhu*—Śrī Caitanya Mahāprabhu; *gelā*—fue; *deva-ālaya*—al templo.

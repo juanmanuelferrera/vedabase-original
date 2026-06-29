@@ -1,9 +1,9 @@
 ### CC Adi 17.11
 
-> প্রভুর অভিষেক তবে করিল শ্রীবাস ।
+> প্রভুর অভিষেক তবে করিল শ্রীবাস ।\
 > খাটে বসি’ প্রভু কৈলা ঐশ্বর্য প্রকাশ ॥১১॥
 
-> prabhura abhiṣeka tabe karila śrīvāsa
+> prabhura abhiṣeka tabe karila śrīvāsa\
 > khāṭe vasi' prabhu kailā aiśvarya prakāśa
 
 *prabhura*—of the Lord; *abhiṣeka*—worship; *tabe*—after that; *karila*—did; *śrīvāsa*—of the name Śrīvāsa; *khāṭe*—on the cot; *vasi'*—sitting; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *kailā*—did; *aiśvarya*—opulence; *prakāśa*—manifestation.

@@ -1,9 +1,9 @@
 ### CC Madhya 18.223
 
-> বৃন্দাবন-গমন, প্রভু-চরিত্র অনন্ত ।
+> বৃন্দাবন-গমন, প্রভু-চরিত্র অনন্ত ।\
 > ‘সহস্র-বদন’ যাঁর নাহি পা’ন অন্ত ॥২২৩॥
 
-> vṛndāvana-gamana, prabhu-caritra ananta
+> vṛndāvana-gamana, prabhu-caritra ananta\
 > 'sahasra-vadana' yāṅra nāhi pā'na anta
 
 *vṛndāvana-gamana*—viaje a Vṛndāvana; *prabhu-caritra*—pasatiempos de Śrī Caitanya Mahāprabhu; *ananta*—ilimitados; *sahasra-vadana*—el Señor Śeṣa, que tiene miles de capuchas; *yāṅra*—cuyo; *nāhi*—no; *pā'na*—alcanza; *anta*—fin.

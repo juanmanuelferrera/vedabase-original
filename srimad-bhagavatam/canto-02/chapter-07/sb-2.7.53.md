@@ -1,11 +1,11 @@
 ### SB 2.7.53
 
-> मायां वर्णयतोऽमुष्य ईश्वरस्यानुमोदतः ।
+> मायां वर्णयतोऽमुष्य ईश्वरस्यानुमोदतः ।\
 > शृण्वतः श्रद्धया नित्यं माययात्मा न मुह्यति ॥५३॥
 
-> māyāṁ varṇayato 'muṣya
-> īśvarasyānumodataḥ
-> śṛṇvataḥ śraddhayā nityaṁ
+> māyāṁ varṇayato 'muṣya\
+> īśvarasyānumodataḥ\
+> śṛṇvataḥ śraddhayā nityaṁ\
 > māyayātmā na muhyati
 
 *māyām*—affairs of the external energy; *varṇayataḥ*—while describing; *amuṣya*—of the Lord; *īśvarasya*—of the Personality of Godhead; *anumodataḥ*—thus appreciating; *śṛṇvataḥ*—thus hearing; *śraddhayā*—with devotion; *nityam*—regularly; *māyayā*—by the illusory energy; *ātmā*—the living entity; *na*—never; *muhyati*—becomes illusioned.

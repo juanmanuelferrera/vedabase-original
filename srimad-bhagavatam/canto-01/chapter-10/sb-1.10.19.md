@@ -1,11 +1,11 @@
 ### SB 1.10.19
 
-> अश्रूयन्ताशिषः सत्यास्तत्र तत्र द्विजेरिताः ।
+> अश्रूयन्ताशिषः सत्यास्तत्र तत्र द्विजेरिताः ।\
 > नानुरूपानुरूपाश्च निर्गुणस्य गुणात्मनः ॥१९॥
 
-> aśrūyantāśiṣaḥ satyās
-> tatra tatra dvijeritāḥ
-> nānurūpānurūpāś ca
+> aśrūyantāśiṣaḥ satyās\
+> tatra tatra dvijeritāḥ\
+> nānurūpānurūpāś ca\
 > nirguṇasya guṇātmanaḥ
 
 *aśrūyanta*—being heard; *āśiṣaḥ*—benediction; *satyāḥ*—all truths; *tatra*—here; *tatra*—there; *dvija-īritāḥ*—sounded by learned *brāhmaṇas*; *na*—not; *anurūpa*—befitting; *anurūpāḥ*—fitting; *ca*—also; *nirguṇasya*—of the Absolute; *guṇa-ātmanaḥ*—playing the role of a human being.

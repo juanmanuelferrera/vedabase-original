@@ -1,11 +1,11 @@
 ### SB 3.24.30
 
-> स्वीयं वाक्यमृतं कर्तुमवतीर्णोऽसि मे गृहे ।
+> स्वीयं वाक्यमृतं कर्तुमवतीर्णोऽसि मे गृहे ।\
 > चिकीर्षुर्भगवान्ज्ञानं भक्तानां मानवर्धनः ॥३०॥
 
-> svīyaṁ vākyam ṛtaṁ kartum
-> avatīrṇo 'si me gṛhe
-> cikīrṣur bhagavān jñānaṁ
+> svīyaṁ vākyam ṛtaṁ kartum\
+> avatīrṇo 'si me gṛhe\
+> cikīrṣur bhagavān jñānaṁ\
 > bhaktānāṁ māna-vardhanaḥ
 
 *svīyam*—Tus propias; *vākyam*—palabras; *ṛtam*—verdad; *kartum*—para hacer; *avatīrṇaḥ*—descendido; *asi*—Tú eres; *me gṛhe*—en mi casa; *cikīrṣuḥ*—deseoso de difundir; *bhagavān*—la Personalidad de Dios; *jñānam*—conocimiento; *bhaktānām*—de los devotos; *māna*—el honor; *vardhanaḥ*—quien aumenta.

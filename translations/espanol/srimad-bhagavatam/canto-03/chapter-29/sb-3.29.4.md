@@ -1,11 +1,11 @@
 ### SB 3.29.4
 
-> कालस्येश्वररूपस्य परेषां च परस्य ते ।
+> कालस्येश्वररूपस्य परेषां च परस्य ते ।\
 > स्वरूपं बत कुर्वन्ति यद्धेतोः कुशलं जनाः ॥४॥
 
-> kālasyeśvara-rūpasya
-> pareṣāṁ ca parasya te
-> svarūpaṁ bata kurvanti
+> kālasyeśvara-rūpasya\
+> pareṣāṁ ca parasya te\
+> svarūpaṁ bata kurvanti\
 > yad-dhetoḥ kuśalaṁ janāḥ
 
 *kālasya*—del tiempo; *īśvara-rūpasya*—una representación del Señor; *pareṣām*—de todos los demás; *ca*—y; *parasya*—el principal; *te*—de Ti; *svarūpam*—la naturaleza; *bata*—¡oh!; *kurvanti*—ejecuta; *yat-hetoḥ*—por cuya influencia; *kuśalam*—actividades piadosas; *janāḥ*—la gente en general.

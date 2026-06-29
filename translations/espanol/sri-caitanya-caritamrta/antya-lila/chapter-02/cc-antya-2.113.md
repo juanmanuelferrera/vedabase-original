@@ -1,9 +1,9 @@
 ### CC Antya 2.113
 
-> ‘আজি হৈতে এই মোর আজ্ঞা পালিবা  ।
+> ‘আজি হৈতে এই মোর আজ্ঞা পালিবা  ।\
 > ছোট হরিদাসে ইহাঁ আসিতে না দিবা ।।’ ১১৩ ॥১১৩॥
 
-> 'āji haite ei mora ājñā pālibā
+> 'āji haite ei mora ājñā pālibā\
 > choṭa haridāse ihāṅ āsite nā dibā'
 
 *āji haite*—a partir de hoy; *ei*—esta; *mora*—Mi; *ājñā*—orden; *pālibā*—debes cumplir; *choṭa haridāse*—Choṭa Haridāsa; *ihāṅ*—aquí; *āsite*—venir; *nā dibā*—no permitas.

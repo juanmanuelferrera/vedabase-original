@@ -1,13 +1,13 @@
 ### CC Antya 16.128
 
-> নীবি খসায় গুরু-আগে, লজ্জা-ধর্ম করায় ত্যাগে,
-> কেশে ধরি’ যেন লঞা যায় ।
-> আনি’ করায় তোমার দাসী, শুনি’ লোক করে হাসি,
+> নীবি খসায় গুরু-আগে, লজ্জা-ধর্ম করায় ত্যাগে,\
+> কেশে ধরি’ যেন লঞা যায় ।\
+> আনি’ করায় তোমার দাসী, শুনি’ লোক করে হাসি,\
 > এইমত নারীরে নাচায় ॥১২৮॥
 
-> nīvi khasāya guru-āge, lajjā-dharma karāya tyāge,
-> keśe dhari' yena lañā yāya
-> āni' karāya tomāra dāsī, śuni' loka kare hāsi',
+> nīvi khasāya guru-āge, lajjā-dharma karāya tyāge,\
+> keśe dhari' yena lañā yāya\
+> āni' karāya tomāra dāsī, śuni' loka kare hāsi',\
 > ei-mata nārīre nācāya
 
 *nīvi*—the belts; *khasāya*—cause to loosen; *guru-āge*—before superiors; *lajjā-dharma*—shame and religion; *karāya*—induce; *tyāge*—to give up; *keśe dhari'*—catching by the hair; *yena*—as if; *lañā yāya*—takes us away; *āni'*—bringing; *karāya*—induce to become; *tomāra*—Your; *dāsī*—maidservants; *śuni'*—hearing; *loka*—people; *kare hāsi'*—laugh; *ei-mata*—in this way; *nārīre*—women; *nācāya*—cause to dance.

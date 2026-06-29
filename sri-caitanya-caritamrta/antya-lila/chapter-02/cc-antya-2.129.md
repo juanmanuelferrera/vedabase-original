@@ -1,9 +1,9 @@
 ### CC Antya 2.129
 
-> তবে পুরী-গোসাঞি একা প্রভুস্থানে আইলা ।
+> তবে পুরী-গোসাঞি একা প্রভুস্থানে আইলা ।\
 > নমস্করি’ প্রভু তাঁরে সম্ভ্রমে বসাইলা ॥১২৯॥
 
-> tabe purī-gosāñi ekā prabhu-sthāne āilā
+> tabe purī-gosāñi ekā prabhu-sthāne āilā\
 > namaskari' prabhu tāṅre sambhrame vasāilā
 
 *tabe*—thereupon; *purī-gosāñi*—Paramānanda Purī; *ekā*—alone; *prabhu-sthāne*—to the place of Śrī Caitanya Mahāprabhu; *āilā*—came; *namaskari'*—after offering obeisances; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—him; *sambhrame*—with great respect; *vasāilā*—got to sit down.

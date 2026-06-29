@@ -1,9 +1,9 @@
 ### CC Antya 19.27
 
-> পূজা-নির্বাহণ হৈলে পাছে করেন বিসর্জন ।
+> পূজা-নির্বাহণ হৈলে পাছে করেন বিসর্জন ।\
 > তরজার না জানি অর্থ, কিবা তাঁর মন ॥২৭॥
 
-> pūjā-nirvāhaṇa haile pāche karena visarjana
+> pūjā-nirvāhaṇa haile pāche karena visarjana\
 > tarajāra nā jāni artha, kibā tāṅra mana
 
 *pūjā-nirvāhaṇa*—finishing of the worship; *haile*—when there is; *pāche*—at last; *karena visarjana*—sends back the Deity; *tarajāra*—of the sonnet; *nā jāni*—I do not know; *artha*—the meaning; *kibā tāṅra mana*—what is in His mind.

@@ -1,11 +1,11 @@
 ### SB 8.20.23
 
-> रसामचष्टाङ्घ्रितलेऽथ पादयोर्महीं महीध्रान्पुरुषस्य जङ्घयोः
+> रसामचष्टाङ्घ्रितलेऽथ पादयोर्महीं महीध्रान्पुरुषस्य जङ्घयोः\
 > पतत्त्रिणो जानुनि विश्वमूर्तेरूर्वोर्गणं मारुतमिन्द्रसेनः ॥२३॥
 
-> rasām acaṣṭāṅghri-tale 'tha pādayor
-> mahīṁ mahīdhrān puruṣasya jaṅghayoḥ
-> patattriṇo jānuni viśva-mūrter
+> rasām acaṣṭāṅghri-tale 'tha pādayor\
+> mahīṁ mahīdhrān puruṣasya jaṅghayoḥ\
+> patattriṇo jānuni viśva-mūrter\
 > ūrvor gaṇaṁ mārutam indrasenaḥ
 
 *rasām*—el sistema planetario inferior; *acaṣṭa*—observó; *aṅghri-tale*—por debajo de los pies, o en la planta; *atha*—a continuación; *pādayoḥ*—en los pies; *mahīm*—la superficie de la Tierra; *mahīdhrān*—las montañas; *puruṣasya*—de la gigantesca Personalidad de Dios; *jaṅghayoḥ*—en las pantorrillas; *patattriṇaḥ*—las entidades vivientes que vuelan; *jānuni*—en las rodillas; *viśva-mūrteḥ*—de la forma del gigantesco Señor; *ūrvoḥ*—en los muslos; *gaṇam mārutam*—diversos tipos de aire; *indra-senaḥ*—Bali Mahārāja, que disponía de los soldados de Indra y que ocupaba el puesto de Indra.

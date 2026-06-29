@@ -1,9 +1,9 @@
 ### CC Madhya 18.136
 
-> এই ঘাটে অক্রূর বৈকুণ্ঠ দেখিল ।
+> এই ঘাটে অক্রূর বৈকুণ্ঠ দেখিল ।\
 > ব্রজবাসী লোক ‘গোলোক’ দর্শন কৈল ॥১৩৬॥
 
-> ei ghāṭe akrūra vaikuṇṭha dekhila
+> ei ghāṭe akrūra vaikuṇṭha dekhila\
 > vrajavāsī loka 'goloka' darśana kaila
 
 *ei ghāṭe*—en este lugar de baño; *akrūra*—Akrūra; *vaikuṇṭha dekhila*—vio el mundo espiritual; *vrajavāsī loka*—los habitantes de Vṛndāvana; *goloka darśana kaila*—vieron Goloka.

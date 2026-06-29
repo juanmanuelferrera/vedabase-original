@@ -1,11 +1,11 @@
 ### SB 4.22.13
 
-> कच्चिन्नः कुशलं नाथा इन्द्रियार्थार्थवेदिनाम् ।
+> कच्चिन्नः कुशलं नाथा इन्द्रियार्थार्थवेदिनाम् ।\
 > व्यसनावाप एतस्मिन्पतितानां स्वकर्मभिः ॥१३॥
 
-> kaccin naḥ kuśalaṁ nāthā
-> indriyārthārtha-vedinām
-> vyasanāvāpa etasmin
+> kaccin naḥ kuśalaṁ nāthā\
+> indriyārthārtha-vedinām\
+> vyasanāvāpa etasmin\
 > patitānāṁ sva-karmabhiḥ
 
 *kaccit*—si; *naḥ*—nuestra; *kuśalam*—buena fortuna; *nāthāḥ*—¡oh, maestros!; *indriya-artha*—la complacencia de los sentidos como objeto supremo de la vida; *artha-vedinām*—personas para quienes solo existe la complacencia de los sentidos; *vyasana*—enfermedad; *āvāpe*—tuvieron; *etasmin*—en la existencia material; *patitānām*—los que han caído muy bajo; *sva-karmabhiḥ*—por sus propios méritos.

@@ -1,9 +1,9 @@
 ### CC Antya 18.50
 
-> ভয়ে কম্প হৈল, মোর নেত্রে বহে জল ।
+> ভয়ে কম্প হৈল, মোর নেত্রে বহে জল ।\
 > গদ্গদ বাণী, রোম উঠিল সকল ॥৫০॥
 
-> bhaye kampa haila, mora netre vahe jala
+> bhaye kampa haila, mora netre vahe jala\
 > gadgada vāṇī, roma uṭhila sakala
 
 *bhaye*—de miedo; *kampa*—temblor; *haila*—hubo; *mora*—mis; *netre*—en los ojos; *vahe*—fluyen; *jala*—lágrimas; *gadgada*—entrecortada; *vāṇī*—voz; *roma*—vello corporal; *uṭhila*—se erizó; *sakala*—todo.

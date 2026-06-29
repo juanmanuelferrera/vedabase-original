@@ -1,11 +1,11 @@
 ### SB 1.4.15
 
-> स कदाचित्सरस्वत्या उपस्पृश्य जलं शुचिः ।
+> स कदाचित्सरस्वत्या उपस्पृश्य जलं शुचिः ।\
 > विविक्त एक आसीन उदिते रविमण्डले ॥१५॥
 
-> sa kadācit sarasvatyā
-> upaspṛśya jalaṁ śuciḥ
-> vivikta eka āsīna
+> sa kadācit sarasvatyā\
+> upaspṛśya jalaṁ śuciḥ\
+> vivikta eka āsīna\
 > udite ravi-maṇḍale
 
 *saḥ*—él; *kadācit*—una vez; *sarasvatyāḥ*—a orillas del Sarasvatī; *upaspṛśya*—después de terminar las abluciones matutinas; *jalam*—agua; *śuciḥ*—estando purificado; *vivikte*—la concentración; *ekaḥ*—a solas; *āsīnaḥ*—sentado así; *udite*—a la salida; *ravi-maṇḍale*—del disco solar.

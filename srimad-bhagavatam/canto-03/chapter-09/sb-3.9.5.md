@@ -1,13 +1,13 @@
 ### SB 3.9.5
 
-> ये तु त्वदीयचरणाम्बुजकोशगन्धं
-> जिघ्रन्ति कर्णविवरैः श्रुतिवातनीतम् ।
-> भक्त्या गृहीतचरणः परया च तेषां
+> ये तु त्वदीयचरणाम्बुजकोशगन्धं\
+> जिघ्रन्ति कर्णविवरैः श्रुतिवातनीतम् ।\
+> भक्त्या गृहीतचरणः परया च तेषां\
 > नापैषि नाथ हृदयाम्बुरुहात्स्वपुंसाम् ॥५॥
 
-> ye tu tvadīya-caraṇāmbuja-kośa-gandhaṁ
-> jighranti karṇa-vivaraiḥ śruti-vāta-nītam
-> bhaktyā gṛhīta-caraṇaḥ parayā ca teṣāṁ
+> ye tu tvadīya-caraṇāmbuja-kośa-gandhaṁ\
+> jighranti karṇa-vivaraiḥ śruti-vāta-nītam\
+> bhaktyā gṛhīta-caraṇaḥ parayā ca teṣāṁ\
 > nāpaiṣi nātha hṛdayāmburuhāt sva-puṁsām
 
 *ye*—those who; *tu*—but; *tvadīya*—Your; *caraṇa-ambuja*—lotus feet; *kośa*—inside; *gandham*—flavor; *jighranti*—smell; *karṇa-vivaraiḥ*—through the channel of the ears; *śruti-vāta-nītam*—carried by the air of Vedic sound; *bhaktyā*—by devotional service; *gṛhīta-caraṇaḥ*—accepting the lotus feet; *parayā*—transcendental; *ca*—also; *teṣām*—for them; *na*—never; *apaiṣi*—separate; *nātha*—O my Lord; *hṛdaya*—heart; *ambu-ruhāt*—from the lotus of; *sva-puṁsām*—of Your own devotees.

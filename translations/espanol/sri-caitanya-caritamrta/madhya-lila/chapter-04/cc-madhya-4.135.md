@@ -1,9 +1,9 @@
 ### CC Madhya 4.135
 
-> এত শুনি’ পুরী-গোসাঞি পরিচয় দিল ।
+> এত শুনি’ পুরী-গোসাঞি পরিচয় দিল ।\
 > ক্ষীর দিয়া পূজারী তাঁরে দণ্ডবত্ হৈল ॥১৩৫॥
 
-> eta śuni' purī-gosāñi paricaya dila
+> eta śuni' purī-gosāñi paricaya dila\
 > kṣīra diyā pūjārī tāṅre daṇḍavat haila
 
 *eta śuni'*—al oír esto; *purī-gosāñi*—Mādhavendra Purī; *paricaya*—presentación; *dila*—dio; *kṣīra diyā*—al entregarle la vasija de arroz con leche; *pūjārī*—el sacerdote; *tāṅre*—ante él; *daṇḍavat haila*—ofreció reverencias.

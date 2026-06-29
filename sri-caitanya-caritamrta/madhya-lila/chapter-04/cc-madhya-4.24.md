@@ -1,9 +1,9 @@
 ### CC Madhya 4.24
 
-> গোপাল-বালক এক দুগ্ধ-ভাণ্ড লঞা ।
+> গোপাল-বালক এক দুগ্ধ-ভাণ্ড লঞা ।\
 > আসি’ আগে ধরি’ কিছু বলিল হাসিয়া ॥২৪॥
 
-> gopāla-bālaka eka dugdha-bhāṇḍa lañā
+> gopāla-bālaka eka dugdha-bhāṇḍa lañā\
 > āsi' āge dhari' kichu balila hāsiyā
 
 *gopāla-bālaka*—cowherd boy; *eka*—one; *dugdha-bhāṇḍa lañā*—taking a pot of milk; *āsi'*—coming; *āge dhari'*—holding it in front; *kichu*—something; *balila*—said; *hāsiyā*—smiling.

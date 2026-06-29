@@ -1,11 +1,11 @@
 ### SB 2.1.18
 
-> नियच्छेद्विषयेभ्योऽक्षान्मनसा बुद्धिसारथिः ।
+> नियच्छेद्विषयेभ्योऽक्षान्मनसा बुद्धिसारथिः ।\
 > मनः कर्मभिराक्षिप्तं शुभार्थे धारयेद्धिया ॥१८॥
 
-> niyacched viṣayebhyo 'kṣān
-> manasā buddhi-sārathiḥ
-> manaḥ karmabhir ākṣiptaṁ
+> niyacched viṣayebhyo 'kṣān\
+> manasā buddhi-sārathiḥ\
+> manaḥ karmabhir ākṣiptaṁ\
 > śubhārthe dhārayed dhiyā
 
 *niyacchet*—withdraw; *viṣayebhyaḥ*—from sense engagements; *akṣān*—the senses; *manasā*—by dint of the mind; *buddhi*—intelligence; *sārathiḥ*—driver; *manaḥ*—the mind; *karmabhiḥ*—by the fruitive work; *ākṣiptam*—being absorbed in; *śubha-arthe*—for the sake of the Lord; *dhārayet*—hold up; *dhiyā*—in full consciousness.

@@ -1,11 +1,11 @@
 ### SB 4.8.49
 
-> काञ्चीकलापपर्यस्तं लसत्काञ्चननूपुरम् ।
+> काञ्चीकलापपर्यस्तं लसत्काञ्चननूपुरम् ।\
 > दर्शनीयतमं शान्तं मनोनयनवर्धनम् ॥४९॥
 
-> kāñcī-kalāpa-paryastaṁ
-> lasat-kāñcana-nūpuram
-> darśanīyatamaṁ śāntaṁ
+> kāñcī-kalāpa-paryastaṁ\
+> lasat-kāñcana-nūpuram\
+> darśanīyatamaṁ śāntaṁ\
 > mano-nayana-vardhanam
 
 *kāñcī-kalāpa*—small bells; *paryastam*—surrounding the waist; *lasat-kāñcana-nūpuram*—His legs are decorated with golden ankle bells; *darśanīya-tamam*—the superexcellent feature; *śāntam*—peaceful, calm and quiet; *manaḥ-nayana-vardhanam*—very pleasing to the eyes and the mind.

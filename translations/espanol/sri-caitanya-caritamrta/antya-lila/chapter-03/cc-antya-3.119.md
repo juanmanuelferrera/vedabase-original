@@ -1,9 +1,9 @@
 ### CC Antya 3.119
 
-> আর দিন রাত্রি হৈলে বেশ্যা আইল ।
+> আর দিন রাত্রি হৈলে বেশ্যা আইল ।\
 > হরিদাস তারে বহু আশ্বাস করিল ॥১১৯॥
 
-> āra dina rātri haile veśyā āila
+> āra dina rātri haile veśyā āila\
 > haridāsa tāre bahu āśvāsa karila
 
 *āra dina*—al día siguiente; *rātri*—noche; *haile*—cuando fue; *veśyā*—la prostituta; *āila*—vino; *haridāsa*—Haridāsa Ṭhākura; *tāre*—a ella; *bahu*—muchas; *āśvāsa karila*—dio seguridades.

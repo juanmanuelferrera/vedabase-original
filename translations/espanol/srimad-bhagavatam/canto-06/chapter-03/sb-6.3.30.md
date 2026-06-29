@@ -1,13 +1,13 @@
 ### SB 6.3.30
 
-> तत्क्षम्यतां स भगवान्पुरुषः पुराणो
-> नारायणः स्वपुरुषैर्यदसत्कृतं नः
-> स्वानामहो न विदुषां रचिताञ्जलीनां
+> तत्क्षम्यतां स भगवान्पुरुषः पुराणो\
+> नारायणः स्वपुरुषैर्यदसत्कृतं नः\
+> स्वानामहो न विदुषां रचिताञ्जलीनां\
 > क्षान्तिर्गरीयसि नमः पुरुषाय भूम्ने ॥३०॥
 
-> tat kṣamyatāṁ sa bhagavān puruṣaḥ purāṇo
-> nārāyaṇaḥ sva-puruṣair yad asat kṛtaṁ naḥ
-> svānām aho na viduṣāṁ racitāñjalīnāṁ
+> tat kṣamyatāṁ sa bhagavān puruṣaḥ purāṇo\
+> nārāyaṇaḥ sva-puruṣair yad asat kṛtaṁ naḥ\
+> svānām aho na viduṣāṁ racitāñjalīnāṁ\
 > kṣāntir garīyasi namaḥ puruṣāya bhūmne
 
 *tat*—eso; *kṣamyatām*—que sea perdonado; *saḥ*—Él; *bhagavān*—la Suprema Personalidad de Dios; *puruṣaḥ*—la Persona Suprema; *purāṇaḥ*—el más antiguo; *nārāyaṇaḥ*—el Señor Nārāyaṇa; *sva-puruṣaiḥ*—por mis propios sirvientes; *yat*—la cual; *asat*—falta de respeto; *kṛtam*—realizada; *naḥ*—de nosotros; *svānām*—de mis propios hombres; *aho*—¡ay!; *na viduṣām*—sin conocer; *racita-añjalīnām*—** juntando las manos para pedirte perdón; *kṣāntiḥ*—perdón; *garīyasi*—en el glorioso; *namaḥ*—respetuosas reverencias; *puruṣāya*—a la persona; *bhūmne*—suprema y omnipresente.

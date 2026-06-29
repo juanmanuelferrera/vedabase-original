@@ -1,9 +1,9 @@
 ### CC Adi 11.6
 
-> মালাকারের ইচ্ছা-জলে বাড়ে শাখাগণ ।
+> মালাকারের ইচ্ছা-জলে বাড়ে শাখাগণ ।\
 > প্রেম-ফুল-ফলে ভরি’ ছাইল ভুবন ॥৬॥
 
-> mālākarera icchā jale bāḍe śākhā-gaṇa
+> mālākarera icchā jale bāḍe śākhā-gaṇa\
 > prema-phula-phale bhari' chāila bhuvana
 
 *mālā-kārera*—de Śrī Caitanya Mahāprabhu; *icchā-jale*—con el agua de Su deseo; *bāḍe*—crecen; *śākhā-gaṇa*—las ramas; *prema*—amor por Dios; *phula-phale*—con flores y frutos; *bhari'*—colmando; *chāila*—cubrieron; *bhuvana*—el mundo entero.

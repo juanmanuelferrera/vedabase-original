@@ -1,11 +1,11 @@
 ### Bg 9.18
 
-> गतिर्भर्ता प्रभुः साक्षी निवासः शरणं सुहृत् ।
+> गतिर्भर्ता प्रभुः साक्षी निवासः शरणं सुहृत् ।\
 > प्रभवः प्रलयः स्थानं निधानं बीजमव्ययम् ॥१८॥
 
-> gatir bhartā prabhuḥ sākṣī
-> nivāsaḥ śaraṇaṁ suhṛt
-> prabhavaḥ pralayaḥ sthānaṁ
+> gatir bhartā prabhuḥ sākṣī\
+> nivāsaḥ śaraṇaṁ suhṛt\
+> prabhavaḥ pralayaḥ sthānaṁ\
 > nidhānaṁ bījam avyayam
 
 *gatiḥ*—goal; *bhartā*—sustainer; *prabhuḥ*—Lord; *sākṣī*—witness; *nivāsaḥ*—abode; *śaraṇam*—refuge; *suhṛt*—most intimate friend; *prabhavaḥ*—creation; *pralayaḥ*—dissolution; *sthānam*—ground; *nidhānam*—resting place; *bījam*—seed; *avyayam*—imperishable.

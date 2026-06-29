@@ -1,11 +1,11 @@
 ### SB 5.15.12
 
-> यस्याध्वरे भगवानध्वरात्मा मघोनि माद्यत्युरुसोमपीथे
+> यस्याध्वरे भगवानध्वरात्मा मघोनि माद्यत्युरुसोमपीथे\
 > श्रद्धाविशुद्धाचलभक्तियोग समर्पितेज्याफलमाजहार ॥१२॥
 
-> yasyādhvare bhagavān adhvarātmā
-> maghoni mādyaty uru-soma-pīthe
-> śraddhā-viśuddhācala-bhakti-yoga-
+> yasyādhvare bhagavān adhvarātmā\
+> maghoni mādyaty uru-soma-pīthe\
+> śraddhā-viśuddhācala-bhakti-yoga-\
 > samarpitejyā-phalam ājahāra
 
 *yasya*—of whom (King Gaya); *adhvare*—in his different sacrifices; *bhagavān*—the Supreme Personality of Godhead; *adhvara-ātmā*—the supreme enjoyer of all sacrifices, the *yajña-puruṣa*; *maghoni*—when King Indra; *mādyati*—intoxicated; *uru*—greatly; *soma-pīthe*—drinking the intoxicant called *soma*; *śraddhā*—by devotion; *viśuddha*—purified; *acala*—and steady; *bhakti-yoga*—by devotional service; *samarpita*—offered; *ijyā*—of worshiping; *phalam*—the result; *ājahāra*—accepted personally.

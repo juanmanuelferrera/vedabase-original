@@ -1,11 +1,11 @@
 ### Bg 6.18
 
-> यदा विनियतं चित्तमात्मन्येवावतिष्ठते ।
+> यदा विनियतं चित्तमात्मन्येवावतिष्ठते ।\
 > निःस्पृहः सर्वकामेभ्यो युक्त इत्युच्यते तदा ॥१८॥
 
-> yadā viniyataṁ cittam
-> ātmany evāvatiṣṭhate
-> nispṛhaḥ sarva-kāmebhyo
+> yadā viniyataṁ cittam\
+> ātmany evāvatiṣṭhate\
+> nispṛhaḥ sarva-kāmebhyo\
 > yukta ity ucyate tadā
 
 *yadā*—when; *viniyatam*—particularly disciplined; *cittam*—the mind and its activities; *ātmani*—in the Transcendence; *eva*—certainly; *avatiṣṭhate*—becomes situated; *nispṛhaḥ*—devoid of; *sarva*—all kinds of; *kāmebhyaḥ*—material desires; *yuktaḥ*—well situated in *yoga*; *iti*—thus; *ucyate*—is said to be; *tadā*—at that time.

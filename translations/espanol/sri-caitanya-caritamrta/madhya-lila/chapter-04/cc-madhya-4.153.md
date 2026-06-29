@@ -1,9 +1,9 @@
 ### CC Madhya 4.153
 
-> ঘাটী-দানী ছাড়াইতে রাজপাত্র-দ্বারে ।
+> ঘাটী-দানী ছাড়াইতে রাজপাত্র-দ্বারে ।\
 > রাজলেখা করি’ দিল পুরী-গোসাঞির করে ॥১৫৩॥
 
-> ghāṭī-dānī chāḍāite rāja-pātra dvāre
+> ghāṭī-dānī chāḍāite rāja-pātra dvāre\
 > rāja-lekhā kari' dila purī-gosāñira kare
 
 *ghāṭī-dānī*—de los recaudadores de peaje; *chāḍāite*—para obtener la exención; *rāja-pātra*—documentos con sanción gubernamental; *dvāre*—en las puertas; *rāja-lekhā*—permiso gubernamental; *kari'*—haciendo; *dila*—entregaron; *purī-gosāñira*—de Purī Gosāñi, Mādhavendra Purī; *kare*—en la mano.

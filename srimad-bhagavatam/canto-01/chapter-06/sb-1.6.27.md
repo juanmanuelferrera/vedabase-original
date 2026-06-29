@@ -1,11 +1,11 @@
 ### SB 1.6.27
 
-> एवं कृष्णमतेर्ब्रह्मन्नासक्तस्यामलात्मनः ।
+> एवं कृष्णमतेर्ब्रह्मन्नासक्तस्यामलात्मनः ।\
 > कालः प्रादुरभूत्काले तडित्सौदामनी यथा ॥२७॥
 
-> evaṁ kṛṣṇa-mater brahman
-> nāsaktasyāmalātmanaḥ
-> kālaḥ prādurabhūt kāle
+> evaṁ kṛṣṇa-mater brahman\
+> nāsaktasyāmalātmanaḥ\
+> kālaḥ prādurabhūt kāle\
 > taḍit saudāmanī yathā
 
 *evam*—thus; *kṛṣṇa-mateḥ*—one who is fully absorbed in thinking of Kṛṣṇa; *brahman*—O Vyāsadeva; *na*—not; *āsaktasya*—of one who is attached; *amala-ātmanaḥ*—of one who is completely free from all material dirt; *kālaḥ*—death; *prādurabhūt*—become visible; *kāle*—in the course of time; *taḍit*—lightning; *saudāmanī*—illuminating; *yathā*—as it is.

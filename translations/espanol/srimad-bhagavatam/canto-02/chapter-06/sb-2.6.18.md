@@ -1,11 +1,11 @@
 ### SB 2.6.18
 
-> सोऽमृतस्याभयस्येशो मर्त्यमन्नं यदत्यगात् ।
+> सोऽमृतस्याभयस्येशो मर्त्यमन्नं यदत्यगात् ।\
 > महिमैष ततो ब्रह्मन्पुरुषस्य दुरत्ययः ॥१८॥
 
-> so 'mṛtasyābhayasyeśo
-> martyam annaṁ yad atyagāt
-> mahimaiṣa tato brahman
+> so 'mṛtasyābhayasyeśo\
+> martyam annaṁ yad atyagāt\
+> mahimaiṣa tato brahman\
 > puruṣasya duratyayaḥ
 
 *saḥ*—Él (el Señor); *amṛtasya*—de la inmortalidad; *abhayasya*—de la ausencia de temor; *īśaḥ*—el que controla; *martyam*—morir; *annam*—acción fruitiva; *yat*—aquel que ha; *atyagāt*—ha trascendido; *mahimā*—las glorias; *eṣaḥ*—de Él; *tataḥ*—por lo tanto; *brahman*—¡oh, *brāhmaṇa* Nārada!; *puruṣasya*—de la Personalidad Suprema; *duratyayaḥ*—inconmensurable.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.99
 
-> কলিযুগে লীলাবতার না করে ভগবান্ ।
+> কলিযুগে লীলাবতার না করে ভগবান্ ।\
 > অতএব ‘ত্রিযুগ’ করি’ কহি তার নাম ॥৯৯॥
 
-> kali-yuge līlāvatāra nā kare bhagavān
+> kali-yuge līlāvatāra nā kare bhagavān\
 > ataeva 'tri-yuga' kari' kahi tāra nāma
 
 *kali-yuge*—in this Age of Kali; *līlā-avatāra*—a pastime incarnation; *nā*—not; *kare*—does; *bhagavān*—the Supreme Personality of Godhead; *ataeva*—therefore; *tri-yuga*—of the name Triyuga (manifested in three *yugas*); *kari'*—accepting; *kahi*—I say; *tāra nāma*—His holy name.

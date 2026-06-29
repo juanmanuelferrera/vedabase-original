@@ -1,11 +1,11 @@
 ### SB 3.26.19
 
-> दैवात्क्षुभितधर्मिण्यां स्वस्यां योनौ परः पुमान् ।
+> दैवात्क्षुभितधर्मिण्यां स्वस्यां योनौ परः पुमान् ।\
 > आधत्त वीर्यं सासूत महत्तत्त्वं हिरण्मयम् ॥१९॥
 
-> daivāt kṣubhita-dharmiṇyāṁ
-> svasyāṁ yonau paraḥ pumān
-> ādhatta vīryaṁ sāsūta
+> daivāt kṣubhita-dharmiṇyāṁ\
+> svasyāṁ yonau paraḥ pumān\
+> ādhatta vīryaṁ sāsūta\
 > mahat-tattvaṁ hiraṇmayam
 
 *daivāt*—por el destino de las almas condicionadas; *kṣubhita*—agitada; *dharmiṇyām*—cuyo equilibrio de modalidades; *svasyām*—Su propio; *yonau*—en el seno (la naturaleza material); *paraḥ pumān*—la Suprema Personalidad de Dios; *ādhatta*—fecundó; *vīryam*—semen (Su potencia interna); *sā*—ella (la naturaleza material); *asūta*—produjo; *mahat-tattvam*—el conjunto total de la inteligencia cósmica; *hiraṇmayam*—conocida con el nombre de Hiraṇmaya.

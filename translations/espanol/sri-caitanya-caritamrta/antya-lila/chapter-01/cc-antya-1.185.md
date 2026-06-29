@@ -1,11 +1,11 @@
 ### CC Antya 1.185
 
-> ‘উদ্ঘাত্যক’ নাম এই ‘আমুখ’ — ‘বীথী’ অঙ্গ ।
-> তোমার আগে কহি — ইহা ধার্ষ্ট্যের তরঙ্গ
-> উদ্ঘাত্যকঃ কথোদ্ঘাতঃ প্রয়োগাতিশয়স্তথা ।
+> ‘উদ্ঘাত্যক’ নাম এই ‘আমুখ’ — ‘বীথী’ অঙ্গ ।\
+> তোমার আগে কহি — ইহা ধার্ষ্ট্যের তরঙ্গ\
+> উদ্ঘাত্যকঃ কথোদ্ঘাতঃ প্রয়োগাতিশয়স্তথা ।\
 > প্রবর্তকাবলগিতে পঞ্চ প্রস্তাবনা-ভিদাঃ ।। ॥১৮৫॥
 
-> 'udghātyaka' nāma ei 'āmukha'--'vīthī' aṅga
+> 'udghātyaka' nāma ei 'āmukha'--'vīthī' aṅga\
 > tomāra āge kahi--ihā dhārṣṭyera taraṅga
 
 *'udghātyaka' nāma*—una aparición danzante del actor, técnicamente conocida como udghātyaka; *ei āmukha*—esta es la introducción; *vīthī aṅga*—la parte se denomina vīthī; *tomāra āge*—ante ti; *kahi*—digo; *ihā*—esto; *dhārṣṭyera taraṅga*—una ola de impudencia.

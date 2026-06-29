@@ -1,11 +1,11 @@
 ### SB 6.12.15
 
-> सत्त्वं रजस्तम इति प्रकृतेर्नात्मनो गुणाः
+> सत्त्वं रजस्तम इति प्रकृतेर्नात्मनो गुणाः\
 > तत्र साक्षिणमात्मानं यो वेद स न बध्यते ॥१५॥
 
-> sattvaṁ rajas tama iti
-> prakṛter nātmano guṇāḥ
-> tatra sākṣiṇam ātmānaṁ
+> sattvaṁ rajas tama iti\
+> prakṛter nātmano guṇāḥ\
+> tatra sākṣiṇam ātmānaṁ\
 > yo veda sa na badhyate
 
 *sattvam*—la modalidad de la bondad; *rajaḥ*—la modalidad de la pasión; *tamaḥ*—la modalidad de la ignorancia; *iti*—así; *prakṛteḥ*—de la naturaleza material; *na*—no; *ātmanaḥ*—del alma espiritual; *guṇāḥ*—las cualidades; *tatra*—en esa posición; *sākṣiṇam*—el observador; *ātmānam*—el ser; *yaḥ*—todo el que; *veda*—conoce; *saḥ*—él; *na*—no; *badhyate*—está atado.

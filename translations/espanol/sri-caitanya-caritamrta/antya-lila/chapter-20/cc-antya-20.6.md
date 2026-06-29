@@ -1,9 +1,9 @@
 ### CC Antya 20.6
 
-> সেই সেই ভাবে নিজ-েই সেই সেই ভাবে নিজ শ্লোক পড়িয়া ।
+> সেই সেই ভাবে নিজ-েই সেই সেই ভাবে নিজ শ্লোক পড়িয়া ।\
 > শ্লোকের অর্থ আস্বাদয়ে দুইবন্ধু লঞা ॥৬॥
 
-> sei sei bhāve nija-śloka paḍiyā
+> sei sei bhāve nija-śloka paḍiyā\
 > ślokera artha āsvādaye dui-bandhu lañā
 
 *sei sei bhāve*—en esa emoción en particular; *nija-śloka paḍiyā*—recitando Sus propios versos; *ślokera*—de los versos; *artha*—significado; *āsvādaye*—saborea; *dui-bandhu lañā*—con dos amigos.

@@ -1,11 +1,11 @@
 ### SB 4.20.24
 
-> न कामये नाथ तदप्यहं क्वचिन्न यत्र युष्मच्चरणाम्बुजासवः ।
+> न कामये नाथ तदप्यहं क्वचिन्न यत्र युष्मच्चरणाम्बुजासवः ।\
 > महत्तमान्तर्हृदयान्मुखच्युतो विधत्स्व कर्णायुतमेष मे वरः ॥२४॥
 
-> na kāmaye nātha tad apy ahaṁ kvacin
-> na yatra yuṣmac-caraṇāmbujāsavaḥ
-> mahattamāntar-hṛdayān mukha-cyuto
+> na kāmaye nātha tad apy ahaṁ kvacin\
+> na yatra yuṣmac-caraṇāmbujāsavaḥ\
+> mahattamāntar-hṛdayān mukha-cyuto\
 > vidhatsva karṇāyutam eṣa me varaḥ
 
 *na*—not; *kāmaye*—do I desire; *nātha*—O master; *tat*—that; *api*—even; *aham*—I; *kvacit*—at any time; *na*—not; *yatra*—where; *yuṣmat*—Your; *caraṇa-ambuja*—of the lotus feet; *āsavaḥ*—the nectarean beverage; *mahat-tama*—of the great devotees; *antaḥ-hṛdayāt*—from the core of the heart; *mukha*—from the mouths; *cyutaḥ*—being delivered; *vidhatsva*—give; *karṇa*—ears; *ayutam*—one million; *eṣaḥ*—this; *me*—my; *varaḥ*—benediction.

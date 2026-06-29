@@ -1,9 +1,9 @@
 ### CC Antya 1.206
 
-> তবে মহাপ্রভু কৈলা রূপে আলিঙ্গন ।
+> তবে মহাপ্রভু কৈলা রূপে আলিঙ্গন ।\
 > তাঁরে করাইলা সবার চরণ বন্দন ॥২০৬॥
 
-> tabe mahāprabhu kailā rūpe āliṅgana
+> tabe mahāprabhu kailā rūpe āliṅgana\
 > tāṅre karāilā sabāra caraṇa vandana
 
 *tabe*—en ese momento; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *kailā*—hizo; *rūpe*—a Rūpa Gosvāmī; *āliṅgana*—abrazar; *tāṅre*—a él; *karāilā*—le indujo a; *sabāra*—de todos ellos; *caraṇa vandana*—adorar los pies de loto.

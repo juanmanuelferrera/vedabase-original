@@ -1,11 +1,11 @@
 ### SB 5.10.16
 
-> कस्त्वं निगूढश्चरसि द्विजानां बिभर्षि सूत्रं कतमोऽवधूतः
+> कस्त्वं निगूढश्चरसि द्विजानां बिभर्षि सूत्रं कतमोऽवधूतः\
 > कस्यासि कुत्रत्य इहापि कस्मात्क्षेमाय नश्चेदसि नोत शुक्लः ॥१६॥
 
-> kas tvaṁ nigūḍhaś carasi dvijānāṁ
-> bibharṣi sūtraṁ katamo 'vadhūtaḥ
-> kasyāsi kutratya ihāpi kasmāt
+> kas tvaṁ nigūḍhaś carasi dvijānāṁ\
+> bibharṣi sūtraṁ katamo 'vadhūtaḥ\
+> kasyāsi kutratya ihāpi kasmāt\
 > kṣemāya naś ced asi nota śuklaḥ
 
 *kaḥ tvam*—quién eres tú; *nigūḍhaḥ*—muy oculto; *carasi*—vas por el mundo; *dvijānām*—entre los *brāhmaṇas* o personas santas; *bibharṣi*—tú también llevas; *sūtram*—el cordón sagrado de los *brāhmaṇas* más cualificados; *katamaḥ*—que; *avadhūtaḥ*—persona muy elevada; *kasya asi*—de quién eres (de quién eres hijo o discípulo); *kutratyaḥ*—de dónde; *iha api*—aquí, en este lugar; *kasmāt*—con qué motivo; *kṣemāya*—para el beneficio; *naḥ*—de nosotros; *cet*—si; *asi*—tú eres; *na uta*—o no; *śuklaḥ*—la personalidad de la modalidad de la bondad pura (Kapiladeva).

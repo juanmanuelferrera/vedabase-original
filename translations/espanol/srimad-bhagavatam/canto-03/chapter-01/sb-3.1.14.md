@@ -1,11 +1,11 @@
 ### SB 3.1.14
 
-> इत्यूचिवांस्तत्र सुयोधनेन प्रवृद्धकोपस्फुरिताधरेण ।
+> इत्यूचिवांस्तत्र सुयोधनेन प्रवृद्धकोपस्फुरिताधरेण ।\
 > असत्कृतः सत्स्पृहणीयशीलः क्षत्ता सकर्णानुजसौबलेन ॥१४॥
 
-> ity ūcivāṁs tatra suyodhanena
-> pravṛddha-kopa-sphuritādhareṇa
-> asat-kṛtaḥ sat-spṛhaṇīya-śīlaḥ
+> ity ūcivāṁs tatra suyodhanena\
+> pravṛddha-kopa-sphuritādhareṇa\
+> asat-kṛtaḥ sat-spṛhaṇīya-śīlaḥ\
 > kṣattā sakarṇānuja-saubalena
 
 *iti*—así; *ūcivān*—mientras hablaba; *tatra*—allí; *suyodhanena*—por Duryodhana; *pravṛddha*—hinchado por; *kopa*—ira; *sphurita*—aleteando; *adhareṇa*—labios; *asat-kṛtaḥ*—insultó; *sat*—respetable; *spṛhaṇīya-śīlaḥ*—cualidades deseables; *kṣattā*—Vidura; *sa*—con; *karṇa*—Karṇa; *anuja*—hermanos menores; *saubalena*—con Śakuni.

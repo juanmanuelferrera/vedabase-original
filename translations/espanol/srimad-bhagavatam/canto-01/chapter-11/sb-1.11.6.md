@@ -1,11 +1,11 @@
 ### SB 1.11.6
 
-> नताः स्म ते नाथ सदाङ्घ्रिपङ्कजं विरिञ्चवैरिञ्च्यसुरेन्द्रवन्दितम् ।
+> नताः स्म ते नाथ सदाङ्घ्रिपङ्कजं विरिञ्चवैरिञ्च्यसुरेन्द्रवन्दितम् ।\
 > परायणं क्षेममिहेच्छतां परं न यत्र कालः प्रभवेत्परः प्रभुः ॥६॥
 
-> natāḥ sma te nātha sadāṅghri-paṅkajaṁ
-> viriñca-vairiñcya-surendra-vanditam
-> parāyaṇaṁ kṣemam ihecchatāṁ paraṁ
+> natāḥ sma te nātha sadāṅghri-paṅkajaṁ\
+> viriñca-vairiñcya-surendra-vanditam\
+> parāyaṇaṁ kṣemam ihecchatāṁ paraṁ\
 > na yatra kālaḥ prabhavet paraḥ prabhuḥ
 
 *natāḥ*—postrados; *sma*—lo habíamos hecho; *te*—a Ti; *nātha*—¡oh, Señor!; *sadā*—siempre; *aṅghri-paṅkajam*—los pies de loto; *viriñca*—Brahmā, el primer ser viviente; *vairiñcya*—hijos de Brahmā tales como Sanaka y Sanātana; *sura-indra*—el rey del cielo; *vanditam*—adorado por; *parāyaṇam*—el supremo; *kṣemam*—bien; *iha*—en esta vida; *icchatām*—aquel que así lo desee; *param*—el máximo; *na*—nunca; *yatra*—donde; *kālaḥ*—el ineludible factor tiempo; *prabhavet*—puede ejercer su influencia; *paraḥ*—trascendental; *prabhuḥ*—el Señor Supremo.

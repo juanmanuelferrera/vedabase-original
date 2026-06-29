@@ -1,11 +1,11 @@
 ### SB 3.21.5
 
-> रुचिर्यो भगवान्ब्रह्मन्दक्षो वा ब्रह्मणः सुतः ।
+> रुचिर्यो भगवान्ब्रह्मन्दक्षो वा ब्रह्मणः सुतः ।\
 > यथा ससर्ज भूतानि लब्ध्वा भार्यां च मानवीम् ॥५॥
 
-> rucir yo bhagavān brahman
-> dakṣo vā brahmaṇaḥ sutaḥ
-> yathā sasarja bhūtāni
+> rucir yo bhagavān brahman\
+> dakṣo vā brahmaṇaḥ sutaḥ\
+> yathā sasarja bhūtāni\
 > labdhvā bhāryāṁ ca mānavīm
 
 *ruciḥ*—Ruci; *yaḥ*—quien; *bhagavān*—adorable; *brahman*—¡oh, santo sabio!; *dakṣaḥ*—Dakṣa; *vā*—y; *brahmaṇaḥ*—del Señor Brahmā; *sutaḥ*—el hijo; *yathā*—de qué manera; *sasarja*—generaron; *bhūtāni*—descendencia; *labdhvā*—tras obtener; *bhāryām*—como esposas; *ca*—y; *mānavīm*—a las hijas de Svāyambhuva Manu.

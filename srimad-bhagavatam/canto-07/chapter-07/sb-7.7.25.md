@@ -1,11 +1,11 @@
 ### SB 7.7.25
 
-> बुद्धेर्जागरणं स्वप्नः सुषुप्तिरिति वृत्तयः
+> बुद्धेर्जागरणं स्वप्नः सुषुप्तिरिति वृत्तयः\
 > ता येनैवानुभूयन्ते सोऽध्यक्षः पुरुषः परः ॥२५॥
 
-> buddher jāgaraṇaṁ svapnaḥ
-> suṣuptir iti vṛttayaḥ
-> tā yenaivānubhūyante
+> buddher jāgaraṇaṁ svapnaḥ\
+> suṣuptir iti vṛttayaḥ\
+> tā yenaivānubhūyante\
 > so 'dhyakṣaḥ puruṣaḥ paraḥ
 
 *buddheḥ*—of the intelligence; *jāgaraṇam*—the waking or active state of the gross senses; *svapnaḥ*—dreaming (the activity of the senses without the gross body); *suṣuptiḥ*—deep sleep or cessation of all activities (although the living entity is the seer); *iti*—thus; *vṛttayaḥ*—the various transactions; *tāḥ*—they; *yena*—by whom; *eva*—indeed; *anubhūyante*—are perceived; *saḥ*—that; *adhyakṣaḥ*—overseer (who is different from the activities); *puruṣaḥ*—the enjoyer; *paraḥ*—transcendental.

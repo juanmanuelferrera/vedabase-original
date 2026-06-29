@@ -1,11 +1,11 @@
 ### CC Adi 15.1
 
-> কুমনাঃ সুমনস্ত্বং হি যাতি যস্য পদাব্জয়োঃ ।
+> কুমনাঃ সুমনস্ত্বং হি যাতি যস্য পদাব্জয়োঃ ।\
 > সুমনোঽর্পণমাত্রেণ তং চৈতন্যপ্রভুং ভজে ॥১॥
 
-> ku-manāḥ su-manastvaṁ hi
-> yāti yasya padābjayoḥ
-> su-mano-'rpaṇa-mātreṇa
+> ku-manāḥ su-manastvaṁ hi\
+> yāti yasya padābjayoḥ\
+> su-mano-'rpaṇa-mātreṇa\
 > taṁ caitanya-prabhuṁ bhaje
 
 *ku-manāḥ*—a person interested in activities of material sense enjoyment; *su-manastvam*—the position of a devotee without material desires; *hi*—certainly; *yāti*—gets; *yasya*—whose; *pada-abjayoḥ*—at the lotus feet; *su-manaḥ*—the flower of the name *sumanas*; *arpaṇa*—offering; *mātreṇa*—simply by doing so; *tam*—Him; *caitanya-prabhum*—Lord Caitanya Mahāprabhu; *bhaje*—I worship.

@@ -1,13 +1,13 @@
 ### CC Antya 19.51
 
-> সব ত্যজি’ ভজি যাঁরে, সেই আপন-হাতে মারে,
-> নারীবধে কৃষ্ণের নাহি ভয় ।
-> তাঁর লাগি’ আমি মরি, উলটি’ না চাহে হরি,
+> সব ত্যজি’ ভজি যাঁরে, সেই আপন-হাতে মারে,\
+> নারীবধে কৃষ্ণের নাহি ভয় ।\
+> তাঁর লাগি’ আমি মরি, উলটি’ না চাহে হরি,\
 > ক্ষণমাত্রে ভাঙ্গিল প্রণয় ॥৫১॥
 
-> saba tyaji' bhaji yāṅre, sei āpana-hāte māre,
-> nārī-vadhe kṛṣṇera nāhi bhaya
-> tāṅra lāgi' āmi mari, ulaṭi' nā cāhe hari,
+> saba tyaji' bhaji yāṅre, sei āpana-hāte māre,\
+> nārī-vadhe kṛṣṇera nāhi bhaya\
+> tāṅra lāgi' āmi mari, ulaṭi' nā cāhe hari,\
 > kṣaṇa-mātre bhāṅgila praṇaya
 
 *saba tyaji'*—abandonándolo todo; *bhaji yāṅre*—a la persona a quien adoro; *sei*—esa persona; *āpana-hāte*—con Sus propias manos; *māre*—mata; *nārī-vadhe*—en matar a una mujer; *kṛṣṇera*—de Kṛṣṇa; *nāhi bhaya*—no hay temor; *tāṅra lāgi'*—por Él; *āmi mari*—muero; *ulaṭi'*—volviéndose; *nā cāhe hari*—Kṛṣṇa ni siquiera mira; *kṣaṇa-mātre*—en un instante; *bhāṅgila*—ha roto; *praṇaya*—todos los asuntos amorosos.

@@ -1,11 +1,11 @@
 ### CC Madhya 8.111
 
-> অহেরিব গতিঃ প্রেম্ণঃ স্বভাবকুটিলা ভবেৎ ৷
+> অহেরিব গতিঃ প্রেম্ণঃ স্বভাবকুটিলা ভবেৎ ৷\
 > অতো হেতোরহেতোশ্চ যূনোর্মান উদঞ্চতি ৷৷ ১১১ ৷৷ ॥১১১॥
 
-> aher iva gatiḥ premṇaḥ
-> svabhāva-kuṭilā bhavet
-> ato hetor ahetoś ca
+> aher iva gatiḥ premṇaḥ\
+> svabhāva-kuṭilā bhavet\
+> ato hetor ahetoś ca\
 > yūnor māna udañcati
 
 *aheḥ*—de la serpiente; *iva*—como; *gatiḥ*—el movimiento; *premṇaḥ*—de los asuntos amorosos; *svabhāva*—por naturaleza; *kuṭilā*—sinuoso; *bhavet*—es; *ataḥ*—por lo tanto; *hetoḥ*—por alguna causa; *ahetoḥ*—por la ausencia de una causa; *ca*—y; *yūnoḥ*—de la joven pareja; *mānaḥ*—enojo; *udañcati*—aparece.

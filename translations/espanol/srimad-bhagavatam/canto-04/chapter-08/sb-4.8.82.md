@@ -1,13 +1,13 @@
 ### SB 4.8.82
 
-> श्रीभगवानुवाच
-> मा भैष्ट बालं तपसो दुरत्ययान्निवर्तयिष्ये प्रतियात स्वधाम ।
+> श्रीभगवानुवाच\
+> मा भैष्ट बालं तपसो दुरत्ययान्निवर्तयिष्ये प्रतियात स्वधाम ।\
 > यतो हि वः प्राणनिरोध आसीदौत्तानपादिर्मयि सङ्गतात्मा ॥८२॥
 
-> śrī-bhagavān uvāca
-> mā bhaiṣṭa bālaṁ tapaso duratyayān
-> nivartayiṣye pratiyāta sva-dhāma
-> yato hi vaḥ prāṇa-nirodha āsīd
+> śrī-bhagavān uvāca\
+> mā bhaiṣṭa bālaṁ tapaso duratyayān\
+> nivartayiṣye pratiyāta sva-dhāma\
+> yato hi vaḥ prāṇa-nirodha āsīd\
 > auttānapādir mayi saṅgatātmā
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios contestó; *mā bhaiṣṭa*—no temas; *bālam*—el niño Dhruva; *tapasaḥ*—con su rigurosa austeridad; *duratyayāt*—con gran determinación; *nivartayiṣye*—Yo le pediré que detenga esto; *pratiyāta*—pueden regresar; *sva-dhāma*—a sus respectivas moradas; *yataḥ*—de quien; *hi*—ciertamente; *vaḥ*—su; *prāṇa-nirodhaḥ*—obstruyendo el aire vital; *āsīt*—sucedió; *auttānapādiḥ*—por parte del hijo del rey Uttānapāda; *mayi*—en Mí; *saṅgata-ātmā*—completamente absorto en pensar en Mí.

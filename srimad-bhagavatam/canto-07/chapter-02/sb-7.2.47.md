@@ -1,11 +1,11 @@
 ### SB 7.2.47
 
-> यावल्लिङ्गान्वितो ह्यात्मा तावत्कर्मनिबन्धनम
+> यावल्लिङ्गान्वितो ह्यात्मा तावत्कर्मनिबन्धनम\
 > ततो विपर्ययः क्लेशो मायायोगोऽनुवर्तते ॥४७॥
 
-> yāval liṅgānvito hy ātmā
-> tāvat karma-nibandhanam
-> tato viparyayaḥ kleśo
+> yāval liṅgānvito hy ātmā\
+> tāvat karma-nibandhanam\
+> tato viparyayaḥ kleśo\
 > māyā-yogo 'nuvartate
 
 *yāvat*—as long as; *liṅga-anvitaḥ*—covered by the subtle body; *hi*—indeed; *ātmā*—the soul; *tāvat*—that long; *karma*—of fruitive activities; *nibandhanam*—bondage; *tataḥ*—from that; *viparyayaḥ*—reversal (wrongly thinking the body to be the self); *kleśaḥ*—misery; *māyā-yogaḥ*—a strong relationship with the external, illusory energy; *anuvartate*—follows.

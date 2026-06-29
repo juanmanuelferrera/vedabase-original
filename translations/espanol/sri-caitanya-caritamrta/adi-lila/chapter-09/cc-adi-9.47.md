@@ -1,9 +1,9 @@
 ### CC Adi 9.47
 
-> এই আজ্ঞা কৈল যদি চৈতন্য-মালাকার ।
+> এই আজ্ঞা কৈল যদি চৈতন্য-মালাকার ।\
 > পরম আনন্দ পাইল বৃক্ষ-পরিবার ॥৪৭॥
 
-> ei ājñā kaila yadi caitanya-mālākāra
+> ei ājñā kaila yadi caitanya-mālākāra\
 > parama ānanda pāila vṛkṣa-parivāra
 
 *ei*—esta; *ājñā*—orden; *kaila*—dio; *yadi*—cuando; *caitanya*—Śrī Caitanya Mahāprabhu; *mālā-kāra*—como jardinero; *parama*—el mayor; *ānanda*—placer; *pāila*—recibieron; *vṛkṣa*—del árbol; *parivāra*—descendientes.

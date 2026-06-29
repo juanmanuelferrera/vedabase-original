@@ -1,9 +1,9 @@
 ### CC Madhya 9.160
 
-> কৃপা করি’ কহিলে মোরে কৃষ্ণের মহিমা ।
+> কৃপা করি’ কহিলে মোরে কৃষ্ণের মহিমা ।\
 > যাঁর রূপ-গুণৈশ্বর্যের কেহ না পায় সীমা ॥১৬০॥
 
-> kṛpā kari' kahile more kṛṣṇera mahimā
+> kṛpā kari' kahile more kṛṣṇera mahimā\
 > yāṅra rūpa-guṇaiśvaryera keha nā pāya sīmā
 
 *kṛpā kari'*—showing causeless mercy; *kahile*—You have spoken; *more*—unto me; *kṛṣṇera*—of Lord Kṛṣṇa; *mahimā*—the glories; *yāṅra*—whose; *rūpa-guṇa-aiśvaryera*—of forms, qualities and opulence; *keha*—anyone; *nā*—not; *pāya*—gets; *sīmā*—the limit.

@@ -1,9 +1,9 @@
 ### CC Antya 14.25
 
-> দেখিয়া গোবিন্দ আস্তে-ব্যস্তে স্ত্রীকে বর্জিলা ।
+> দেখিয়া গোবিন্দ আস্তে-ব্যস্তে স্ত্রীকে বর্জিলা ।\
 > তারে নামাইতে প্রভু গোবিন্দে নিষেধিলা ॥২৫॥
 
-> dekhiyā govinda āste-vyaste strīke varjilā
+> dekhiyā govinda āste-vyaste strīke varjilā\
 > tāre nāmāite prabhu govinde niṣedhilā
 
 *dekhiyā*—al ver; *govinda*—el sirviente personal de Śrī Caitanya Mahāprabhu; *āste-vyaste*—con gran apresuramiento; *strīke*—a la mujer; *varjilā*—hizo bajar; *tāre*—a ella; *nāmāite*—hacer bajar; *prabhu*—Śrī Caitanya Mahāprabhu; *govinde*—a Govinda; *niṣedhilā*—prohibió.

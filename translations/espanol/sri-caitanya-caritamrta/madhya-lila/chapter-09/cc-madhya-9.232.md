@@ -1,9 +1,9 @@
 ### CC Madhya 9.232
 
-> তার অস্ত্র তার অঙ্গে পড়ে হাত হৈতে ৷
+> তার অস্ত্র তার অঙ্গে পড়ে হাত হৈতে ৷\
 > খণ্ড খণ্ড হৈল ভট্টথারি পলায় চারি ভিতে ৷৷ ২৩২ ৷৷ ॥২৩২॥
 
-> tāra astra tāra aṅge paḍe hāta haite
+> tāra astra tāra aṅge paḍe hāta haite\
 > khaṇḍa khaṇḍa haila bhaṭṭathāri palāya cāri bhite
 
 *tāra astra*—sus armas; *tāra aṅge*—sobre sus propios cuerpos; *paḍe*—caen; *hāta haite*—de sus manos; *khaṇḍa khaṇḍa*—en pedazos; *haila*—quedaron; *bhaṭṭathāri*—los nómadas; *palāya*—huyen; *cāri bhite*—en las cuatro direcciones.

@@ -1,9 +1,9 @@
 ### CC Madhya 24.337
 
-> শঙ্খ-জল-গন্ধ-পুষ্প-ধূপাদি-লক্ষণ ।
+> শঙ্খ-জল-গন্ধ-পুষ্প-ধূপাদি-লক্ষণ ।\
 > জপ, স্তুতি, পরিক্রমা, দণ্ডবৎ বন্দন ॥৩৩৭॥
 
-> śaṅkha-jala-gandha-puṣpa-dhūpādi-lakṣaṇa
+> śaṅkha-jala-gandha-puṣpa-dhūpādi-lakṣaṇa\
 > japa, stuti, parikramā, daṇḍavat vandana
 
 *śaṅkha*—of a conchshell; *jala*—of water; *gandha*—of incense or scents; *puṣpa*—of flowers; *dhūpa-ādi*—of incense, and so on; *lakṣaṇa*—the characteristics; *japa*—murmuring; *stuti*—offering prayers; *parikramā*—circumambulation; *daṇḍavat*—offering obeisances; *vandana*—offering prayers.

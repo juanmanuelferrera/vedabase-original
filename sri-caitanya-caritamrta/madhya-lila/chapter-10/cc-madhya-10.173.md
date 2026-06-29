@@ -2,7 +2,7 @@
 
 > গুরু-শিষ্য-ন্যায়ে সত্য শিষ্যের পরাজয় । ভারতী কহে, — এহো নহে, অন্য হেতু হয় । ভক্ত ঠাঞি হার’ তুমি, — এ তোমার স্বভাব । আর এক শুন তুমি আপন প্রভাব । আজন্ম করিনু মুঞি ‘নিরাকার’-ধ্যান । তোমা দেখি’ ‘কৃষ্ণ’ হৈল মোর বিদ্যমান ॥১৭৩॥
 
-> guru-śiṣya-nyāye satya śiṣyera parājaya
+> guru-śiṣya-nyāye satya śiṣyera parājaya\
 > bhāratī kahe,-eho nahe, anya hetu haya
 
 *guru-śiṣya-nyāye*—when there is a logical argument between the spiritual master and the disciple; *satya*—certainly; *śiṣyera*—of the disciple; *parājaya*—defeat; *bhāratī kahe*—Brahmānanda Bhāratī said; *eho nahe*—in this case it is not the fact; *anya hetu*—another cause; *haya*—there is.

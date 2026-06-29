@@ -1,13 +1,13 @@
 ### SB 1.4.12
 
-> शिवाय लोकस्य भवाय भूतये
-> य उत्तमश्लोकपरायणा जनाः ।
-> जीवन्ति नात्मार्थमसौ पराश्रयं
+> शिवाय लोकस्य भवाय भूतये\
+> य उत्तमश्लोकपरायणा जनाः ।\
+> जीवन्ति नात्मार्थमसौ पराश्रयं\
 > मुमोच निर्विद्य कुतः कलेवरम् ॥१२॥
 
-> śivāya lokasya bhavāya bhūtaye
-> ya uttama-śloka-parāyaṇā janāḥ
-> jīvanti nātmārtham asau parāśrayaṁ
+> śivāya lokasya bhavāya bhūtaye\
+> ya uttama-śloka-parāyaṇā janāḥ\
+> jīvanti nātmārtham asau parāśrayaṁ\
 > mumoca nirvidya kutaḥ kalevaram
 
 *śivāya*—welfare; *lokasya*—of all living beings; *bhavāya*—for flourishing; *bhūtaye*—for economic development; *ye*—one who is; *uttama-śloka-parāyaṇāḥ*—devoted to the cause of the Personality of Godhead; *janāḥ*—men; *jīvanti*—do live; *na*—but not; *ātma-artham*—selfish interest; *asau*—that; *para-āśrayam*—shelter for others; *mumoca*—gave up; *nirvidya*—being freed from all attachment; *kutaḥ*—for what reason; *kalevaram*—mortal body.

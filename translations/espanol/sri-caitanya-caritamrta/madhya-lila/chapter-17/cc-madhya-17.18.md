@@ -1,9 +1,9 @@
 ### CC Madhya 17.18
 
-> ইঁহারে সঙ্গে লহ যদি, সবার হয় ‘সুখ’ ।
+> ইঁহারে সঙ্গে লহ যদি, সবার হয় ‘সুখ’ ।\
 > বন-পথে যাইতে তোমার নহিবে কোন ‘দুঃখ’ ॥১৮॥
 
-> iṅhāre saṅge laha yadi, sabāra haya 'sukha'
+> iṅhāre saṅge laha yadi, sabāra haya 'sukha'\
 > vana-pathe yāite tomāra nahibe kona 'duḥkha'
 
 *iṅhāre*—a él; *saṅge*—junto; *laha*—aceptas; *yadi*—si; *sabāra haya sukha*—todos estarán contentos; *vana-pathe*—por el sendero de la jungla; *yāite*—al ir; *tomāra*—Tu; *nahibe*—no habrá; *kona*—ninguna; *duḥkha*—dificultad.

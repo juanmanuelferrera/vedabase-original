@@ -1,11 +1,11 @@
 ### SB 6.1.42
 
-> सूर्योऽग्निः खं मरुद्देवः सोमः सन्ध्याहनी दिशः
+> सूर्योऽग्निः खं मरुद्देवः सोमः सन्ध्याहनी दिशः\
 > कं कुः स्वयं धर्म इति ह्येते दैह्यस्य साक्षिणः ॥४२॥
 
-> sūryo 'gniḥ khaṁ marud devaḥ
-> somaḥ sandhyāhanī diśaḥ
-> kaṁ kuḥ svayaṁ dharma iti
+> sūryo 'gniḥ khaṁ marud devaḥ\
+> somaḥ sandhyāhanī diśaḥ\
+> kaṁ kuḥ svayaṁ dharma iti\
 > hy ete daihyasya sākṣiṇaḥ
 
 *sūryaḥ*—el dios del Sol; *agniḥ*—el fuego; *kham*—el cielo; *marut*—el aire; *devaḥ*—los semidioses; *somaḥ*—la Luna; *sandhyā*—la tarde; *ahanī*—el día y la noche; *diśaḥ*—las direcciones; *kam*—el agua; *kuḥ*—la tierra; *svayam*—personalmente; *dharmaḥ*—Yamarāja, o la Superalma; *iti*—así; *hi*—en verdad; *ete*—todos estos; *daihyasya*—de una entidad viviente corporificada en los elementos materiales; *sākṣiṇaḥ*—testigos.

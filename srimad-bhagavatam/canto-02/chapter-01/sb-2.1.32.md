@@ -1,11 +1,11 @@
 ### SB 2.1.32
 
-> व्रीडोत्तरौष्ठोऽधर एव लोभो धर्मः स्तनोऽधर्मपथोऽस्य पृष्ठम् ।
+> व्रीडोत्तरौष्ठोऽधर एव लोभो धर्मः स्तनोऽधर्मपथोऽस्य पृष्ठम् ।\
 > कस्तस्य मेढ्रं वृषणौ च मित्रौ कुक्षिः समुद्रा गिरयोऽस्थिसङ्घाः ॥३२॥
 
-> vrīḍottarauṣṭho 'dhara eva lobho
-> dharmaḥ stano 'dharma-patho 'sya pṛṣṭham
-> kas tasya meḍhraṁ vṛṣaṇau ca mitrau
+> vrīḍottarauṣṭho 'dhara eva lobho\
+> dharmaḥ stano 'dharma-patho 'sya pṛṣṭham\
+> kas tasya meḍhraṁ vṛṣaṇau ca mitrau\
 > kukṣiḥ samudrā girayo 'sthi-saṅghāḥ
 
 *vrīḍa*—modesty; *uttara*—upper; *oṣṭhaḥ*—lip; *adharaḥ*—chin; *eva*—certainly; *lobhaḥ*—hankering; *dharmaḥ*—religion; *stanaḥ*—breast; *adharma*—irreligion; *pathaḥ*—way; *asya*—His; *pṛṣṭham*—back; *kaḥ*—Brahmā; *tasya*—His; *meḍhram*—genitals; *vṛṣaṇau*—testicles; *ca*—also; *mitrau*—the Mitrā-varuṇas; *kukṣiḥ*—waist; *samudrāḥ*—the oceans; *girayaḥ*—the hills; *asthi*—bones; *saṅghāḥ*—stack.

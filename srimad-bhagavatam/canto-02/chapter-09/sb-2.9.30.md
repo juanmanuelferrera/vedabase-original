@@ -1,11 +1,11 @@
 ### SB 2.9.30
 
-> यावत्सखा सख्युरिवेश ते कृतः प्रजाविसर्गे विभजामि भो जनम् ।
+> यावत्सखा सख्युरिवेश ते कृतः प्रजाविसर्गे विभजामि भो जनम् ।\
 > अविक्लवस्ते परिकर्मणि स्थितो मा मे समुन्नद्धमदो ञ्ज मानिनः ॥३०॥
 
-> yāvat sakhā sakhyur iveśa te kṛtaḥ
-> prajā-visarge vibhajāmi bho janam
-> aviklavas te parikarmaṇi sthito
+> yāvat sakhā sakhyur iveśa te kṛtaḥ\
+> prajā-visarge vibhajāmi bho janam\
+> aviklavas te parikarmaṇi sthito\
 > mā me samunnaddha-mado 'ja māninaḥ
 
 *yāvat*—as it is; *sakhā*—friend; *sakhyuḥ*—unto the friend; *iva*—like that; *īśa*—O Lord; *te*—You; *kṛtaḥ*—have accepted; *prajā*—the living entities; *visarge*—in the matter of creation; *vibhajāmi*—as I shall do it differently; *bhoḥ*—O my Lord; *janam*—those who are born; *aviklavaḥ*—without being perturbed; *te*—Your; *parikarmaṇi*—in the matter of service; *sthitaḥ*—thus situated; *mā*—may it never be; *me*—unto me; *samunnaddha*—resulting arise; *madaḥ*—madness; *aja*—O unborn one; *māninaḥ*—thus being thought of.

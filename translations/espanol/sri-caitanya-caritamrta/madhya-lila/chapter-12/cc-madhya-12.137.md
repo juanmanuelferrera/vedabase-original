@@ -1,9 +1,9 @@
 ### CC Madhya 12.137
 
-> চারিদিকে ভক্তগণ করেন কীর্তন ।
+> চারিদিকে ভক্তগণ করেন কীর্তন ।\
 > মধ্যে নৃত্য করেন প্রভু মত্তসিংহ-সম ॥১৩৭॥
 
-> cāri-dike bhakta-gaṇa karena kīrtana
+> cāri-dike bhakta-gaṇa karena kīrtana\
 > madhye nṛtya karena prabhu matta-siṁha-sama
 
 *cāri-dike*—por todos lados; *bhakta-gaṇa*—los devotos; *karena*—realizaban; *kīrtana*—canto congregacional; *madhye*—en el centro; *nṛtya*—danza; *karena*—realiza; *prabhu*—Śrī Caitanya Mahāprabhu; *matta-siṁha-sama*—como un león enloquecido.

@@ -1,11 +1,11 @@
 ### SB 4.29.16
 
-> अन्तःपुरं च हृदयं विषूचिर्मन उच्यते ।
+> अन्तःपुरं च हृदयं विषूचिर्मन उच्यते ।\
 > तत्र मोहं प्रसादं वा हर्षं प्राप्नोति तद्गुणैः ॥१६॥
 
-> antaḥ-puraṁ ca hṛdayaṁ
-> viṣūcir mana ucyate
-> tatra mohaṁ prasādaṁ vā
+> antaḥ-puraṁ ca hṛdayaṁ\
+> viṣūcir mana ucyate\
+> tatra mohaṁ prasādaṁ vā\
 > harṣaṁ prāpnoti tad-guṇaiḥ
 
 *antaḥ-puram*—residencia privada; *ca*—y; *hṛdayam*—el corazón; *viṣūciḥ*—el sirviente llamado Viṣūcīna; *manaḥ*—la mente; *ucyate*—se dice; *tatra*—allí; *moham*—ilusión; *prasādam*—satisfacción; *vā*—o; *harṣam*—júbilo; *prāpnoti*—obtiene; *tat*—de la mente; *guṇaiḥ*—con las modalidades de la naturaleza.

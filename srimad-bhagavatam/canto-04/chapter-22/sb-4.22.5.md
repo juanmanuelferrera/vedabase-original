@@ -1,11 +1,11 @@
 ### SB 4.22.5
 
-> तत्पादशौचसलिलैर्मार्जितालकबन्धनः ।
+> तत्पादशौचसलिलैर्मार्जितालकबन्धनः ।\
 > तत्र शीलवतां वृत्तमाचरन्मानयन्निव ॥५॥
 
-> tat-pāda-śauca-salilair
-> mārjitālaka-bandhanaḥ
-> tatra śīlavatāṁ vṛttam
+> tat-pāda-śauca-salilair\
+> mārjitālaka-bandhanaḥ\
+> tatra śīlavatāṁ vṛttam\
 > ācaran mānayann iva
 
 *tat-pāda*—their lotus feet; *śauca*—washed; *salilaiḥ*—water; *mārjita*—sprinkled; *alaka*—hair; *bandhanaḥ*—bunch; *tatra*—there; *śīlavatām*—of the respectable gentlemen; *vṛttam*—behavior; *ācaran*—behaving; *mānayan*—practicing; *iva*—like.

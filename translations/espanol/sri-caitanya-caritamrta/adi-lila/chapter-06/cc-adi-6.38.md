@@ -1,9 +1,9 @@
 ### CC Adi 6.38
 
-> প্রভুর উপাঙ্গ — শ্রীবাসাদি ভক্তগণ ।
+> প্রভুর উপাঙ্গ — শ্রীবাসাদি ভক্তগণ ।\
 > হস্তমুখনেত্র-অঙ্গ চক্রাদ্যস্ত্র-সম ॥৩৮॥
 
-> prabhura upāṅga--śrīvāsādi bhakta-gaṇa
+> prabhura upāṅga--śrīvāsādi bhakta-gaṇa\
 > hasta-mukha-netra-aṅga cakrādy-astra-sama
 
 *prabhura upāṅga*—partes menores del Señor Caitanya; *śrīvāsa-ādi*—encabezados por Śrīvāsa; *bhakta-gaṇa*—los devotos; *hasta*—manos; *mukha*—rostro; *netra*—ojos; *aṅga*—partes del cuerpo; *cakra-ādi*—el disco; *astra*—armas; *sama*—como.

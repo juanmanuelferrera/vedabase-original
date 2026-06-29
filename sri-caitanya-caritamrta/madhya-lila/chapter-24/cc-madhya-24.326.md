@@ -1,9 +1,9 @@
 ### CC Madhya 24.326
 
-> সূত্র করি’ দিশা যদি করহ উপদেশ ।
+> সূত্র করি’ দিশা যদি করহ উপদেশ ।\
 > আপনে করহ যদি হৃদয়ে প্রবেশ ॥৩২৬॥
 
-> sūtra kari' diśā yadi karaha upadeśa
+> sūtra kari' diśā yadi karaha upadeśa\
 > āpane karaha yadi hṛdaye praveśa
 
 *sūtra kari'*—making a synopsis; *diśā*—direction; *yadi*—if; *karaha upadeśa*—You kindly instruct; *āpane*—personally; *karaha*—You do; *yadi*—if; *hṛdaye praveśa*—entering into me or manifesting in my heart.

@@ -1,13 +1,13 @@
 ### CC Antya 1.175
 
-> সুররিপুসুদৃশামুরোজকোকা-
-> ন্মুখকমলানি চ খেদয়ন্নখণ্ডঃ ।
-> চিরমখিলসুহৃচ্চকোরনন্দী
+> সুররিপুসুদৃশামুরোজকোকা-\
+> ন্মুখকমলানি চ খেদয়ন্নখণ্ডঃ ।\
+> চিরমখিলসুহৃচ্চকোরনন্দী\
 > দিশতু মুকুন্দযশঃশশী মুদং বঃ ॥১৭৫॥
 
-> sura-ripu-sudṛśām uroja-kokān
-> mukha-kamalāni ca khedayann akhaṇḍaḥ
-> ciram akhila-suhṛc-cakora-nandī
+> sura-ripu-sudṛśām uroja-kokān\
+> mukha-kamalāni ca khedayann akhaṇḍaḥ\
+> ciram akhila-suhṛc-cakora-nandī\
 > diśatu mukunda-yaśaḥ-śaśī mudaṁ vaḥ
 
 *sura-ripu*—de los enemigos de los semidioses; *sudṛśām*—de las esposas; *uroja*—los pechos; *kokān*—como aves conocidas como cakravāka; *mukha*—rostros; *kamalāni*—como lotos; *ca*—también; *khedayan*—afligiendo; *akhaṇḍaḥ*—completamente sin distorsión; *ciram*—por largo tiempo; *akhila*—de todos; *suhṛt*—el amigo; *cakora-nandī*—complaciente para las aves cakora; *diśatu*—que otorgue; *mukunda*—de Śrī Kṛṣṇa; *yaśaḥ*—las glorias; *śaśī*—como la luna; *mudam*—placer; *vaḥ*—a todos vosotros.

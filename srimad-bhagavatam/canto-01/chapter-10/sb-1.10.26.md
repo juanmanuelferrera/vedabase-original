@@ -1,11 +1,11 @@
 ### SB 1.10.26
 
-> अहो अलं श्लाघ्यतमं यदोः कुलमहो अलं पुण्यतमं मधोर्वनम् ।
+> अहो अलं श्लाघ्यतमं यदोः कुलमहो अलं पुण्यतमं मधोर्वनम् ।\
 > यदेष पुंसामृषभः श्रियः पतिः स्वजन्मना चङ्क्रमणेन चाञ्चति ॥२६॥
 
-> aho alaṁ ślāghyatamaṁ yadoḥ kulam
-> aho alaṁ puṇyatamaṁ madhor vanam
-> yad eṣa puṁsām ṛṣabhaḥ śriyaḥ patiḥ
+> aho alaṁ ślāghyatamaṁ yadoḥ kulam\
+> aho alaṁ puṇyatamaṁ madhor vanam\
+> yad eṣa puṁsām ṛṣabhaḥ śriyaḥ patiḥ\
 > sva-janmanā caṅkramaṇena cāñcati
 
 *aho*—oh; *alam*—verily; *ślāghya-tamam*—supremely glorified; *yadoḥ*—of King Yadu; *kulam*—dynasty; *aho*—oh; *alam*—verily; *puṇya-tamam*—supremely virtuous; *madhoḥ vanam*—the land of Mathurā; *yat*—because; *eṣaḥ*—this; *puṁsām*—of all the living beings; *ṛṣabhaḥ*—supreme leader; *śriyaḥ*—of the goddess of fortune; *patiḥ*—husband; *sva-janmanā*—by His appearance; *caṅkramaṇena*—by crawling; *ca añcati*—glories.

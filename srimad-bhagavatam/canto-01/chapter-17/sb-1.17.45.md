@@ -1,11 +1,11 @@
 ### SB 1.17.45
 
-> इत्थम्भूतानुभावोऽयमभिमन्युसुतो नृपः ।
+> इत्थम्भूतानुभावोऽयमभिमन्युसुतो नृपः ।\
 > यस्य पालयतः क्षौणीं यूयं सत्राय दीक्षिताः ॥४५॥
 
-> ittham-bhūtānubhāvo 'yam
-> abhimanyu-suto nṛpaḥ
-> yasya pālayataḥ kṣauṇīṁ
+> ittham-bhūtānubhāvo 'yam\
+> abhimanyu-suto nṛpaḥ\
+> yasya pālayataḥ kṣauṇīṁ\
 > yūyaṁ satrāya dīkṣitāḥ
 
 *ittham-bhūta*—being thus; *anubhāvaḥ*—experience; *ayam*—of this; *abhimanyu-sutaḥ*—son of Abhimanyu; *nṛpaḥ*—the king; *yasya*—whose; *pālayataḥ*—on account of his ruling; *kṣauṇīm*—on the earth; *yūyam*—you all; *satrāya*—in performing sacrifices; *dīkṣitāḥ*—initiated.

@@ -1,11 +1,11 @@
 ### SB 8.9.4
 
-> न वयं त्वामरैर्दैत्यैः सिद्धगन्धर्वचारणैः
+> न वयं त्वामरैर्दैत्यैः सिद्धगन्धर्वचारणैः\
 > नास्पृष्टपूर्वां जानीमो लोकेशैश्च कुतो नृभिः ॥४॥
 
-> na vayaṁ tvāmarair daityaiḥ
-> siddha-gandharva-cāraṇaiḥ
-> nāspṛṣṭa-pūrvāṁ jānīmo
+> na vayaṁ tvāmarair daityaiḥ\
+> siddha-gandharva-cāraṇaiḥ\
+> nāspṛṣṭa-pūrvāṁ jānīmo\
 > lokeśaiś ca kuto nṛbhiḥ
 
 *na*—it is not; *vayam*—we; *tvā*—unto You; *amaraiḥ*—by the demigods; *daityaiḥ*—by the demons; *siddha*—by the Siddhas; *gandharva*—by the Gandharvas; *cāraṇaiḥ*—and by the Cāraṇas; *na*—not; *aspṛṣṭa-pūrvām*—never enjoyed or touched by anyone; *jānīmaḥ*—know exactly; *loka-īśaiḥ*—by the various directors of the universe; *ca*—also; *kutaḥ*—what to speak of; *nṛbhiḥ*—by human society.

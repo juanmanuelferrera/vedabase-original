@@ -1,11 +1,11 @@
 ### SB 7.14.41
 
-> पुरुषेष्वपि राजेन्द्र सुपात्रं ब्राह्मणं विदुः
+> पुरुषेष्वपि राजेन्द्र सुपात्रं ब्राह्मणं विदुः\
 > तपसा विद्यया तुष्ट्या धत्ते वेदं हरेस्तनुम ॥४१॥
 
-> puruṣeṣv api rājendra
-> supātraṁ brāhmaṇaṁ viduḥ
-> tapasā vidyayā tuṣṭyā
+> puruṣeṣv api rājendra\
+> supātraṁ brāhmaṇaṁ viduḥ\
+> tapasā vidyayā tuṣṭyā\
 > dhatte vedaṁ hares tanum
 
 *puruṣeṣu*—entre personas; *api*—en verdad; *rāja-indra*—¡oh, tú, el mejor de los reyes!; *su-pātram*—la mejor persona; *brāhmaṇam*—el *brāhmaṇa* cualificado; *viduḥ*—se debe saber; *tapasā*—debido a la austeridad; *vidyayā*—educación; *tuṣṭyā*—y satisfacción; *dhatte*—él asume; *vedam*—el conocimiento trascendental denominado *Veda*; *hareḥ*—de la Suprema Personalidad de Dios; *tanum*—cuerpo, o representación.

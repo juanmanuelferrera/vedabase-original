@@ -1,9 +1,9 @@
 ### CC Antya 11.30
 
-> অনেক নাচাইলা মোরে প্রসাদ করিয়া ।
+> অনেক নাচাইলা মোরে প্রসাদ করিয়া ।\
 > বিপ্রের শ্রাদ্ধপাত্র খাইনু ‘ম্লেচ্ছ’ হঞা ॥৩০॥
 
-> aneka nācāilā more prasāda kariyā
+> aneka nācāilā more prasāda kariyā\
 > viprera śrāddha-pātra khāinu 'mleccha' hañā
 
 *aneka*—de muchas maneras; *nācāilā*—me has hecho danzar; *more*—a mí; *prasāda kariyā*—por Tu misericordia; *viprera*—de los *brāhmaṇas*; *śrāddha-pātra*—el plato de la ceremonia de *śrāddha*; *khāinu*—he comido; *mleccha hañā*—aunque nací en una familia de comedores de carne.

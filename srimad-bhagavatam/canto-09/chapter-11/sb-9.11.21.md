@@ -1,13 +1,13 @@
 ### SB 9.11.21
 
-> यस्यामलं नृपसदःसु यशोऽधुनापि
-> गायन्त्यघघ्नमृषयो दिगिभेन्द्रपट्टम
-> तं नाकपालवसुपालकिरीटजुष्ट
+> यस्यामलं नृपसदःसु यशोऽधुनापि\
+> गायन्त्यघघ्नमृषयो दिगिभेन्द्रपट्टम\
+> तं नाकपालवसुपालकिरीटजुष्ट\
 > पादाम्बुजं रघुपतिं शरणं प्रपद्ये ॥२१॥
 
-> yasyāmalaṁ nṛpa-sadaḥsu yaśo 'dhunāpi
-> gāyanty agha-ghnam ṛṣayo dig-ibhendra-paṭṭam
-> taṁ nākapāla-vasupāla-kirīṭa-juṣṭa-
+> yasyāmalaṁ nṛpa-sadaḥsu yaśo 'dhunāpi\
+> gāyanty agha-ghnam ṛṣayo dig-ibhendra-paṭṭam\
+> taṁ nākapāla-vasupāla-kirīṭa-juṣṭa-\
 > pādāmbujaṁ raghupatiṁ śaraṇaṁ prapadye
 
 *yasya*—whose (Lord Rāmacandra's); *amalam*—spotless, free from material qualities; *nṛpa-sadaḥsu*—in the assembly of great emperors like Mahārāja Yudhiṣṭhira; *yaśaḥ*—famous glories; *adhunā api*—even today; *gāyanti*—glorify; *agha-ghnam*—which vanquish all sinful reactions; *ṛṣayaḥ*—great saintly persons like Mārkaṇḍeya; *dik-ibha-indra-paṭṭam*—as the ornamental cloth covering the elephant that conquers the directions; *tam*—that; *nāka-pāla*—of heavenly demigods; *vasu-pāla*—of earthly kings; *kirīṭa*—by the helmets; *juṣṭa*—are worshiped; *pāda-ambujam*—whose lotus feet; *raghu-patim*—unto Lord Rāmacandra; *śaraṇam*—surrender; *prapadye*—I offer.

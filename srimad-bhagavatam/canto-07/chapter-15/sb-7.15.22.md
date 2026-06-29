@@ -1,11 +1,11 @@
 ### SB 7.15.22
 
-> असङ्कल्पाज्जयेत्कामं क्रोधं कामविवर्जनात
+> असङ्कल्पाज्जयेत्कामं क्रोधं कामविवर्जनात\
 > अर्थानर्थेक्षया लोभं भयं तत्त्वावमर्शनात ॥२२॥
 
-> asaṅkalpāj jayet kāmaṁ
-> krodhaṁ kāma-vivarjanāt
-> arthānarthekṣayā lobhaṁ
+> asaṅkalpāj jayet kāmaṁ\
+> krodhaṁ kāma-vivarjanāt\
+> arthānarthekṣayā lobhaṁ\
 > bhayaṁ tattvāvamarśanāt
 
 *asaṅkalpāt*—by determination; *jayet*—one should conquer; *kāmam*—lusty desire; *krodham*—anger; *kāma-vivarjanāt*—by giving up the objective of sense desire; *artha*—accumulation of wealth; *anartha*—a cause of trouble; *īkṣayā*—by considering; *lobham*—greed; *bhayam*—fear; *tattva*—the truth; *avamarśanāt*—by considering.

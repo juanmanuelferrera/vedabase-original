@@ -1,9 +1,9 @@
 ### CC Madhya 16.67
 
-> অচিন্ত্যশক্ত্যে কর তুমি তাহার ঘটন ।
+> অচিন্ত্যশক্ত্যে কর তুমি তাহার ঘটন ।\
 > যে করাহ, সেই করি, নাহিক নিয়ম ॥৬৭॥
 
-> acintya-śaktye kara tumi tāhāra ghaṭana
+> acintya-śaktye kara tumi tāhāra ghaṭana\
 > ye karāha, sei kari, nāhika niyama
 
 *acintya-śaktye*—by inconceivable energy; *kara*—do; *tumi*—You; *tāhāra*—of that relationship; *ghaṭana*—the operation; *ye*—whatever; *karāha*—You make Me do; *sei*—that; *kari*—I do; *nāhika*—there is not; *niyama*—restriction.

@@ -1,11 +1,11 @@
 ### SB 1.10.16
 
-> प्रासादशिखरारूढाः कुरुनार्यो दिदृक्षया ।
+> प्रासादशिखरारूढाः कुरुनार्यो दिदृक्षया ।\
 > ववृषुः कुसुमैः कृष्णं प्रेमव्रीडास्मितेक्षणाः ॥१६॥
 
-> prāsāda-śikharārūḍhāḥ
-> kuru-nāryo didṛkṣayā
-> vavṛṣuḥ kusumaiḥ kṛṣṇaṁ
+> prāsāda-śikharārūḍhāḥ\
+> kuru-nāryo didṛkṣayā\
+> vavṛṣuḥ kusumaiḥ kṛṣṇaṁ\
 > prema-vrīḍā-smitekṣaṇāḥ
 
 *prāsāda*—palace; *śikhara*—the roof; *ārūḍhāḥ*—ascending; *kuru-nāryaḥ*—the ladies of the Kuru royalty; *didṛkṣayā*—seeing; *vavṛṣuḥ*—showered; *kusumaiḥ*—by flowers; *kṛṣṇam*—upon Lord Kṛṣṇa; *prema*—out of affection and love; *vrīḍā-smita-īkṣaṇāḥ*—glancing with shy smiles.

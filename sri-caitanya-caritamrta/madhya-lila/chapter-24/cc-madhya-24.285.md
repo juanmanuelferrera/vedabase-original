@@ -1,9 +1,9 @@
 ### CC Madhya 24.285
 
-> ‘আত্মা’-শব্দে কহে — সর্ববিধ ভগবান্ ।
+> ‘আত্মা’-শব্দে কহে — সর্ববিধ ভগবান্ ।\
 > এক ‘স্বয়ং ভগবান্’, আর ‘ভগবান্’-আখ্যান ॥২৮৫॥
 
-> 'ātmā'-śabde kahe—sarva-vidha bhagavān
+> 'ātmā'-śabde kahe—sarva-vidha bhagavān\
 > eka 'svayaṁ bhagavān', āra 'bhagavān'-ākhyāna
 
 *ātmā-śabde*—by the word *ātmā*; *kahe*—it is said; *sarva-vidha bhagavān*—all types of Personalities of Godhead; *eka*—one; *svayam bhagavān*—the original Supreme Personality of Godhead, Kṛṣṇa; *āra*—another; *bhagavān-ākhyāna*—the Personality of Godhead by an expansive designation.

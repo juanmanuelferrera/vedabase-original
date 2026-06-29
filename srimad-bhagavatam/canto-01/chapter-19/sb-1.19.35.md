@@ -1,11 +1,11 @@
 ### SB 1.19.35
 
-> अपि मे भगवान्प्रीतः कृष्णः पाण्डुसुतप्रियः ।
+> अपि मे भगवान्प्रीतः कृष्णः पाण्डुसुतप्रियः ।\
 > पैतृष्वसेयप्रीत्यर्थं तद्गोत्रस्यात्तबान्धवः ॥३५॥
 
-> api me bhagavān prītaḥ
-> kṛṣṇaḥ pāṇḍu-suta-priyaḥ
-> paitṛ-ṣvaseya-prīty-arthaṁ
+> api me bhagavān prītaḥ\
+> kṛṣṇaḥ pāṇḍu-suta-priyaḥ\
+> paitṛ-ṣvaseya-prīty-arthaṁ\
 > tad-gotrasyātta-bāndhavaḥ
 
 *api*—definitely; *me*—unto me; *bhagavān*—the Personality of Godhead; *prītaḥ*—pleased; *kṛṣṇaḥ*—the Lord; *pāṇḍu-suta*—the sons of King Pāṇḍu; *priyaḥ*—dear; *paitṛ*—in relation with the father; *svaseya*—the sons of the sister; *prīti*—satisfaction; *artham*—in the matter of; *tat*—their; *gotrasya*—of the descendant; *ātta*—accepted; *bāndhavaḥ*—as a friend.

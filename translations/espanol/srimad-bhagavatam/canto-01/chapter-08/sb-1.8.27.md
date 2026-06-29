@@ -1,11 +1,11 @@
 ### SB 1.8.27
 
-> नमोऽकिञ्चनवित्ताय निवृत्तगुणवृत्तये ।
+> नमोऽकिञ्चनवित्ताय निवृत्तगुणवृत्तये ।\
 > आत्मारामाय शान्ताय कैवल्यपतये नमः ॥२७॥
 
-> namo 'kiñcana-vittāya
-> nivṛtta-guṇa-vṛttaye
-> ātmārāmāya śāntāya
+> namo 'kiñcana-vittāya\
+> nivṛtta-guṇa-vṛttaye\
+> ātmārāmāya śāntāya\
 > kaivalya-pataye namaḥ
 
 *namaḥ*—todas las reverencias a Ti; *akiñcana-vittāya*—a la propiedad del pobre en lo material; *nivṛtta*—completamente trascendental a las acciones de las modalidades materiales; *guṇa*—modalidades materiales; *vṛttaye*—afecto; *ātma-ārāmāya*—aquel que está autosatisfecho; *śāntāya*—el más gentil; *kaivalya-pataye*—al amo de los monistas; *namaḥ*—postrándome.

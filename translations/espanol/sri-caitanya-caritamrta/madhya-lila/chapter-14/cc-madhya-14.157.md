@@ -1,9 +1,9 @@
 ### CC Madhya 14.157
 
-> গোপিকার প্রেমে নাহি রসাভাস-দোষ ৷
+> গোপিকার প্রেমে নাহি রসাভাস-দোষ ৷\
 > অতএব কৃষ্ণের করে পরম সন্তোষ ॥১৫৭॥
 
-> gopikāra preme nāhi rasābhāsa-doṣa
+> gopikāra preme nāhi rasābhāsa-doṣa\
 > ataeva kṛṣṇera kare parama santoṣa
 
 *gopikāra*—de las gopīs; *preme*—en los asuntos amorosos; *nāhi*—no hay; *rasa-ābhāsa*—de un sabor adulterado de melosidad; *doṣa*—defecto; *ataeva*—por consiguiente; *kṛṣṇera*—del Señor Kṛṣṇa; *kare*—causan; *parama santoṣa*—la máxima satisfacción.

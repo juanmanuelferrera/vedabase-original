@@ -1,11 +1,11 @@
 ### SB 1.18.49
 
-> इति पुत्रकृताघेन सोऽनुतप्तो महामुनिः ।
+> इति पुत्रकृताघेन सोऽनुतप्तो महामुनिः ।\
 > स्वयं विप्रकृतो राज्ञा नैवाघं तदचिन्तयत् ॥४९॥
 
-> iti putra-kṛtāghena
-> so 'nutapto mahā-muniḥ
-> svayaṁ viprakṛto rājñā
+> iti putra-kṛtāghena\
+> so 'nutapto mahā-muniḥ\
+> svayaṁ viprakṛto rājñā\
 > naivāghaṁ tad acintayat
 
 *iti*—así pues; *putra*—hijo; *kṛta*—hecho por; *aghena*—por el pecado; *saḥ*—él (el *muni*); *anutaptaḥ*—lamentando; *mahā-muniḥ*—el sabio; *svayam*—personalmente; *viprakṛtaḥ*—siendo insultado así; *rājñā*—por el rey; *na*—no; *eva*—ciertamente; *agham*—el pecado; *tat*—eso; *acintayat*—lo pensó.

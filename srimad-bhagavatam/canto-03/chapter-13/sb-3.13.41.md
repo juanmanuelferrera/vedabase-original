@@ -1,11 +1,11 @@
 ### SB 3.13.41
 
-> त्रयीमयं रूपमिदं च सौकरं भूमण्डलेनाथ दता धृतेन ते ।
+> त्रयीमयं रूपमिदं च सौकरं भूमण्डलेनाथ दता धृतेन ते ।\
 > चकास्ति शृङ्गोढघनेन भूयसा कुलाचलेन्द्रस्य यथैव विभ्रमः ॥४१॥
 
-> trayīmayaṁ rūpam idaṁ ca saukaraṁ
-> bhū-maṇḍalenātha datā dhṛtena te
-> cakāsti śṛṅgoḍha-ghanena bhūyasā
+> trayīmayaṁ rūpam idaṁ ca saukaraṁ\
+> bhū-maṇḍalenātha datā dhṛtena te\
+> cakāsti śṛṅgoḍha-ghanena bhūyasā\
 > kulācalendrasya yathaiva vibhramaḥ
 
 *trayī-mayam*—*Vedas* personified; *rūpam*—form; *idam*—this; *ca*—also; *saukaram*—the boar; *bhū-maṇḍalena*—by the earth planet; *atha*—now; *datā*—by the tusk; *dhṛtena*—sustained by; *te*—Your; *cakāsti*—is glowing; *śṛṅga-ūḍha*—sustained by the peaks; *ghanena*—by the clouds; *bhūyasā*—more glorified; *kula-acala-indrasya*—of the great mountains; *yathā*—as much as; *eva*—certainly; *vibhramaḥ*—decoration.

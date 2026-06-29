@@ -1,9 +1,9 @@
 ### CC Madhya 3.35
 
-> আচার্য কহে, মিথ্যা নহে শ্রীপাদ-বচন ।
+> আচার্য কহে, মিথ্যা নহে শ্রীপাদ-বচন ।\
 > যমুনাতে স্নান তুমি করিলা এখন ॥৩৫॥
 
-> ācārya kahe, mithyā nahe śrīpāda-vacana
+> ācārya kahe, mithyā nahe śrīpāda-vacana\
 > yamunāte snāna tumi karilā ekhana
 
 *ācāryakahe*—Advaita Ācārya replied; *mithyā nahe*—this is not untrue; *śrīpāda-vacana*—the words of Śrī Nityānanda Prabhu; *yamunāte*—in the river Yamunā; *snāna*—bathing; *tumi*—You; *karilā*—did; *ekhana*—just now.

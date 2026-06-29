@@ -1,9 +1,9 @@
 ### CC Adi 14.8
 
-> দেখিয়া দোঁহার চিত্তে জন্মিল বিস্ময় ।
+> দেখিয়া দোঁহার চিত্তে জন্মিল বিস্ময় ।\
 > কার পদচিহ্ন ঘরে, না পায় নিশ্চয় ॥৮॥
 
-> dekhiyā doṅhāra citte janmila vismaya
+> dekhiyā doṅhāra citte janmila vismaya\
 > kāra pada-cihna ghare, nā pāya niścaya
 
 *dekhiyā*—al ver todas estas marcas; *doṅhāra*—de los padres, Śacīmātā y Jagannātha Miśra; *citte*—en sus corazones; *janmila*—surgió; *vismaya*—asombro; *kāra*—de quién; *pada-cihna*—las huellas; *ghare*—en la casa; *nā*—no; *pāya*—obtiene; *niścaya*—certeza.

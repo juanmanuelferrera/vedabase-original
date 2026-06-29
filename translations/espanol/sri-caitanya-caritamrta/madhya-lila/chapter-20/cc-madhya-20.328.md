@@ -1,9 +1,9 @@
 ### CC Madhya 20.328
 
-> ইন্দ্রসাবর্ণ্যে ‘বৃহদ্ভানু’ অভিধান ।
+> ইন্দ্রসাবর্ণ্যে ‘বৃহদ্ভানু’ অভিধান ।\
 > এই চৌদ্দ মন্বন্তরে চৌদ্দ ‘অবতার’ নাম ॥৩২৮॥
 
-> indra-sāvarṇye 'bṛhadbhānu' abhidhāna
+> indra-sāvarṇye 'bṛhadbhānu' abhidhāna\
 > ei caudda manvantare caudda 'avatāra' nāma
 
 *indra-sāvarṇye*—en el Indra-sāvarṇya-manvantara; *bṛhadbhānu*—el avatāra llamado Bṛhadbhānu; *abhidhāna*—de nombre; *ei caudda manvantare*—en los catorce manvantaras; *caudda*—catorce; *avatāra*—de las encarnaciones; *nāma*—diferentes nombres.

@@ -1,13 +1,13 @@
 ### SB 9.8.28
 
-> श्रीशुक उवाच
-> इत्थं गीतानुभावस्तं भगवान्कपिलो मुनिः
+> श्रीशुक उवाच\
+> इत्थं गीतानुभावस्तं भगवान्कपिलो मुनिः\
 > अंशुमन्तमुवाचेदमनुग्राह्य धिया नृप ॥२८॥
 
-> śrī-bhagavān uvāca
-> aśvo 'yaṁ nīyatāṁ vatsa
-> pitāmaha-paśus tava
-> ime ca pitaro dagdhā
+> śrī-bhagavān uvāca\
+> aśvo 'yaṁ nīyatāṁ vatsa\
+> pitāmaha-paśus tava\
+> ime ca pitaro dagdhā\
 > gaṅgāmbho 'rhanti netarat
 
 *śrī-bhagavān uvāca*—the great personality Kapila Muni said; *aśvaḥ*—horse; *ayam*—this; *nīyatām*—take; *vatsa*—O My son; *pitāmaha*—of your grandfather; *paśuḥ*—this animal; *tava*—your; *ime*—all these; *ca*—also; *pitaraḥ*—bodies of forefathers; *dagdhāḥ*—burnt to ashes; *gaṅgā-ambhaḥ*—the water of the Ganges; *arhanti*—can be saved; *na*—not; *itarat*—any other means.

@@ -1,11 +1,11 @@
 ### SB 1.17.33
 
-> न वर्तितव्यं तदधर्मबन्धो धर्मेण सत्येन च वर्तितव्ये ।
+> न वर्तितव्यं तदधर्मबन्धो धर्मेण सत्येन च वर्तितव्ये ।\
 > ब्रह्मावर्ते यत्र यजन्ति यज्ञैर्यज्ञेश्वरं यज्ञवितानविज्ञाः ॥३३॥
 
-> na vartitavyaṁ tad adharma-bandho
-> dharmeṇa satyena ca vartitavye
-> brahmāvarte yatra yajanti yajñair
+> na vartitavyaṁ tad adharma-bandho\
+> dharmeṇa satyena ca vartitavye\
+> brahmāvarte yatra yajanti yajñair\
 > yajñeśvaraṁ yajña-vitāna-vijñāḥ
 
 *na*—not; *vartitavyam*—deserve to remain; *tat*—therefore; *adharma*—irreligiosity; *bandho*—friend; *dharmeṇa*—with religion; *satyena*—with truth; *ca*—also; *vartitavye*—being situated in; *brahma-āvarte*—place where sacrifice is performed; *yatra*—where; *yajanti*—duly perform; *yajñaiḥ*—by sacrifices or devotional services; *yajña-īśvaram*—unto the Supreme Lord, the Personality of Godhead; *yajña*—sacrifice; *vitāna*—spreading; *vijñāḥ*—experts.

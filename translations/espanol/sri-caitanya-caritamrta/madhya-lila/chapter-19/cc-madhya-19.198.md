@@ -1,9 +1,9 @@
 ### CC Madhya 19.198
 
-> কৃষ্ণের বিশ্বরূপ দেখি’ অর্জুনের হৈল ভয় ।
+> কৃষ্ণের বিশ্বরূপ দেখি’ অর্জুনের হৈল ভয় ।\
 > সখ্যভাবে ধার্ষ্ট্য ক্ষমাপয় করিয়া বিনয় ॥১৯৮॥
 
-> kṛṣṇera viśva-rūpa dekhi' arjunera haila bhaya
+> kṛṣṇera viśva-rūpa dekhi' arjunera haila bhaya\
 > sakhya-bhāve dhārṣṭya kṣamāpaya kariyā vinaya
 
 *kṛṣṇera*—del Señor Kṛṣṇa; *viśva-rūpa*—la forma universal; *dekhi'*—al ver; *arjunera*—de Arjuna; *haila bhaya*—hubo temor; *sakhya-bhāve*—como amigo; *dhārṣṭya*—insolencia; *kṣamāpaya*—pide perdón por; *kariyā*—mostrando; *vinaya*—sumisión.

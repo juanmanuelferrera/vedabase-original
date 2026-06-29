@@ -1,14 +1,14 @@
 ### SB 3.10.30
 
-> अतः परं प्रवक्ष्यामि वंशान्मन्वन्तराणि च ।
-> एवं रजःप्लुतः स्रष्टा कल्पादिष्वात्मभूर्हरिः ।
+> अतः परं प्रवक्ष्यामि वंशान्मन्वन्तराणि च ।\
+> एवं रजःप्लुतः स्रष्टा कल्पादिष्वात्मभूर्हरिः ।\
 > सृजत्यमोघसङ्कल्प आत्मैवात्मानमात्मना ॥३०॥
 
-> ataḥ paraṁ pravakṣyāmi
-> vaṁśān manvantarāṇi ca
-> evaṁ rajaḥ-plutaḥ sraṣṭā
-> kalpādiṣv ātmabhūr hariḥ
-> sṛjaty amogha-saṅkalpa
+> ataḥ paraṁ pravakṣyāmi\
+> vaṁśān manvantarāṇi ca\
+> evaṁ rajaḥ-plutaḥ sraṣṭā\
+> kalpādiṣv ātmabhūr hariḥ\
+> sṛjaty amogha-saṅkalpa\
 > ātmaivātmānam ātmanā
 
 *ataḥ*—aquí; *param*—después; *pravakṣyāmi*—he de explicar; *vaṁśān*—descendientes; *manvantarāṇi*—diferentes advenimientos de *manus*; *ca*—y; *evam*—así pues; *rajaḥ-plutaḥ*—imbuido de la modalidad de la pasión; *sraṣṭā*—el creador; *kalpa-ādiṣu*—en diferentes milenios; *ātma-bhūḥ*—advenimiento realizado por sí mismo; *hariḥ*—la Personalidad de Dios; *sṛjati*—crea; *amogha*—inagotable; *saṅkalpaḥ*—determinación; *ātmā eva*—Él mismo; *ātmānam*—Sí mismo; *ātmanā*—mediante Su propia energía.

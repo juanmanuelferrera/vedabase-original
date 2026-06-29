@@ -1,9 +1,9 @@
 ### CC Antya 2.90
 
-> আচার্য তাহারে প্রভুপদে মিলাইলা ।
+> আচার্য তাহারে প্রভুপদে মিলাইলা ।\
 > অন্তর্যামী প্রভু চিত্তে সুখ না পাইলা ॥৯০॥
 
-> ācārya tāhāre prabhu-pade milāilā
+> ācārya tāhāre prabhu-pade milāilā\
 > antaryāmī prabhu citte sukha nā pāilā
 
 *ācārya*—Bhagavān Ācārya; *tāhāre*—him (his brother); *prabhu-pade milāilā*—got to meet Śrī Caitanya Mahāprabhu; *antaryāmī prabhu*—Lord Śrī Caitanya Mahāprabhu, who could study anyone's heart; *citte*—within Himself; *sukha*—happiness; *nā pāilā*—could not get.

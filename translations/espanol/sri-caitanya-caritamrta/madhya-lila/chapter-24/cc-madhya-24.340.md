@@ -1,9 +1,9 @@
 ### CC Madhya 24.340
 
-> দিনকৃত্য, পক্ষকৃত্য, একাদশ্যাদি-বিবরণ ।
+> দিনকৃত্য, পক্ষকৃত্য, একাদশ্যাদি-বিবরণ ।\
 > মাসকৃত্য, জন্মাষ্টম্যাদি-বিধি-বিচারণ ॥৩৪০॥
 
-> dina-kṛtya, pakṣa-kṛtya, ekādaśy-ādi-vivaraṇa
+> dina-kṛtya, pakṣa-kṛtya, ekādaśy-ādi-vivaraṇa\
 > māsa-kṛtya, janmāṣṭamyādi-vidhi-vicāraṇa
 
 *dina-kṛtya*—deberes diarios; *pakṣa-kṛtya*—deberes en las quincenas; *ekādaśī-ādi-vivaraṇa*—descripción del Ekādaśī, etc.; *māsa-kṛtya*—deberes de cada mes; *janmāṣṭamī-ādi*—de celebrar el Janmāṣṭamī y otras ceremonias; *vidhi*—del proceso; *vicāraṇa*—consideración.

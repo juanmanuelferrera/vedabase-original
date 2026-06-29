@@ -1,11 +1,11 @@
 ### Īśo 3
 
-> असुर्या नाम ते लोका अन्धेन तमसाऽऽवृताः।
+> असुर्या नाम ते लोका अन्धेन तमसाऽऽवृताः।\
 > ताँस्ते प्रेत्याभिगच्छन्ति ये के चात्महनो जनाः॥३॥
 
-> asuryā nāma te lokā
-> andhena tamasāvṛtāḥ
-> tāṁs te pretyābhigacchanti
+> asuryā nāma te lokā\
+> andhena tamasāvṛtāḥ\
+> tāṁs te pretyābhigacchanti\
 > ye ke cātma-hano janāḥ
 
 *asuryāḥ*—destinados a los asuras; *nāma*—célebres por ese nombre; *te*—esos; *lokāḥ*—planetas; *andhena*—por la ignorancia; *tamasā*—por la oscuridad; *āvṛtāḥ*—cubiertos; *tān*—esos planetas; *te*—ellos; *pretya*—después de la muerte; *abhigacchanti*—entran en; *ye*—quienquiera; *ke*—todos; *ca*—y; *ātma-hanaḥ*—los asesinos del alma; *janāḥ*—personas.

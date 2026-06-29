@@ -1,9 +1,9 @@
 ### CC Adi 17.168
 
-> শুনি’ স্তব্ধ হৈল কাজী, নাহি স্ফুরে বাণী ।
+> শুনি’ স্তব্ধ হৈল কাজী, নাহি স্ফুরে বাণী ।\
 > বিচারিয়া কহে কাজী পরাভব মানি’ ॥১৬৮॥
 
-> śuni' stabdha haila kājī, nāhi sphure vāṇī
+> śuni' stabdha haila kājī, nāhi sphure vāṇī\
 > vicāriyā kahe kājī parābhava māni'
 
 *śuni'*—by hearing; *stabdha*—stunned; *haila*—became; *kājī*—the Kazi; *nāhi*—does not; *sphure*—utter; *vāṇī*—words; *vicāriyā*—after due consideration; *kahe*—said; *kājī*—the Kazi; *parābhava*—defeat; *māni'*—accepting.

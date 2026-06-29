@@ -1,11 +1,11 @@
 ### SB 4.24.9
 
-> बर्हिषत्सुमहाभागो हाविर्धानिः प्रजापतिः ।
+> बर्हिषत्सुमहाभागो हाविर्धानिः प्रजापतिः ।\
 > क्रियाकाण्डेषु निष्णातो योगेषु च कुरूद्वह ॥९॥
 
-> barhiṣat sumahā-bhāgo
-> hāvirdhāniḥ prajāpatiḥ
-> kriyā-kāṇḍeṣu niṣṇāto
+> barhiṣat sumahā-bhāgo\
+> hāvirdhāniḥ prajāpatiḥ\
+> kriyā-kāṇḍeṣu niṣṇāto\
 > yogeṣu ca kurūdvaha
 
 *barhiṣat*—de nombre Barhiṣat; *su-mahā-bhāgaḥ*—muy afortunado; *hāvirdhāniḥ*—de nombre Hāvirdhāni; *prajā-patiḥ*—el puesto de *prajāpati*; *kriyā-kāṇḍeṣu*—en cuestión de actividades fruitivas; *niṣṇātaḥ*—inmerso en; *yogeṣu*—en prácticas de *yoga* místico; *ca*—también; *kuru-udvaha*—¡oh, tú, el mejor de los Kurus (Vidura).

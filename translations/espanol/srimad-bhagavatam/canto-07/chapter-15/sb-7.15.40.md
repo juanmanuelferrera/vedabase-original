@@ -1,11 +1,11 @@
 ### SB 7.15.40
 
-> आत्मानं चेद्विजानीयात्परं ज्ञआनधुताशयः
+> आत्मानं चेद्विजानीयात्परं ज्ञआनधुताशयः\
 > किमिच्छन्कस्य वा हेतोर्देहं पुष्णाति लम्पटः ॥४०॥
 
-> ātmānaṁ ced vijānīyāt
-> paraṁ jñāna-dhutāśayaḥ
-> kim icchan kasya vā hetor
+> ātmānaṁ ced vijānīyāt\
+> paraṁ jñāna-dhutāśayaḥ\
+> kim icchan kasya vā hetor\
 > dehaṁ puṣṇāti lampaṭaḥ
 
 *ātmānam*—el alma y la Superalma; *cet*—si; *vijānīyāt*—puede entender; *param*—que son trascendentales, más allá del mundo material; *jñāna*—por medio del conocimiento; *dhuta-āśayaḥ*—el que ha purificado su conciencia; *kim*—qué; *icchan*—desear comodidades materiales; *kasya*—para quién; *vā*—o; *hetoḥ*—por qué razón; *deham*—el cuerpo material; *puṣṇāti*—mantiene; *lampaṭa*—ilegalmente adicto a la complacencia de los sentidos.

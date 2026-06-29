@@ -1,11 +1,11 @@
 ### SB 8.12.37
 
-> तमविक्लवमव्रीडमालक्ष्य मधुसूदनः
+> तमविक्लवमव्रीडमालक्ष्य मधुसूदनः\
 > उवाच परमप्रीतो बिभ्रत्स्वां पौरुषीं तनुम ॥३७॥
 
-> tam aviklavam avrīḍam
-> ālakṣya madhusūdanaḥ
-> uvāca parama-prīto
+> tam aviklavam avrīḍam\
+> ālakṣya madhusūdanaḥ\
+> uvāca parama-prīto\
 > bibhrat svāṁ pauruṣīṁ tanum
 
 *tam*—him (Lord Śiva); *aviklavam*—without being agitated by the incident that had taken place; *avrīḍam*—without being ashamed; *ālakṣya*—seeing; *madhu-sūdanaḥ*—the Supreme Personality of Godhead, who is known as Madhusūdana, the killer of the demon Madhu; *uvāca*—said; *parama-prītaḥ*—being very pleased; *bibhrat*—assuming; *svām*—His own; *pauruṣīm*—original; *tanum*—form.

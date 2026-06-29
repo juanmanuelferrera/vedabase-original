@@ -1,9 +1,9 @@
 ### CC Adi 15.29
 
-> পূর্বসিদ্ধ ভাব দুঁহার উদয় করিল ।
+> পূর্বসিদ্ধ ভাব দুঁহার উদয় করিল ।\
 > দৈবে বনমালী ঘটক শচী-স্থানে আইল ॥২৯॥
 
-> pūrva-siddha bhāva duṅhāra udaya karila
+> pūrva-siddha bhāva duṅhāra udaya karila\
 > daive vanamālī ghaṭaka śacī-sthāne āila
 
 *pūrva-siddha*—as it is already settled; *bhāva*—ecstasy; *duṅhāra*—of both of them; *udaya*—awakened; *karila*—was made; *daive*—also accidentally; *vanamālī*—of the name Vanamālī; *ghaṭaka*—the marriage-maker; *śacī-sthāne*—at the place of Śacīmātā; *āila*—came.

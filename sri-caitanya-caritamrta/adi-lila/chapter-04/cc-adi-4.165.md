@@ -1,9 +1,9 @@
 ### CC Adi 4.165
 
-> আত্মেন্দ্রিয়প্রীতি-বাঞ্ছা — তারে বলি, ‘কাম’ ।
+> আত্মেন্দ্রিয়প্রীতি-বাঞ্ছা — তারে বলি, ‘কাম’ ।\
 > কৃষ্ণেন্দ্রিয়প্রীতি-ইচ্ছা ধরে ‘প্রেম’ নাম ॥১৬৫॥
 
-> ātmendriya-prīti-vāñchā—tāre bali 'kāma'
+> ātmendriya-prīti-vāñchā—tāre bali 'kāma'\
 > kṛṣṇendriya-prīti-icchā dhare 'prema' nāma
 
 *ātma-indriya-prīti*—for the pleasure of one's own senses; *vāñchā*—desires; *tāre*—to that; *bali*—I say; *kāma*—lust; *kṛṣṇa-indriya-prīti*—for the pleasure of Lord Kṛṣṇa's senses; *icchā*—desire; *dhare*—holds; *prema*—love; *nāma*—the name.

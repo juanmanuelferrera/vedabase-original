@@ -1,9 +1,9 @@
 ### CC Madhya 1.66
 
-> দৈবে আসি’ প্রভু যবে ঊর্ধ্বেতে চাহিলা ।
+> দৈবে আসি’ প্রভু যবে ঊর্ধ্বেতে চাহিলা ।\
 > চালে গোঁজা তালপত্রে সেই শ্লোক পাইলা ॥৬৬॥
 
-> daive āsi' prabhu yabe ūrdhvete cāhilā
+> daive āsi' prabhu yabe ūrdhvete cāhilā\
 > cāle goṅjā tāla-patre sei śloka pāilā
 
 *daive*—accidentally; *āsi'*—coming there; *prabhu*—the Lord; *yabe*—when; *ūrdhvete*—on the roof; *cāhilā*—He looked; *cāle*—in the roof; *goṅjā*—pushed; *tāla-patre*—the palm leaf; *sei*—that; *śloka*—verse; *pāilā*—got.

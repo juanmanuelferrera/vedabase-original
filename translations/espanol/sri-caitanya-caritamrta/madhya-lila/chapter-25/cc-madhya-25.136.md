@@ -1,11 +1,11 @@
 ### CC Madhya 25.136
 
-> ভক্ত্যাহমেকয়া গ্রাহ্যঃ শ্রদ্ধয়াত্মা প্রিয়ঃ সতাম্ ৷
+> ভক্ত্যাহমেকয়া গ্রাহ্যঃ শ্রদ্ধয়াত্মা প্রিয়ঃ সতাম্ ৷\
 > ভক্তিঃ পুনাতি মন্নিষ্ঠা শ্বপাকানপি সম্ভবাৎ ৷৷ ১৩৬ ৷৷ ॥১৩৬॥
 
-> bhaktyāham ekayā grāhyaḥ
-> śraddhayātmā priyaḥ satām
-> bhaktiḥ punāti man-niṣṭhā
+> bhaktyāham ekayā grāhyaḥ\
+> śraddhayātmā priyaḥ satām\
+> bhaktiḥ punāti man-niṣṭhā\
 > śva-pākān api sambhavāt
 
 *bhaktyā*—mediante el servicio devocional; *aham*—Yo, la Suprema Personalidad de Dios; *ekayā*—inquebrantable; *grāhyaḥ*—obtenible; *śraddhayā*—por la fe; *ātmā*—el más querido; *priyaḥ*—a quien se ha de servir; *satām*—por los devotos; *bhaktiḥ*—el servicio devocional; *punāti*—purifica; *mat-niṣṭhā*—fijo únicamente en Mí; *śva-pākān*—la clase más baja de seres humanos, acostumbrados a comer perros; *api*—ciertamente; *sambhavāt*—de todas las faltas debidas al nacimiento, etc.

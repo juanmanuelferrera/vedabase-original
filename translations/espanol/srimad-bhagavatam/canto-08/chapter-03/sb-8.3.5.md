@@ -1,11 +1,11 @@
 ### SB 8.3.5
 
-> कालेन पञ्चत्वमितेषु कृत्स्नशो लोकेषु पालेषु च सर्वहेतुषु
+> कालेन पञ्चत्वमितेषु कृत्स्नशो लोकेषु पालेषु च सर्वहेतुषु\
 > तमस्तदासीद्गहनं गभीरं यस्तस्य पारेऽभिविराजते विभुः ॥५॥
 
-> kālena pañcatvam iteṣu kṛtsnaśo
-> lokeṣu pāleṣu ca sarva-hetuṣu
-> tamas tadāsīd gahanaṁ gabhīraṁ
+> kālena pañcatvam iteṣu kṛtsnaśo\
+> lokeṣu pāleṣu ca sarva-hetuṣu\
+> tamas tadāsīd gahanaṁ gabhīraṁ\
 > yas tasya pāre 'bhivirājate vibhuḥ
 
 *kālena*—a su debido tiempo (después de muchísimos millones de años); *pañcatvam*—cuando todo lo ilusorio es aniquilado; *iteṣu*—todas las transformaciones; *kṛtsnaśaḥ*—con todo lo que existe en la manifestación cósmica; *lokeṣu*—todos los planetas, es decir, todo lo que existe; *pāleṣu*—sustentadores como el Señor Brahmā; *ca*—también; *sarva-hetuṣu*—todas las existencias causales; *tamaḥ*—gran oscuridad; *tadā*—entonces; *āsīt*—había; *gahanam*—muy densa; *gabhīram*—muy profunda; *yaḥ*—la Suprema Personalidad de Dios, quien; *tasya*—esa situación de oscuridad; *pāre*—por encima de; *abhivirājate*—existe o brilla; *vibhuḥ*—el Supremo.

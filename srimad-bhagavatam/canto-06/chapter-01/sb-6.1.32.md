@@ -1,11 +1,11 @@
 ### SB 6.1.32
 
-> ऊचुर्निषेधितास्तांस्ते वैवस्वतपुरःसराः
+> ऊचुर्निषेधितास्तांस्ते वैवस्वतपुरःसराः\
 > के यूयं प्रतिषेद्धारो धर्मराजस्य शासनम ॥३२॥
 
-> ūcur niṣedhitās tāṁs te
-> vaivasvata-puraḥsarāḥ
-> ke yūyaṁ pratiṣeddhāro
+> ūcur niṣedhitās tāṁs te\
+> vaivasvata-puraḥsarāḥ\
+> ke yūyaṁ pratiṣeddhāro\
 > dharma-rājasya śāsanam
 
 *ūcuḥ*—replied; *niṣedhitāḥ*—being forbidden; *tān*—to the order carriers of Lord Viṣṇu; *te*—they; *vaivasvata*—of Yamarāja; *puraḥ-sarāḥ*—the assistants or messengers; *ke*—who; *yūyam*—all of you; *pratiṣed-dhāraḥ*—who are opposing; *dharma-rājasya*—of the king of religious principles, Yamarāja; *śāsanam*—the ruling jurisdiction.

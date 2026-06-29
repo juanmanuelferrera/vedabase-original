@@ -1,32 +1,32 @@
 ### SB 7.6.20-23
 
-> परावरेषु भूतेषु ब्रह्मान्तस्थावरादिषु
-> भौतिकेषु विकारेषु भूतेष्वथ महत्सु च ॥२०॥
-> गुणेषु गुणसाम्ये च गुणव्यतिकरे तथा
-> एक एव परो ह्यात्मा भगवानीश्वरोऽव्ययः ॥२१॥
-> प्रत्यगात्मस्वरूपेण दृश्यरूपेण च स्वयम
-> व्याप्यव्यापकनिर्देश्यो ह्यनिर्देश्योऽविकल्पितः ॥२२॥
-> केवलानुभवानन्द स्वरूपः परमेश्वरः
+> परावरेषु भूतेषु ब्रह्मान्तस्थावरादिषु\
+> भौतिकेषु विकारेषु भूतेष्वथ महत्सु च ॥२०॥\
+> गुणेषु गुणसाम्ये च गुणव्यतिकरे तथा\
+> एक एव परो ह्यात्मा भगवानीश्वरोऽव्ययः ॥२१॥\
+> प्रत्यगात्मस्वरूपेण दृश्यरूपेण च स्वयम\
+> व्याप्यव्यापकनिर्देश्यो ह्यनिर्देश्योऽविकल्पितः ॥२२॥\
+> केवलानुभवानन्द स्वरूपः परमेश्वरः\
 > माययान्तर्हितैश्वर्य ईयते गुणसर्गया ॥२३॥
 
-> parāvareṣu bhūteṣu
-> brahmānta-sthāvarādiṣu
-> bhautikeṣu vikāreṣu
+> parāvareṣu bhūteṣu\
+> brahmānta-sthāvarādiṣu\
+> bhautikeṣu vikāreṣu\
 > bhūteṣv atha mahatsu ca
 
-> guṇeṣu guṇa-sāmye ca
-> guṇa-vyatikare tathā
-> eka eva paro hy ātmā
+> guṇeṣu guṇa-sāmye ca\
+> guṇa-vyatikare tathā\
+> eka eva paro hy ātmā\
 > bhagavān īśvaro 'vyayaḥ
 
-> pratyag-ātma-svarūpeṇa
-> dṛśya-rūpeṇa ca svayam
-> vyāpya-vyāpaka-nirdeśyo
+> pratyag-ātma-svarūpeṇa\
+> dṛśya-rūpeṇa ca svayam\
+> vyāpya-vyāpaka-nirdeśyo\
 > hy anirdeśyo 'vikalpitaḥ
 
-> kevalānubhavānanda-
-> svarūpaḥ parameśvaraḥ
-> māyayāntarhitaiśvarya
+> kevalānubhavānanda-\
+> svarūpaḥ parameśvaraḥ\
+> māyayāntarhitaiśvarya\
 > īyate guṇa-sargayā
 
 *para-avareṣu*—en condiciones de vida sublimes o infernales; *bhūteṣu*—en los seres vivos; *brahma-anta*—acabando con el Señor Brahmā; *sthāvara-ādiṣu*—comenzando con las formas de vida inmóviles, los árboles y las plantas; *bhautikeṣu*—de los elementos materiales; *vikāreṣu*—en las transformaciones; *bhūteṣu*—en los cinco elementos densos de la naturaleza material; *atha*—además de; *mahatsu*—en el *mahat-tattva*, la energía material total; *ca*—también; *guṇeṣu*—en las modalidades de la naturaleza material; *guṇa-sāmye*—en un equilibrio de cualidades materiales; *ca*—y; *guṇa-vyatikare*—en la irregular manifestación de las modalidades de la naturaleza material; *tathā*—también; *ekaḥ*—uno; *eva*—solamente; *paraḥ*—trascendental; *hi*—en verdad; *ātmā*—la fuente original; *bhagavān*—la Suprema Personalidad de Dios; *īśvaraḥ*—el controlador; *avyayaḥ*—que no se deteriora; *pratyak*—interno; *ātmā-svarūpeṇa*—por Su propia posición constitucional como Superalma; *dṛśya-rūpeṇa*—por Sus formas visibles; *ca*—también; *svayam*—personalmente; *vyāpya*—penetrado; *vyāpaka*—que todo lo penetra; *nirdeśyaḥ*—ser descrito; *hi*—ciertamente; *anirdeśyaḥ*—indescriptible (debido a una existencia fina, sutil); *avikalpitaḥ*—sin diferenciación; *kevala*—solamente; *anubhava-ānanda-svarūpaḥ*—cuya forma está llena de bienaventuranza y conocimiento; *parama-īśvaraḥ*—la Suprema Personalidad de Dios, el gobernante supremo; *māyayā*—por *māyā*, la energía ilusoria; *antarhita*—cubierta; *aiśvaryaḥ*—cuya opulencia ilimitada; *īyate*—se confunde con; *guṇa-sargayā*—la interacción de las modalidades materiales de la naturaleza.

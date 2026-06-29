@@ -1,11 +1,11 @@
 ### SB 1.1.21
 
-> कलिमागतमाज्ञाय क्षेत्रेऽस्मिन्वैष्णवे वयम् ।
+> कलिमागतमाज्ञाय क्षेत्रेऽस्मिन्वैष्णवे वयम् ।\
 > आसीना दीर्घसत्रेण कथायां सक्षणा हरेः ॥२१॥
 
-> kalim āgatam ājñāya
-> kṣetre 'smin vaiṣṇave vayam
-> āsīnā dīrgha-satreṇa
+> kalim āgatam ājñāya\
+> kṣetre 'smin vaiṣṇave vayam\
+> āsīnā dīrgha-satreṇa\
 > kathāyāṁ sakṣaṇā hareḥ
 
 *kalim*—la era de Kali (era de hierro y riña); *āgatam*—habiendo llegado; *ājñāya*—sabiendo esto; *kṣetre*—en esta extensión de tierra; *asmin*—en esta; *vaiṣṇave*—especialmente dirigido al devoto del Señor; *vayam*—nosotros; *āsīnāḥ*—sentados; *dīrgha*—prolongado; *satreṇa*—para la ejecución de sacrificios; *kathāyām*—en las palabras de; *sa-kṣaṇāḥ*—con el tiempo a nuestra disposición; *hareḥ*—de la Personalidad de Dios.

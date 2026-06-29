@@ -1,10 +1,10 @@
 ### CC Madhya 25.35
 
-> চিদানন্দ কৃষ্ণবিগ্রহ ‘মায়িক’ করি’ মানি ।
+> চিদানন্দ কৃষ্ণবিগ্রহ ‘মায়িক’ করি’ মানি ।\
 > এই বড় ‘পাপ’, — সত্য চৈতন্যের বাণী ॥৩৫॥
 
-> cid-ānanda kṛṣṇa-vigraha 'māyika' kari' māni
-> ei baḍa 'pāpa',-satya caitanyera vāṇī
+> cid-ānanda kṛṣṇa-vigraha 'māyika' kari' māni\
+> ei baḍa 'pāpa',-satya caitanyera vāṇī\
 > SYNONYMS
 
 *cit-ānanda kṛṣṇa-vigraha*—la forma trascendental de Kṛṣṇa, que es completamente espiritual; *māyika kari' māni*—aceptar como hecha de la energía externa, māyā; *ei baḍa pāpa*—este es un gran acto pecaminoso; *satya*—verdaderas; *caitanyera vāṇī*—las palabras de Śrī Caitanya Mahāprabhu.

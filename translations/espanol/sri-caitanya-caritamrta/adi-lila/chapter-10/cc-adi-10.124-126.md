@@ -1,19 +1,19 @@
 ### CC Adi 10.124-126
 
-> নীলাচলে প্রভুসঙ্গে যত ভক্তগণ ।
-> সবার অধ্যক্ষ প্রভুর মর্ম দুইজন ॥১২৪॥
-> পরমানন্দপুরী, আর স্বরূপ-দামোদর ।
-> গদাধর, জগদানন্দ, শঙ্কর, বক্রেশ্বর ॥১২৫॥
-> দামোদর পণ্ডিত, ঠাকুর হরিদাস ।
+> নীলাচলে প্রভুসঙ্গে যত ভক্তগণ ।\
+> সবার অধ্যক্ষ প্রভুর মর্ম দুইজন ॥১২৪॥\
+> পরমানন্দপুরী, আর স্বরূপ-দামোদর ।\
+> গদাধর, জগদানন্দ, শঙ্কর, বক্রেশ্বর ॥১২৫॥\
+> দামোদর পণ্ডিত, ঠাকুর হরিদাস ।\
 > রঘুনাথ বৈদ্য, আর রঘুনাথদাস ॥১২৬॥
 
-> nīlācale prabhu-saṅge yata bhakta-gaṇa
+> nīlācale prabhu-saṅge yata bhakta-gaṇa\
 > sabāra adhyakṣa prabhura marma dui-jana
 
-> paramānanda-purī, āra svarūpa-dāmodara
+> paramānanda-purī, āra svarūpa-dāmodara\
 > gadādhara, jagadānanda, śaṅkara, vakreśvara
 
-> dāmodara paṇḍita, ṭhākura haridāsa
+> dāmodara paṇḍita, ṭhākura haridāsa\
 > raghunātha vaidya, āra raghunātha-dāsa
 
 *nīlācale*—en Jagannātha Purī; *prabhu-saṅge*—en la compañía de Śrī Caitanya; *yata*—todos; *bhakta-gaṇa*—devotos; *sabāra*—de todos ellos; *adhyakṣa*—los principales; *prabhura*—del Señor; *marma*—alma y vida; *dui-jana*—dos personas; *paramānanda purī*—Paramānanda Purī; *āra*—y; *svarūpa-dāmodara*—Svarūpa Dāmodara; *gadādhara*—Gadādhara; *jagadānanda*—Jagadānanda; *śaṅkara*—Śaṅkara; *vakreśvara*—Vakreśvara; *dāmodara paṇḍita*—Dāmodara Paṇḍita; *ṭhākura haridāsa*—Ṭhākura Haridāsa; *raghunātha vaidya*—Raghunātha Vaidya; *āra*—y; *raghunātha-dāsa*—Raghunātha dāsa.

@@ -1,12 +1,12 @@
 ### SB 6.4.41
 
-> ननाम दण्डवद्भूमौ प्रहृष्टात्मा प्रजापतिः
-> न किञ्चनोदीरयितुमशकत्तीव्रया मुदा
+> ननाम दण्डवद्भूमौ प्रहृष्टात्मा प्रजापतिः\
+> न किञ्चनोदीरयितुमशकत्तीव्रया मुदा\
 > आपूरितमनोद्वारैर्ह्रदिन्य इव निर्झरैः ॥४१॥
 
-> na kiñcanodīrayitum
-> aśakat tīvrayā mudā
-> āpūrita-manodvārair
+> na kiñcanodīrayitum\
+> aśakat tīvrayā mudā\
+> āpūrita-manodvārair\
 > hradinya iva nirjharaiḥ
 
 *na*—not; *kiñcana*—anything; *udīrayitum*—to speak; *aśakat*—he was able; *tīvrayā*—by very great; *mudā*—happiness; *āpūrita*—filled; *manaḥ-dvāraiḥ*—by the senses; *hradinyaḥ*—the rivers; *iva*—like; *nirjharaiḥ*—by torrents from the mountain.

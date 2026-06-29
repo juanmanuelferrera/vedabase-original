@@ -1,11 +1,11 @@
 ### SB 6.17.41
 
-> य एतत्प्रातरुत्थाय श्रद्धया वाग्यतः पठेत
+> य एतत्प्रातरुत्थाय श्रद्धया वाग्यतः पठेत\
 > इतिहासं हरिं स्मृत्वा स याति परमां गतिम ॥४१॥
 
-> ya etat prātar utthāya
-> śraddhayā vāg-yataḥ paṭhet
-> itihāsaṁ hariṁ smṛtvā
+> ya etat prātar utthāya\
+> śraddhayā vāg-yataḥ paṭhet\
+> itihāsaṁ hariṁ smṛtvā\
 > sa yāti paramāṁ gatim
 
 *yaḥ*—any person who; *etat*—this; *prātaḥ*—early in the morning; *utthāya*—rising; *śraddhayā*—with faith; *vāk-yataḥ*—controlling the mind and words; *paṭhet*—may read; *itihāsam*—history; *harim*—the Supreme Lord; *smṛtvā*—remembering; *saḥ*—that person; *yāti*—goes; *paramām gatim*—back home, back to Godhead.

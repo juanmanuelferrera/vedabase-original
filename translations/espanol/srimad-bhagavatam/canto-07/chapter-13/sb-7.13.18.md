@@ -1,11 +1,11 @@
 ### SB 7.13.18
 
-> कविः कल्पो निपुणदृक्चित्रप्रियकथः समः
+> कविः कल्पो निपुणदृक्चित्रप्रियकथः समः\
 > लोकस्य कुर्वतः कर्म शेषे तद्वीक्षितापि वा ॥१८॥
 
-> na te śayānasya nirudyamasya
-> brahman nu hārtho yata eva bhogaḥ
-> abhogino 'yaṁ tava vipra dehaḥ
+> na te śayānasya nirudyamasya\
+> brahman nu hārtho yata eva bhogaḥ\
+> abhogino 'yaṁ tava vipra dehaḥ\
 > pīvā yatas tad vada naḥ kṣamaṁ cet
 
 *na*—no; *te*—de ti; *śayānasya*—acostado; *nirudyamasya*—sin actividades; *brahman*—¡oh, persona santa!; *nu*—en verdad; *ha*—es evidente; *arthaḥ*—dinero; *yataḥ*—del cual; *eva*—en verdad; *bhogaḥ*—disfrute de los sentidos; *abhoginaḥ*—de aquel que no está ocupado en disfrute de los sentidos; *ayam*—este; *tava*—tuyo; *vipra*—¡oh, *brāhmaṇa* erudito!; *dehaḥ*—cuerpo; *pīvā*—gordo; *yataḥ*—cómo es; *tat*—ese hecho; *vada*—por favor, di; *naḥ*—a nosotros; *kṣamam*—disculpa; *cet*—si he hecho una pregunta impertinente.

@@ -1,19 +1,19 @@
 ### CC Madhya 3.153-155
 
-> শ্রীবাস, রামাই, বিদ্যানিধি, গদাধর ।
-> গঙ্গাদাস, বক্রেশ্বর, মুরারি, শুক্লাম্বর ॥১৫৩॥
-> বুদ্ধিমন্ত খাঁন, নন্দন, শ্রীধর, বিজয় ।
-> বাসুদেব, দামোদর, মুকুন্দ, সঞ্জয় ॥১৫৪॥
-> কত নাম লইব যত নবদ্বীপবাসী ।
+> শ্রীবাস, রামাই, বিদ্যানিধি, গদাধর ।\
+> গঙ্গাদাস, বক্রেশ্বর, মুরারি, শুক্লাম্বর ॥১৫৩॥\
+> বুদ্ধিমন্ত খাঁন, নন্দন, শ্রীধর, বিজয় ।\
+> বাসুদেব, দামোদর, মুকুন্দ, সঞ্জয় ॥১৫৪॥\
+> কত নাম লইব যত নবদ্বীপবাসী ।\
 > সবারে মিলিলা প্রভু কৃপাদৃষ্ট্যে হাসি’ ॥১৫৫॥
 
-> śrīvāsa, rāmāi, vidyānidhi, gadādhara
+> śrīvāsa, rāmāi, vidyānidhi, gadādhara\
 > gaṅgādāsa, vakreśvara, murāri, śuklāmbara
 
-> buddhimanta khāṅ, nandana, śrīdhara, vijaya
+> buddhimanta khāṅ, nandana, śrīdhara, vijaya\
 > vāsudeva, dāmodara, mukunda, sañjaya
 
-> kata nāma la-iba yata navadvīpa-vāsī
+> kata nāma la-iba yata navadvīpa-vāsī\
 > sabāre mililā prabhu kṛpā-dṛṣṭye hāsi'
 
 *śrīvāsa*—Śrīvāsa; *rāmāi*—Rāmāi; *vidyānidhi*—Vidyānidhi; *gadādhara*—Gadādhara; *gaṅgādāsa*—Gaṅgādāsa; *vakreśvara*—Vakreśvara; *murāri*—Murāri; *śuklāmbara*—Śuklāmbara; *buddhimanta khāṅ*—Buddhimanta Khāṅ; *nandana*—Nandana; *śrīdhara*—Śrīdhara; *vijaya*—Vijaya; *vāsudeva*—Vāsudeva; *dāmodara*—Dāmodara; *mukunda*—Mukunda; *sañjaya*—Sañjaya; *kata nāma*—how many names; *la-iba*—I shall mention; *yata*—all; *navadvīpa-vāsī*—the inhabitants of Navadvīpa; *sabāre*—all of them; *mililā*—met; *prabhu*—the Lord; *kṛpā-dṛṣṭye*—with merciful glances; *hāsi'*—smiling.

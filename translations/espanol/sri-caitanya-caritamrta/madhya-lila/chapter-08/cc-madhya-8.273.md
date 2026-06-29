@@ -1,9 +1,9 @@
 ### CC Madhya 8.273
 
-> মহাভাগবত দেখে স্থাবর-জঙ্গম ৷
+> মহাভাগবত দেখে স্থাবর-জঙ্গম ৷\
 > তাহাঁ তাহাঁ হয় তাঁর শ্রীকৃষ্ণ-স্ফুরণ ৷৷ ২৭৩ ৷৷ ॥২৭৩॥
 
-> mahā-bhāgavata dekhe sthāvara-jaṅgama
+> mahā-bhāgavata dekhe sthāvara-jaṅgama\
 > tāhāṅ tāhāṅ haya tāṅra śrī-kṛṣṇa-sphuraṇa
 
 *mahā-bhāgavata*—un devoto avanzado de primera clase; *dekhe*—ve; *sthāvara-jaṅgama*—lo móvil y lo inerte; *tāhāṅ tāhāṅ*—aquí y allá; *haya*—hay; *tāṅra*—su; *śrī-kṛṣṇa-sphuraṇa*—manifestación del Señor Kṛṣṇa.

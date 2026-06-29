@@ -1,9 +1,9 @@
 ### CC Madhya 8.192
 
-> যেবা ‘প্রেমবিলাস-বিবর্ত’ এক হয় ।
+> যেবা ‘প্রেমবিলাস-বিবর্ত’ এক হয় ।\
 > তাহা শুনি’ তোমার সুখ হয়, কি না হয় ॥১৯২॥
 
-> yebā 'prema-vilāsa-vivarta' eka haya
+> yebā 'prema-vilāsa-vivarta' eka haya\
 > tāhā śuni' tomāra sukha haya, ki nā haya
 
 *yebā*—whatever; *prema-vilāsa-vivarta*—the resultant bewilderment or revolution in the ecstasy of loving affairs; *eka haya*—there is one topic; *tāhā*—that; *śuni'*—hearing; *tomāra*—Your; *sukha*—happiness; *haya*—is; *ki*—or; *nā*—not; *haya*—is.

@@ -1,11 +1,11 @@
 ### SB 2.6.7
 
-> विक्रमो भूर्भुवः स्वश्च क्षेमस्य शरणस्य च ।
+> विक्रमो भूर्भुवः स्वश्च क्षेमस्य शरणस्य च ।\
 > सर्वकामवरस्यापि हरेश्चरण आस्पदम् ॥७॥
 
-> vikramo bhūr bhuvaḥ svaś ca
-> kṣemasya śaraṇasya ca
-> sarva-kāma-varasyāpi
+> vikramo bhūr bhuvaḥ svaś ca\
+> kṣemasya śaraṇasya ca\
+> sarva-kāma-varasyāpi\
 > hareś caraṇa āspadam
 
 *vikramaḥ*—pasos hacia adelante; *bhūḥ bhuvaḥ*—de los planetas inferiores y superiores; *svaḥ*—así como el cielo; *ca*—también; *kṣemasya*—de la protección de todo lo que tenemos; *śaraṇasya*—de la ausencia de temor; *ca*—también; *sarva-kāma*—todo lo que necesitamos; *varasya*—de toda bendición; *api*—exactamente; *hareḥ*—del Señor; *caraṇaḥ*—los pies de loto; *āspadam*—refugio.

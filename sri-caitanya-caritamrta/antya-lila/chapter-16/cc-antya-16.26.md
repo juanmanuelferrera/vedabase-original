@@ -1,13 +1,13 @@
 ### CC Antya 16.26
 
-> বিপ্রাদ্দ্বিষড়্গুণযুতাদরবিন্দনাভ-
-> পাদারবিন্দবিমুখাৎ শ্বপচং বরিষ্ঠম্ ।
-> মন্যে তদর্পিতমনোবচনেহিতার্থ-
+> বিপ্রাদ্দ্বিষড়্গুণযুতাদরবিন্দনাভ-\
+> পাদারবিন্দবিমুখাৎ শ্বপচং বরিষ্ঠম্ ।\
+> মন্যে তদর্পিতমনোবচনেহিতার্থ-\
 > প্রাণং পুনাতি স কুলং ন তু ভূরিমানঃ ॥২৬॥
 
-> viprād dvi-ṣaḍ-guṇa-yutād aravinda-nābha-
-> pādāravinda-vimukhāt śva-pacaṁ variṣṭham
-> manye tad-arpita-mano-vacanehitārtha-
+> viprād dvi-ṣaḍ-guṇa-yutād aravinda-nābha-\
+> pādāravinda-vimukhāt śva-pacaṁ variṣṭham\
+> manye tad-arpita-mano-vacanehitārtha-\
 > prāṇaṁ punāti sa kulaṁ na tu bhūri-mānaḥ
 
 *viprāt*—than a *brāhmaṇa*; *dvi-ṣaṭ-guṇa-yutāt*—who is qualified with twelve brahminical qualifications; *aravinda-nābha*—of Lord Viṣṇu, who has a lotuslike navel; *pāda-aravinda*—unto the lotus feet; *vimukhāt*—than a person bereft of devotion; *śva-pacam*—a *caṇḍāla,* or person accustomed to eating dogs; *variṣṭham*—more glorified; *manye*—I think; *tat-arpita*—dedicated unto Him; *manaḥ*—mind; *vacana*—words; *īhita*—activities; *artha*—wealth; *prāṇam*—life; *punāti*—purifies; *saḥ*—he; *kulam*—his family; *na tu*—but not; *bhūri-mānaḥ*—a *brāhmaṇa* proud of possessing such qualities.

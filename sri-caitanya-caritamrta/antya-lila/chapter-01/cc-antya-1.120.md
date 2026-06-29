@@ -1,13 +1,13 @@
 ### CC Antya 1.120
 
-> তুণ্ডে তাণ্ডবিনী রতিং বিতনুতে তুণ্ডাবলীলব্ধয়ে
-> কর্ণক্রোড়কড়ম্বিনী ঘটয়তে কর্ণার্বুদেভ্যঃ স্পৃহাম্ ।
-> চেতঃপ্রাঙ্গণসঙ্গিনী বিজয়তে সর্বেন্দ্রিয়াণাং কৃতিং
+> তুণ্ডে তাণ্ডবিনী রতিং বিতনুতে তুণ্ডাবলীলব্ধয়ে\
+> কর্ণক্রোড়কড়ম্বিনী ঘটয়তে কর্ণার্বুদেভ্যঃ স্পৃহাম্ ।\
+> চেতঃপ্রাঙ্গণসঙ্গিনী বিজয়তে সর্বেন্দ্রিয়াণাং কৃতিং\
 > নো জানে জনিতা কিয়দ্ভিরমৃতৈঃ কৃষ্ণেতি বর্ণদ্বয়ী ॥১২০॥
 
-> tuṇḍe tāṇḍavinī ratiṁ vitanute tuṇḍāvalī-labdhaye
-> karṇa-kroḍa-kaḍambinī ghaṭayate karṇārbudebhyaḥ spṛhām
-> cetaḥ-prāṅgaṇa-saṅginī vijayate sarvendriyāṇāṁ kṛtiṁ
+> tuṇḍe tāṇḍavinī ratiṁ vitanute tuṇḍāvalī-labdhaye\
+> karṇa-kroḍa-kaḍambinī ghaṭayate karṇārbudebhyaḥ spṛhām\
+> cetaḥ-prāṅgaṇa-saṅginī vijayate sarvendriyāṇāṁ kṛtiṁ\
 > no jāne janitā kiyadbhir amṛtaiḥ kṛṣṇeti varṇa-dvayī
 
 *tuṇḍe*—in the mouth; *tāṇḍavinī*—dancing; *ratim*—the inspiration; *vitanute*—expands; *tuṇḍa-āvalī-labdhaye*—to achieve many mouths; *karṇa*—of the ear; *kroḍa*—in the hole; *kaḍambinī*—sprouting; *ghaṭayate*—causes to appear; *karṇa-arbudebhyaḥ spṛhām*—the desire for millions of ears; *cetaḥ-prāṅgaṇa*—in the courtyard of the heart; *saṅginī*—being a companion; *vijayate*—conquers; *sarva-indriyāṇām*—of all the senses; *kṛtim*—the activity; *no*—not; *jāne*—I know; *janitā*—produced; *kiyadbhiḥ*—of what measures by; *amṛtaiḥ*—by nectar; *kṛṣṇa*—the name of Kṛṣṇa; *iti*—thus; *varṇa-dvayī*—the two syllables.

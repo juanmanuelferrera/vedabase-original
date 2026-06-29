@@ -1,9 +1,9 @@
 ### CC Madhya 8.139
 
-> পুরুষ, যোষিৎ, কিবা স্থাবর-জঙ্গম ৷
+> পুরুষ, যোষিৎ, কিবা স্থাবর-জঙ্গম ৷\
 > সর্ব-চিত্তাকর্ষক, সাক্ষাৎ মন্মথ-মদন ৷৷ ১৩৯ ৷৷ ॥১৩৯॥
 
-> puruṣa, yoṣit, kibā sthāvara-jaṅgama
+> puruṣa, yoṣit, kibā sthāvara-jaṅgama\
 > sarva-cittākarṣaka, sākṣāt manmatha-madana
 
 *puruṣa*—un varón; *yoṣit*—una mujer; *kibā*—todos; *sthāvara-jaṅgama*—las entidades vivientes que no pueden moverse y las que sí pueden; *sarva*—de todos; *citta-ākarṣaka*—el que atrae las mentes; *sākṣāt*—directamente; *manmatha-madana*—el cautivador del propio Cupido.

@@ -1,11 +1,11 @@
 ### SB 3.26.61
 
-> मनसश्चन्द्रमा जातो बुद्धिर्बुद्धेर्गिरां पतिः ।
+> मनसश्चन्द्रमा जातो बुद्धिर्बुद्धेर्गिरां पतिः ।\
 > अहङ्कारस्ततो रुद्रश्चित्तं चैत्यस्ततोऽभवत् ॥६१॥
 
-> manasaś candramā jāto
-> buddhir buddher girāṁ patiḥ
-> ahaṅkāras tato rudraś
+> manasaś candramā jāto\
+> buddhir buddher girāṁ patiḥ\
+> ahaṅkāras tato rudraś\
 > cittaṁ caityas tato 'bhavat
 
 *manasaḥ*—de la mente; *candramāḥ*—la Luna; *jātaḥ*—apareció; *buddhiḥ*—inteligencia; *buddheḥ*—de la inteligencia; *girām patiḥ*—el señor del habla (Brahmā); *ahaṅkāraḥ*—ego falso; *tataḥ*—entonces; *rudraḥ*—el Señor Śiva; *cittam*—conciencia; *caityaḥ*—la deidad que rige la conciencia; *tataḥ*—entonces; *abhavat*—apareció.

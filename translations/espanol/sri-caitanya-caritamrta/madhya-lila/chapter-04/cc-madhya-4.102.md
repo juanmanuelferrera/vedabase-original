@@ -1,9 +1,9 @@
 ### CC Madhya 4.102
 
-> এক এক ব্রজবাসী এক এক গাভী দিল ।
+> এক এক ব্রজবাসী এক এক গাভী দিল ।\
 > সহস্র সহস্র গাভী গোপালের হৈল ॥১০২॥
 
-> eka eka vraja-vāsī eka eka gābhī dila
+> eka eka vraja-vāsī eka eka gābhī dila\
 > sahasra sahasra gābhī gopālera haila
 
 *eka eka*—cada uno de los; *vraja-vāsī*—residentes de Vṛndāvana; *eka eka*—una; *gābhī*—vaca; *dila*—contribuyó; *sahasra sahasra*—miles y miles; *gābhī*—vacas; *gopālera*—de Gopāla; *haila*—hubo.

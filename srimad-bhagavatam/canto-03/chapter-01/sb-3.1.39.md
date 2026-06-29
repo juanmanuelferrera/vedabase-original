@@ -1,11 +1,11 @@
 ### SB 3.1.39
 
-> यमावुतस्वित्तनयौ पृथायाः पार्थैर्वृतौ पक्ष्मभिरक्षिणीव ।
+> यमावुतस्वित्तनयौ पृथायाः पार्थैर्वृतौ पक्ष्मभिरक्षिणीव ।\
 > रेमात उद्दाय मृधे स्वरिक्थं परात्सुपर्णाविव वज्रिवक्त्रात् ॥३९॥
 
-> yamāv utasvit tanayau pṛthāyāḥ
-> pārthair vṛtau pakṣmabhir akṣiṇīva
-> remāta uddāya mṛdhe sva-rikthaṁ
+> yamāv utasvit tanayau pṛthāyāḥ\
+> pārthair vṛtau pakṣmabhir akṣiṇīva\
+> remāta uddāya mṛdhe sva-rikthaṁ\
 > parāt suparṇāv iva vajri-vaktrāt
 
 *yamau*—twins (Nakula and Sahadeva); *utasvit*—whether; *tanayau*—sons; *pṛthāyāḥ*—of Pṛthā; *pārthaiḥ*—by the sons of Pṛthā; *vṛtau*—protected; *pakṣmabhiḥ*—by the eyelids; *akṣiṇī*—of the eyes; *iva*—like; *remāte*—playing carelessly; *uddāya*—snatching; *mṛdhe*—in the fight; *sva-riktham*—own property; *parāt*—from the enemy Duryodhana; *suparṇau*—Garuḍa, the carrier of Lord Viṣṇu; *iva*—like; *vajri-vaktrāt*—from the mouth of Indra.

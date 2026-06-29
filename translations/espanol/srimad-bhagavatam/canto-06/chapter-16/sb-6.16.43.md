@@ -1,11 +1,11 @@
 ### SB 6.16.43
 
-> न व्यभिचरति तवेक्षा यया ह्यभिहितो भागवतो धर्मः
+> न व्यभिचरति तवेक्षा यया ह्यभिहितो भागवतो धर्मः\
 > स्थिरचरसत्त्वकदम्बेष्वपृथग्धियो यमुपासते त्वार्याः ॥४३॥
 
-> na vyabhicarati tavekṣā
-> yayā hy abhihito bhāgavato dharmaḥ
-> sthira-cara-sattva-kadambeṣv
+> na vyabhicarati tavekṣā\
+> yayā hy abhihito bhāgavato dharmaḥ\
+> sthira-cara-sattva-kadambeṣv\
 > apṛthag-dhiyo yam upāsate tv āryāḥ
 
 *na*—no; *vyabhicarati*—falla; *tava*—Tuya; *īkṣā*—supervisión; *yayā*—por la cual; *hi*—en verdad; *abhihitaḥ*—declaradas; *bhāgavataḥ*—en relación con Tus instrucciones y actividades; *dharmaḥ*—principio religioso; *sthira*—inmóviles; *cara*—móviles; *sattva-kadambeṣu*—entre las entidades vivientes; *apṛthak-dhiyaḥ*—que no hacen distinciones; *yam*—que; *upāsate*—siguen; *tu*—ciertamente; *āryāḥ*—aquellos que son avanzados en la civilización.

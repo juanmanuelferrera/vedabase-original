@@ -1,9 +1,9 @@
 ### CC Antya 9.147
 
-> প্রভুর কৃপা দেখি’ সবার হৈল চমৎকার ।
+> প্রভুর কৃপা দেখি’ সবার হৈল চমৎকার ।\
 > তাহারা বুঝিতে নারে প্রভুর ব্যবহার ॥১৪৭॥
 
-> prabhura kṛpā dekhi' sabāra haila camatkāra
+> prabhura kṛpā dekhi' sabāra haila camatkāra\
 > tāhārā bujhite nāre prabhura vyavahāra
 
 *prabhura*—de Śrī Caitanya Mahāprabhu; *kṛpā*—misericordia; *dekhi'*—al contemplar; *sabāra haila camatkāra*—todos quedaron llenos de asombro; *tāhārā*—ellos; *bujhite nāre*—no podían entender; *prabhura vyavahāra*—el comportamiento de Śrī Caitanya Mahāprabhu.

@@ -1,12 +1,12 @@
 ### SB 8.7.21
 
-> विलोक्य तं देववरं त्रिलोक्या भवाय देव्याभिमतं मुनीनाम
+> विलोक्य तं देववरं त्रिलोक्या भवाय देव्याभिमतं मुनीनाम\
 > आसीनमद्रावपवर्गहेतोस्तपो जुषाणं स्तुतिभिः प्रणेमुः ॥२१॥
 
-> śrī-prajāpataya ūcuḥ
-> deva-deva mahā-deva
-> bhūtātman bhūta-bhāvana
-> trāhi naḥ śaraṇāpannāṁs
+> śrī-prajāpataya ūcuḥ\
+> deva-deva mahā-deva\
+> bhūtātman bhūta-bhāvana\
+> trāhi naḥ śaraṇāpannāṁs\
 > trailokya-dahanād viṣāt
 
 *śrī-prajāpatayaḥ ūcuḥ*—los *prajāpatis* dijeron; *deva-deva*—¡oh, Señor Mahādeva, el mejor de los semidioses!; *mahā-deva*—¡oh, gran semidiós!; *bhūta-ātman*—¡oh, vida y alma de cuantos viven en este mundo!; *bhūta-bhāvana*—¡oh, causa de la felicidad y la prosperidad de todos ellos!; *trāhi*—libera; *naḥ*—a nosotros; *śaraṇa-āpannān*—que nos hemos refugiado en tus pies de loto; *trailokya*—de los tres mundos; *dahanāt*—que está haciendo arder; *viṣāt*—de este veneno.

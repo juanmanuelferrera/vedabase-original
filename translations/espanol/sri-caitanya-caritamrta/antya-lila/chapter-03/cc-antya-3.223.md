@@ -1,9 +1,9 @@
 ### CC Antya 3.223
 
-> জগৎ-নিস্তার লাগি’ করেন চিন্তন ।
+> জগৎ-নিস্তার লাগি’ করেন চিন্তন ।\
 > অবৈষ্ণব-জগৎ কেমনে হইবে মোচন ? ॥ ২২৩ ॥
 
-> jagat-nistāra lāgi' karena cintana
+> jagat-nistāra lāgi' karena cintana\
 > avaiṣṇava-jagat kemane ha-ibe mocana?
 
 *jagat-nistāra*—la liberación de las personas del mundo entero; *lāgi'*—para; *karena cintana*—pensaba siempre; *avaiṣṇava*—lleno de no devotos; *jagat*—el mundo entero; *kemane*—cómo; *ha-ibe mocana*—será liberado.

@@ -1,13 +1,13 @@
 ### CC Madhya 14.181
 
-> বাষ্পব্যাকুলিতারুণাঞ্চলচলন্নেত্রং রসোল্লাসিতং
-> হেলোল্লাসচলাধরং কুটিলিতভ্রূযুগ্মমুদ্যৎস্মিতম্ ।
-> রাধায়াঃ কিলকিঞ্চিতাঞ্চিতমসৌ বীক্ষ্যাননং সঙ্গমা-
+> বাষ্পব্যাকুলিতারুণাঞ্চলচলন্নেত্রং রসোল্লাসিতং\
+> হেলোল্লাসচলাধরং কুটিলিতভ্রূযুগ্মমুদ্যৎস্মিতম্ ।\
+> রাধায়াঃ কিলকিঞ্চিতাঞ্চিতমসৌ বীক্ষ্যাননং সঙ্গমা-\
 > দানন্দং তমবাপ কোটিগুণিতং যোঽভূন্ন গীর্গোচরঃ ॥১৮১॥
 
-> bāṣpa-vyākulitāruṇāñcala-calan-netraṁ rasollāsitaṁ
-> helollāsa-calādharaṁ kuṭilita-bhrū-yugmam udyat-smitam
-> rādhāyāḥ kila-kiñcitāñcitam asau vīkṣyānanaṁ saṅgamād
+> bāṣpa-vyākulitāruṇāñcala-calan-netraṁ rasollāsitaṁ\
+> helollāsa-calādharaṁ kuṭilita-bhrū-yugmam udyat-smitam\
+> rādhāyāḥ kila-kiñcitāñcitam asau vīkṣyānanaṁ saṅgamād\
 > ānandaṁ tam avāpa koṭi-guṇitaṁ yo 'bhūn na gīr-gocaraḥ
 
 *bāṣpa*—por las lágrimas; *vyākulita*—agitados; *aruṇa-añcala*—con un matiz rojizo; *calan*—en movimiento; *netram*—ojos; *rasa-ullāsitam*—a causa de la agitación producida por las melosidades trascendentales; *hela-ullāsa*—debido al júbilo despreocupado; *cala-adharam*—labios en movimiento; *kuṭilita*—curvadas; *bhrū-yugmam*—las dos cejas; *udyat*—en despertar; *smitam*—sonrisa; *rādhāyāḥ*—de Śrīmatī Rādhārāṇī; *kila-kiñcita*—con el síntoma extático llamado kila-kiñcita; *añcitam*—expresión; *asau*—Él (Kṛṣṇa); *vīkṣya*—tras contemplar; *ānanam*—el rostro; *saṅgamāt*—más incluso que el abrazo; *ānandam*—felicidad; *tam*—esa; *avāpa*—obtuvo; *koṭi-guṇitam*—millones y millones de veces más; *yaḥ*—la cual; *abhūt*—se volvió; *na*—no; *gīḥ-gocaraḥ*—objeto susceptible de ser descrito.

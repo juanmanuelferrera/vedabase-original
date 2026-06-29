@@ -1,11 +1,11 @@
 ### SB 6.17.24
 
-> अथ प्रसादये न त्वां शापमोक्षाय भामिनि
+> अथ प्रसादये न त्वां शापमोक्षाय भामिनि\
 > यन्मन्यसे ह्यसाधूक्तं मम तत्क्षम्यतां सति ॥२४॥
 
-> atha prasādaye na tvāṁ
-> śāpa-mokṣāya bhāmini
-> yan manyase hy asādhūktaṁ
+> atha prasādaye na tvāṁ\
+> śāpa-mokṣāya bhāmini\
+> yan manyase hy asādhūktaṁ\
 > mama tat kṣamyatāṁ sati
 
 *atha*—por lo tanto; *prasādaye*—estoy tratando de complacer; *na*—no; *tvām*—a ti; *śāpa-mokśāya*—para ser liberado de tu maldición; *bhāmini*—¡oh, tú, que estás tan enfadada!; *yat*—lo que; *manyase*—tú consideres; *hi*—en verdad; *asādhu-uktam*—palabras inadecuadas; *mama*—mías; *tat*—eso; *kṣamyatām*—que sea disculpado; *sati*—¡oh, tú, la más casta!.

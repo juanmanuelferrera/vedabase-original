@@ -1,9 +1,9 @@
 ### CC Madhya 8.229
 
-> সিদ্ধদেহে চিন্তি’ করে তাহাঁঞি সেবন ।
+> সিদ্ধদেহে চিন্তি’ করে তাহাঁঞি সেবন ।\
 > সখীভাবে পায় রাধাকৃষ্ণের চরণ ॥২২৯॥
 
-> siddha-dehe cinti' kare tāhāṅñi sevana
+> siddha-dehe cinti' kare tāhāṅñi sevana\
 > sakhī-bhāve pāya rādhā-kṛṣṇera caraṇa
 
 *siddha-dehe*—in the perfected stage; *cinti'*—by remembering; *kare*—does; *tāhāṅñi*—in the spiritual world; *sevana*—service; *sakhī-bhāve*—in mood of the *gopīs*; *pāya*—gets; *rādhā-kṛṣṇera*—of Rādhā and Kṛṣṇa; *caraṇa*—the lotus feet.

@@ -1,11 +1,11 @@
 ### SB 8.6.17
 
-> एक एवेश्वरस्तस्मिन्सुरकार्ये सुरेश्वरः
+> एक एवेश्वरस्तस्मिन्सुरकार्ये सुरेश्वरः\
 > विहर्तुकामस्तानाह समुद्रोन्मथनादिभिः ॥१७॥
 
-> eka eveśvaras tasmin
-> sura-kārye sureśvaraḥ
-> vihartu-kāmas tān āha
+> eka eveśvaras tasmin\
+> sura-kārye sureśvaraḥ\
+> vihartu-kāmas tān āha\
 > samudronmathanādibhiḥ
 
 *ekaḥ*—solo; *eva*—en verdad; *īśvaraḥ*—la Suprema Personalidad de Dios; *tasmin*—en eso; *sura-kārye*—las actividades de los semidioses; *sura-īśvaraḥ*—el Señor de los semidioses, la Suprema Personalidad de Dios; *vihartu*—disfrutar de pasatiempos; *kāmaḥ*—deseando; *tān*—a los semidioses; *āha*—dijo; *samudra-unmathana-ādibhiḥ*—por actividades de batir el océano.

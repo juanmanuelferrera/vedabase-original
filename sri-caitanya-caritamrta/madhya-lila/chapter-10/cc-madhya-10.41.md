@@ -1,9 +1,9 @@
 ### CC Madhya 10.41
 
-> জগন্নাথ-সেবক এই, নাম — জনার্দন ।
+> জগন্নাথ-সেবক এই, নাম — জনার্দন ।\
 > অনবসরে করে প্রভুর শ্রীঅঙ্গ-সেবন ॥৪১॥
 
-> jagannātha-sevaka ei, nāma-janārdana
+> jagannātha-sevaka ei, nāma-janārdana\
 > anavasare kare prabhura śrī-aṅga-sevana
 
 *jagannātha-sevaka*—servitor of Lord Jagannātha; *ei*—this; *nāma*—named; *janārdana*—Janārdana; *anavasare*—during the time of renovation; *kare*—does; *prabhura*—of the Lord; *śrī-aṅga*—of the transcendental body; *sevana*—service.

@@ -1,9 +1,9 @@
 ### CC Antya 12.95
 
-> এইমত জগদানন্দ শচীমাতা-সনে ।
+> এইমত জগদানন্দ শচীমাতা-সনে ।\
 > চৈতন্যের সুখ-কথা কহে রাত্রি-দিনে ॥৯৫॥
 
-> ei-mata jagadānanda śacīmātā-sane
+> ei-mata jagadānanda śacīmātā-sane\
 > caitanyera sukha-kathā kahe rātri-dine
 
 *ei-mata*—de esta manera; *jagadānanda*—Jagadānanda Paṇḍita; *śacīmātā-sane*—con la madre Śacī; *caitanyera*—de Śrī Caitanya Mahāprabhu; *sukha-kathā*—palabras de felicidad; *kahe*—dice; *rātri-dine*—día y noche.

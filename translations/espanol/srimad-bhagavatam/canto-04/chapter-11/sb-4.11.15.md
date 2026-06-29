@@ -1,11 +1,11 @@
 ### SB 4.11.15
 
-> भूतैः पञ्चभिरारब्धैर्योषित्पुरुष एव हि ।
+> भूतैः पञ्चभिरारब्धैर्योषित्पुरुष एव हि ।\
 > तयोर्व्यवायात्सम्भूतिर्योषित्पुरुषयोरिह ॥१५॥
 
-> bhūtaiḥ pañcabhir ārabdhair
-> yoṣit puruṣa eva hi
-> tayor vyavāyāt sambhūtir
+> bhūtaiḥ pañcabhir ārabdhair\
+> yoṣit puruṣa eva hi\
+> tayor vyavāyāt sambhūtir\
 > yoṣit-puruṣayor iha
 
 *bhūtaiḥ*—con los elementos materiales; *pañcabhiḥ*—cinco; *ārabdhaiḥ*—formados; *yoṣit*—mujer; *puruṣaḥ*—hombre; *eva*—de este modo; *hi*—ciertamente; *tayoḥ*—de ellos; *vyavāyāt*—con la vida sexual; *sambhūtiḥ*—la creación adicional; *yoṣit*—de mujeres; *puruṣayoḥ*—y de hombres; *iha*—en el mundo material.

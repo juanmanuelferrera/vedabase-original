@@ -1,9 +1,9 @@
 ### CC Antya 4.103
 
-> ‘আচার’, ‘প্রচার’, — নামের করহ ‘দুই’ কার্য  ।
+> ‘আচার’, ‘প্রচার’, — নামের করহ ‘দুই’ কার্য  ।\
 > তুমি — সর্ব-গুরু, তুমি জগতের আর্য ।।” ১০৩ ॥১০৩॥
 
-> 'ācāra', 'pracāra',--nāmera karaha 'dui' kārya
+> 'ācāra', 'pracāra',--nāmera karaha 'dui' kārya\
 > tumi--sarva-guru, tumi jagatera ārya
 
 *ācāra pracāra*—comportarse bien y predicar; *nāmera*—del santo nombre; *karaha*—tú haces; *dui*—dos; *kārya*—deberes; *tumi*—tú; *sarva-guru*—maestro espiritual de todos; *tumi*—tú; *jagatera ārya*—el devoto más avanzado del mundo.

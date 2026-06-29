@@ -1,9 +1,9 @@
 ### CC Madhya 10.163
 
-> সাম্প্রতিক ‘দুই ব্রহ্ম’ ইহাঁ ‘চলাচল’ ।
+> সাম্প্রতিক ‘দুই ব্রহ্ম’ ইহাঁ ‘চলাচল’ ।\
 > জগন্নাথ — অচল ব্রহ্ম, তুমি ত’ সচল ॥১৬৩॥
 
-> sāmpratika 'dui brahma' ihāṅ 'calācala'
+> sāmpratika 'dui brahma' ihāṅ 'calācala'\
 > jagannātha-acala brahma, tumi ta' sacala
 
 *sāmpratika*—at the present moment; *dui brahma*—two Brahmans, or spiritual identities; *ihāṅ*—here; *cala-acala*—moving and not moving; *jagannātha*—Lord Jagannātha; *acala brahma*—not moving Brahman; *tumi*—You; *ta'*—but; *sa-cala*—moving Brahman.

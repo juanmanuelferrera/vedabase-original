@@ -1,9 +1,9 @@
 ### CC Antya 12.128
 
-> হস্ত তুলি’ রহেন প্রভু, না করেন ভোজন  ।
+> হস্ত তুলি’ রহেন প্রভু, না করেন ভোজন  ।\
 > তবে পণ্ডিত কহেন কিছু সপ্রেম বচন ॥১২৮॥
 
-> hasta tuli' rahena prabhu, nā karena bhojana
+> hasta tuli' rahena prabhu, nā karena bhojana\
 > tabe paṇḍita kahena kichu saprema vacana
 
 *hasta tuli'*—levantando las manos; *rahena prabhu*—Śrī Caitanya Mahāprabhu permaneció; *nā karena bhojana*—no comió; *tabe*—en ese momento; *paṇḍita kahena*—Jagadānanda dijo; *kichu*—algunas; *sa-prema vacana*—palabras con gran afecto y amor.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.216
 
-> আর দিন প্রভু গেলা জগন্নাথ-দরশনে ।
+> আর দিন প্রভু গেলা জগন্নাথ-দরশনে ।\
 > দর্শন করিলা জগন্নাথ-শয্যোত্থানে ॥২১৬॥
 
-> āra dina prabhu gelā jagannātha-daraśane
+> āra dina prabhu gelā jagannātha-daraśane\
 > darśana karilā jagannātha-śayyotthāne
 
 *āra dina*—al día siguiente; *prabhu*—el Señor Caitanya Mahāprabhu; *gelā*—fue; *jagannātha-daraśane*—a ver a Jagannātha en el templo; *darśana karilā*—contempló; *jagannātha-śayya-utthāne*—el momento en que el Señor se levantaba de Su lecho temprano por la mañana.

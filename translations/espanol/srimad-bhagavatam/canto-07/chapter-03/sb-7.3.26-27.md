@@ -1,20 +1,20 @@
 ### SB 7.3.26-27
 
-> श्रीहिरण्यकशिपुरुवाच
-> कल्पान्ते कालसृष्टेन योऽन्धेन तमसावृतम
-> अभिव्यनग्जगदिदं स्वयञ्ज्योतिः स्वरोचिषा ॥२६॥
-> आत्मना त्रिवृता चेदं सृजत्यवति लुम्पति
+> श्रीहिरण्यकशिपुरुवाच\
+> कल्पान्ते कालसृष्टेन योऽन्धेन तमसावृतम\
+> अभिव्यनग्जगदिदं स्वयञ्ज्योतिः स्वरोचिषा ॥२६॥\
+> आत्मना त्रिवृता चेदं सृजत्यवति लुम्पति\
 > रजःसत्त्वतमोधाम्ने पराय महते नमः ॥२७॥
 
-> śrī-hiraṇyakaśipur uvāca
-> kalpānte kāla-sṛṣṭena
-> yo 'ndhena tamasāvṛtam
-> abhivyanag jagad idaṁ
+> śrī-hiraṇyakaśipur uvāca\
+> kalpānte kāla-sṛṣṭena\
+> yo 'ndhena tamasāvṛtam\
+> abhivyanag jagad idaṁ\
 > svayañjyotiḥ sva-rociṣā
 
-> ātmanā tri-vṛtā cedaṁ
-> sṛjaty avati lumpati
-> rajaḥ-sattva-tamo-dhāmne
+> ātmanā tri-vṛtā cedaṁ\
+> sṛjaty avati lumpati\
+> rajaḥ-sattva-tamo-dhāmne\
 > parāya mahate namaḥ
 
 *śrī-hiraṇyakaśipuḥ uvāca*—Hiraṇyakaśipu dijo; *kalpa-ante*—al final de cada día de Brahmā; *kāla-sṛṣṭena*—creada por el factor tiempo; *yaḥ*—aquel que; *andhena*—por una densa oscuridad; *tamasā*—por ignorancia; *āvṛtam*—cubierta; *abhivyanak*—manifestada; *jagat*—manifestación cósmica; *idam*—este; *svayam-jyotiḥ*—que emite su propia refulgencia; *sva-rociṣā*—con los rayos de su cuerpo; *ātmanā*—por él mismo; *tri-vṛtā*—dirigida por las tres modalidades de la naturaleza material; *ca*—también; *idam*—este mundo material; *sṛjati*—crea; *avati*—mantiene; *lumpati*—aniquila; *rajaḥ*—de la modalidad de la pasión; *sattva*—la modalidad de la bondad; *tamaḥ*—y la modalidad de la ignorancia; *dhāmne*—al señor supremo; *parāya*—al supremo; *mahate*—al grande; *namaḥ*—mis respetuosas reverencias.

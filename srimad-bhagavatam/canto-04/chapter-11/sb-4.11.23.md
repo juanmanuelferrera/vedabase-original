@@ -1,11 +1,11 @@
 ### SB 4.11.23
 
-> अव्यक्तस्याप्रमेयस्य नानाशक्त्युदयस्य च ।
+> अव्यक्तस्याप्रमेयस्य नानाशक्त्युदयस्य च ।\
 > न वै चिकीर्षितं तात को वेदाथ स्वसम्भवम् ॥२३॥
 
-> avyaktasyāprameyasya
-> nānā-śakty-udayasya ca
-> na vai cikīrṣitaṁ tāta
+> avyaktasyāprameyasya\
+> nānā-śakty-udayasya ca\
+> na vai cikīrṣitaṁ tāta\
 > ko vedātha sva-sambhavam
 
 *avyaktasya*—of the unmanifested; *aprameyasya*—of the Transcendence; *nānā*—various; *śakti*—energies; *udayasya*—of Him who gives rise to; *ca*—also; *na*—never; *vai*—certainly; *cikīrṣitam*—the plan; *tāta*—my dear boy; *kaḥ*—who; *veda*—can know; *atha*—therefore; *sva*—own; *sambhavam*—origin.

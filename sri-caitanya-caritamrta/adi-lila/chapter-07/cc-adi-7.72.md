@@ -1,9 +1,9 @@
 ### CC Adi 7.72
 
-> মূর্খ তুমি, তোমার নাহিক বেদান্তাধিকার ।
+> মূর্খ তুমি, তোমার নাহিক বেদান্তাধিকার ।\
 > ‘কৃষ্ণমন্ত্র’ জপ’ সদা, — এই মন্ত্রসার ॥৭২॥
 
-> mūrkha tumi, tomāra nāhika vedāntādhikāra
+> mūrkha tumi, tomāra nāhika vedāntādhikāra\
 > 'kṛṣṇa-mantra' japa sadā,—ei mantra-sāra
 
 *mūrkha tumi*—You are a fool; *tomāra*—Your; *nāhika*—there is not; *vedānta*—Vedānta philosophy; *adhikāra*—qualification to study; *kṛṣṇa-mantra*—the hymn of Kṛṣṇa (Hare Kṛṣṇa); *japa*—chant; *sadā*—always; *ei*—this; *mantra*—hymn; *sāra*—essence of all Vedic knowledge.

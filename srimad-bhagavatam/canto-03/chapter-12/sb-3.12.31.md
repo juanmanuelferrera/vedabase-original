@@ -1,11 +1,11 @@
 ### SB 3.12.31
 
-> तेजीयसामपि ह्येतन्न सुश्लोक्यं जगद्गुरो ।
+> तेजीयसामपि ह्येतन्न सुश्लोक्यं जगद्गुरो ।\
 > यद्वृत्तमनुतिष्ठन्वै लोकः क्षेमाय कल्पते ॥३१॥
 
-> tejīyasām api hy etan
-> na suślokyaṁ jagad-guro
-> yad-vṛttam anutiṣṭhan vai
+> tejīyasām api hy etan\
+> na suślokyaṁ jagad-guro\
+> yad-vṛttam anutiṣṭhan vai\
 > lokaḥ kṣemāya kalpate
 
 *tejīyasām*—of the most powerful; *api*—also; *hi*—certainly; *etat*—such an act; *na*—not suitable; *su-ślokyam*—good behavior; *jagat-guro*—O spiritual master of the universe; *yat*—whose; *vṛttam*—character; *anutiṣṭhan*—following; *vai*—certainly; *lokaḥ*—the world; *kṣemāya*—for prosperity; *kalpate*—becomes eligible.

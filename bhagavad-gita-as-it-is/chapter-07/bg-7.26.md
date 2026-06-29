@@ -1,11 +1,11 @@
 ### Bg 7.26
 
-> वेदाहं समतीतानि वर्तमानानि चार्जुन ।
+> वेदाहं समतीतानि वर्तमानानि चार्जुन ।\
 > भविष्याणि च भूतानि मां तु वेद न कश्चन ॥२६॥
 
-> vedāhaṁ samatītāni
-> vartamānāni cārjuna
-> bhaviṣyāṇi ca bhūtāni
+> vedāhaṁ samatītāni\
+> vartamānāni cārjuna\
+> bhaviṣyāṇi ca bhūtāni\
 > māṁ tu veda na kaścana
 
 *veda*—know; *aham*—I; *sama*—equally; *atītāni*—past; *vartamānāni*—present; *ca*—and; *arjuna*—O Arjuna; *bhaviṣyāṇi*—future; *ca*—also; *bhūtāni*—living entities; *mām*—Me; *tu*—but; *veda*—knows; *na*—not; *kaścana*—anyone.

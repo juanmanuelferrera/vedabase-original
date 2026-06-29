@@ -1,11 +1,11 @@
 ### SB 3.1.4
 
-> न ह्यल्पार्थोदयस्तस्य विदुरस्यामलात्मनः ।
+> न ह्यल्पार्थोदयस्तस्य विदुरस्यामलात्मनः ।\
 > तस्मिन्वरीयसि प्रश्नः साधुवादोपबृंहितः ॥४॥
 
-> na hy alpārthodayas tasya
-> vidurasyāmalātmanaḥ
-> tasmin varīyasi praśnaḥ
+> na hy alpārthodayas tasya\
+> vidurasyāmalātmanaḥ\
+> tasmin varīyasi praśnaḥ\
 > sādhu-vādopabṛṁhitaḥ
 
 *na*—nunca; *hi*—ciertamente; *alpa-artha*—propósito pequeño (sin importancia); *udayaḥ*—formuló; *tasya*—su; *vidurasya*—de Vidura; *amala-ātmanaḥ*—del hombre santo; *tasmin*—en esa; *varīyasi*—muy significativa; *praśnaḥ*—pregunta; *sādhu-vāda*—cosas aprobadas por santos y sabios; *upabṛṁhitaḥ*—llena de.

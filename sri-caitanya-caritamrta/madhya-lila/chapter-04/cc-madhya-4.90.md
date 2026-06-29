@@ -1,9 +1,9 @@
 ### CC Madhya 4.90
 
-> একেক দিন একেক গ্রামে লইল মাগিঞা ।
+> একেক দিন একেক গ্রামে লইল মাগিঞা ।\
 > অন্নকূট করে সবে হরষিত হঞা ॥৯০॥
 
-> ekeka dina ekeka grāme la-ila māgiñā
+> ekeka dina ekeka grāme la-ila māgiñā\
 > anna-kūṭa kare sabe haraṣita hañā
 
 *ekekadina*—one day after another; *ekeka grāme*—one village after another; *la-ila*—took permission; *māgiñā*—begging; *anna-kūṭa kare*—perform the Annakūṭa ceremony; *sabe*—all; *haraṣita*—pleased; *hañā*—becoming.

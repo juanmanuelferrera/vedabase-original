@@ -1,11 +1,11 @@
 ### SB 1.8.36
 
-> शृण्वन्ति गायन्ति गृणन्त्यभीक्ष्णशः स्मरन्ति नन्दन्ति तवेहितं जनाः ।
+> शृण्वन्ति गायन्ति गृणन्त्यभीक्ष्णशः स्मरन्ति नन्दन्ति तवेहितं जनाः ।\
 > त एव पश्यन्त्यचिरेण तावकं भवप्रवाहोपरमं पदाम्बुजम् ॥३६॥
 
-> śṛṇvanti gāyanti gṛṇanty abhīkṣṇaśaḥ
-> smaranti nandanti tavehitaṁ janāḥ
-> ta eva paśyanty acireṇa tāvakaṁ
+> śṛṇvanti gāyanti gṛṇanty abhīkṣṇaśaḥ\
+> smaranti nandanti tavehitaṁ janāḥ\
+> ta eva paśyanty acireṇa tāvakaṁ\
 > bhava-pravāhoparamaṁ padāmbujam
 
 *śṛṇvanti*—oyen; *gāyanti*—cantan; *gṛṇanti*—adoptan; *abhīkṣṇaśaḥ*—continuamente; *smaranti*—recuerdan; *nandanti*—se complacen; *tava*—Tus; *īhitam*—actividades; *janāḥ*—la gente en general; *te*—ellos; *eva*—ciertamente; *paśyanti*—pueden ver; *acireṇa*—muy pronto; *tāvakam*—Tus; *bhava-pravāha*—la corriente del renacer; *uparamam*—cese; *pada-ambujam*—pies de loto.

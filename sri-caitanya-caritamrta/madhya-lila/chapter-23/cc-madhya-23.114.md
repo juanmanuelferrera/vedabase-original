@@ -1,13 +1,13 @@
 ### CC Madhya 23.114
 
-> চীরাণি কিং পথি ন সন্তি দিশন্তি ভিক্ষাং
-> নৈবাঙ্ঘ্রিপাঃ পরভৃতঃ সরিতোঽপ্যশুষ্যন্ ।
-> রুদ্ধা গুহাঃ কিমজিতোঽবতি নোপসন্নান্
+> চীরাণি কিং পথি ন সন্তি দিশন্তি ভিক্ষাং\
+> নৈবাঙ্ঘ্রিপাঃ পরভৃতঃ সরিতোঽপ্যশুষ্যন্ ।\
+> রুদ্ধা গুহাঃ কিমজিতোঽবতি নোপসন্নান্\
 > কস্মাদ্ভজন্তি কবয়ো ধনদুর্মদান্ধান্ ॥১১৪॥
 
-> cīrāṇi kiṁ pathi na santi diśanti bhikṣāṁ
-> naivāṅghri-pāḥ parabhṛtaḥ sarito 'py aśuṣyan
-> ruddhā guhāḥ kim ajito 'vati nopasannān
+> cīrāṇi kiṁ pathi na santi diśanti bhikṣāṁ\
+> naivāṅghri-pāḥ parabhṛtaḥ sarito 'py aśuṣyan\
+> ruddhā guhāḥ kim ajito 'vati nopasannān\
 > kasmād bhajanti kavayo dhana-durmadāndhān
 
 *cīrāṇi*—torn old clothes; *kim*—whether; *pathi*—on the path; *na*—not; *santi*—are; *diśanti*—give; *bhikṣām*—alms; *na*—not; *eva*—certainly; *aṅghri-pāḥ*—the trees; *parabhṛtaḥ*—maintainers of others; *saritaḥ*—rivers; *api*—also; *aśuṣyan*—have dried up; *ruddhāḥ*—closed; *guhāḥ*—caves; *kim*—whether; *ajitaḥ*—the Supreme Personality of Godhead, who is unconquerable; *avati*—protects; *na*—not; *upasannān*—the surrendered; *kasmāt*—for what reason, therefore; *bhajanti*—flatter; *kavayaḥ*—the devotees; *dhana-durmada-andhān*—persons who are puffed up with material possessions.

@@ -1,13 +1,13 @@
 ### SB 8.7.33
 
-> कामाध्वरत्रिपुरकालगराद्यनेक
-> भूतद्रुहः क्षपयतः स्तुतये न तत्ते
-> यस्त्वन्तकाल इदमात्मकृतं स्वनेत्र
+> कामाध्वरत्रिपुरकालगराद्यनेक\
+> भूतद्रुहः क्षपयतः स्तुतये न तत्ते\
+> यस्त्वन्तकाल इदमात्मकृतं स्वनेत्र\
 > वह्निस्फुलिङ्गशिखया भसितं न वेद ॥३३॥
 
-> ye tv ātma-rāma-gurubhir hṛdi cintitāṅghri-
-> dvandvaṁ carantam umayā tapasābhitaptam
-> katthanta ugra-paruṣaṁ nirataṁ śmaśāne
+> ye tv ātma-rāma-gurubhir hṛdi cintitāṅghri-\
+> dvandvaṁ carantam umayā tapasābhitaptam\
+> katthanta ugra-paruṣaṁ nirataṁ śmaśāne\
 > te nūnam ūtim avidaṁs tava hāta-lajjāḥ
 
 *ye*—persons who; *tu*—indeed; *ātma-rāma-gurubhiḥ*—by those who are self-satisfied and who are considered to be spiritual masters of the world; *hṛdi*—within the heart; *cintita-aṅghri-dvandvam*—thinking of your two lotus feet; *carantam*—moving; *umayā*—with your consort, Umā; *tapasā abhitaptam*—highly advanced through practice of austerity and penance; *katthante*—criticize your acts; *ugra-paruṣam*—not a gentle person; *niratam*—always; *śmaśāne*—in the crematorium; *te*—such persons; *nūnam*—indeed; *ūtim*—such activities; *avidan*—not knowing; *tava*—your activities; *hāta-lajjāḥ*—shameless.

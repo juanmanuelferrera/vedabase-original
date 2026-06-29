@@ -1,14 +1,14 @@
 ### CC Madhya 8.51-52
 
-> রায় কহে, — আইলা যদি পামর শোধিতে ।
-> দর্শনমাত্রে শুদ্ধ নহে মোর দুষ্ট চিত্তে ॥৫১॥
-> দিন পাঁচ-সাত রহি’ করহ মার্জন ।
+> রায় কহে, — আইলা যদি পামর শোধিতে ।\
+> দর্শনমাত্রে শুদ্ধ নহে মোর দুষ্ট চিত্তে ॥৫১॥\
+> দিন পাঁচ-সাত রহি’ করহ মার্জন ।\
 > তবে শুদ্ধ হয় মোর এই দুষ্ট মন ॥৫২॥
 
-> rāya kahe, āilā yadi pāmara śodhite
+> rāya kahe, āilā yadi pāmara śodhite\
 > darśana-mātre śuddha nahe mora duṣṭa citte
 
-> dina pāṅca-sāta rahi' karaha mārjana
+> dina pāṅca-sāta rahi' karaha mārjana\
 > tabe śuddha haya mora ei duṣṭa mana
 
 *rāya kahe*—Rāmānanda Rāya replied; *āilā*—You have come; *yadi*—although; *pāmara*—a fallen soul; *śodhite*—to rectify; *darśana-mātre*—simply seeing You; *śuddha nahe*—not purified; *mora*—my; *duṣṭa*—polluted; *citte*—consciousness; *dina*—days; *pāṅca-sāta*—five or seven; *rahi'*—staying; *karaha*—kindly do; *mārjana*—cleansing; *tabe*—then; *śuddha*—pure; *haya*—it is; *mora*—my; *ei*—this; *duṣṭa*—polluted; *mana*—mind.

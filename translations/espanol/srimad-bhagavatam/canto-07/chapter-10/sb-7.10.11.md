@@ -1,13 +1,13 @@
 ### SB 7.10.11
 
-> श्रीभगवानुवाच
-> नैकान्तिनो मे मयि जात्विहाशिष आशासतेऽमुत्र च ये भवद्विधाः
+> श्रीभगवानुवाच\
+> नैकान्तिनो मे मयि जात्विहाशिष आशासतेऽमुत्र च ये भवद्विधाः\
 > तथापि मन्वन्तरमेतदत्र दैत्येश्वराणामनुभुङ्क्ष्व भोगान ॥११॥
 
-> śrī-bhagavān uvāca
-> naikāntino me mayi jātv ihāśiṣa
-> āśāsate 'mutra ca ye bhavad-vidhāḥ
-> tathāpi manvantaram etad atra
+> śrī-bhagavān uvāca\
+> naikāntino me mayi jātv ihāśiṣa\
+> āśāsate 'mutra ca ye bhavad-vidhāḥ\
+> tathāpi manvantaram etad atra\
 > daityeśvarāṇām anubhuṅkṣva bhogān
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *na*—no; *ekāntinaḥ*—puro, sin deseos aparte del deseo de servicio devocional; *me*—de Mí; *mayi*—a Mí; *jātu*—algún momento; *iha*—dentro del mundo material; *āśiṣaḥ*—bendiciones; *āśāsate*—intenso deseo; *amutra*—en la próxima vida; *ca*—y; *ye*—todos esos devotos que; *bhavat-vidhāḥ*—como tú; *tathāpi*—aún; *manvantaram*—período de tiempo hasta el final de la vida de un *manu*; *etat*—este; *atra*—dentro del mundo material; *daitya-īśvarāṇām*—de las opulencias de las personas materialistas; *anubhuṅkṣva*—tú puedes disfrutar; *bhogān*—todas las opulencias materiales.

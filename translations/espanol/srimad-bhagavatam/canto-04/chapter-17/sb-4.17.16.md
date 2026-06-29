@@ -1,11 +1,11 @@
 ### SB 4.17.16
 
-> सा दिशो विदिशो देवी रोदसी चान्तरं तयोः ।
+> सा दिशो विदिशो देवी रोदसी चान्तरं तयोः ।\
 > धावन्ती तत्र तत्रैनं ददर्शानूद्यतायुधम् ॥१६॥
 
-> sā diśo vidiśo devī
-> rodasī cāntaraṁ tayoḥ
-> dhāvantī tatra tatrainaṁ
+> sā diśo vidiśo devī\
+> rodasī cāntaraṁ tayoḥ\
+> dhāvantī tatra tatrainaṁ\
 > dadarśānūdyatāyudham
 
 *sā*—la Tierra en forma de vaca; *diśaḥ*—en las cuatro direcciones; *vidiśaḥ*—en otras direcciones al azar; *devī*—la diosa; *rodasī*—hacia el cielo y la Tierra; *ca*—también; *antaram*—entre; *tayoḥ*—ambos; *dhāvantī*—huyendo; *tatra tatra*—aquí y allá; *enam*—al rey; *dadarśa*—ella veía; *anu*—detrás; *udyata*—empuñadas; *āyudham*—sus armas.

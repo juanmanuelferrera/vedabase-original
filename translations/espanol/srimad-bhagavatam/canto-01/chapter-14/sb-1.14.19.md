@@ -1,11 +1,11 @@
 ### SB 1.14.19
 
-> न पिबन्ति स्तनं वत्सा न दुह्यन्ति च मातरः ।
+> न पिबन्ति स्तनं वत्सा न दुह्यन्ति च मातरः ।\
 > रुदन्त्यश्रुमुखा गावो न हृष्यन्त्यृषभा व्रजे ॥१९॥
 
-> na pibanti stanaṁ vatsā
-> na duhyanti ca mātaraḥ
-> rudanty aśru-mukhā gāvo
+> na pibanti stanaṁ vatsā\
+> na duhyanti ca mātaraḥ\
+> rudanty aśru-mukhā gāvo\
 > na hṛṣyanty ṛṣabhā vraje
 
 *na*—no; *pibanti*—maman; *stanam*—ubre; *vatsāḥ*—los terneros; *na*—no; *duhyanti*—permiten ordeñar; *ca*—también; *mātaraḥ*—las vacas; *rudanti*—llorando; *aśru-mukhāḥ*—con cara de llanto; *gāvaḥ*—las vacas; *na*—no; *hṛṣyanti*—sienten placer; *ṛṣabhāḥ*—los toros; *vraje*—en el pastizal.

@@ -1,9 +1,9 @@
 ### CC Adi 7.3
 
-> পূর্বে গুর্বাদি ছয় তত্ত্বে কৈল নমস্কার ।
+> পূর্বে গুর্বাদি ছয় তত্ত্বে কৈল নমস্কার ।\
 > গুরুতত্ত্ব কহিয়াছি, এবে পাঁচের বিচার ॥৩॥
 
-> pūrve gurv-ādi chaya tattve kaila namaskāra
+> pūrve gurv-ādi chaya tattve kaila namaskāra\
 > guru-tattva kahiyāchi, ebe pāṅcera vicāra
 
 *pūrve*—in the beginning; *guru-ādi*—the spiritual master and others; *chaya*—six; *tattve*—in the subjects of; *kaila*—I have done; *namaskāra*—obeisances; *guru-tattva*—the truth in understanding the spiritual master; *kahiyāchi*—I have already described; *ebe*—now; *pāṅcera*—of the five; *vicāra*—consideration.

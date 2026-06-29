@@ -1,9 +1,9 @@
 ### CC Antya 18.72
 
-> অতিদীর্ঘ শিথিল তনু-চর্ম নট্কায় ।
+> অতিদীর্ঘ শিথিল তনু-চর্ম নট্কায় ।\
 > দূর পথ উঠাঞা ঘরে আনান না যায় ॥৭২॥
 
-> ati-dīrgha śithila tanu-carma naṭkāya
+> ati-dīrgha śithila tanu-carma naṭkāya\
 > dūra patha uṭhāñā ghare ānāna nā yāya
 
 *ati-dīrgha*—muy alargado; *śithila*—flojo; *tanu*—cuerpo; *carma*—piel; *naṭkāya*—colgando; *dūra patha*—larga distancia; *uṭhāñā*—levantándolo; *ghare*—a casa; *ānāna*—llevar; *nā yāya*—no era posible.

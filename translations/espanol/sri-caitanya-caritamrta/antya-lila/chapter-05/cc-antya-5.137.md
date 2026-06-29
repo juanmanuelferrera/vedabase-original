@@ -1,11 +1,11 @@
 ### CC Antya 5.137
 
-> বাচালং বালিশং স্তব্ধমজ্ঞং পণ্ডিতমানিনম্ ।
+> বাচালং বালিশং স্তব্ধমজ্ঞং পণ্ডিতমানিনম্ ।\
 > কৃষ্ণং মর্ত্যমুপাশ্রিত্য গোপা মে চক্রুরপ্রিয়ম্ ॥১৩৭॥
 
-> vācālaṁ bāliśaṁ stabdhaṁ
-> ajñaṁ paṇḍita-māninam
-> kṛṣṇaṁ martyam upāśritya
+> vācālaṁ bāliśaṁ stabdhaṁ\
+> ajñaṁ paṇḍita-māninam\
+> kṛṣṇaṁ martyam upāśritya\
 > gopā me cakrur apriyam
 
 *vācālam*—charlatán; *bāliśam*—infantil; *stabdham*—insolente; *ajñam*—necio; *paṇḍita-māninam*—que se cree un gran erudito; *kṛṣṇam*—Kṛṣṇa; *martyam*—un ser humano mortal ordinario; *upāśritya*—refugiándose en; *gopāḥ*—los pastores de vacas; *me*—a mí; *cakruḥ*—cometieron; *apriyam*—lo que no se aprecia mucho.

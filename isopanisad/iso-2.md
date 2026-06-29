@@ -1,11 +1,11 @@
 ### Īśo 2
 
-> कुर्वन्नेवेह कर्माणि जिजीविषेच्छतँ समाः।
+> कुर्वन्नेवेह कर्माणि जिजीविषेच्छतँ समाः।\
 > एवं त्वयि नान्यथेतोऽस्ति न कर्म लिप्यते नरे॥२॥
 
-> kurvann eveha karmāṇi
-> jijīviṣec chataṁ samāḥ
-> evaṁ tvayi nānyatheto 'sti
+> kurvann eveha karmāṇi\
+> jijīviṣec chataṁ samāḥ\
+> evaṁ tvayi nānyatheto 'sti\
 > na karma lipyate nare
 
 *kurvan*—doing continuously; *eva*—thus; *iha*—during this span of life; *karmāṇi*—work; *jijīviṣet*—one should desire to live; *śatam*—one hundred; *samāḥ*—years; *evam*—so living; *tvayi*—unto you; *na*—no; *anyathā*—alternative; *itaḥ*—from this path; *asti*—there is; *na*—not; *karma*—work; *lipyate*—can be bound; *nare*—unto a man.

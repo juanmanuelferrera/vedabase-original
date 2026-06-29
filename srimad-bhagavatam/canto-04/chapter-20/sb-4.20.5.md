@@ -1,11 +1,11 @@
 ### SB 4.20.5
 
-> अतः कायमिमं विद्वानविद्याकामकर्मभिः ।
+> अतः कायमिमं विद्वानविद्याकामकर्मभिः ।\
 > आरब्ध इति नैवास्मिन्प्रतिबुद्धोऽनुषज्जते ॥५॥
 
-> ataḥ kāyam imaṁ vidvān
-> avidyā-kāma-karmabhiḥ
-> ārabdha iti naivāsmin
+> ataḥ kāyam imaṁ vidvān\
+> avidyā-kāma-karmabhiḥ\
+> ārabdha iti naivāsmin\
 > pratibuddho 'nuṣajjate
 
 *ataḥ*—therefore; *kāyam*—body; *imam*—this; *vidvān*—he who has knowledge; *avidyā*—by nescience; *kāma*—desires; *karmabhiḥ*—and by activities; *ārabdhaḥ*—created; *iti*—thus; *na*—never; *eva*—certainly; *asmin*—to this body; *pratibuddhaḥ*—one who knows; *anuṣajjate*—becomes addicted.

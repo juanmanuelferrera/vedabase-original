@@ -1,11 +1,11 @@
 ### CC Madhya 25.37
 
-> দৃষ্টং শ্রুতং ভূত-ভবদ্ভবিষ্যৎ স্থাস্নুশ্চরিষ্ণুর্মহদল্পকং বা ।
+> দৃষ্টং শ্রুতং ভূত-ভবদ্ভবিষ্যৎ স্থাস্নুশ্চরিষ্ণুর্মহদল্পকং বা ।\
 > বিনাচ্যুতাদ্বস্তু তরাং ন বাচ্যং স এব সর্বং পরমাত্মভূতঃ ॥৩৭॥
 
-> dṛṣṭaṁ śrutaṁ bhūta-bhavad-bhaviṣyat
-> sthāsnuś cariṣṇur mahad alpakaṁ vā
-> vinācyutād vastu-tarāṁ na vācyaṁ
+> dṛṣṭaṁ śrutaṁ bhūta-bhavad-bhaviṣyat\
+> sthāsnuś cariṣṇur mahad alpakaṁ vā\
+> vinācyutād vastu-tarāṁ na vācyaṁ\
 > sa eva sarvaṁ paramātma-bhūtaḥ
 
 *dṛṣṭam*—experienced by direct perception; *śrutam*—experienced by hearing; *bhūta*—past; *bhavat*—present; *bhaviṣyat*—which will be in the future; *sthāsnuḥ*—immovable; *cariṣṇuḥ*—movable; *mahat*—the greatest; *alpakam*—the smallest; *vā*—or; *vinā*—except; *acyutāt*—the infallible Personality of Godhead; *vastu-tarām*—anything else; *na vācyam*—not to be spoken; *saḥ*—that Supreme Personality of Godhead; *eva*—certainly; *sarvam*—everything; *paramātma-bhūtaḥ*—the origin of all causes.

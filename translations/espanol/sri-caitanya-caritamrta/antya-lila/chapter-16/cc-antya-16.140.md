@@ -1,13 +1,13 @@
 ### CC Antya 16.140
 
-> গোপ্যঃ কিমাচরদয়ং কুশলং স্ম বেণু-
-> র্দামোদরাধরসুধামপি গোপিকানাম্ ।
-> ভুঙ্ক্তে স্বয়ং যদবশিষ্টরসং হ্রদিন্যো
+> গোপ্যঃ কিমাচরদয়ং কুশলং স্ম বেণু-\
+> র্দামোদরাধরসুধামপি গোপিকানাম্ ।\
+> ভুঙ্ক্তে স্বয়ং যদবশিষ্টরসং হ্রদিন্যো\
 > হৃষ্যত্ত্বচোঽশ্রু মুমুচুস্তরবো যথার্যাঃ ॥১৪০॥
 
-> gopyaḥ kim ācarad ayaṁ kuśalaṁ sma veṇur
-> dāmodarādhara-sudhām api gopikānām
-> bhuṅkte svayaṁ yad avaśiṣṭa-rasaṁ hradinyo
+> gopyaḥ kim ācarad ayaṁ kuśalaṁ sma veṇur\
+> dāmodarādhara-sudhām api gopikānām\
+> bhuṅkte svayaṁ yad avaśiṣṭa-rasaṁ hradinyo\
 > hṛṣyat-tvaco 'śru mumucus taravo yathāryāḥ
 
 *gopyaḥ*—¡oh, gopīs!; *kim*—qué; *ācarat*—realizó; *ayam*—esta; *kuśalam*—actividades auspiciosas; *sma*—ciertamente; *veṇuḥ*—flauta; *dāmodara*—de Kṛṣṇa; *adhara-sudhām*—el néctar de los labios; *api*—incluso; *gopikānām*—que pertenece a las gopīs; *bhuṅkte*—disfruta; *svayam*—independientemente; *yat*—de lo cual; *avaśiṣṭa*—lo restante; *rasam*—solo el sabor; *hradinyaḥ*—los ríos; *hṛṣyat*—sintiendo júbilo; *tvacaḥ*—cuyos cuerpos; *aśru*—lágrimas; *mumucuḥ*—derramaron; *taravaḥ*—los árboles; *yathā*—exactamente como; *āryāḥ*—los ancianos antepasados.

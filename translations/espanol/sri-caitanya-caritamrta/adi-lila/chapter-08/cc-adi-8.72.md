@@ -1,9 +1,9 @@
 ### CC Adi 8.72
 
-> মোরে আজ্ঞা করিলা সবে করুণা করিয়া ।
+> মোরে আজ্ঞা করিলা সবে করুণা করিয়া ।\
 > তাঁ-সবার বোলে লিখি নির্লজ্জ হইয়া ॥৭২॥
 
-> more ājñā karilā sabe karuṇā kariyā
+> more ājñā karilā sabe karuṇā kariyā\
 > tāṅ-sabāra bole likhi nirlajja ha-iyā
 
 *more*—a mí; *ājñā*—orden; *karilā*—dieron; *sabe*—todos; *karuṇā*—misericordiosos; *kariyā*—siendo así; *tāṅ-sabāra*—de todos ellos; *bole*—por la orden; *likhi*—escribo; *nirlajja*—sin vergüenza; *ha-iyā*—volviéndome.

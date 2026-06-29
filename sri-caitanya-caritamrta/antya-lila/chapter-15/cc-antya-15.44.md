@@ -1,13 +1,13 @@
 ### CC Antya 15.44
 
-> অপ্যেণ-পত্ন্যুপগতঃ প্রিয়য়েহ গাত্রৈ-
-> স্তন্বন্ দৃশাং সখি সুনির্বৃতিমচ্যুতো বঃ ।
-> কান্তাঙ্গসঙ্গকুচকুঙ্কুম-রঞ্জিতায়াঃ
+> অপ্যেণ-পত্ন্যুপগতঃ প্রিয়য়েহ গাত্রৈ-\
+> স্তন্বন্ দৃশাং সখি সুনির্বৃতিমচ্যুতো বঃ ।\
+> কান্তাঙ্গসঙ্গকুচকুঙ্কুম-রঞ্জিতায়াঃ\
 > কুন্দস্রজঃ কুলপতেরিহ বাতি গন্ধঃ ॥৪৪॥
 
-> apy eṇa-patny upagataḥ priyayeha gātrais
-> tanvan dṛśāṁ sakhi sunirvṛtim acyuto vaḥ
-> kāntāṅga-saṅga-kuca-kuṅkuma-rañjitāyāḥ
+> apy eṇa-patny upagataḥ priyayeha gātrais\
+> tanvan dṛśāṁ sakhi sunirvṛtim acyuto vaḥ\
+> kāntāṅga-saṅga-kuca-kuṅkuma-rañjitāyāḥ\
 > kunda-srajaḥ kula-pater iha vāti gandhaḥ
 
 *api*—whether; *eṇa-patnī*—O she-deer; *upagataḥ*—has come; *priyayā*—along with His dearmost companion; *iha*—here; *gātraiḥ*—by the bodily limbs; *tanvan*—increasing; *dṛśām*—of the eyes; *sakhi*—O my dear friend; *su-nirvṛtim*—happiness; *acyutaḥ*—Kṛṣṇa; *vaḥ*—of all of you; *kānta-aṅga*—with the body of the beloved; *saṅga*—by association; *kuca-kuṅkuma*—with *kuṅkuma* powder from the breasts; *rañjitāyāḥ*—colored; *kunda-srajaḥ*—of the garland of *kunda* flowers; *kula-pateḥ*—of Kṛṣṇa; *iha*—here; *vāti*—flows; *gandhaḥ*—the fragrance.

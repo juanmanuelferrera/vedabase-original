@@ -1,11 +1,11 @@
 ### SB 3.25.11
 
-> तं त्वा गताहं शरणं शरण्यं स्वभृत्यसंसारतरोः कुठारम् ।
+> तं त्वा गताहं शरणं शरण्यं स्वभृत्यसंसारतरोः कुठारम् ।\
 > जिज्ञासयाहं प्रकृतेः पूरुषस्य नमामि सद्धर्मविदां वरिष्ठम् ॥११॥
 
-> taṁ tvā gatāhaṁ śaraṇaṁ śaraṇyaṁ
-> sva-bhṛtya-saṁsāra-taroḥ kuṭhāram
-> jijñāsayāhaṁ prakṛteḥ pūruṣasya
+> taṁ tvā gatāhaṁ śaraṇaṁ śaraṇyaṁ\
+> sva-bhṛtya-saṁsāra-taroḥ kuṭhāram\
+> jijñāsayāhaṁ prakṛteḥ pūruṣasya\
 > namāmi sad-dharma-vidāṁ variṣṭham
 
 *tam*—that person; *tvā*—unto You; *gatā*—have gone; *aham*—I; *śaraṇam*—shelter; *śaraṇyam*—worth taking shelter of; *sva-bhṛtya*—for Your dependents; *saṁsāra*—of material existence; *taroḥ*—of the tree; *kuṭhāram*—the ax; *jijñāsayā*—with the desire to know; *aham*—I; *prakṛteḥ*—of matter (woman); *pūruṣasya*—of spirit (man); *namāmi*—I offer obeisances; *sat-dharma*—of the eternal occupation; *vidām*—of the knowers; *variṣṭham*—unto the greatest.

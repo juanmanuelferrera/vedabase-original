@@ -1,11 +1,11 @@
 ### SB 7.7.42
 
-> सुखाय दुःखमोक्षाय सङ्कल्प इह कर्मिणः
+> सुखाय दुःखमोक्षाय सङ्कल्प इह कर्मिणः\
 > सदाप्नोतीहया दुःखमनीहायाः सुखावृतः ॥४२॥
 
-> sukhāya duḥkha-mokṣāya
-> saṅkalpa iha karmiṇaḥ
-> sadāpnotīhayā duḥkham
+> sukhāya duḥkha-mokṣāya\
+> saṅkalpa iha karmiṇaḥ\
+> sadāpnotīhayā duḥkham\
 > anīhāyāḥ sukhāvṛtaḥ
 
 *sukhāya*—for achieving happiness by a so-called higher standard of life; *duḥkha-mokṣāya*—for becoming free from misery; *saṅkalpaḥ*—the determination; *iha*—in this world; *karmiṇaḥ*—of the living entity trying for economic development; *sadā*—always; *āpnoti*—achieves; *īhayā*—by activity or ambition; *duḥkham*—only unhappiness; *anīhāyāḥ*—and from not desiring economic development; *sukha*—by happiness; *āvṛtaḥ*—covered.

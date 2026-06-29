@@ -1,9 +1,9 @@
 ### CC Madhya 16.189
 
-> গো-ব্রাহ্মণ-বৈষ্ণবে হিংসা কর্যাছি অপার ।
+> গো-ব্রাহ্মণ-বৈষ্ণবে হিংসা কর্যাছি অপার ।\
 > সেই পাপ হইতে মোর হউক নিস্তার ॥১৮৯॥
 
-> go-brāhmaṇa-vaiṣṇave hiṁsā karyāchi apāra
+> go-brāhmaṇa-vaiṣṇave hiṁsā karyāchi apāra\
 > sei pāpa ha-ite mora ha-uka nistāra
 
 *go-brāhmaṇa-vaiṣṇave*—contra las vacas, los *brāhmaṇas* y los vaiṣṇavas; *hiṁsā*—violencia y envidia; *karyāchi*—he ejercido; *apāra*—ilimitadamente; *sei pāpa ha-ite*—de esas actividades pecaminosas; *mora*—mi; *ha-uka*—que haya; *nistāra*—liberación.

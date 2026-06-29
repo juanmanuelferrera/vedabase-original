@@ -1,9 +1,9 @@
 ### CC Adi 9.39
 
-> অতএব সব ফল দেহ’ যারে তারে ।
+> অতএব সব ফল দেহ’ যারে তারে ।\
 > খাইয়া হউক্ লোক অজর অমরে ॥৩৯॥
 
-> ataeva saba phala deha' yāre tāre
+> ataeva saba phala deha' yāre tāre\
 > khāiyā ha-uk loka ajara amare
 
 *ataeva*—por lo tanto; *saba*—todos; *phala*—frutos; *deha'*—distribuid; *yāre tāre*—a todos y cada uno; *khāiyā*—comiendo; *ha-uk*—que se vuelvan; *loka*—toda la gente; *ajara*—sin vejez; *amare*—sin muerte.

@@ -1,6 +1,6 @@
 ### CC Adi 1.47
 
-> śikṣā-guruke ta' jāni kṛṣṇera svarūpa
+> śikṣā-guruke ta' jāni kṛṣṇera svarūpa\
 > antaryāmī, bhakta-śreṣṭha,—ei dui rūpa
 
 *śikṣā-guruke*—o mestre espiritual que instrui; *ta'*—de fato; *jāni*—sei; *kṛṣṇera*—de Kṛṣṇa; *sva-rūpa*—o representante direto; *antaryāmī*—a Superalma residente; *bhakta-śreṣṭha*—o melhor devoto; *ei*—estas; *dui*—duas; *rūpa*—formas.

@@ -1,13 +1,13 @@
 ### SB 9.6.52
 
-> एकस्तपस्व्यहमथाम्भसि मत्स्यसङ्गात
-> पञ्चाशदासमुत पञ्चसहस्रसर्गः
-> नान्तं व्रजाम्युभयकृत्यमनोरथानां
+> एकस्तपस्व्यहमथाम्भसि मत्स्यसङ्गात\
+> पञ्चाशदासमुत पञ्चसहस्रसर्गः\
+> नान्तं व्रजाम्युभयकृत्यमनोरथानां\
 > मायागुणैर्हृतमतिर्विषयेऽर्थभावः ॥५२॥
 
-> ekas tapasvy aham athāmbhasi matsya-saṅgāt
-> pañcāśad āsam uta pañca-sahasra-sargaḥ
-> nāntaṁ vrajāmy ubhaya-kṛtya-manorathānāṁ
+> ekas tapasvy aham athāmbhasi matsya-saṅgāt\
+> pañcāśad āsam uta pañca-sahasra-sargaḥ\
+> nāntaṁ vrajāmy ubhaya-kṛtya-manorathānāṁ\
 > māyā-guṇair hṛta-matir viṣaye 'rtha-bhāvaḥ
 
 *ekaḥ*—one only; *tapasvī*—great sage; *aham*—I; *atha*—thus; *ambhasi*—in the deep water; *matsya-saṅgāt*—by associating with the fish; *pañcāśat*—fifty; *āsam*—got wives; *uta*—and what to speak of begetting one hundred sons in each of them; *pañca-sahasra-sargaḥ*—procreation of five thousand; *na antam*—no end; *vrajāmi*—I can find; *ubhaya-kṛtya*—duties of this life and the next; *manorathānām*—mental concoctions; *māyā-guṇaiḥ*—influenced by the modes of material nature; *hṛta*—lost; *matiḥ viṣaye*—great attraction for material things; *artha-bhāvaḥ*—matters of self-interest.

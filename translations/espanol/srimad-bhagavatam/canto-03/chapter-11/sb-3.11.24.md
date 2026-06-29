@@ -2,7 +2,7 @@
 
 > स्वं स्वं कालं मनुर्भुङ्क्ते साधिकां ह्येकसप्तति ॥२४॥
 
-> svaṁ svaṁ kālaṁ manur bhuṅkte
+> svaṁ svaṁ kālaṁ manur bhuṅkte\
 > sādhikāṁ hy eka-saptatim
 
 *svam*—propio; *svam*—conforme a ello; *kālam*—duración de la vida; *manuḥ*—*manu*; *bhuṅkte*—disfruta; *sa-adhikām*—un poco más de; *hi*—ciertamente; *eka-saptatim*—setenta y uno.

@@ -1,13 +1,13 @@
 ### SB 7.9.12
 
-> तस्मादहं विगतविक्लव ईश्वरस्य
-> सर्वात्मना महि गृणामि यथा मनीषम
-> नीचोऽजया गुणविसर्गमनुप्रविष्टः
+> तस्मादहं विगतविक्लव ईश्वरस्य\
+> सर्वात्मना महि गृणामि यथा मनीषम\
+> नीचोऽजया गुणविसर्गमनुप्रविष्टः\
 > पूयेत येन हि पुमाननुवर्णितेन ॥१२॥
 
-> tasmād ahaṁ vigata-viklava īśvarasya
-> sarvātmanā mahi gṛṇāmi yathā manīṣam
-> nīco 'jayā guṇa-visargam anupraviṣṭaḥ
+> tasmād ahaṁ vigata-viklava īśvarasya\
+> sarvātmanā mahi gṛṇāmi yathā manīṣam\
+> nīco 'jayā guṇa-visargam anupraviṣṭaḥ\
 > pūyeta yena hi pumān anuvarṇitena
 
 *tasmāt*—therefore; *aham*—I; *vigata-viklavaḥ*—having given up contemplation of being unfit; *īśvarasya*—of the Supreme Personality of Godhead; *sarva-ātmanā*—in full surrender; *mahi*—glory; *gṛṇāmi*—I shall chant or describe; *yathā manīṣam*—according to my intelligence; *nīcaḥ*—although lowborn (my father being a great demon, devoid of all good qualities); *ajayā*—because of ignorance; *guṇa-visargam*—the material world (wherein the living entity takes birth according to the contamination of the modes of nature); *anupraviṣṭaḥ*—entered into; *pūyeta*—may be purified; *yena*—by which (the glory of the Lord); *hi*—indeed; *pumān*—a person; *anuvarṇitena*—being chanted or recited.

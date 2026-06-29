@@ -1,9 +1,9 @@
 ### CC Adi 2.71
 
-> পূর্বপক্ষ কহে — তোমার ভালত’ ব্যাখ্যান ।
+> পূর্বপক্ষ কহে — তোমার ভালত’ ব্যাখ্যান ।\
 > পরব্যোম-নারায়ণ স্বয়ং-ভগবান্ ॥৭১॥
 
-> pūrva-pakṣa kahe—tomāra bhāla ta' vyākhyāna
+> pūrva-pakṣa kahe—tomāra bhāla ta' vyākhyāna\
 > paravyoma-nārāyaṇa svayaṁ-bhagavān
 
 *pūrva-pakṣa*—opposing side; *kahe*—says; *tomāra*—your; *bhāla*—nice; *ta'*—certainly; *vyākhyāna*—exposition; *para-vyoma*—situated in the spiritual sky; *nārāyaṇa*—Lord Nārāyaṇa; *svayam*—Himself; *bhagavān*—the Supreme Personality of Godhead.

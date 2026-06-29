@@ -1,13 +1,13 @@
 ### SB 2.10.51
 
-> सूत उवाच
-> राज्ञा परीक्षिता पृष्टो यदवोचन्महामुनिः ।
+> सूत उवाच\
+> राज्ञा परीक्षिता पृष्टो यदवोचन्महामुनिः ।\
 > तद्वोऽभिधास्ये शृणुत राअज्ञः प्रश्नानुसारतः ॥५१॥
 
-> sūta uvāca
-> rājñā parīkṣitā pṛṣṭo
-> yad avocan mahā-muniḥ
-> tad vo 'bhidhāsye śṛṇuta
+> sūta uvāca\
+> rājñā parīkṣitā pṛṣṭo\
+> yad avocan mahā-muniḥ\
+> tad vo 'bhidhāsye śṛṇuta\
 > rājñaḥ praśnānusārataḥ
 
 *sūtaḥ uvāca*—Śrī Sūta Gosvāmī respondió; *rājñā*—por el rey; *parīkṣitā*—por Parīkṣit; *pṛṣṭaḥ*—como fue preguntado; *yat*—que; *avocat*—habló; *mahā-muniḥ*—el gran sabio; *tat*—esa misma cosa; *vaḥ*—a ustedes; *abhidhāsye*—he de explicar; *śṛṇuta*—por favor, oigan; *rājñaḥ*—por el rey; *praśna*—pregunta; *anusārataḥ*—de acuerdo con.

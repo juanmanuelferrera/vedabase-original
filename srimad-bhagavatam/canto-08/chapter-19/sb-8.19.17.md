@@ -1,11 +1,11 @@
 ### SB 8.19.17
 
-> नान्यत्ते कामये राजन्वदान्याज्जगदीश्वरात
+> नान्यत्ते कामये राजन्वदान्याज्जगदीश्वरात\
 > नैनः प्राप्नोति वै विद्वान्यावदर्थप्रतिग्रहः ॥१७॥
 
-> nānyat te kāmaye rājan
-> vadānyāj jagad-īśvarāt
-> nainaḥ prāpnoti vai vidvān
+> nānyat te kāmaye rājan\
+> vadānyāj jagad-īśvarāt\
+> nainaḥ prāpnoti vai vidvān\
 > yāvad-artha-pratigrahaḥ
 
 *na*—not; *anyat*—anything else; *te*—from you; *kāmaye*—I beg; *rājan*—O King; *vadānyāt*—who are so munificent; *jagat-īśvarāt*—who are the king of the entire universe; *na*—not; *enaḥ*—distress; *prāpnoti*—gets; *vai*—indeed; *vidvān*—one who is learned; *yāvat-artha*—as much as one needs; *pratigrahaḥ*—taking charity from others.

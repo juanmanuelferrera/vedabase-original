@@ -1,11 +1,11 @@
 ### SB 4.4.12
 
-> दोषान्परेषां हि गुणेषु साधवो गृह्णन्ति केचिन्न भवादृशो द्विज ।
+> दोषान्परेषां हि गुणेषु साधवो गृह्णन्ति केचिन्न भवादृशो द्विज ।\
 > गुणांश्च फल्गून्बहुलीकरिष्णवो महत्तमास्तेष्वविदद्भवानघम् ॥१२॥
 
-> doṣān pareṣāṁ hi guṇeṣu sādhavo
-> gṛhṇanti kecin na bhavādṛśo dvija
-> guṇāṁś ca phalgūn bahulī-kariṣṇavo
+> doṣān pareṣāṁ hi guṇeṣu sādhavo\
+> gṛhṇanti kecin na bhavādṛśo dvija\
+> guṇāṁś ca phalgūn bahulī-kariṣṇavo\
 > mahattamās teṣv avidad bhavān agham
 
 *doṣān*—faults; *pareṣām*—of others; *hi*—for; *guṇeṣu*—in the qualities; *sādhavaḥ*—*sādhus*; *gṛhṇanti*—find; *kecit*—some; *na*—not; *bhavādṛśaḥ*—like you; *dvija*—O twice-born; *guṇān*—qualities; *ca*—and; *phalgūn*—small; *bahulī-kariṣṇavaḥ*—greatly magnifies; *mahat-tamāḥ*—the greatest persons; *teṣu*—among them; *avidat*—find; *bhavān*—you; *agham*—the fault.

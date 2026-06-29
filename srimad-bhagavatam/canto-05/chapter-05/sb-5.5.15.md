@@ -1,14 +1,14 @@
 ### SB 5.5.15
 
-> पुत्रांश्च शिष्यांश्च नृपो गुरुर्वा मल्लोककामो मदनुग्रहार्थः
-> इत्थं विमन्युरनुशिष्यादतजज्ञआन्न योजयेत्कर्मसु कर्ममूढान
+> पुत्रांश्च शिष्यांश्च नृपो गुरुर्वा मल्लोककामो मदनुग्रहार्थः\
+> इत्थं विमन्युरनुशिष्यादतजज्ञआन्न योजयेत्कर्मसु कर्ममूढान\
 > कं योजयन्मनुजोऽर्थं लभेत निपातयन्नष्टदृशं हि गर्ते ॥१५॥
 
-> putrāṁś ca śiṣyāṁś ca nṛpo gurur vā
-> mal-loka-kāmo mad-anugrahārthaḥ
-> itthaṁ vimanyur anuśiṣyād ataj-jñān
-> na yojayet karmasu karma-mūḍhān
-> kaṁ yojayan manujo 'rthaṁ labheta
+> putrāṁś ca śiṣyāṁś ca nṛpo gurur vā\
+> mal-loka-kāmo mad-anugrahārthaḥ\
+> itthaṁ vimanyur anuśiṣyād ataj-jñān\
+> na yojayet karmasu karma-mūḍhān\
+> kaṁ yojayan manujo 'rthaṁ labheta\
 > nipātayan naṣṭa-dṛśaṁ hi garte
 
 *putrān*—the sons; *ca*—and; *śiṣyān*—the disciples; *ca*—and; *nṛpaḥ*—the king; *guruḥ*—the spiritual master; *vā*—or; *mat-loka-kāmaḥ*—desiring to go to My abode; *mat-anugraha-arthaḥ*—thinking that to achieve My mercy is the aim of life; *ittham*—in this manner; *vimanyuḥ*—free from anger; *anuśiṣyāt*—should instruct; *a-tat-jñān*—bereft of spiritual knowledge; *na*—not; *yojayet*—should engage; *karmasu*—in fruitive activities; *karma-mūḍhān*—simply engaged in pious or impious activities; *kam*—what; *yojayan*—engaging; *manu-jaḥ*—a man; *artham*—benefit; *labheta*—can achieve; *nipātayan*—causing to fall; *naṣṭa-dṛśam*—one who is already bereft of his transcendental sight; *hi*—indeed; *garte*—in the hole.

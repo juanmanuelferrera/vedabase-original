@@ -1,11 +1,11 @@
 ### SB 4.22.16
 
-> व्यक्तमात्मवतामात्मा भगवानात्मभावनः ।
+> व्यक्तमात्मवतामात्मा भगवानात्मभावनः ।\
 > स्वानामनुग्रहायेमां सिद्धरूपी चरत्यजः ॥१६॥
 
-> vyaktam ātmavatām ātmā
-> bhagavān ātma-bhāvanaḥ
-> svānām anugrahāyemāṁ
+> vyaktam ātmavatām ātmā\
+> bhagavān ātma-bhāvanaḥ\
+> svānām anugrahāyemāṁ\
 > siddha-rūpī caraty ajaḥ
 
 *vyaktam*—clear; *ātma-vatām*—of the transcendentalists; *ātmā*—the goal of life; *bhagavān*—the Supreme Personality of Godhead; *ātma-bhāvanaḥ*—always wishing to elevate the living entities; *svānām*—whose own devotees; *anugrahāya*—just to show mercy; *imām*—this way; *siddha-rūpī*—perfectly self-realized; *carati*—travels; *ajaḥ*—Nārāyaṇa.

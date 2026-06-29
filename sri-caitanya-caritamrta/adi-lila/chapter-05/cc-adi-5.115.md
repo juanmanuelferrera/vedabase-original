@@ -1,9 +1,9 @@
 ### CC Adi 5.115
 
-> তবে অবতরি’ করে জগৎ পালন ।
+> তবে অবতরি’ করে জগৎ পালন ।\
 > অনন্ত বৈভব তাঁর নাহিক গণন ॥১১৫॥
 
-> tabe avatari' kare jagat pālana
+> tabe avatari' kare jagat pālana\
 > ananta vaibhava tāṅra nāhika gaṇana
 
 *tabe*—at that time; *avatari'*—descending; *kare*—does; *jagat pālana*—maintenance of the material world; *ananta*—unlimited; *vaibhava*—the opulences; *tāṅra*—of Him; *nāhika*—there is not; *gaṇana*—counting.

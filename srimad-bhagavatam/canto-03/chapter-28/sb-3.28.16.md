@@ -1,11 +1,11 @@
 ### SB 3.28.16
 
-> काञ्चीगुणोल्लसच्छ्रोणिं हृदयाम्भोजविष्टरम् ।
+> काञ्चीगुणोल्लसच्छ्रोणिं हृदयाम्भोजविष्टरम् ।\
 > दर्शनीयतमं शान्तं मनोनयनवर्धनम् ॥१६॥
 
-> kāñcī-guṇollasac-chroṇiṁ
-> hṛdayāmbhoja-viṣṭaram
-> darśanīyatamaṁ śāntaṁ
+> kāñcī-guṇollasac-chroṇiṁ\
+> hṛdayāmbhoja-viṣṭaram\
+> darśanīyatamaṁ śāntaṁ\
 > mano-nayana-vardhanam
 
 *kāñcī*—girdle; *guṇa*—quality; *ullasat*—brilliant; *śroṇim*—His loins and hips; *hṛdaya*—heart; *ambhoja*—lotus; *viṣṭaram*—whose seat; *darśanīya-tamam*—most charming to look at; *śāntam*—serene; *manaḥ*—minds, hearts; *nayana*—eyes; *vardhanam*—gladdening.

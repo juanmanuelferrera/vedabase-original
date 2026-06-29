@@ -1,9 +1,9 @@
 ### CC Antya 6.111
 
-> রাঘব-ঠাকুরের প্রসাদ অমৃতের সার  ।
+> রাঘব-ঠাকুরের প্রসাদ অমৃতের সার  ।\
 > মহাপ্রভু যাহা খাইতে আইসে বার বার ॥১১১॥
 
-> rāghava-ṭhākurera prasāda amṛtera sāra
+> rāghava-ṭhākurera prasāda amṛtera sāra\
 > mahāprabhu yāhā khāite āise bāra bāra
 
 *rāghava-ṭhākurera*—de Rāghava Paṇḍita; *prasāda*—comida ofrecida a la Deidad; *amṛtera sāra*—la esencia del néctar; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *yāhā*—la cual; *khāite*—para comer; *āise*—venía; *bāra bāra*—una y otra vez.

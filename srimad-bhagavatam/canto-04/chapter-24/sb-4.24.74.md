@@ -1,11 +1,11 @@
 ### SB 4.24.74
 
-> अथेदं नित्यदा युक्तो जपन्नवहितः पुमान् ।
+> अथेदं नित्यदा युक्तो जपन्नवहितः पुमान् ।\
 > अचिराच्छ्रेय आप्नोति वासुदेवपरायणः ॥७४॥
 
-> athedaṁ nityadā yukto
-> japann avahitaḥ pumān
-> acirāc chreya āpnoti
+> athedaṁ nityadā yukto\
+> japann avahitaḥ pumān\
+> acirāc chreya āpnoti\
 > vāsudeva-parāyaṇaḥ
 
 *atha*—thus; *idam*—this; *nityadā*—regularly; *yuktaḥ*—with great attention; *japan*—by murmuring; *avahitaḥ*—fully attentive; *pumān*—a person; *acirāt*—without delay; *śreyaḥ*—auspiciousness; *āpnoti*—achieves; *vāsudeva-parāyaṇaḥ*—one who is a devotee of Lord Kṛṣṇa.

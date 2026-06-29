@@ -1,11 +1,11 @@
 ### SB 2.5.25
 
-> तामसादपि भूतादेर्विकुर्वाणादभून्नभः ।
+> तामसादपि भूतादेर्विकुर्वाणादभून्नभः ।\
 > तस्य मात्रा गुणः शब्दो लिङ्गं यद्द्रष्टृदृश्ययोः ॥२५॥
 
-> tāmasād api bhūtāder
-> vikurvāṇād abhūn nabhaḥ
-> tasya mātrā guṇaḥ śabdo
+> tāmasād api bhūtāder\
+> vikurvāṇād abhūn nabhaḥ\
+> tasya mātrā guṇaḥ śabdo\
 > liṅgaṁ yad draṣṭṛ-dṛśyayoḥ
 
 *tāmasāt*—from the darkness of false ego; *api*—certainly; *bhūta-ādeḥ*—of the material elements; *vikurvāṇāt*—because of transformation; *abhūt*—generated; *nabhaḥ*—the sky; *tasya*—its; *mātrā*—subtle form; *guṇaḥ*—quality; *śabdaḥ*—sound; *liṅgam*—characteristics; *yat*—as its; *draṣṭṛ*—the seer; *dṛśyayoḥ*—of what is seen.

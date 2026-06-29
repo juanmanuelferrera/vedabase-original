@@ -1,9 +1,9 @@
 ### CC Madhya 17.95
 
-> আপন-প্রারব্ধে বসি’ বারাণসী-স্থানে ।
+> আপন-প্রারব্ধে বসি’ বারাণসী-স্থানে ।\
 > ‘মায়া’, ‘ব্রহ্ম’ শব্দ বিনা নাহি শুনি কাণে ॥৯৫॥
 
-> āpana-prārabdhe vasi' vārāṇasī-sthāne
+> āpana-prārabdhe vasi' vārāṇasī-sthāne\
 > 'māyā', 'brahma' śabda vinā nāhi śuni kāṇe
 
 *āpana-prārabdhe*—because of my past deeds; *vasi'*—staying; *vārāṇasī-sthāne*—in the place known as Vārāṇasī; *māyā*—*māyā*; *brahma*—and *brahma*; *śabda*—the words; *vinā*—except; *nāhi śuni*—I do not hear; *kāṇe*—in the ear.

@@ -1,14 +1,14 @@
 ### SB 4.24.42
 
-> नमस्त आशिषामीश मनवे कारणात्मने ।
-> नमो धर्माय बृहते कृष्णायाकुण्ठमेधसे ।
+> नमस्त आशिषामीश मनवे कारणात्मने ।\
+> नमो धर्माय बृहते कृष्णायाकुण्ठमेधसे ।\
 > पुरुषाय पुराणाय साङ्ख्ययोगेश्वराय च ॥४२॥
 
-> namas ta āśiṣām īśa
-> manave kāraṇātmane
-> namo dharmāya bṛhate
-> kṛṣṇāyākuṇṭha-medhase
-> puruṣāya purāṇāya
+> namas ta āśiṣām īśa\
+> manave kāraṇātmane\
+> namo dharmāya bṛhate\
+> kṛṣṇāyākuṇṭha-medhase\
+> puruṣāya purāṇāya\
 > sāṅkhya-yogeśvarāya ca
 
 *namaḥ*—ofreciendo reverencias; *te*—a Ti; *āśiṣām īśa*—¡oh, supremo entre los que otorgan bendiciones!; *manave*—a la mente suprema o *manu* supremo; *kāraṇa-ātmane*—la causa suprema de todas las causas; *namaḥ*—ofrecer reverencias; *dharmāya*—a aquel que conoce lo mejor de toda religión; *bṛhate*—el más grande; *kṛṣṇāya*—a Kṛṣṇa; *akuṇṭha-medhase*—a aquel cuya actividad cerebral no encuentra obstáculos; *puruṣāya*—la Persona Suprema; *purāṇāya*—el más antiguo de los antiguos; *sāṅkhya-yoga-īśvarāya*—el maestro de los principios del *sāṅkhya-yoga*; *ca*—y.

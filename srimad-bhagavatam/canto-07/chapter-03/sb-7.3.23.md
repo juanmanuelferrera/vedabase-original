@@ -1,14 +1,14 @@
 ### SB 7.3.23
 
-> स तत्कीचकवल्मीकात्सहओजोबलान्वितः
-> सर्वावयवसम्पन्नो वज्रसंहननो युवा
+> स तत्कीचकवल्मीकात्सहओजोबलान्वितः\
+> सर्वावयवसम्पन्नो वज्रसंहननो युवा\
 > उत्थितस्तप्तहेमाभो विभावसुरिवैधसः ॥२३॥
 
-> sa tat kīcaka-valmīkāt
-> saha-ojo-balānvitaḥ
-> sarvāvayava-sampanno
-> vajra-saṁhanano yuvā
-> utthitas tapta-hemābho
+> sa tat kīcaka-valmīkāt\
+> saha-ojo-balānvitaḥ\
+> sarvāvayava-sampanno\
+> vajra-saṁhanano yuvā\
+> utthitas tapta-hemābho\
 > vibhāvasur ivaidhasaḥ
 
 *saḥ*—Hiraṇyakaśipu; *tat*—that; *kīcaka-valmīkāt*—from the anthill and bamboo grove; *sahaḥ*—mental strength; *ojaḥ*—strength of the senses; *bala*—and sufficient bodily strength; *anvitaḥ*—endowed with; *sarva*—all; *avayava*—the limbs of the body; *sampannaḥ*—fully restored; *vajra-saṁhananaḥ*—having a body as strong as a thunderbolt; *yuvā*—young; *utthitaḥ*—arisen; *tapta-hema-ābhaḥ*—whose bodily luster became like molten gold; *vibhāvasuḥ*—fire; *iva*—like; *edhasaḥ*—from fuel wood.

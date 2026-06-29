@@ -1,11 +1,11 @@
 ### SB 7.13.32
 
-> राजतश्चौरतः शत्रोः स्वजनात्पशुपक्षितः
+> राजतश्चौरतः शत्रोः स्वजनात्पशुपक्षितः\
 > अर्थिभ्यः कालतः स्वस्मान्नित्यं प्राणार्थवद्भयम ॥३२॥
 
-> paśyāmi dhanināṁ kleśaṁ
-> lubdhānām ajitātmanām
-> bhayād alabdha-nidrāṇāṁ
+> paśyāmi dhanināṁ kleśaṁ\
+> lubdhānām ajitātmanām\
+> bhayād alabdha-nidrāṇāṁ\
 > sarvato 'bhiviśaṅkinām
 
 *paśyāmi*—en la práctica puedo ver; *dhaninām*—de personas que son muy ricas; *kleśam*—las miserias; *lubdhānām*—que son sumamente codiciosas; *ajita-ātmanām*—víctimas de sus sentidos; *bhayāt*—debido al miedo; *alabdha-nidrāṇām*—que sufren de insomnio; *sarvataḥ*—de todas partes; *abhiviśaṅ-kinām*—particularmente temerosos.

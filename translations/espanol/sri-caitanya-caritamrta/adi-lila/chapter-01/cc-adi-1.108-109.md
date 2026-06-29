@@ -1,14 +1,14 @@
 ### CC Adi 1.108-109
 
-> শ্রীচৈতন্য-নিত্যানন্দ-অদ্বৈত-মহত্ত্ব ।
-> তাঁর ভক্ত-ভক্তি-নাম-প্রেম-রসতত্ত্ব ॥১০৮॥
-> ভিন্ন ভিন্ন লিখিয়াছি করিয়া বিচার ।
+> শ্রীচৈতন্য-নিত্যানন্দ-অদ্বৈত-মহত্ত্ব ।\
+> তাঁর ভক্ত-ভক্তি-নাম-প্রেম-রসতত্ত্ব ॥১০৮॥\
+> ভিন্ন ভিন্ন লিখিয়াছি করিয়া বিচার ।\
 > শুনিলে জানিবে সব বস্তুতত্ত্বসার ॥১০৯॥
 
-> śrī-caitanya-nityānanda-advaita-mahattva
+> śrī-caitanya-nityānanda-advaita-mahattva\
 > tāṅra bhakta-bhakti-nāma-prema-rasa-tattva
 
-> bhinna bhinna likhiyāchi kariyā vicāra
+> bhinna bhinna likhiyāchi kariyā vicāra\
 > śunile jānibe saba vastu-tattva-sāra
 
 *śrī-caitanya*—del Señor Caitanya Mahāprabhu; *nityānanda*—del Señor Nityānanda; *advaita*—de Śrī Advaita; *mahattva*—grandeza; *tāṅra*—Suyos; *bhakta*—devotos; *bhakti*—devoción; *nāma*—nombres; *prema*—amor; *rasa*—melosidades; *tattva*—verdadera naturaleza; *bhinna bhinna*—diferentes; *likhiyāchi*—escribí; *kariyā*—haciendo; *vicāra*—consideración; *śunile*—al escuchar; *jānibe*—conocerá; *saba*—todas; *vastu-tattva-sāra*—la esencia de la Verdad Absoluta.

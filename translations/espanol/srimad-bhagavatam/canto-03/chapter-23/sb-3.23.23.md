@@ -1,11 +1,11 @@
 ### SB 3.23.23
 
-> निमज्ज्यास्मिन्ह्रदे भीरु विमानमिदमारुह ।
+> निमज्ज्यास्मिन्ह्रदे भीरु विमानमिदमारुह ।\
 > इदं शुक्लकृतं तीर्थमाशिषां यापकं नृणाम् ॥२३॥
 
-> nimajjyāsmin hrade bhīru
-> vimānam idam āruha
-> idaṁ śukla-kṛtaṁ tīrtham
+> nimajjyāsmin hrade bhīru\
+> vimānam idam āruha\
+> idaṁ śukla-kṛtaṁ tīrtham\
 > āśiṣāṁ yāpakaṁ nṛṇām
 
 *nimajjya*—después de bañarte; *asmin*—en este; *hrade*—en el lago; *bhīru*—¡oh, mujer temerosa!; *vimānam*—avión; *idam*—a este; *āruha*—asciende; *idam*—este; *śukla-kṛtam*—creado por el Señor Viṣṇu; *tīrtham*—lago sagrado; *āśiṣām*—los deseos; *yāpakam*—concediendo; *nṛṇām*—de los seres humanos.

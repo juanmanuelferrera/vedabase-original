@@ -1,12 +1,12 @@
 ### CC Madhya 8.183-184
 
-> yāṅra saubhāgya-guṇa vāñche satyabhāmā
+> yāṅra saubhāgya-guṇa vāñche satyabhāmā\
 > yāṅra ṭhāñi kalā-vilāsa śikhe vraja-rāmā
 
-> yāṅra saubhāgya-guṇa vāñche satyabhāmā
+> yāṅra saubhāgya-guṇa vāñche satyabhāmā\
 > yāṅra ṭhāñi kalā-vilāsa śikhe vraja-rāmā
 
-> yāṅra saundaryādi-guṇa vāñche lakṣmī-pārvatī
+> yāṅra saundaryādi-guṇa vāñche lakṣmī-pārvatī\
 > yāṅra pativratā-dharma vāñche arundhatī
 
 *yāṅra*—de quien; *saubhāgya*—de la buena fortuna; *guṇa*—la cualidad; *vāñche*—desea; *satyabhāmā*—Satyābhāmā, una de las reinas de Kṛṣṇa; *yāṅra ṭhāñi*—de quien; *kalā-vilāsa*—las sesenta y cuatro artes; *śikhe*—aprenden; *vraja-rāmā*—todas las *gopīs* de Vṛndāvana; *yāṅra*—de quien; *saundarya-ādi*—como la belleza; *guṇa*—las cualidades; *vāñche*—desea; *lakṣmī*—la diosa de la fortuna; *pārvatī*—la esposa del Señor Śiva; *yāṅra*—de quien; *pati-vratā*—de la castidad; *dharma*—el principio; *vāñche*—desea; *arundhatī*—la esposa de Vasiṣṭha Muni.

@@ -1,13 +1,13 @@
 ### SB 4.9.9
 
-> नूनं विमुष्टमतयस्तव मायया ते
-> ये त्वां भवाप्ययविमोक्षणमन्यहेतोः ।
-> अर्चन्ति कल्पकतरुं कुणपोपभोग्यम्
+> नूनं विमुष्टमतयस्तव मायया ते\
+> ये त्वां भवाप्ययविमोक्षणमन्यहेतोः ।\
+> अर्चन्ति कल्पकतरुं कुणपोपभोग्यम्\
 > इच्छन्ति यत्स्पर्शजं निरयेऽपि न्णाम् ॥९॥
 
-> nūnaṁ vimuṣṭa-matayas tava māyayā te
-> ye tvāṁ bhavāpyaya-vimokṣaṇam anya-hetoḥ
-> arcanti kalpaka-taruṁ kuṇapopabhogyam
+> nūnaṁ vimuṣṭa-matayas tava māyayā te\
+> ye tvāṁ bhavāpyaya-vimokṣaṇam anya-hetoḥ\
+> arcanti kalpaka-taruṁ kuṇapopabhogyam\
 > icchanti yat sparśajaṁ niraye 'pi nṝṇām
 
 *nūnam*—certainly; *vimuṣṭa-matayaḥ*—those who have lost their right intelligence; *tava*—Your; *māyayā*—by the influence of the illusory energy; *te*—they; *ye*—who; *tvām*—You; *bhava*—from birth; *apyaya*—and death; *vimokṣaṇam*—the cause of liberation; *anya-hetoḥ*—for other purposes; *arcanti*—worship; *kalpaka-tarum*—who are like the desire tree; *kuṇapa*—of this dead body; *upabhogyam*—sense gratification; *icchanti*—they desire; *yat*—that which; *sparśa-jam*—derived by touch sensation; *niraye*—in hell; *api*—even; *nṝṇām*—for persons.

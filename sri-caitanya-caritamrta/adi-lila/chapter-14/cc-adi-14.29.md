@@ -1,9 +1,9 @@
 ### CC Adi 14.29
 
-> মাটি — দেহ, মাটি — ভক্ষ্য, দেখহ বিচারি’ ।
+> মাটি — দেহ, মাটি — ভক্ষ্য, দেখহ বিচারি’ ।\
 > অবিচারে দেহ দোষ, কি বলিতে পারি ॥২৯॥
 
-> māṭi—deha, māṭi—bhakṣya, dekhaha vicāri'
+> māṭi—deha, māṭi—bhakṣya, dekhaha vicāri'\
 > avicāre deha doṣa, ki balite pāri
 
 *māṭi*—dirt; *deha*—this body; *māṭi*—dirt; *bhakṣya*—eatable; *dekhaha*—just try to see; *vicāri'*—by consideration; *avicāre*—without considering; *deha*—you put; *doṣa*—fault upon Me; *ki*—what; *balite*—to say; *pāri*—I am able.

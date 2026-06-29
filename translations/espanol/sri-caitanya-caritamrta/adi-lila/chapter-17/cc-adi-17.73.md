@@ -1,9 +1,9 @@
 ### CC Adi 17.73
 
-> নামে স্তুতিবাদ শুনি’ প্রভুর হৈল দুঃখ ।
+> নামে স্তুতিবাদ শুনি’ প্রভুর হৈল দুঃখ ।\
 > সবারে নিষেধিল, — ইহার না দেখিহ মুখ ॥৭৩॥
 
-> nāme stuti-vāda śuni' prabhura haila duḥkha
+> nāme stuti-vāda śuni' prabhura haila duḥkha\
 > sabāre niṣedhila,--ihāra nā dekhiha mukha
 
 *nāme*—en el santo nombre del Señor; *stuti-vāda*—exageración; *śuni'*—al oír; *prabhura*—del Señor; *haila*—se puso; *duḥkha*—afligido; *sabāre*—a todos; *niṣedhila*—advirtió; *ihāra*—de él; *nā*—no; *dekhiha*—miréis; *mukha*—el rostro.

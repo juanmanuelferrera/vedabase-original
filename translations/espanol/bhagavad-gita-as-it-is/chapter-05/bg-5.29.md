@@ -1,11 +1,11 @@
 ### Bg 5.29
 
-> भोक्तारं यज्ञतपसां सर्वलोकमहेश्वरम् ।
+> भोक्तारं यज्ञतपसां सर्वलोकमहेश्वरम् ।\
 > सुहृदं सर्वभूतानां ज्ञात्वा मां शान्तिमृच्छति ॥२९॥
 
-> bhoktāraṁ yajña-tapasāṁ
-> sarva-loka-maheśvaram
-> suhṛdaṁ sarva-bhūtānāṁ
+> bhoktāraṁ yajña-tapasāṁ\
+> sarva-loka-maheśvaram\
+> suhṛdaṁ sarva-bhūtānāṁ\
 > jñātvā māṁ śāntim ṛcchati
 
 *bhoktāram*—beneficiario; *yajña*—sacrificios; *tapasām*—de penitencias y austeridades; *sarva-loka*—todos los planetas con sus respectivos semidioses; *maheśvaram*—el Señor Supremo; *suhṛdam*—benefactor; *sarva*—todas; *bhūtānām*—de las entidades vivientes; *jñātvā*—conociendo así; *mam*—a Mí (el Señor Kṛṣṇa); *śāntim*—alivio de los tormentos materiales; *ṛcchati*—logra.

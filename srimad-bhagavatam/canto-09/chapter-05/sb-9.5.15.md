@@ -1,11 +1,11 @@
 ### SB 9.5.15
 
-> दुष्करः को नु साधूनां दुस्त्यजो वा महात्मनाम
+> दुष्करः को नु साधूनां दुस्त्यजो वा महात्मनाम\
 > यैः सङ्गृहीतो भगवान्सात्वतामृषभो हरिः ॥१५॥
 
-> duṣkaraḥ ko nu sādhūnāṁ
-> dustyajo vā mahātmanām
-> yaiḥ saṅgṛhīto bhagavān
+> duṣkaraḥ ko nu sādhūnāṁ\
+> dustyajo vā mahātmanām\
+> yaiḥ saṅgṛhīto bhagavān\
 > sātvatām ṛṣabho hariḥ
 
 *duṣkaraḥ*—difficult to do; *kaḥ*—what; *nu*—indeed; *sādhūnām*—of the devotees; *dustyajaḥ*—impossible to give up; *vā*—either; *mahā-ātmanām*—of the great persons; *yaiḥ*—by which persons; *saṅgṛhītaḥ*—achieved (by devotional service); *bhagavān*—the Supreme Personality of Godhead; *sātvatām*—of the pure devotees; *ṛṣabhaḥ*—the leader; *hariḥ*—the Lord.

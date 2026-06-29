@@ -1,11 +1,11 @@
 ### SB 4.22.46
 
-> स्वमेव ब्राह्मणो भुङ्क्ते स्वं वस्ते स्वं ददाति च ।
+> स्वमेव ब्राह्मणो भुङ्क्ते स्वं वस्ते स्वं ददाति च ।\
 > तस्यैवानुग्रहेणान्नं भुञ्जते क्षत्रियादयः ॥४६॥
 
-> svam eva brāhmaṇo bhuṅkte
-> svaṁ vaste svaṁ dadāti ca
-> tasyaivānugraheṇānnaṁ
+> svam eva brāhmaṇo bhuṅkte\
+> svaṁ vaste svaṁ dadāti ca\
+> tasyaivānugraheṇānnaṁ\
 > bhuñjate kṣatriyādayaḥ
 
 *svam*—own; *eva*—certainly; *brāhmaṇaḥ*—the *brāhmaṇa*; *bhuṅkte*—enjoy; *svam*—own; *vaste*—clothing; *svam*—own; *dadāti*—gives in charity; *ca*—and; *tasya*—his; *eva*—certainly; *anugraheṇa*—by the mercy of; *annam*—food grains; *bhuñjate*—eats; *kṣatriya-ādayaḥ*—other divisions of society, headed by the *kṣatriyas.*

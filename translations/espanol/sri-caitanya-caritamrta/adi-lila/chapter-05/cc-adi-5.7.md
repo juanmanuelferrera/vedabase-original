@@ -1,13 +1,13 @@
 ### CC Adi 5.7
 
-> সঙ্কষর্ণ়ঃ কারণতোয়শায়ী
-> গর্ভোদশায়ী চ পয়োঽব্ধিশায়ী ।
-> শেষশ্চ যস্যাংশকলাঃ স
+> সঙ্কষর্ণ়ঃ কারণতোয়শায়ী\
+> গর্ভোদশায়ী চ পয়োঽব্ধিশায়ী ।\
+> শেষশ্চ যস্যাংশকলাঃ স\
 > নিত্যানন্দাখ্যরামঃ শরণং মমাস্তু ॥৭॥
 
-> saṅkarṣaṇaḥ kāraṇa-toya-śāyī
-> garbhoda-śāyī ca payobdhi-śāyī
-> śeṣaś ca yasyāṁśa-kalāḥ sa nityā-
+> saṅkarṣaṇaḥ kāraṇa-toya-śāyī\
+> garbhoda-śāyī ca payobdhi-śāyī\
+> śeṣaś ca yasyāṁśa-kalāḥ sa nityā-\
 > nandākhya-rāmaḥ śaraṇaṁ mamāstu
 
 *saṅkarṣaṇaḥ*—Mahā-saṅkarṣaṇa en el cielo espiritual; *kāraṇa-toya-śāyī*—Kāraṇodakaśāyī Viṣṇu, que Se recuesta en el Océano Causal; *garbha-uda-śāyī*—Garbhodakaśāyī Viṣṇu, que Se recuesta en el Océano Garbhodaka del universo; *ca*—y; *payaḥ-abdhi-śāyī*—Kṣīrodakaśāyī Viṣṇu, que Se recuesta en el océano de leche; *śeṣaḥ*—Śeṣa Nāga, el lecho de Viṣṇu; *ca*—y; *yasya*—cuyas; *aṁśa*—porciones plenarias; *kalāḥ*—y partes de las porciones plenarias; *saḥ*—Él; *nityānanda-ākhya*—conocido como el Señor Nityānanda; *rāmaḥ*—el Señor Balarāma; *śaraṇam*—refugio; *mama*—mío; *astu*—que sea.

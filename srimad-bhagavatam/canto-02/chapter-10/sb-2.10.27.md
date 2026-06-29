@@ -1,11 +1,11 @@
 ### SB 2.10.27
 
-> उत्सिसृक्षोर्धातुमलं निरभिद्यत वै गुदम् ।
+> उत्सिसृक्षोर्धातुमलं निरभिद्यत वै गुदम् ।\
 > ततः पायुस्ततो मित्र उत्सर्ग उभयाश्रयः ॥२७॥
 
-> utsisṛkṣor dhātu-malaṁ
-> nirabhidyata vai gudam
-> tataḥ pāyus tato mitra
+> utsisṛkṣor dhātu-malaṁ\
+> nirabhidyata vai gudam\
+> tataḥ pāyus tato mitra\
 > utsarga ubhayāśrayaḥ
 
 *utsisṛkṣoḥ*—desiring to evacuate; *dhātu-malam*—refuse of eatables; *nirabhidyata*—became open; *vai*—certainly; *gudam*—the evacuating hole; *tataḥ*—thereafter; *pāyuḥ*—the evacuating sense organ; *tataḥ*—thereafter; *mitraḥ*—the controlling demigod; *utsargaḥ*—the substance evacuated; *ubhaya*—both; *āśrayaḥ*—shelter.

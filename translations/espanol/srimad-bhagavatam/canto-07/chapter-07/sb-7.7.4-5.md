@@ -1,18 +1,18 @@
 ### SB 7.7.4-5
 
-> तेषामतिबलोद्योगं निशम्यासुरयूथपाः
-> वध्यमानाः सुरैर्भीता दुद्रुवुः सर्वतो दिशम ॥४॥
-> कलत्रपुत्रवित्ताप्तान्गृहान्पशुपरिच्छदान
+> तेषामतिबलोद्योगं निशम्यासुरयूथपाः\
+> वध्यमानाः सुरैर्भीता दुद्रुवुः सर्वतो दिशम ॥४॥\
+> कलत्रपुत्रवित्ताप्तान्गृहान्पशुपरिच्छदान\
 > नावेक्ष्यमाणास्त्वरिताः सर्वे प्राणपरीप्सवः ॥५॥
 
-> teṣām atibalodyogaṁ
-> niśamyāsura-yūthapāḥ
-> vadhyamānāḥ surair bhītā
+> teṣām atibalodyogaṁ\
+> niśamyāsura-yūthapāḥ\
+> vadhyamānāḥ surair bhītā\
 > dudruvuḥ sarvato diśam
 
-> kalatra-putra-vittāptān
-> gṛhān paśu-paricchadān
-> nāvekṣyamāṇās tvaritāḥ
+> kalatra-putra-vittāptān\
+> gṛhān paśu-paricchadān\
+> nāvekṣyamāṇās tvaritāḥ\
 > sarve prāṇa-parīpsavaḥ
 
 *teṣām*—de los semidioses, conducidos por el rey Indra; *atibala-udyogam*—la gran fuerza y el arrojo; *niśamya*—escuchar de; *asura-yūthapāḥ*—los grandes líderes de los demonios; *vadhyamānāḥ*—que eran matados uno tras otro; *suraiḥ*—por los semidioses; *bhītāḥ*—temerosos; *dudruvuḥ*—salieron corriendo; *sarvataḥ*—en todas; *diśam*—direcciones; *kalatra*—esposas; *putra-vitta*—hijos y riquezas; *āptān*—familiares; *gṛhān*—hogares; *paśu-paricchadān*—animales y enseres de la vida familiar; *na*—no; *avekṣyamāṇāḥ*—ocuparse de; *tvaritāḥ*—muy deprisa; *sarve*—todos ellos; *prāṇa-parīpsavaḥ*—con un gran deseo de vivir.

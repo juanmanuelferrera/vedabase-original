@@ -1,11 +1,11 @@
 ### SB 1.2.9
 
-> धर्मस्य ह्यापवर्ग्यस्य नार्थोऽर्थायोपकल्पते ।
+> धर्मस्य ह्यापवर्ग्यस्य नार्थोऽर्थायोपकल्पते ।\
 > नार्थस्य धर्मैकान्तस्य कामो लाभाय हि स्मृतः ॥९॥
 
-> dharmasya hy āpavargyasya
-> nārtho 'rthāyopakalpate
-> nārthasya dharmaikāntasya
+> dharmasya hy āpavargyasya\
+> nārtho 'rthāyopakalpate\
+> nārthasya dharmaikāntasya\
 > kāmo lābhāya hi smṛtaḥ
 
 *dharmasya*—occupational engagement; *hi*—certainly; *āpavargyasya*—ultimate liberation; *na*—not; *arthaḥ*—end; *arthāya*—for material gain; *upakalpate*—is meant for; *na*—neither; *arthasya*—of material gain; *dharma-eka-antasya*—for one who is engaged in the ultimate occupational service; *kāmaḥ*—sense gratification; *lābhāya*—attainment of; *hi*—exactly; *smṛtaḥ*—is described by the great sages.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.362
 
-> এই কলিকালে আর নাহি কোন ধর্ম ৷
+> এই কলিকালে আর নাহি কোন ধর্ম ৷\
 > বৈষ্ণব, বৈষ্ণবশাস্ত্র, এই কহে মর্ম ৷৷ ৩৬২ ৷৷ ॥৩৬২॥
 
-> ei kali-kāle āra nāhi kona dharma
+> ei kali-kāle āra nāhi kona dharma\
 > vaiṣṇava, vaiṣṇava-śāstra, ei kahe marma
 
 *ei kali-kāle*—en esta era de Kali; *āra*—otro; *nāhi kona*—no hay ningún; *dharma*—principio religioso; *vaiṣṇava*—devoto; *vaiṣṇava-śāstra*—literatura devocional; *ei kahe marma*—esta es la esencia.

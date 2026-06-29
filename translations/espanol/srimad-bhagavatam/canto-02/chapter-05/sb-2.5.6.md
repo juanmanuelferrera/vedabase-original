@@ -1,11 +1,11 @@
 ### SB 2.5.6
 
-> नाहं वेद परं ह्यस्मिन्नापरं न समं विभो ।
+> नाहं वेद परं ह्यस्मिन्नापरं न समं विभो ।\
 > नामरूपगुणैर्भाव्यं सदसत्किञ्चिदन्यतः ॥६॥
 
-> nāhaṁ veda paraṁ hy asmin
-> nāparaṁ na samaṁ vibho
-> nāma-rūpa-guṇair bhāvyaṁ
+> nāhaṁ veda paraṁ hy asmin\
+> nāparaṁ na samaṁ vibho\
+> nāma-rūpa-guṇair bhāvyaṁ\
 > sad-asat kiñcid anyataḥ
 
 *na*—no; *aham*—yo; *veda*—conozco; *param*—superior; *hi*—por; *asmin*—en este mundo; *na*—tampoco; *aparam*—inferior; *na*—ni; *samam*—igual; *vibho*—¡oh, grandioso!; *nāma*—nombre; *rūpa*—característica; *guṇaiḥ*—mediante las cualidades; *bhāvyam*—todo lo que es creado; *sat*—eterno; *asat*—temporal; *kiñcit*—o cualquier cosa así; *anyataḥ*—de cualquier otra fuente.

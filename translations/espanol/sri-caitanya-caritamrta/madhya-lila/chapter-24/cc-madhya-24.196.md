@@ -1,9 +1,9 @@
 ### CC Madhya 24.196
 
-> উদার মহতী যাঁর সর্বোত্তমা বুদ্ধি ।
+> উদার মহতী যাঁর সর্বোত্তমা বুদ্ধি ।\
 > নানা কামে ভজে, তবু পায় ভক্তিসিদ্ধি ॥১৯৬॥
 
-> udāra mahatī yāṅra sarvottamā buddhi
+> udāra mahatī yāṅra sarvottamā buddhi\
 > nānā kāme bhaje, tabu pāya bhakti-siddhi
 
 *udāra*—generoso; *mahatī*—grande; *yāṅra*—cuya; *sarva-uttamā*—de primera clase; *buddhi*—inteligencia; *nānā*—diversos; *kāme*—con deseos; *bhaje*—se dedica al servicio devocional; *tabu*—aun así; *pāya*—obtiene; *bhakti-siddhi*—perfección en el servicio devocional.

@@ -1,11 +1,11 @@
 ### SB 4.21.30
 
-> दौहित्रादीनृते मृत्योः शोच्यान्धर्मविमोहितान् ।
+> दौहित्रादीनृते मृत्योः शोच्यान्धर्मविमोहितान् ।\
 > वर्गस्वर्गापवर्गाणां प्रायेणैकात्म्यहेतुना ॥३०॥
 
-> dauhitrādīn ṛte mṛtyoḥ
-> śocyān dharma-vimohitān
-> varga-svargāpavargāṇāṁ
+> dauhitrādīn ṛte mṛtyoḥ\
+> śocyān dharma-vimohitān\
+> varga-svargāpavargāṇāṁ\
 > prāyeṇaikātmya-hetunā
 
 *dauhitra-ādīn*—nietos como mi padre, Vena; *ṛte*—excepto; *mṛtyoḥ*—de la personificación de la muerte; *śocyān*—abominables; *dharma-vimohitān*—confundidas con respecto al sendero de la religión; *varga*—religión, crecimiento económico, complacencia de los sentidos y liberación; *svarga*—elevación a los planetas celestiales; *apavargāṇām*—liberadas de la contaminación material; *prāyeṇa*—casi siempre; *eka*—uno; *ātmya*—la Suprema Personalidad de Dios; *hetunā*—a causa de.

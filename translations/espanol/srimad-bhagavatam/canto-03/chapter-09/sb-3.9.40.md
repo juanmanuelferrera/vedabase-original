@@ -1,11 +1,11 @@
 ### SB 3.9.40
 
-> य एतेन पुमान्नित्यं स्तुत्वा स्तोत्रेण मां भजेत् ।
+> य एतेन पुमान्नित्यं स्तुत्वा स्तोत्रेण मां भजेत् ।\
 > तस्याशु सम्प्रसीदेयं सर्वकामवरेश्वरः ॥४०॥
 
-> ya etena pumān nityaṁ
-> stutvā stotreṇa māṁ bhajet
-> tasyāśu samprasīdeyaṁ
+> ya etena pumān nityaṁ\
+> stutvā stotreṇa māṁ bhajet\
+> tasyāśu samprasīdeyaṁ\
 > sarva-kāma-vareśvaraḥ
 
 *yaḥ*—cualquiera que; *etena*—por esto; *pumān*—ser humano; *nityam*—regularmente; *stutvā*—orando; *stotreṇa*—mediante los versos; *mām*—a Mí; *bhajet*—adore; *tasya*—sus; *āśu*—muy pronto; *samprasīdeyam*—he de cumplir; *sarva*—todos; *kāma*—deseos; *vara-īśvaraḥ*—el Señor de toda bendición.

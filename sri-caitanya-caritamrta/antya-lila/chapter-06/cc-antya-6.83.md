@@ -1,9 +1,9 @@
 ### CC Antya 6.83
 
-> তবে হাসি’ নিত্যানন্দ বসিলা আসনে ।
+> তবে হাসি’ নিত্যানন্দ বসিলা আসনে ।\
 > চারি কুণ্ডী আরোয়া চিড়া রাখিলা ডাহিনে ॥৮৩॥
 
-> tabe hāsi' nityānanda vasilā āsane
+> tabe hāsi' nityānanda vasilā āsane\
 > cāri kuṇḍī āroyā ciḍā rākhilā ḍāhine
 
 *tabe hāsi'*—thereupon smiling; *nityānanda*—Lord Nityānanda Prabhu; *vasilā āsane*—sat down on His seat; *cāri kuṇḍī*—four earthen pots; *āroyā ciḍā*—chipped rice not made from boiled paddy; *rākhilā ḍāhine*—He kept on His right side.

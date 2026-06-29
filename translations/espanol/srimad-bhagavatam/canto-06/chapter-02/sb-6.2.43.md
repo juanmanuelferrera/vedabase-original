@@ -1,11 +1,11 @@
 ### SB 6.2.43
 
-> हित्वा कलेवरं तीर्थे गङ्गायां दर्शनादनु
+> हित्वा कलेवरं तीर्थे गङ्गायां दर्शनादनु\
 > सद्यः स्वरूपं जगृहे भगवत्पार्श्ववर्तिनाम ॥४३॥
 
-> hitvā kalevaraṁ tīrthe
-> gaṅgāyāṁ darśanād anu
-> sadyaḥ svarūpaṁ jagṛhe
+> hitvā kalevaraṁ tīrthe\
+> gaṅgāyāṁ darśanād anu\
+> sadyaḥ svarūpaṁ jagṛhe\
 > bhagavat-pārśva-vartinām
 
 *hitvā*—abandonar; *kalevaram*—el cuerpo material; *tīrthe*—en el lugar sagrado; *gaṅgāyām*—a orillas del Ganges; *darśanāt anu*—después de ver; *sadyaḥ*—** inmediatamente; *sva-rūpam*—su forma espiritual original; *jagṛhe*—asumió; *bhagavat-pārśva-vartinām*—que es adecuada para relacionarse con el Señor.

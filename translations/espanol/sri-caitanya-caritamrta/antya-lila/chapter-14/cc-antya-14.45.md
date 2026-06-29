@@ -1,13 +1,13 @@
 ### CC Antya 14.45
 
-> চিন্তা-কান্থা উঢ়ি গায়, ধূলি-বিভূতি-মলিন-কায়,
-> ‘হাহা কৃষ্ণ’ প্রলাপ-উত্তর ।
-> উদ্বেগ দ্বাদশ হাতে, লোভের ঝুলনি মাথে,
+> চিন্তা-কান্থা উঢ়ি গায়, ধূলি-বিভূতি-মলিন-কায়,\
+> ‘হাহা কৃষ্ণ’ প্রলাপ-উত্তর ।\
+> উদ্বেগ দ্বাদশ হাতে, লোভের ঝুলনি মাথে,\
 > ভিক্ষাভাবে ক্ষীণ কলেবর ॥৪৫॥
 
-> cintā-kānthā uḍhi gāya, dhūli-vibhūti-malina-kāya,
-> 'hāhā kṛṣṇa' pralāpa-uttara
-> udvega dvādaśa hāte, lobhera jhulani māthe,
+> cintā-kānthā uḍhi gāya, dhūli-vibhūti-malina-kāya,\
+> 'hāhā kṛṣṇa' pralāpa-uttara\
+> udvega dvādaśa hāte, lobhera jhulani māthe,\
 > bhikṣābhāve kṣīṇa kalevara
 
 *cintā*—de ansiedad; *kānthā*—la colcha raída; *uḍhi*—cubriendo; *gāya*—el cuerpo; *dhūli*—polvo; *vibhūti*—cenizas; *malina-kāya*—cuerpo sucio; *hāhā*—¡ay!; *kṛṣṇa*—Kṛṣṇa; *pralāpa-uttara*—respuestas de loco; *udvega*—aflicción; *dvādaśa*—doce (pulseras); *hāte*—en la muñeca; *lobhera*—de codicia; *jhulani*—turbante; *māthe*—en la cabeza; *bhikṣā-abhāve*—por la ausencia de limosnas; *kṣīṇa*—delgado; *kalevara*—cuerpo.

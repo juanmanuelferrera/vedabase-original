@@ -1,11 +1,11 @@
 ### CC Adi 1.62
 
-> সাধবো হৃদয়ং মহ্যং সাধূনাং হৃদয়ন্ত্বহম্ ।
+> সাধবো হৃদয়ং মহ্যং সাধূনাং হৃদয়ন্ত্বহম্ ।\
 > মদন্যত্তে ন জানন্তি নাহং তেভ্যো মনাগপি ॥৬২॥
 
-> sādhavo hṛdayaṁ mahyaṁ
-> sādhūnāṁ hṛdayaṁ tv aham
-> mad-anyat te na jānanti
+> sādhavo hṛdayaṁ mahyaṁ\
+> sādhūnāṁ hṛdayaṁ tv aham\
+> mad-anyat te na jānanti\
 > nāhaṁ tebhyo manāg api
 
 *sādhavaḥ*—los santos; *hṛdayam*—corazón; *mahyam*—Mío; *sādhūnām*—de los santos; *hṛdayam*—el corazón; *tu*—en verdad; *aham*—Yo; *mat*—que Yo; *anyat*—otro; *te*—ellos; *na*—no; *jānanti*—conocen; *na*—ni; *aham*—Yo; *tebhyaḥ*—que ellos; *manāk*—ligeramente; *api*—siquiera.

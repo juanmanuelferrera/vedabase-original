@@ -1,9 +1,9 @@
 ### CC Madhya 1.97
 
-> ক্ষীর-চুরি-কথা, সাক্ষি-গোপাল-বিবরণ ।
+> ক্ষীর-চুরি-কথা, সাক্ষি-গোপাল-বিবরণ ।\
 > নিত্যানন্দ কৈল প্রভুর দণ্ড-ভঞ্জন ॥৯৭॥
 
-> kṣīra-curi-kathā, sākṣi-gopāla-vivaraṇa
+> kṣīra-curi-kathā, sākṣi-gopāla-vivaraṇa\
 > nityānanda kaila prabhura daṇḍa-bhañjana
 
 *kṣīra-curi-kathā*—la narración del robo de la leche condensada; *sākṣi-gopāla-vivaraṇa*—la descripción del testigo Gopāla; *nityānanda*—Nityānanda Prabhu; *kaila*—realizó; *prabhura*—del Señor; *daṇḍa-bhañjana*—rotura de la vara de sannyāsa.

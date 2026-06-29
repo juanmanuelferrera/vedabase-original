@@ -1,13 +1,13 @@
 ### SB 8.12.10
 
-> नाहं परायुरृषयो न मरीचिमुख्या
-> जानन्ति यद्विरचितं खलु सत्त्वसर्गाः
-> यन्मायया मुषितचेतस ईश दैत्य
+> नाहं परायुरृषयो न मरीचिमुख्या\
+> जानन्ति यद्विरचितं खलु सत्त्वसर्गाः\
+> यन्मायया मुषितचेतस ईश दैत्य\
 > मर्त्यादयः किमुत शश्वदभद्रवृत्ताः ॥१०॥
 
-> nāhaṁ parāyur ṛṣayo na marīci-mukhyā
-> jānanti yad-viracitaṁ khalu sattva-sargāḥ
-> yan-māyayā muṣita-cetasa īśa daitya-
+> nāhaṁ parāyur ṛṣayo na marīci-mukhyā\
+> jānanti yad-viracitaṁ khalu sattva-sargāḥ\
+> yan-māyayā muṣita-cetasa īśa daitya-\
 > martyādayaḥ kim uta śaśvad-abhadra-vṛttāḥ
 
 *na*—ni; *aham*—yo; *para-āyuḥ*—la personalidad que vive durante muchísimos millones de años (el Señor Brahmā); *ṛṣayaḥ*—los siete *ṛṣis* de los siete planetas; *na*—ni; *marīci-mukhyāḥ*—al frente de los cuales está Marīci Ṛṣi; *jānanti*—conocemos; *yat*—por quien (el Señor Supremo); *viracitam*—este universo, que ha sido creado; *khalu*—en verdad; *sattva-sargāḥ*—aunque nacidos bajo la influencia de la modalidad de la bondad; *yat-māyayā*—por la influencia de cuya energía; *muṣita-cetasaḥ*—sus corazones están confundidos; *īśa*—¡oh, mi Señor!; *daitya*—los demonios; *martya-ādayaḥ*—los seres humanos y otros; *kim uta*—qué decir de; *śaśvat*—siempre; *abhadra-vṛttāḥ*—influenciados por las cualidades más bajas de la naturaleza material.

@@ -1,13 +1,13 @@
 ### SB 4.3.15
 
-> ऋषिरुवाच
-> एवं गिरित्रः प्रिययाभिभाषितः प्रत्यभ्यधत्त प्रहसन्सुहृत्प्रियः ।
+> ऋषिरुवाच\
+> एवं गिरित्रः प्रिययाभिभाषितः प्रत्यभ्यधत्त प्रहसन्सुहृत्प्रियः ।\
 > संस्मारितो मर्मभिदः कुवागिषून्यानाह को विश्वसृजां समक्षतः ॥१५॥
 
-> ṛṣir uvāca
-> evaṁ giritraḥ priyayābhibhāṣitaḥ
-> pratyabhyadhatta prahasan suhṛt-priyaḥ
-> saṁsmārito marma-bhidaḥ kuvāg-iṣūn
+> ṛṣir uvāca\
+> evaṁ giritraḥ priyayābhibhāṣitaḥ\
+> pratyabhyadhatta prahasan suhṛt-priyaḥ\
+> saṁsmārito marma-bhidaḥ kuvāg-iṣūn\
 > yān āha ko viśva-sṛjāṁ samakṣataḥ
 
 *ṛṣiḥ uvāca*—el gran sabio Maitreya dijo; *evam*—de este modo; *giritraḥ*—el Señor Śiva; *priyayā*—de su querida esposa; *abhibhāṣitaḥ*—habiendo recibido las palabras; *pratyabhyadhatta*—contestó; *prahasan*—mientras sonreía; *suhṛt-priyaḥ*—querida a los familiares; *saṁsmāritaḥ*—recordando; *marma-bhidaḥ*—que herían el corazón; *kuvāk-iṣūn*—palabras maliciosas; *yān*—las cuales (palabras); *āha*—dijo; *kaḥ*—quien (Dakṣa); *viśva-sṛjām*—de los creadores de la manifestación universal; *samakṣataḥ*—en presencia.

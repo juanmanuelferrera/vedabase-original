@@ -1,13 +1,13 @@
 ### SB 5.17.24
 
-> yan-nirmitāṁ karhy api karma-parvaṇīṁ
-> māyāṁ jano 'yaṁ guṇa-sarga-mohitaḥ
-> na veda nistāraṇa-yogam añjasā
+> yan-nirmitāṁ karhy api karma-parvaṇīṁ\
+> māyāṁ jano 'yaṁ guṇa-sarga-mohitaḥ\
+> na veda nistāraṇa-yogam añjasā\
 > tasmai namas te vilayodayātmane
 
-> yan-nirmitāṁ karhy api karma-parvaṇīṁ
-> māyāṁ jano 'yaṁ guṇa-sarga-mohitaḥ
-> na veda nistāraṇa-yogam añjasā
+> yan-nirmitāṁ karhy api karma-parvaṇīṁ\
+> māyāṁ jano 'yaṁ guṇa-sarga-mohitaḥ\
+> na veda nistāraṇa-yogam añjasā\
 > tasmai namas te vilayodayātmane
 
 *yat*—por quien; *nirmitām*—creadas; *karhi api*—en cualquier momento; *karma-parvaṇīm*—que ata los nudos de la actividad fruitiva; *māyām*—la energía ilusoria; *janaḥ*—una persona; *ayam*—esta; *guṇa-sarga-mohitaḥ*—confundida por las tres modalidades de la naturaleza material; *na*—no; *veda*—conoce; *nistāraṇa-yogam*—el proceso para liberarse del enredo material; *añjasā*—pronto; *tasmai*—a Él (el Supremo); *namaḥ*—reverencias respetuosas; *te*—a Ti; *vilaya-udaya-ātmane*—en quien todo se aniquila y de quien todo vuelve a manifestarse.

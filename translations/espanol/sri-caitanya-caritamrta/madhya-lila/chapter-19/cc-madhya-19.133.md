@@ -1,9 +1,9 @@
 ### CC Madhya 19.133
 
-> চৈতন্যের কৃপা রূপ লিখিয়াছেন আপনে ।
+> চৈতন্যের কৃপা রূপ লিখিয়াছেন আপনে ।\
 > রসামৃতসিন্ধু-গ্রন্থের মঙ্গলাচরণে ॥১৩৩॥
 
-> caitanyera kṛpā rūpa likhiyāchena āpane
+> caitanyera kṛpā rūpa likhiyāchena āpane\
 > rasāmṛta-sindhu-granthera maṅgalācaraṇe
 
 *caitanyera*—del Señor Śrī Caitanya Mahāprabhu; *kṛpā*—la misericordia; *rūpa*—Śrīla Rūpa Gosvāmī; *likhiyāchena*—ha escrito; *āpane*—personalmente; *rasāmṛta-sindhu-granthera*—del libro conocido como *Bhakti-rasāmṛta-sindhu*; *maṅgala-ācaraṇe*—en la auspiciosa introducción.

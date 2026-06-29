@@ -1,11 +1,11 @@
 ### SB 4.20.7
 
-> एकः शुद्धः स्वयंज्योतिर्निर्गुणोऽसौ गुणाश्रयः ।
+> एकः शुद्धः स्वयंज्योतिर्निर्गुणोऽसौ गुणाश्रयः ।\
 > सर्वगोऽनावृतः साक्षी निरात्मात्मात्मनः परः ॥७॥
 
-> ekaḥ śuddhaḥ svayaṁ-jyotir
-> nirguṇo 'sau guṇāśrayaḥ
-> sarva-go 'nāvṛtaḥ sākṣī
+> ekaḥ śuddhaḥ svayaṁ-jyotir\
+> nirguṇo 'sau guṇāśrayaḥ\
+> sarva-go 'nāvṛtaḥ sākṣī\
 > nirātmātmātmanaḥ paraḥ
 
 *ekaḥ*—uno; *śuddhaḥ*—puro; *svayam*—ser; *jyotiḥ*—refulgente; *nirguṇaḥ*—sin cualidades materiales; *asau*—ese; *guṇa-āśrayaḥ*—el receptáculo de las buenas cualidades; *sarva-gaḥ*—capaz de ir a todas partes; *anāvṛtaḥ*—sin estar cubierto por la materia; *sākṣī*—testigo; *nirātmā*—sin otro yo; *ātma-ātmanaḥ*—al cuerpo y la mente; *paraḥ*—trascendental.

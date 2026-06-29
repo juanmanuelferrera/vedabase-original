@@ -1,11 +1,11 @@
 ### SB 2.10.36
 
-> स वाच्यवाचकतया भगवान्ब्रह्मरूपधृक् ।
+> स वाच्यवाचकतया भगवान्ब्रह्मरूपधृक् ।\
 > नामरूपक्रिया धत्ते सकर्माकर्मकः परः ॥३६॥
 
-> sa vācya-vācakatayā
-> bhagavān brahma-rūpa-dhṛk
-> nāma-rūpa-kriyā dhatte
+> sa vācya-vācakatayā\
+> bhagavān brahma-rūpa-dhṛk\
+> nāma-rūpa-kriyā dhatte\
 > sakarmākarmakaḥ paraḥ
 
 *saḥ*—Él; *vācya*—por Sus formas y actividades; *vācakatayā*—por Sus cualidades y séquito trascendentales; *bhagavān*—la Personalidad de Dios; *brahma*—absoluto; *rūpa-dhṛk*—por aceptar formas visibles; *nāma*—nombre; *rūpa*—forma; *kriyā*—pasatiempos; *dhatte*—acepta; *sa-karma*—dedicado a trabajar; *akarmakaḥ*—sin ser afectado; *paraḥ*—trascendencia.

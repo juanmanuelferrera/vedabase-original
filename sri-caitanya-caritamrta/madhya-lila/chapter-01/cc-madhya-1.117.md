@@ -1,9 +1,9 @@
 ### CC Madhya 1.117
 
-> তাহাঞি করিল কূর্মপুরাণ শ্রবণ ।
+> তাহাঞি করিল কূর্মপুরাণ শ্রবণ ।\
 > মায়াসীতা নিলেক রাবণ, তাহাতে লিখন ॥১১৭॥
 
-> tāhāñi karila kūrma-purāṇa śravaṇa
+> tāhāñi karila kūrma-purāṇa śravaṇa\
 > māyā-sītā nileka rāvaṇa, tāhāte likhana
 
 *tāhāñi*—there; *karila*—did; *kūrma-purāṇa*—of the *Kūrma Purāṇa*; *śravaṇa*—hearing; *māyā-sītā*—a false Sītā; *nileka*—kidnapped; *rāvaṇa*—by Rāvaṇa; *tāhāte*—in that book; *likhana*—it is stated.

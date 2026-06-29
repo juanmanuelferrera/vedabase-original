@@ -1,11 +1,11 @@
 ### SB 2.3.16
 
-> वैयासकिश्च भगवान्वासुदेवपरायणः ।
+> वैयासकिश्च भगवान्वासुदेवपरायणः ।\
 > उरुगायगुणोदाराः सतां स्युर्हि समागमे ॥१६॥
 
-> vaiyāsakiś ca bhagavān
-> vāsudeva-parāyaṇaḥ
-> urugāya-guṇodārāḥ
+> vaiyāsakiś ca bhagavān\
+> vāsudeva-parāyaṇaḥ\
+> urugāya-guṇodārāḥ\
 > satāṁ syur hi samāgame
 
 *vaiyāsakiḥ*—the son of Vyāsadeva; *ca*—also; *bhagavān*—full in transcendental knowledge; *vāsudeva*—Lord Kṛṣṇa; *parāyaṇaḥ*—attached to; *urugāya*—of the Personality of Godhead Śrī Kṛṣṇa, who is glorified by great philosophers; *guṇa-udārāḥ*—great qualities; *satām*—of the devotees; *syuḥ*—must have been; *hi*—as a matter of fact; *samāgame*—by the presence of.

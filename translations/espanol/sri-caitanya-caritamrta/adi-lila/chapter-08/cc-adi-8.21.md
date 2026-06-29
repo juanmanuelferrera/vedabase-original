@@ -1,9 +1,9 @@
 ### CC Adi 8.21
 
-> স্বতন্ত্র ঈশ্বর প্রেম-নিগূঢ়ভাণ্ডার ।
+> স্বতন্ত্র ঈশ্বর প্রেম-নিগূঢ়ভাণ্ডার ।\
 > বিলাইল যারে তারে, না কৈল বিচার ॥২১॥
 
-> svatantra īśvara prema-nigūḍha-bhāṇḍāra
+> svatantra īśvara prema-nigūḍha-bhāṇḍāra\
 > bilāila yāre tāre, nā kaila vicāra
 
 *svatantra*—plenamente independiente; *īśvara*—la Suprema Personalidad de Dios; *prema*—amor por Dios; *nigūḍha*—muy confidencial; *bhāṇḍāra*—reserva; *bilāila*—distribuyó; *yāre*—a quienquiera; *tāre*—a todos; *nā*—no; *kaila*—hizo; *vicāra*—consideración.

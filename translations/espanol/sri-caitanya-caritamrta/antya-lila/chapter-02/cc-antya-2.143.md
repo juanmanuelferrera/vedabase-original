@@ -1,9 +1,9 @@
 ### CC Antya 2.143
 
-> মহাপ্রভু — কৃপাসিন্ধু, কে পারে বুঝিতে ?
+> মহাপ্রভু — কৃপাসিন্ধু, কে পারে বুঝিতে ?\
 > প্রিয় ভক্তে দণ্ড করেন ধর্ম বুঝাইতে ॥১৪৩॥
 
-> mahāprabhu--kṛpā-sindhu, ke pāre bujhite?
+> mahāprabhu--kṛpā-sindhu, ke pāre bujhite?\
 > priya bhakte daṇḍa karena dharma bujhāite
 
 *mahāprabhu*—Śrī Caitanya Mahāprabhu; *kṛpā-sindhu*—el océano de misericordia; *ke pāre bujhite*—quién puede comprender; *priya bhakte*—a Sus queridos devotos; *daṇḍa karena*—castiga; *dharma bujhāite*—para restablecer los principios de la religión o del deber.

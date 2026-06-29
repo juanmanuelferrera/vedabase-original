@@ -1,9 +1,9 @@
 ### CC Adi 7.79
 
-> তবে ধৈর্য ধরি’ মনে করিলুঁ বিচার ।
+> তবে ধৈর্য ধরি’ মনে করিলুঁ বিচার ।\
 > কৃষ্ণনামে জ্ঞানাচ্ছন্ন হইল আমার ॥৭৯॥
 
-> tabe dhairya dhari' mane kariluṅ vicāra
+> tabe dhairya dhari' mane kariluṅ vicāra\
 > kṛṣṇa-nāme jñānācchanna ha-ila āmāra
 
 *tabe*—después; *dhairya*—paciencia; *dhari'*—aceptando; *mane*—en la mente; *kariluṅ*—hice; *vicāra*—consideración; *kṛṣṇa-nāme*—en el santo nombre de Kṛṣṇa; *jñāna ācchanna*—cubrimiento de Mi conocimiento; *ha-ila*—ha ocurrido; *āmāra*—de Mí.

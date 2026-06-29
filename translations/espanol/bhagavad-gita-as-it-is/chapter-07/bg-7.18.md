@@ -1,11 +1,11 @@
 ### Bg 7.18
 
-> उदाराः सर्व एवैते ज्ञानी त्वात्मैव मे मतम् ।
+> उदाराः सर्व एवैते ज्ञानी त्वात्मैव मे मतम् ।\
 > आस्थितः स हि युक्तात्मा मामेवानुत्तमां गतिम् ॥१८॥
 
-> udārāḥ sarva evaite
-> jñānī tv ātmaiva me matam
-> āsthitaḥ sa hi yuktātmā
+> udārāḥ sarva evaite\
+> jñānī tv ātmaiva me matam\
+> āsthitaḥ sa hi yuktātmā\
 > mām evānuttamāṁ gatim
 
 *udārāḥ*—magnánimos; *sarve*—todos; *eva*—ciertamente; *ete*—estos; *jñānī*—aquel que tiene conocimiento; *tu*—pero; *ātmā eva*—así como Yo; *me*—Mi; *matam*—opinión; *āsthitaḥ*—situado; *saḥ*—él; *hi*—ciertamente; *yukta-ātmā*—ocupado en el servicio devocional; *mām*—a Mí; *eva*—ciertamente; *anuttamām*—la meta suprema; *gatim*—destino.

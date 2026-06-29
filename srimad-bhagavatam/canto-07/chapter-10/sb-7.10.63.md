@@ -1,13 +1,13 @@
 ### SB 7.10.63
 
-> तेऽसुरा ह्यपि पश्यन्तो न न्यषेधन्विमोहिताः
+> तेऽसुरा ह्यपि पश्यन्तो न न्यषेधन्विमोहिताः\
 > तद्विज्ञआय महायोगी रसपालानिदं जगौ ॥६३॥
 
-> te 'surā hy api paśyanto
-> na nyaṣedhan vimohitāḥ
-> tad vijñāya mahā-yogī
-> rasa-pālān idaṁ jagau
-> smayan viśokaḥ śokārtān
+> te 'surā hy api paśyanto\
+> na nyaṣedhan vimohitāḥ\
+> tad vijñāya mahā-yogī\
+> rasa-pālān idaṁ jagau\
+> smayan viśokaḥ śokārtān\
 > smaran daiva-gatiṁ ca tām
 
 *te*—those; *asurāḥ*—demons; *hi*—indeed; *api*—although; *paśyantaḥ*—seeing (the calf and cow drinking the nectar); *na*—not; *nyaṣedhan*—forbade them; *vimohitāḥ*—being bewildered by illusion; *tat vijñāya*—knowing this fully; *mahā-yogī*—the great mystic Maya Dānava; *rasa-pālān*—unto the demons who guarded the nectar; *idam*—this; *jagau*—said; *smayan*—being bewildered; *viśokaḥ*—not being very unhappy; *śoka-ārtān*—greatly lamenting; *smaran*—remembering; *daiva-gatim*—spiritual power; *ca*—also; *tām*—that.

@@ -1,11 +1,11 @@
 ### Bg 3.41
 
-> तस्मात्त्वमिन्द्रियाण्यादौ नियम्य भरतर्षभ ।
+> तस्मात्त्वमिन्द्रियाण्यादौ नियम्य भरतर्षभ ।\
 > पाप्मानं प्रजहि ह्येनं ज्ञानविज्ञाननाशनम् ॥४१॥
 
-> tasmāt tvam indriyāṇy ādau
-> niyamya bharatarṣabha
-> pāpmānaṁ prajahi hy enaṁ
+> tasmāt tvam indriyāṇy ādau\
+> niyamya bharatarṣabha\
+> pāpmānaṁ prajahi hy enaṁ\
 > jñāna-vijñāna-nāśanam
 
 *tasmāt*—therefore; *tvam*—you; *indriyāṇi*—senses; *ādau*—in the beginning; *niyamya*—by regulating; *bharatarṣabha*—O chief amongst the descendants of Bharata; *pāpmānam*—the great symbol of sin; *prajahi*—curb; *hi*—certainly; *enam*—this; *jñāna*—knowledge; *vijñāna*—scientific knowledge of the pure soul; *nāśanam*—destroyer.

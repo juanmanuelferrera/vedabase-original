@@ -1,20 +1,20 @@
 ### SB 8.5.15-16
 
-> श्रीशुक उवाच
-> यदा युद्धेऽसुरैर्देवा बध्यमानाः शितायुधैः
-> गतासवो निपतिता नोत्तिष्ठेरन्स्म भूरिशः ॥१५॥
-> यदा दुर्वासः शापेन सेन्द्रा लोकास्त्रयो नृप
+> श्रीशुक उवाच\
+> यदा युद्धेऽसुरैर्देवा बध्यमानाः शितायुधैः\
+> गतासवो निपतिता नोत्तिष्ठेरन्स्म भूरिशः ॥१५॥\
+> यदा दुर्वासः शापेन सेन्द्रा लोकास्त्रयो नृप\
 > निःश्रीकाश्चाभवंस्तत्र नेशुरिज्यादयः क्रियाः ॥१६॥
 
-> śrī-śuka uvāca
-> yadā yuddhe 'surair devā
-> badhyamānāḥ śitāyudhaiḥ
-> gatāsavo nipatitā
+> śrī-śuka uvāca\
+> yadā yuddhe 'surair devā\
+> badhyamānāḥ śitāyudhaiḥ\
+> gatāsavo nipatitā\
 > nottiṣṭheran sma bhūriśaḥ
 
-> yadā durvāsaḥ śāpena
-> sendrā lokās trayo nṛpa
-> niḥśrīkāś cābhavaṁs tatra
+> yadā durvāsaḥ śāpena\
+> sendrā lokās trayo nṛpa\
+> niḥśrīkāś cābhavaṁs tatra\
 > neśur ijyādayaḥ kriyāḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *yadā*—cuando; *yuddhe*—en la batalla; *asuraiḥ*—por los demonios; *devāḥ*—los semidioses; *badhyamānāḥ*—acosados; *śita-āyudhaiḥ*—por armas-serpiente; *gata-āsavaḥ*—prácticamente muertos; *nipatitāḥ*—algunos de los cuales habían caído; *na*—no; *uttiṣṭheran*—levantarse de nuevo; *sma*—así quedaron; *bhūriśaḥ*—la mayoría de ellos; *yadā*—cuando; *durvāsaḥ*—de Durvāsā Muni; *śāpena*—con la maldición; *sa-indrāḥ*—con Indra; *lokāḥ trayaḥ*—los tres mundos; *nṛpa*—¡oh, rey!; *niḥśrīkāḥ*—sin ninguna opulencia material; *ca*—también; *abhavan*—quedaron; *tatra*—por aquel entonces; *neśuḥ*—no podían celebrarse; *ijya-ādayaḥ*—sacrificios; *kriyāḥ*—ceremonias rituales.

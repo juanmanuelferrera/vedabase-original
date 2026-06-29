@@ -1,9 +1,9 @@
 ### CC Madhya 24.126
 
-> নারদের সঙ্গে শৌনকাদি মুনিগণ ।
+> নারদের সঙ্গে শৌনকাদি মুনিগণ ।\
 > মুমুক্ষা ছাড়িয়া কৈলা কৃষ্ণের ভজন ॥১২৬॥
 
-> nāradera saṅge śaunakādi muni-gaṇa
+> nāradera saṅge śaunakādi muni-gaṇa\
 > mumukṣā chāḍiyā kailā kṛṣṇera bhajana
 
 *nāradera saṅge*—por la asociación con la gran persona santa Nārada; *śaunaka-ādi muni-gaṇa*—los grandes sabios encabezados por Śaunaka Muni; *mumukṣā chāḍiyā*—abandonando el deseo de liberación; *kailā*—realizaron; *kṛṣṇera bhajana*—servicio devocional a Kṛṣṇa.

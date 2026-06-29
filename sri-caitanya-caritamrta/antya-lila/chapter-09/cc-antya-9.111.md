@@ -1,9 +1,9 @@
 ### CC Antya 9.111
 
-> কাহাঁ সর্বস্ব বেচি’ লয়, দেয়া না যায় কৌড়ি !
+> কাহাঁ সর্বস্ব বেচি’ লয়, দেয়া না যায় কৌড়ি !\
 > কাহাঁ দ্বিগুণ বর্তন, পরায় নেতধড়ি ! ॥ ১১১ ॥
 
-> kāhāṅ sarvasva veci' laya, deyā nā yāya kauḍi!
+> kāhāṅ sarvasva veci' laya, deyā nā yāya kauḍi!\
 > kāhāṅ dviguṇa vartana, parāya neta-dhaḍi!
 
 *kāhāṅ*—on one hand; *sarvasva*—all possessions; *veci'*—selling; *laya*—takes; *deyā nā yāya*—cannot be paid; *kauḍi*—the debt; *kāhāṅ*—on the other hand; *dviguṇa vartana*—twice the salary; *parāya*—puts on; *neta-dhaḍi*—the silken cover.

@@ -1,9 +1,9 @@
 ### CC Antya 11.52
 
-> হরিদাসের গুণে সবার বিস্মিত হয় মন ।
+> হরিদাসের গুণে সবার বিস্মিত হয় মন ।\
 > সর্বভক্ত বন্দে হরিদাসের চরণ ॥৫২॥
 
-> haridāsera guṇe sabāra vismita haya mana
+> haridāsera guṇe sabāra vismita haya mana\
 > sarva-bhakta vande haridāsera caraṇa
 
 *haridāsera*—de Haridāsa Ṭhākura; *guṇe*—por las cualidades; *sabāra*—de todos ellos; *vismita*—asombradas; *haya*—se vuelven; *mana*—las mentes; *sarva-bhakta*—todos los devotos; *vande*—adoran; *haridāsera caraṇa*—los pies de loto de Haridāsa Ṭhākura.

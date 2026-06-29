@@ -1,9 +1,9 @@
 ### CC Adi 16.57
 
-> ‘বিধেয়’ আগে কহি’ পাছে কহিলে ‘অনুবাদ’ ।
+> ‘বিধেয়’ আগে কহি’ পাছে কহিলে ‘অনুবাদ’ ।\
 > এই লাগি’ শ্লোকের অর্থ করিয়াছে বাধ ॥৫৭॥
 
-> 'vidheya' āge kahi' pāche kahile 'anuvāda'
+> 'vidheya' āge kahi' pāche kahile 'anuvāda'\
 > ei lāgi' ślokera artha kariyāche bādha
 
 *vidheya*—lo desconocido; *āge*—primero; *kahi'*—habiendo dicho; *pāche*—al final; *kahile*—si se dice; *anuvāda*—lo conocido; *ei lāgi'*—por esta razón; *ślokera*—del verso; *artha*—el significado; *kariyāche*—se ha hecho; *bādha*—objetable.

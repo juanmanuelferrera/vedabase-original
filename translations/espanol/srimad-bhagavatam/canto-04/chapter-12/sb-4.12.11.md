@@ -1,11 +1,11 @@
 ### SB 4.12.11
 
-> सर्वात्मन्यच्युतेऽसर्वे तीव्रौघां भक्तिमुद्वहन् ।
+> सर्वात्मन्यच्युतेऽसर्वे तीव्रौघां भक्तिमुद्वहन् ।\
 > ददर्शात्मनि भूतेषु तमेवावस्थितं विभुम् ॥११॥
 
-> sarvātmany acyute 'sarve
-> tīvraughāṁ bhaktim udvahan
-> dadarśātmani bhūteṣu
+> sarvātmany acyute 'sarve\
+> tīvraughāṁ bhaktim udvahan\
+> dadarśātmani bhūteṣu\
 > tam evāvasthitaṁ vibhum
 
 *sarva-ātmani*—a la Superalma; *acyute*—infalible; *asarve*—sin ningún límite; *tīvra-oghām*—con una fuerza que nunca decaía; *bhaktim*—servicio devocional; *udvahan*—ofrecer; *dadarśa*—vio; *ātmani*—en el Espíritu Supremo; *bhūteṣu*—en todas las entidades vivientes; *tam*—a Él; *eva*—solamente; *avasthitam*—situado; *vibhum*—todopoderoso.

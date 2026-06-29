@@ -1,9 +1,9 @@
 ### CC Madhya 5.159
 
-> ব্ৰহ্মণ্যদেব-গোপালের মহিমা এই ধন্য ।
+> ব্ৰহ্মণ্যদেব-গোপালের মহিমা এই ধন্য ।\
 > নিত্যানন্দ — বক্তা যার, শ্রোতা — শ্রীচৈতন্য ॥১৫৯॥
 
-> brahmaṇya-deva-gopālera mahimā ei dhanya
+> brahmaṇya-deva-gopālera mahimā ei dhanya\
 > nityānanda--vaktā yāra, śrotā--śrī-caitanya
 
 *brahmaṇya-deva*—la Suprema Personalidad de Dios, que es misericordioso con los brāhmaṇas; *gopālera*—de Gopāla; *mahimā*—glorias; *ei*—estas; *dhanya*—glorificadas; *nityānanda*—el Señor Nityānanda Prabhu; *vaktā*—el narrador; *yāra*—de la narración; *śrotā*—el oyente; *śrī-caitanya*—Śrī Caitanya Mahāprabhu.

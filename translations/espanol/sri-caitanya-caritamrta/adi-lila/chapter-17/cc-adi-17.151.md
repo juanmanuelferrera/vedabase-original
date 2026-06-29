@@ -1,9 +1,9 @@
 ### CC Adi 17.151
 
-> এই মত দুঁহার কথা হয় ঠারে-ঠোরে ।
+> এই মত দুঁহার কথা হয় ঠারে-ঠোরে ।\
 > ভিতরের অর্থ কেহ বুঝিতে না পারে ॥১৫১॥
 
-> ei mata duṅhāra kathā haya ṭhāre-ṭhore
+> ei mata duṅhāra kathā haya ṭhāre-ṭhore\
 > bhitarera artha keha bujhite nā pāre
 
 *ei mata*—de esta manera; *duṅhāra*—de ambos; *kathā*—conversación; *haya*—tuvo lugar; *ṭhāre-ṭhore*—con diversas indicaciones; *bhitarera*—interior; *artha*—significado; *keha*—alguien; *bujhite*—comprender; *nā pāre*—no puede.

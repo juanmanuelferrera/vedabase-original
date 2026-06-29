@@ -1,11 +1,11 @@
 ### SB 6.15.7
 
-> देहेन देहिनो राजन्देहाद्देहोऽभिजायते
+> देहेन देहिनो राजन्देहाद्देहोऽभिजायते\
 > बीजादेव यथा बीजं देह्यर्थ इव शाश्वतः ॥७॥
 
-> dehena dehino rājan
-> dehād deho 'bhijāyate
-> bījād eva yathā bījaṁ
+> dehena dehino rājan\
+> dehād deho 'bhijāyate\
+> bījād eva yathā bījaṁ\
 > dehy artha iva śāśvataḥ
 
 *dehena*—por el cuerpo; *dehinaḥ*—del padre, que tiene un cuerpo material; *rājan*—¡oh, rey!; *dehāt*—del cuerpo (de la madre); *dehaḥ*—otro cuerpo; *abhijāyate*—nace; *bījāt*—de una semilla; *eva*—en verdad; *yathā*—tal y como; *bījam*—otra semilla; *dehī*—la persona que ha recibido un cuerpo material; *arthaḥ*—los elementos materiales; *iva*—como; *śāśvataḥ*—eterna.

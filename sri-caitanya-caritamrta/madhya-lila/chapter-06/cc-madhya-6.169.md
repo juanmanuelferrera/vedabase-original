@@ -1,9 +1,9 @@
 ### CC Madhya 6.169
 
-> জীবের নিস্তার লাগি’ সূত্র কৈল ব্যাস ।
+> জীবের নিস্তার লাগি’ সূত্র কৈল ব্যাস ।\
 > মায়াবাদি-ভাষ্য শুনিলে হয় সর্বনাশ ॥১৬৯॥
 
-> jīvera nistāra lāgi' sūtra kaila vyāsa
+> jīvera nistāra lāgi' sūtra kaila vyāsa\
 > māyāvādi-bhāṣya śunile haya sarva-nāśa
 
 *jīvera*—of the living entities; *nistāra*—deliverance; *lāgi'*—for the matter of; *sūtra*—the *Vedānta-sūtra*; *kaila*—made; *vyāsa*—Śrīla Vyāsadeva; *māyāvādi*—of the impersonalists; *bhāṣya*—commentary; *śunile*—if hearing; *haya*—becomes; *sarva-nāśa*—all destruction.

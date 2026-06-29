@@ -1,9 +1,9 @@
 ### CC Adi 9.41
 
-> ভারত-ভূমিতে হৈল মনুষ্য-জন্ম যার ।
+> ভারত-ভূমিতে হৈল মনুষ্য-জন্ম যার ।\
 > জন্ম সার্থক করি’ কর পর-উপকার ॥৪১॥
 
-> bhārata-bhūmite haila manuṣya janma yāra
+> bhārata-bhūmite haila manuṣya janma yāra\
 > janma sārthaka kari' kara para-upakāra
 
 *bhārata*—of India; *bhūmite*—in the land; *haila*—has become; *manuṣya*—human being; *janma*—birth; *yāra*—anyone; *janma*—such a birth; *sārthaka*—fulfillment; *kari'*—doing so; *kara*—do; *para*—others; *upakāra*—benefit.

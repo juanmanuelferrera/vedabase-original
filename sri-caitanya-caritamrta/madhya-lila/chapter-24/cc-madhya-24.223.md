@@ -1,9 +1,9 @@
 ### CC Madhya 24.223
 
-> চ-শব্দে ‘অন্বাচয়ে’ অর্থ কহে আর ।
+> চ-শব্দে ‘অন্বাচয়ে’ অর্থ কহে আর ।\
 > ‘বটো, ভিক্ষামট, গাঞ্চানয়’ যৈছে প্রকার ॥২২৩॥
 
-> ca-śabde 'anvācaye' artha kahe āra
+> ca-śabde 'anvācaye' artha kahe āra\
 > 'baṭo, bhikṣām aṭa, gāṁ cānaya' yaiche prakāra
 
 *ca-śabde*—by the word *ca*; *anvācaye*—in presenting an action of secondary importance; *artha*—meaning; *kahe*—says; *āra*—another; *baṭo*—O *brahmacārī*; *bhikṣām aṭa*—just bring some alms; *gām ca ānaya*—also, at the same time, bring the cows; *yaiche prakāra*—in this way.

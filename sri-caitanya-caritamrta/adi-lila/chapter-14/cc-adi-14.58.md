@@ -1,9 +1,9 @@
 ### CC Adi 14.58
 
-> যদি নৈবেদ্য না দেহ হইয়া কৃপণী ।
+> যদি নৈবেদ্য না দেহ হইয়া কৃপণী ।\
 > বুড়া ভর্তা হবে, আর চারি চারি সতিনী ॥৫৮॥
 
-> yadi naivedya nā deha ha-iyā kṛpaṇī
+> yadi naivedya nā deha ha-iyā kṛpaṇī\
 > buḍā bhartā habe, āra cāri cāri satinī
 
 *yadi*—if; *naivedya*—offering; *nā*—do not; *deha*—give Me; *ha-iyā*—becoming; *kṛpaṇī*—miser; *buḍā*—old; *bhartā*—husband; *habe*—will have; *āra*—and; *cāri*—four; *cāri*—four; *satinī*—co-wives.

@@ -1,9 +1,9 @@
 ### CC Adi 17.204
 
-> আসি’ কহে, — হিন্দুর ধর্ম ভাঙ্গিল নিমাই ।
+> আসি’ কহে, — হিন্দুর ধর্ম ভাঙ্গিল নিমাই ।\
 > যে কীর্তন প্রবর্তাইল, কভু শুনি নাই ॥২০৪॥
 
-> āsi' kahe,--hindura dharma bhāṅgila nimāi
+> āsi' kahe,--hindura dharma bhāṅgila nimāi\
 > ye kīrtana pravartāila, kabhu śuni nāi
 
 *āsi'*—al venir allí; *kahe*—dijeron; *hindura*—de los hindúes; *dharma*—principios religiosos; *bhāṅgila*—ha quebrantado; *nimāi*—Nimāi Paṇḍita; *ye*—ese; *kīrtana*—canto congregacional; *pravartāila*—ha introducido; *kabhu*—en ningún momento; *śuni*—hemos oído hablar; *nāi*—nunca.

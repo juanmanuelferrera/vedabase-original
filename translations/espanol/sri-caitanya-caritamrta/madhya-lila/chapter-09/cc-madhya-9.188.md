@@ -1,9 +1,9 @@
 ### CC Madhya 9.188
 
-> জগন্মাতা মহালক্ষ্মী সীতা-ঠাকুরাণী ৷
+> জগন্মাতা মহালক্ষ্মী সীতা-ঠাকুরাণী ৷\
 > রাক্ষসে স্পর্শিল তাঁরে, — ইহা কানে শুনি ৷৷ ১৮৮ ৷৷ ॥১৮৮॥
 
-> jagan-mātā mahā-lakṣmī sītā-ṭhākurāṇī
+> jagan-mātā mahā-lakṣmī sītā-ṭhākurāṇī\
 > rākṣase sparśila tāṅre,--ihā kāne śuni
 
 *jagat-mātā*—la madre del universo; *mahā-lakṣmī*—la diosa suprema de la fortuna; *sītā-ṭhākurāṇī*—madre Sītā; *rākṣase*—el demonio Rāvaṇa; *sparśila*—tocó; *tāṅre*—a ella; *ihā*—esto; *kāne śuni*—lo he oído.

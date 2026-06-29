@@ -1,13 +1,13 @@
 ### SB 7.7.1
 
-> श्रीनारद उवाच
-> एवं दैत्यसुतैः पृष्टो महाभागवतोऽसुरः
+> श्रीनारद उवाच\
+> एवं दैत्यसुतैः पृष्टो महाभागवतोऽसुरः\
 > उवाच तान्स्मयमानः स्मरन्मदनुभाषितम ॥१॥
 
-> śrī-nārada uvāca
-> evaṁ daitya-sutaiḥ pṛṣṭo
-> mahā-bhāgavato 'suraḥ
-> uvāca tān smayamānaḥ
+> śrī-nārada uvāca\
+> evaṁ daitya-sutaiḥ pṛṣṭo\
+> mahā-bhāgavato 'suraḥ\
+> uvāca tān smayamānaḥ\
 > smaran mad-anubhāṣitam
 
 *śrī-nāradaḥ uvāca*—the great saint Nārada Muni said; *evam*—thus; *daitya-sutaiḥ*—by the sons of the demons; *pṛṣṭaḥ*—being questioned; *mahā-bhāgavataḥ*—the exalted devotee of the Lord; *asuraḥ*—born in a family of demons; *uvāca*—spoke; *tān*—unto them (the sons of the demons); *smayamānaḥ*—smiling; *smaran*—remembering; *mat-anubhāṣitam*—what was spoken by me.

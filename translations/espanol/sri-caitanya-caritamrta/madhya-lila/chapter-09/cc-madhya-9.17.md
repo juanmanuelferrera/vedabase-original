@@ -1,9 +1,9 @@
 ### CC Madhya 9.17
 
-> নৃসিংহ দেখিয়া তাঁরে কৈল নতি-স্তুতি ৷
+> নৃসিংহ দেখিয়া তাঁরে কৈল নতি-স্তুতি ৷\
 > সিদ্ধবট গেলা যাহাঁ মূর্তি সীতাপতি ৷৷ ১৭ ৷৷ ॥১৭॥
 
-> nṛsiṁha dekhiyā tāṅre kaila nati-stuti
+> nṛsiṁha dekhiyā tāṅre kaila nati-stuti\
 > siddhavaṭa gelā yāhāṅ mūrti sītāpati
 
 *nṛsiṁha dekhiyā*—tras ver la Deidad del Señor Nṛsiṁha; *tāṅre*—a Él; *kaila*—ofreció; *nati-stuti*—diversas oraciones; *siddhavaṭa*—a Siddhavaṭa; *gelā*—fue; *yāhāṅ*—donde; *mūrti*—la Deidad; *sītā-pati*—del Señor Rāmacandra.

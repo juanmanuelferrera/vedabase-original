@@ -1,9 +1,9 @@
 ### CC Madhya 3.99
 
-> নিত্যানন্দ বলে, — এই কৃষ্ণের প্রসাদ ।
+> নিত্যানন্দ বলে, — এই কৃষ্ণের প্রসাদ ।\
 > ইহাকে ‘ঝুঠা’ কহিলে, তুমি কৈলে অপরাধ ॥৯৯॥
 
-> nityānanda bale,—ei kṛṣṇera prasāda
+> nityānanda bale,—ei kṛṣṇera prasāda\
 > ihāke 'jhuṭhā' kahile, tumi kaile aparādha
 
 *nityānandabale*—Lord Nityānanda said; *ei*—this; *kṛṣṇera prasāda*—*mahā-prasāda* of Lord Kṛṣṇa; *ihāke*—unto it; *jhuṭhā*—remnants of food; *kahile*—if You say; *tumi*—You; *kaile*—have made; *aparādha*—offense.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.19
 
-> পাৎসাহ দেখিয়া সবে সম্ভ্রমে উঠিলা ।
+> পাৎসাহ দেখিয়া সবে সম্ভ্রমে উঠিলা ।\
 > সম্ভ্রমে আসন দিয়া রাজারে বসাইলা ॥১৯॥
 
-> pātsāha dekhiyā sabe sambhrame uṭhilā
+> pātsāha dekhiyā sabe sambhrame uṭhilā\
 > sambhrame āsana diyā rājāre vasāilā
 
 *pātsāha dekhiyā*—seeing the Nawab; *sabe*—all of them; *sambhrame*—in great respect; *uṭhilā*—stood up; *sambhrame*—with great respect; *āsana diyā*—giving a sitting place; *rājāre*—the King; *vasāilā*—made to sit.

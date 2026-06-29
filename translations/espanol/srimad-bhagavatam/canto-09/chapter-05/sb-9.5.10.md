@@ -1,11 +1,11 @@
 ### SB 9.5.10
 
-> यद्यस्ति दत्तमिष्टं वा स्वधर्मो वा स्वनुष्ठितः
+> यद्यस्ति दत्तमिष्टं वा स्वधर्मो वा स्वनुष्ठितः\
 > कुलं नो विप्रदैवं चेद्द्विजो भवतु विज्वरः ॥१०॥
 
-> yady asti dattam iṣṭaṁ vā
-> sva-dharmo vā svanuṣṭhitaḥ
-> kulaṁ no vipra-daivaṁ ced
+> yady asti dattam iṣṭaṁ vā\
+> sva-dharmo vā svanuṣṭhitaḥ\
+> kulaṁ no vipra-daivaṁ ced\
 > dvijo bhavatu vijvaraḥ
 
 *yadi*—si; *asti*—hay; *dattam*—caridad; *iṣṭam*—adorar a la Deidad; *vā*—o; *sva-dharmaḥ*—deber prescrito; *vā*—o; *su-anuṣṭhitaḥ*—cumplido perfectamente; *kulam*—dinastía; *naḥ*—nuestra; *vipra-daivam*—favorecidos por los *brāhmaṇas*; *cet*—si es así; *dvijaḥ*—este *brāhmaṇa*; *bhavatu*—sea; *vijvaraḥ*—sin la quemadura (del *cakra* Sudarśana).

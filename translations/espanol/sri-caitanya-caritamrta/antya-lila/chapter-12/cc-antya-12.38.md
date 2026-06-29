@@ -1,9 +1,9 @@
 ### CC Antya 12.38
 
-> প্রভু কহে, — “শ্রীকান্ত আসিয়াছে পাঞা মনোদুঃখ ।
+> প্রভু কহে, — “শ্রীকান্ত আসিয়াছে পাঞা মনোদুঃখ ।\
 > কিছু না বলিহ, করুক, যাতে ইহার সুখ ।।” ॥ ৩৮ ॥
 
-> prabhu kahe,--"śrīkānta āsiyāche pāñā mano-duḥkha
+> prabhu kahe,--"śrīkānta āsiyāche pāñā mano-duḥkha\
 > kichu nā baliha, karuka, yāte ihāra sukha"
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *śrīkānta*—Śrīkānta; *āsiyāche*—ha venido; *pāñā*—obteniendo; *manaḥ-duḥkha*—aflicción en la mente; *kichu*—nada; *nā baliha*—no digas; *karuka*—que haga; *yāte*—por lo cual; *ihāra*—su; *sukha*—felicidad.

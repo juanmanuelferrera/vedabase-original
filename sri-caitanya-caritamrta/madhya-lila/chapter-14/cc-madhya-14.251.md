@@ -1,9 +1,9 @@
 ### CC Madhya 14.251
 
-> এই পট্টডোরীতে হয় ‘শেষ’-অধিষ্ঠান ।
+> এই পট্টডোরীতে হয় ‘শেষ’-অধিষ্ঠান ।\
 > দশ-মূর্তি হঞা যেঁহো সেবে ভগবান্ ॥২৫১॥
 
-> ei paṭṭa-ḍorīte haya 'śeṣa'-adhiṣṭhāna
+> ei paṭṭa-ḍorīte haya 'śeṣa'-adhiṣṭhāna\
 > daśa-mūrti hañā yeṅho seve bhagavān
 
 *ei paṭṭa-ḍorīte*—in this rope; *haya*—there is; *śeṣa-adhiṣṭhāna*—the abode of Śeṣa Nāga; *daśa-mūrti hañā*—expanding into ten forms; *yeṅho*—*who*; *seve*—worships; *bhagavān*—the Supreme Personality of Godhead.

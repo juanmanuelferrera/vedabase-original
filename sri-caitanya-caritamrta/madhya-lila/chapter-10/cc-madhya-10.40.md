@@ -1,9 +1,9 @@
 ### CC Madhya 10.40
 
-> তৃষিত চাতক যৈছে করে হাহাকার ।
+> তৃষিত চাতক যৈছে করে হাহাকার ।\
 > তৈছে এই সব, — সবে কর অঙ্গীকার ॥৪০॥
 
-> tṛṣita cātaka yaiche kare hāhākāra
+> tṛṣita cātaka yaiche kare hāhākāra\
 > taiche ei saba,-sabe kara aṅgīkāra
 
 *tṛṣita*—thirsty; *cātaka*—the *cātaka* bird; *yaiche*—just as; *kare*—does; *hāhā-kāra*—vibration of disappointment; *taiche*—similarly; *ei saba*—all of these; *sabe*—all of them; *kara aṅgīkāra*—kindly accept.

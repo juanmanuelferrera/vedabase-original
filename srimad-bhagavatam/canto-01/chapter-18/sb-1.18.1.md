@@ -1,13 +1,13 @@
 ### SB 1.18.1
 
-> सूत उवाच
-> यो वै द्रौण्यस्त्रविप्लुष्टो न मातुरुदरे मृतः ।
+> सूत उवाच\
+> यो वै द्रौण्यस्त्रविप्लुष्टो न मातुरुदरे मृतः ।\
 > अनुग्रहाद्भगवतः कृष्णस्याद्भुतकर्मणः ॥१॥
 
-> sūta uvāca
-> yo vai drauṇy-astra-vipluṣṭo
-> na mātur udare mṛtaḥ
-> anugrahād bhagavataḥ
+> sūta uvāca\
+> yo vai drauṇy-astra-vipluṣṭo\
+> na mātur udare mṛtaḥ\
+> anugrahād bhagavataḥ\
 > kṛṣṇasyādbhuta-karmaṇaḥ
 
 *sūtaḥ uvāca*—Śrī Sūta Gosvāmī said; *yaḥ*—one who; *vai*—certainly; *drauṇi-astra*—by the weapon of the son of Droṇa; *vipluṣṭaḥ*—burned by; *na*—never; *mātuḥ*—of the mother; *udare*—in the womb; *mṛtaḥ*—met his death; *anugrahāt*—by the mercy; *bhagavataḥ*—of the Personality of Godhead; *kṛṣṇasya*—Kṛṣṇa; *adbhuta-karmaṇaḥ*—who acts wonderfully.

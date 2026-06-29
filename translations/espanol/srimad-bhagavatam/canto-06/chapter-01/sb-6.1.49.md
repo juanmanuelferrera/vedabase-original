@@ -1,11 +1,11 @@
 ### SB 6.1.49
 
-> यथाज्ञअस्तमसा युक्त उपास्ते व्यक्तमेव हि
+> यथाज्ञअस्तमसा युक्त उपास्ते व्यक्तमेव हि\
 > न वेद पूर्वमपरं नष्टजन्मस्मृतिस्तथा ॥४९॥
 
-> yathājñas tamasā yukta
-> upāste vyaktam eva hi
-> na veda pūrvam aparaṁ
+> yathājñas tamasā yukta\
+> upāste vyaktam eva hi\
+> na veda pūrvam aparaṁ\
 > naṣṭa-janma-smṛtis tathā
 
 *yathā*—tal como; *ajñaḥ*—un ser vivo ignorante; *tamasā*—en el sueño; *yuktaḥ*—ocupado; *upāste*—actúa conforme a; *vyaktam*—un cuerpo manifestado en un sueño; *eva*—ciertamente; *hi*—en verdad; *na veda*—no conoce; *pūrvam*—el cuerpo pasado; *aparam*—el siguiente cuerpo; *naṣṭa*—perdido; *janma-smṛtiḥ*—el recuerdo del nacimiento; *tathā*—del mismo modo.

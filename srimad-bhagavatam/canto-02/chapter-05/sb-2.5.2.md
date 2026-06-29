@@ -1,11 +1,11 @@
 ### SB 2.5.2
 
-> यद्रूपं यदधिष्ठानं यतः सृष्टमिदं प्रभो ।
+> यद्रूपं यदधिष्ठानं यतः सृष्टमिदं प्रभो ।\
 > यत्संस्थं यत्परं यच्च तत्तत्त्वं वद तत्त्वतः ॥२॥
 
-> yad rūpaṁ yad adhiṣṭhānaṁ
-> yataḥ sṛṣṭam idaṁ prabho
-> yat saṁsthaṁ yat paraṁ yac ca
+> yad rūpaṁ yad adhiṣṭhānaṁ\
+> yataḥ sṛṣṭam idaṁ prabho\
+> yat saṁsthaṁ yat paraṁ yac ca\
 > tat tattvaṁ vada tattvataḥ
 
 *yat*—what; *rūpam*—the symptoms of manifestation; *yat*—what; *adhiṣṭhānam*—background; *yataḥ*—from where; *sṛṣṭam*—created; *idam*—this world; *prabho*—O my father; *yat*—in which; *saṁstham*—conserved; *yat*—what; *param*—under control; *yat*—what are; *ca*—and; *tat*—of this; *tattvam*—the symptoms; *vada*—please describe; *tattvataḥ*—factually.

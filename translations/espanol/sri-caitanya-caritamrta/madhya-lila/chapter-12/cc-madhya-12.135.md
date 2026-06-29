@@ -1,9 +1,9 @@
 ### CC Madhya 12.135
 
-> এইমত পুরদ্বার-আগে পথ যত ।
+> এইমত পুরদ্বার-আগে পথ যত ।\
 > সকল শোধিল, তাহা কে বর্ণিবে কত ॥১৩৫॥
 
-> ei-mata puradvāra-āge patha yata
+> ei-mata puradvāra-āge patha yata\
 > sakala śodhila, tāhā ke varṇibe kata
 
 *ei-mata*—de esta manera; *pura-dvāra*—de la puerta del templo; *āge*—delante; *patha yata*—todos los caminos; *sakala*—todos; *śodhila*—fueron limpiados; *tāhā*—eso; *ke varṇibe*—quién puede describir; *kata*—cuánto.

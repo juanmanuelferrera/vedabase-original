@@ -1,9 +1,9 @@
 ### CC Madhya 8.285
 
-> আলিঙ্গন করি’ প্রভু কৈল আশ্বাসন ।
+> আলিঙ্গন করি’ প্রভু কৈল আশ্বাসন ।\
 > তোমা বিনা এইরূপ না দেখে অন্যজন ॥২৮৫॥
 
-> āliṅgana kari' prabhu kaila āśvāsana
+> āliṅgana kari' prabhu kaila āśvāsana\
 > tomā vinā ei-rūpa nā dekhe anya-jana
 
 *āliṅgana kari'*—embracing him; *prabhu*—the Lord; *kaila*—did; *āśvāsana*—pacifying; *tomā vinā*—but for you; *ei-rūpa*—this form; *nā*—not; *dekhe*—sees; *anya-jana*—anyone else.

@@ -1,11 +1,11 @@
 ### SB 1.15.19
 
-> शय्यासनाटनविकत्थनभोजनादिष्वैक्याद्वयस्य ऋतवानिति विप्रलब्धः ।
+> शय्यासनाटनविकत्थनभोजनादिष्वैक्याद्वयस्य ऋतवानिति विप्रलब्धः ।\
 > सख्युः सखेव पितृवत्तनयस्य सर्वं सेहे महान्महितया कुमतेरघं मे ॥१९॥
 
-> śayyāsanāṭana-vikatthana-bhojanādiṣv
-> aikyād vayasya ṛtavān iti vipralabdhaḥ
-> sakhyuḥ sakheva pitṛvat tanayasya sarvaṁ
+> śayyāsanāṭana-vikatthana-bhojanādiṣv\
+> aikyād vayasya ṛtavān iti vipralabdhaḥ\
+> sakhyuḥ sakheva pitṛvat tanayasya sarvaṁ\
 > sehe mahān mahitayā kumater aghaṁ me
 
 *śayyā*—sleeping on one bed; *āsana*—sitting on one seat; *aṭana*—walking together; *vikatthana*—self-adoration; *bhojana*—dining together; *ādiṣu*—and in all such dealings; *aikyāt*—because of oneness; *vayasya*—O my friend; *ṛtavān*—truthful; *iti*—thus; *vipralabdhaḥ*—misbehaved; *sakhyuḥ*—unto a friend; *sakhā iva*—just like a friend; *pitṛvat*—just like the father; *tanayasya*—of a child; *sarvam*—all; *sehe*—tolerated; *mahān*—great; *mahitayā*—by glories; *kumateḥ*—of one who is of low mentality; *agham*—offense; *me*—mine.

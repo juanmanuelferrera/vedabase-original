@@ -1,11 +1,11 @@
 ### SB 5.11.5
 
-> स वासनात्मा विषयोपरक्तो गुणप्रवाहो विकृतः षोडशात्मा
+> स वासनात्मा विषयोपरक्तो गुणप्रवाहो विकृतः षोडशात्मा\
 > बिभ्रत्पृथङ्नामभि रूपभेदमन्तर्बहिष्ट्वं च पुरैस्तनोति ॥५॥
 
-> sa vāsanātmā viṣayoparakto
-> guṇa-pravāho vikṛtaḥ ṣoḍaśātmā
-> bibhrat pṛthaṅ-nāmabhi rūpa-bhedam
+> sa vāsanātmā viṣayoparakto\
+> guṇa-pravāho vikṛtaḥ ṣoḍaśātmā\
+> bibhrat pṛthaṅ-nāmabhi rūpa-bhedam\
 > antar-bahiṣṭvaṁ ca purais tanoti
 
 *saḥ*—esa; *vāsanā*—dotada con muchos deseos; *ātmā*—la mente; *viṣaya-uparaktaḥ*—apegada a la felicidad material, la complacencia de los sentidos; *guṇa-pravāhaḥ*—conducida por la fuerza de *sattva-guṇa, rajo-guṇa* o *tamo-guṇa*; *vikṛtaḥ*—transformada por la lujuria, etc.; *ṣoḍaśa-ātmā*—el principal entre los dieciséis elementos (los cinco elementos densos, los diez sentidos y la mente); *bibhrat*—vagando; *pṛthak-nāmabhiḥ*—con nombres separados; *rūpa-bhedam*—asumiendo distintas formas; *antaḥ-bahiṣṭvam*—la cualidad de ser de primera categoría o de última categoría; *ca*—y; *puraiḥ*—con distintas formas corporales; *tanoti*—manifiesta.

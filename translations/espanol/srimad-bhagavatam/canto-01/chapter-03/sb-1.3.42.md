@@ -1,11 +1,11 @@
 ### SB 1.3.42
 
-> स तु संश्रावयामासमहाराजं परीक्षितम् ।
+> स तु संश्रावयामासमहाराजं परीक्षितम् ।\
 > प्रायोपविष्टं गङ्गायां परीतं परमर्षिभिः ॥४२॥
 
-> sa tu saṁśrāvayām āsa
-> mahārājaṁ parīkṣitam
-> prāyopaviṣṭaṁ gaṅgāyāṁ
+> sa tu saṁśrāvayām āsa\
+> mahārājaṁ parīkṣitam\
+> prāyopaviṣṭaṁ gaṅgāyāṁ\
 > parītaṁ paramarṣibhiḥ
 
 *saḥ*—el hijo de Vyāsadeva; *tu*—de nuevo; *saṁśrāvayām āsa*—volverlas audibles; *mahā-rājam*—al emperador; *parīkṣitam*—de nombre Parīkṣit; *prāya-upaviṣṭam*—que se sentó sin comer ni beber, hasta la muerte; *gaṅgāyām*—a orillas del Ganges; *parītam*—estando rodeado; *parama-ṛṣibhiḥ*—por grandes sabios.

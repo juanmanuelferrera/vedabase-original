@@ -1,13 +1,13 @@
 ### Bg 1.2
 
-> सञ्जय उवाच ।
-> दृष्ट्वा तु पाण्डवानीकं व्यूढं दुर्योधनस्तदा ।
+> सञ्जय उवाच ।\
+> दृष्ट्वा तु पाण्डवानीकं व्यूढं दुर्योधनस्तदा ।\
 > आचार्यमुपसंगम्य राजा वचनमब्रवीत् ॥२॥
 
-> sañjaya uvāca
-> dṛṣṭvā tu pāṇḍavānīkaṁ
-> vyūḍhaṁ duryodhanas tadā
-> ācāryam upasaṅgamya
+> sañjaya uvāca\
+> dṛṣṭvā tu pāṇḍavānīkaṁ\
+> vyūḍhaṁ duryodhanas tadā\
+> ācāryam upasaṅgamya\
 > rājā vacanam abravīt
 
 *sañjayaḥ*—Sañjaya; *uvāca*—dijo; *dṛṣṭvā*—después de ver; *tu*—pero; *pāṇḍava-anīkam*—los soldados de los Pāṇḍavas; *vyūḍham*—dispuestos en falanges militares; *duryodhanaḥ*—el rey Duryodhana; *tada*—en ese momento; *ācāryam*—el maestro; *upasaṅgamya*—acercándose; *rājā*—el rey; *vacanam*—palabras; *abravīt*—habló.

@@ -1,9 +1,9 @@
 ### CC Adi 14.11
 
-> স্তন পিয়াইতে পুত্রের চরণ দেখিল ।
+> স্তন পিয়াইতে পুত্রের চরণ দেখিল ।\
 > সেই চিহ্ন পায়ে দেখি’ মিশ্রে বোলাইল ॥১১॥
 
-> stana piyāite putrera caraṇa dekhila
+> stana piyāite putrera caraṇa dekhila\
 > sei cihna pāye dekhi' miśre bolāila
 
 *stana*—her breast; *piyāite*—while letting Him suck; *putrera*—of her son; *caraṇa*—lotus feet; *dekhila*—observed; *sei*—those very; *cihna*—marks; *pāye*—on the sole; *dekhi'*—seeing; *miśre*—Jagannātha Miśra; *bolāila*—called for.

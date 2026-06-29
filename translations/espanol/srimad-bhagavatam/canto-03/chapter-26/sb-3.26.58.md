@@ -1,11 +1,11 @@
 ### SB 3.26.58
 
-> हस्तौ च निरभिद्येतां बलं ताभ्यां ततः स्वराट् ।
+> हस्तौ च निरभिद्येतां बलं ताभ्यां ततः स्वराट् ।\
 > पादौ च निरभिद्येतां गतिस्ताभ्यां ततो हरिः ॥५८॥
 
-> hastau ca nirabhidyetāṁ
-> balaṁ tābhyāṁ tataḥ svarāṭ
-> pādau ca nirabhidyetāṁ
+> hastau ca nirabhidyetāṁ\
+> balaṁ tābhyāṁ tataḥ svarāṭ\
+> pādau ca nirabhidyetāṁ\
 > gatis tābhyāṁ tato hariḥ
 
 *hastau*—las dos manos; *ca*—y; *nirabhidyetām*—se manifestaron; *balam*—poder; *tābhyām*—de ellas; *tataḥ*—a continuación; *svarāṭ*—el Señor Indra; *pādau*—los dos pies; *ca*—y; *nirabhidyetām*—se manifestaron; *gatiḥ*—el proceso del movimiento; *tābhyām*—de ellas; *tataḥ*—entonces; *hariḥ*—el Señor Viṣṇu.

@@ -1,11 +1,11 @@
 ### SB 3.13.44
 
-> विधुन्वता वेदमयं निजं वपुर्जनस्तपःसत्यनिवासिनो वयम् ।
+> विधुन्वता वेदमयं निजं वपुर्जनस्तपःसत्यनिवासिनो वयम् ।\
 > सटाशिखोद्धूतशिवाम्बुबिन्दुभिर्विमृज्यमाना भृशमीश पाविताः ॥४४॥
 
-> vidhunvatā vedamayaṁ nijaṁ vapur
-> janas-tapaḥ-satya-nivāsino vayam
-> saṭā-śikhoddhūta-śivāmbu-bindubhir
+> vidhunvatā vedamayaṁ nijaṁ vapur\
+> janas-tapaḥ-satya-nivāsino vayam\
+> saṭā-śikhoddhūta-śivāmbu-bindubhir\
 > vimṛjyamānā bhṛśam īśa pāvitāḥ
 
 *vidhunvatā*—while shaking; *veda-mayam*—personified *Vedas*; *nijam*—own; *vapuḥ*—body; *janaḥ*—the Janaloka planetary system; *tapaḥ*—the Tapoloka planetary system; *satya*—the Satyaloka planetary system; *nivāsinaḥ*—the inhabitants; *vayam*—we; *saṭā*—hairs on the shoulder; *śikha-uddhūta*—sustained by the tip of the hair; *śiva*—auspicious; *ambu*—water; *bindubhiḥ*—by the particles; *vimṛjyamānāḥ*—we are thus sprinkled by; *bhṛśam*—highly; *īśa*—O Supreme Lord; *pāvitāḥ*—purified.

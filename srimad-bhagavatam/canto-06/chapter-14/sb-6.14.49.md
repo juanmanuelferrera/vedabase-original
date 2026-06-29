@@ -1,11 +1,11 @@
 ### SB 6.14.49
 
-> ततो नृपान्तःपुरवर्तिनो जना नराश्च नार्यश्च निशम्य रोदनम
+> ततो नृपान्तःपुरवर्तिनो जना नराश्च नार्यश्च निशम्य रोदनम\
 > आगत्य तुल्यव्यसनाः सुदुःखितास्ताश्च व्यलीकं रुरुदुः कृतागसः ॥४९॥
 
-> tato nṛpāntaḥpura-vartino janā
-> narāś ca nāryaś ca niśamya rodanam
-> āgatya tulya-vyasanāḥ suduḥkhitās
+> tato nṛpāntaḥpura-vartino janā\
+> narāś ca nāryaś ca niśamya rodanam\
+> āgatya tulya-vyasanāḥ suduḥkhitās\
 > tāś ca vyalīkaṁ ruruduḥ kṛtāgasaḥ
 
 *tataḥ*—thereafter; *nṛpa*—O King; *antaḥpura-vartinaḥ*—the inhabitants of the palace; *janāḥ*—all the people; *narāḥ*—the men; *ca*—and; *nāryaḥ*—the women; *ca*—also; *niśamya*—hearing; *rodanam*—loud crying; *āgatya*—coming; *tulya-vyasanāḥ*—being equally aggrieved; *su-duḥkhitāḥ*—very greatly lamenting; *tāḥ*—they; *ca*—and; *vyalīkam*—pretentiously; *ruruduḥ*—cried; *kṛta-āgasaḥ*—who had committed the offense (by giving the poison).

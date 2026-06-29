@@ -1,11 +1,11 @@
 ### SB 1.17.24
 
-> तपः शौचं दया सत्यमिति पादाः कृते कृताः ।
+> तपः शौचं दया सत्यमिति पादाः कृते कृताः ।\
 > अधर्मांशैस्त्रयो भग्नाः स्मयसङ्गमदैस्तव ॥२४॥
 
-> tapaḥ śaucaṁ dayā satyam
-> iti pādāḥ kṛte kṛtāḥ
-> adharmāṁśais trayo bhagnāḥ
+> tapaḥ śaucaṁ dayā satyam\
+> iti pādāḥ kṛte kṛtāḥ\
+> adharmāṁśais trayo bhagnāḥ\
 > smaya-saṅga-madais tava
 
 *tapaḥ*—austeridad; *śaucam*—limpieza; *dayā*—misericordia; *satyam*—veracidad; *iti*—así pues; *pādāḥ*—patas; *kṛte*—en la era de Satya; *kṛtāḥ*—constituidas; *adharma*—irreligiosidad; *aṁśaiḥ*—por las partes; *trayaḥ*—tres juntas; *bhagnāḥ*—rotas; *smaya*—orgullo; *saṅga*—excesiva relación con mujeres; *madaiḥ*—embriaguez; *tava*—tus.

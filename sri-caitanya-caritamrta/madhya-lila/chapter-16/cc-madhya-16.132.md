@@ -1,9 +1,9 @@
 ### CC Madhya 16.132
 
-> প্রভু কহে, — “ইঁহা কর গোপীনাথ সেবন” ।
+> প্রভু কহে, — “ইঁহা কর গোপীনাথ সেবন” ।\
 > পণ্ডিত কহে, — “কোটি-সেবা ত্বৎপাদ-দর্শন ।।” ॥ ১৩২ ॥
 
-> prabhu kahe,—"iṅhā kara gopīnātha sevana"
+> prabhu kahe,—"iṅhā kara gopīnātha sevana"\
 > paṇḍita kahe,—"koṭi-sevā tvat-pāda-darśana"
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *iṅhā*—here; *kara*—just do; *gopīnātha sevana*—worship of Gopīnātha; *paṇḍita kahe*—the *paṇḍita* said; *koṭi-sevā*—millions of times the service; *tvat-pāda-darśana*—seeing Your lotus feet.

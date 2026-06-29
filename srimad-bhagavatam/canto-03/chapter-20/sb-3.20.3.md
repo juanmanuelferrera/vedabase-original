@@ -1,11 +1,11 @@
 ### SB 3.20.3
 
-> द्वैपायनादनवरो महित्वे तस्य देहजः ।
+> द्वैपायनादनवरो महित्वे तस्य देहजः ।\
 > सर्वात्मना श्रितः कृष्णं तत्परांश्चाप्यनुव्रतः ॥३॥
 
-> dvaipāyanād anavaro
-> mahitve tasya dehajaḥ
-> sarvātmanā śritaḥ kṛṣṇaṁ
+> dvaipāyanād anavaro\
+> mahitve tasya dehajaḥ\
+> sarvātmanā śritaḥ kṛṣṇaṁ\
 > tat-parāṁś cāpy anuvrataḥ
 
 *dvaipāyanāt*—from Vyāsadeva; *anavaraḥ*—in no way inferior; *mahitve*—in greatness; *tasya*—his (Vyāsa's); *deha-jaḥ*—born of his body; *sarva-ātmanā*—with all his heart; *śritaḥ*—took shelter; *kṛṣṇam*—Lord Kṛṣṇa; *tat-parān*—those devoted to Him; *ca*—and; *api*—also; *anuvrataḥ*—followed.

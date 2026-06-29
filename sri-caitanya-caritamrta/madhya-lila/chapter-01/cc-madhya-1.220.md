@@ -1,9 +1,9 @@
 ### CC Madhya 1.220
 
-> সবার চরণে ধরি, পড়ে দুই ভাই ।
+> সবার চরণে ধরি, পড়ে দুই ভাই ।\
 > সবে বলে, — ধন্য তুমি, পাইলে গোসাঞি ॥২২০॥
 
-> sabāra caraṇe dhari, paḍe dui bhāi
+> sabāra caraṇe dhari, paḍe dui bhāi\
 > sabe bale,—dhanya tumi, pāile gosāñi
 
 *sabāra*—of all of them; *caraṇe*—the lotus feet; *dhari*—touching; *paḍe*—fall down; *dui bhāi*—the two brothers; *sabebale*—all the Vaiṣṇavas say; *dhanyatumi*—you are so fortunate; *pāilegosāñi*—you have gotten the shelter of the lotus feet of Lord Caitanya Mahāprabhu.

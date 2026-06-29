@@ -1,9 +1,9 @@
 ### CC Madhya 25.96
 
-> নারদ সেই অর্থ ব্যাসেরে কহিলা ।
+> নারদ সেই অর্থ ব্যাসেরে কহিলা ।\
 > শুনি’ বেদব্যাস মনে বিচার করিলা ॥৯৬॥
 
-> nārada sei artha vyāsere kahilā
+> nārada sei artha vyāsere kahilā\
 > śuni' veda-vyāsa mane vicāra karilā
 
 *nārada*—the great sage Nārada; *sei artha*—the same purpose; *vyāsere kahilā*—explained to Vyāsadeva; *śuni'*—hearing; *veda-vyāsa*—Vyāsadeva; *mane*—within the mind; *vicāra karilā*—considered very carefully.

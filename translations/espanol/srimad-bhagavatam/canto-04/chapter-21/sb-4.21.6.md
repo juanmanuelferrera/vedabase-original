@@ -1,11 +1,11 @@
 ### SB 4.21.6
 
-> पूजितः पूजयामास तत्र तत्र महायशाः ।
+> पूजितः पूजयामास तत्र तत्र महायशाः ।\
 > पौराञ्जानपदांस्तांस्तान्प्रीतः प्रियवरप्रदः ॥६॥
 
-> pūjitaḥ pūjayām āsa
-> tatra tatra mahā-yaśāḥ
-> paurāñ jānapadāṁs tāṁs tān
+> pūjitaḥ pūjayām āsa\
+> tatra tatra mahā-yaśāḥ\
+> paurāñ jānapadāṁs tāṁs tān\
 > prītaḥ priya-vara-pradaḥ
 
 *pūjitaḥ*—siendo adorado; *pūjayām āsa*—ofrecieron adoración; *tatra tatra*—aquí y allí; *mahā-yaśāḥ*—con un pasado de grandes actividades; *paurān*—los hombres nobles de la ciudad; *jāna-padān*—los ciudadanos comunes; *tān tān*—de esa manera; *prītaḥ*—satisfecho; *priya-vara-pradaḥ*—estaba dispuesto a ofrecerles toda bendición.

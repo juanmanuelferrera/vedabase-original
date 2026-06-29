@@ -1,11 +1,11 @@
 ### SB 6.1.30
 
-> निशम्य म्रियमाणस्य मुखतो हरिकीर्तनम
+> निशम्य म्रियमाणस्य मुखतो हरिकीर्तनम\
 > भर्तुर्नाम महाराज पार्षदाः सहसापतन ॥३०॥
 
-> niśamya mriyamāṇasya
-> mukhato hari-kīrtanam
-> bhartur nāma mahārāja
+> niśamya mriyamāṇasya\
+> mukhato hari-kīrtanam\
+> bhartur nāma mahārāja\
 > pārṣadāḥ sahasāpatan
 
 *niśamya*—hearing; *mriyamāṇasya*—of the dying man; *mukhataḥ*—from the mouth; *hari-kīrtanam*—chanting of the holy name of the Supreme Personality of Godhead; *bhartuḥ nāma*—the holy name of their master; *mahā-rāja*—O King; *pārṣadāḥ*—the order carriers of Viṣṇu; *sahasā*—immediately; *āpatan*—arrived.

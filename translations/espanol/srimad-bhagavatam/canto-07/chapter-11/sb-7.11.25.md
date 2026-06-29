@@ -1,11 +1,11 @@
 ### SB 7.11.25
 
-> स्त्रीणां च पतिदेवानां तच्छुश्रूषानुकूलता
+> स्त्रीणां च पतिदेवानां तच्छुश्रूषानुकूलता\
 > तद्बन्धुष्वनुवृत्तिश्च नित्यं तद्व्रतधारणम ॥२५॥
 
-> strīṇāṁ ca pati-devānāṁ
-> tac-chuśrūṣānukūlatā
-> tad-bandhuṣv anuvṛttiś ca
+> strīṇāṁ ca pati-devānāṁ\
+> tac-chuśrūṣānukūlatā\
+> tad-bandhuṣv anuvṛttiś ca\
 > nityaṁ tad-vrata-dhāraṇam
 
 *strīṇām*—de mujeres; *ca*—también; *pati-devānām*—que han aceptado a sus esposos como objeto de adoración; *tat-śuśrūṣā*—actitud de servicio hacia el esposo; *anukūlatā*—disposición favorable hacia el esposo; *tat-bandhuṣu*—a los amigos y familiares del esposo; *anuvṛttiḥ*—con la misma disposición (tratarles bien para satisfacer al marido); *ca*—y; *nityam*—regularmente; *tat-vrata-dhāraṇam*—seguir los mismos votos que el marido, o actuar como él.

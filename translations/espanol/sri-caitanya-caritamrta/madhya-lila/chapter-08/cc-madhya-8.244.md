@@ -1,9 +1,9 @@
 ### CC Madhya 8.244
 
-> prabhu puche, rāmānanda karena uttara
+> prabhu puche, rāmānanda karena uttara\
 > ei mata sei rātre kathā paraspara
 
-> prabhu puche, rāmānanda karena uttara
+> prabhu puche, rāmānanda karena uttara\
 > ei mata sei rātre kathā paraspara
 
 *prabhu puche*—el Señor pregunta; *rāmānanda*—Rāya Rāmānanda; *karena*—da; *uttara*—respuestas; *ei mata*—de esta manera; *sei rātre*—esa noche; *kathā*—conversación; *paraspara*—mutua.

@@ -1,11 +1,11 @@
 ### SB 6.12.17
 
-> प्राणग्लहोऽयं समर इष्वक्षो वाहनासनः
+> प्राणग्लहोऽयं समर इष्वक्षो वाहनासनः\
 > अत्र न ज्ञआयतेऽमुष्य जयोऽमुष्य पराजयः ॥१७॥
 
-> prāṇa-glaho 'yaṁ samara
-> iṣv-akṣo vāhanāsanaḥ
-> atra na jñāyate 'muṣya
+> prāṇa-glaho 'yaṁ samara\
+> iṣv-akṣo vāhanāsanaḥ\
+> atra na jñāyate 'muṣya\
 > jayo 'muṣya parājayaḥ
 
 *prāṇa-glahaḥ*—life is the stake; *ayam*—this; *samaraḥ*—battle; *iṣu-akṣaḥ*—the arrows are the dice; *vāhana-āsanaḥ*—the carriers such as the horses and elephants are the game board; *atra*—here (in this gambling match); *na*—not; *jñāyate*—is known; *amuṣya*—of that one; *jayaḥ*—victory; *amuṣya*—of that one; *parājayaḥ*—defeat.

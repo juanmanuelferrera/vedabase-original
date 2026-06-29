@@ -1,9 +1,9 @@
 ### CC Antya 6.163
 
-> অঙ্গনে আসিয়া তেঁহো যবে দাণ্ডাইলা ।
+> অঙ্গনে আসিয়া তেঁহো যবে দাণ্ডাইলা ।\
 > রঘুনাথ আসি’ তবে দণ্ডবৎ কৈলা ॥১৬৩॥
 
-> aṅgane āsiyā teṅho yabe dāṇḍāilā
+> aṅgane āsiyā teṅho yabe dāṇḍāilā\
 > raghunātha āsi' tabe daṇḍavat kailā
 
 *aṅgane*—en el patio; *āsiyā*—al entrar; *teṅho*—Yadunandana Ācārya; *yabe*—cuando; *dāṇḍāilā*—se detuvo de pie; *raghunātha*—Raghunātha dāsa; *āsi'*—acercándose; *tabe*—en ese momento; *daṇḍavat kailā*—ofreció sus reverencias, postrándose.

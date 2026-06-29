@@ -1,13 +1,13 @@
 ### SB 3.4.26
 
-> उद्धव उवाच
-> ननु ते तत्त्वसंराध्य ऋषिः कौषारवोऽन्तिके ।
+> उद्धव उवाच\
+> ननु ते तत्त्वसंराध्य ऋषिः कौषारवोऽन्तिके ।\
 > साक्षाद्भगवतादिष्टो मर्त्यलोकं जिहासता ॥२६॥
 
-> uddhava uvāca
-> nanu te tattva-saṁrādhya
-> ṛṣiḥ kauṣāravo 'ntike
-> sākṣād bhagavatādiṣṭo
+> uddhava uvāca\
+> nanu te tattva-saṁrādhya\
+> ṛṣiḥ kauṣāravo 'ntike\
+> sākṣād bhagavatādiṣṭo\
 > martya-lokaṁ jihāsatā
 
 *uddhavaḥ uvāca*—Uddhava dijo; *nanu*—sin embargo; *te*—de ti; *tattva-saṁrādhyaḥ*—aquel que es digno de ser adorado para recibir de él conocimiento trascendental; *ṛṣiḥ*—sabio erudito; *kauṣāravaḥ*—al hijo de Kuṣāru (Maitreya); *antike*—que se encuentra cerca; *sākṣāt*—directamente; *bhagavatā*—por la Personalidad de Dios; *ādiṣṭaḥ*—instruido; *martya-lokam*—mundo mortal; *jihāsatā*—mientras abandonaba.

@@ -1,9 +1,9 @@
 ### CC Antya 9.71
 
-> তোমা লাগি’ রঘুনাথ সকল ছাড়িল ।
+> তোমা লাগি’ রঘুনাথ সকল ছাড়িল ।\
 > হেথায় তাহার পিতা বিষয় পাঠাইল ॥৭১॥
 
-> tomā lāgi' raghunātha sakala chāḍila
+> tomā lāgi' raghunātha sakala chāḍila\
 > hethāya tāhāra pitā viṣaya pāṭhāila
 
 *tomā lāgi'*—for Your sake; *raghunātha*—Raghunātha dāsa; *sakala chāḍila*—gave up everything; *hethāya*—here; *tāhāra pitā*—his father; *viṣaya pāṭhāila*—sent money.

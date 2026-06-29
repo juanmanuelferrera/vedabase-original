@@ -1,11 +1,11 @@
 ### SB 4.8.7
 
-> प्रियव्रतोत्तानपादौ शतरूपापतेः सुतौ ।
+> प्रियव्रतोत्तानपादौ शतरूपापतेः सुतौ ।\
 > वासुदेवस्य कलया रक्षायां जगतः स्थितौ ॥७॥
 
-> priyavratottānapādau
-> śatarūpā-pateḥ sutau
-> vāsudevasya kalayā
+> priyavratottānapādau\
+> śatarūpā-pateḥ sutau\
+> vāsudevasya kalayā\
 > rakṣāyāṁ jagataḥ sthitau
 
 *priyavrata*—Priyavrata; *uttānapādau*—Uttānapāda; *śatarūpā-pateḥ*—de la reina Śatarūpā y su esposo, Manu; *sutau*—los dos hijos; *vāsudevasya*—de la Suprema Personalidad de Dios; *kalayā*—mediante expansión plenaria; *rakṣāyām*—para la protección; *jagataḥ*—del mundo; *sthitau*—para el sustento.

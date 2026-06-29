@@ -1,11 +1,11 @@
 ### SB 3.20.23
 
-> देवोऽदेवाञ्जघनतः सृजति स्मातिलोलुपान् ।
+> देवोऽदेवाञ्जघनतः सृजति स्मातिलोलुपान् ।\
 > त एनं लोलुपतया मैथुनायाभिपेदिरे ॥२३॥
 
-> devo 'devāñ jaghanataḥ
-> sṛjati smātilolupān
-> ta enaṁ lolupatayā
+> devo 'devāñ jaghanataḥ\
+> sṛjati smātilolupān\
+> ta enaṁ lolupatayā\
 > maithunāyābhipedire
 
 *devaḥ*—Lord Brahmā; *adevān*—demons; *jaghanataḥ*—from his buttocks; *sṛjati sma*—gave birth; *ati-lolupān*—excessively fond of sex; *te*—they; *enam*—Lord Brahmā; *lolupatayā*—with lust; *maithunāya*—for copulation; *abhipedire*—approached.

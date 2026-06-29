@@ -1,9 +1,9 @@
 ### CC Madhya 4.13
 
-> রেমুণাতে গোপীনাথ পরম-মোহন ।
+> রেমুণাতে গোপীনাথ পরম-মোহন ।\
 > ভক্তি করি’ কৈল প্রভু তাঁর দরশন ॥১৩॥
 
-> remuṇāte gopīnātha parama-mohana
+> remuṇāte gopīnātha parama-mohana\
 > bhakti kari' kaila prabhu tāṅra daraśana
 
 *remuṇāte*—en la aldea de Remuṇā; *gopīnātha*—la Deidad de Gopīnātha; *parama-mohana*—muy atractiva; *bhakti kari'*—con gran devoción; *kaila*—hizo; *prabhu*—el Señor; *tāṅra*—de Él; *daraśana*—visita.

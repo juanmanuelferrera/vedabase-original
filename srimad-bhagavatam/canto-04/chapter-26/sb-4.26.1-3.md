@@ -1,27 +1,27 @@
 ### SB 4.26.1-3
 
-> नारद उवाच
-> स एकदा महेष्वासो रथं पञ्चाश्वमाशुगम् ।
-> द्वीषं द्विचक्रमेकाक्षं त्रिवेणुं पञ्चबन्धुरम् ॥१॥
-> एकरश्म्येकदमनमेकनीडं द्विकूबरम् ।
-> पञ्चप्रहरणं सप्त वरूथं पञ्चविक्रमम् ॥२॥
-> हैमोपस्करमारुह्य स्वर्णवर्माक्षयेषुधिः ।
+> नारद उवाच\
+> स एकदा महेष्वासो रथं पञ्चाश्वमाशुगम् ।\
+> द्वीषं द्विचक्रमेकाक्षं त्रिवेणुं पञ्चबन्धुरम् ॥१॥\
+> एकरश्म्येकदमनमेकनीडं द्विकूबरम् ।\
+> पञ्चप्रहरणं सप्त वरूथं पञ्चविक्रमम् ॥२॥\
+> हैमोपस्करमारुह्य स्वर्णवर्माक्षयेषुधिः ।\
 > एकादशचमूनाथः पञ्चप्रस्थमगाद्वनम् ॥३॥
 
-> nārada uvāca
-> sa ekadā maheṣvāso
-> rathaṁ pañcāśvam āśu-gam
-> dvīṣaṁ dvi-cakram ekākṣaṁ
+> nārada uvāca\
+> sa ekadā maheṣvāso\
+> rathaṁ pañcāśvam āśu-gam\
+> dvīṣaṁ dvi-cakram ekākṣaṁ\
 > tri-veṇuṁ pañca-bandhuram
 
-> eka-raśmy eka-damanam
-> eka-nīḍaṁ dvi-kūbaram
-> pañca-praharaṇaṁ sapta-
+> eka-raśmy eka-damanam\
+> eka-nīḍaṁ dvi-kūbaram\
+> pañca-praharaṇaṁ sapta-\
 > varūthaṁ pañca-vikramam
 
-> haimopaskaram āruhya
-> svarṇa-varmākṣayeṣudhiḥ
-> ekādaśa-camū-nāthaḥ
+> haimopaskaram āruhya\
+> svarṇa-varmākṣayeṣudhiḥ\
+> ekādaśa-camū-nāthaḥ\
 > pañca-prastham agād vanam
 
 *nāradaḥ uvāca*—Nārada said; *saḥ*—King Purañjana; *ekadā*—once upon a time; *mahā-iṣvāsaḥ*—carrying his strong bow and arrows; *ratham*—chariot; *pañca-aśvam*—five horses; *āśu-gam*—going very swiftly; *dvi-īṣam*—two arrows; *dvi-cakram*—two wheels; *eka*—one; *akṣam*—axle; *tri*—three; *veṇum*—flags; *pañca*—five; *bandhuram*—obstacles; *eka*—one; *raśmi*—rope, rein; *eka*—one; *damanam*—chariot driver; *eka*—one; *nīḍam*—sitting place; *dvi*—two; *kūbaram*—posts to which the harnesses are fixed; *pañca*—five; *praharaṇam*—weapons; *sapta*—seven; *varūtham*—coverings or ingredients of the body; *pañca*—five; *vikramam*—processes; *haima*—golden; *upaskaram*—ornaments; *āruhya*—riding on; *svarṇa*—golden; *varmā*—armor; *akṣaya*—inexhaustible; *iṣu-dhiḥ*—quiver; *ekādaśa*—eleven; *camū-nāthaḥ*—commanders; *pañca*—five; *prastham*—destinations, objectives; *agāt*—went; *vanam*—to the forest.

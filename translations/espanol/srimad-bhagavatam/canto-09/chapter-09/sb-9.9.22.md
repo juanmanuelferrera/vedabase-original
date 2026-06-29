@@ -1,11 +1,11 @@
 ### SB 9.9.22
 
-> परिवेक्ष्यमाणं भगवान्विलोक्याभक्ष्यमञ्जसा
+> परिवेक्ष्यमाणं भगवान्विलोक्याभक्ष्यमञ्जसा\
 > राजानमशपत्क्रुद्धो रक्षो ह्येवं भविष्यसि ॥२२॥
 
-> parivekṣyamāṇaṁ bhagavān
-> vilokyābhakṣyam añjasā
-> rājānam aśapat kruddho
+> parivekṣyamāṇaṁ bhagavān\
+> vilokyābhakṣyam añjasā\
+> rājānam aśapat kruddho\
 > rakṣo hy evaṁ bhaviṣyasi
 
 *parivekṣyamāṇam*—mientras examinaba los comestibles; *bhagavān*—el muy poderoso; *vilokya*—cuando vio; *abhakṣyam*—no apto para el consumo; *añjasā*—fácilmente con su poder místico; *rājānam*—al rey; *aśapat*—maldijo; *kruddhaḥ*—muy enfadado; *rakṣaḥ*—un caníbal; *hi*—en verdad; *evam*—de este modo; *bhaviṣyasi*—te volverás.

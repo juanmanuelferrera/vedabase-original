@@ -1,9 +1,9 @@
 ### CC Madhya 15.79
 
-> এক দিন ফল দশ সংস্কার করিয়া ।
+> এক দিন ফল দশ সংস্কার করিয়া ।\
 > ভোগ লাগাইতে সেবক আইল লঞা ॥৭৯॥
 
-> eka dina phala daśa saṁskāra kariyā
+> eka dina phala daśa saṁskāra kariyā\
 > bhoga lāgāite sevaka āila lañā
 
 *eka dina*—un día; *phala*—frutos; *daśa*—diez; *saṁskāra kariyā*—después de limpiarlos; *bhoga lāgāite*—para ofrecer el bhoga; *sevaka*—sirviente; *āila*—vino; *lañā*—trayendo.

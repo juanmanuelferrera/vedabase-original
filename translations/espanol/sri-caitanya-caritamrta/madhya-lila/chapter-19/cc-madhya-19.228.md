@@ -1,9 +1,9 @@
 ### CC Madhya 19.228
 
-> আপনারে ‘পালক’ জ্ঞান, কৃষ্ণে ‘পাল্য’-জ্ঞান ।
+> আপনারে ‘পালক’ জ্ঞান, কৃষ্ণে ‘পাল্য’-জ্ঞান ।\
 > ‘চারি’ গুণে বাৎসল্য রস — অমৃত-সমান ॥২২৮॥
 
-> āpanāre 'pālaka' jñāna, kṛṣṇe 'pālya'-jñāna
+> āpanāre 'pālaka' jñāna, kṛṣṇe 'pālya'-jñāna\
 > 'cāri' guṇe vātsalya rasa--amṛta-samāna
 
 *āpanāre*—a sí mismo; *pālaka jñāna*—la noción de ser cuidador; *kṛṣṇe*—en el Señor Kṛṣṇa; *pālya*—como objeto de protección; *jñāna*—noción; *cāri*—cuatro; *guṇe*—en cualidades; *vātsalya rasa*—el rasa del amor parental; *amṛta-samāna*—como néctar.

@@ -1,13 +1,13 @@
 ### CC Madhya 8.206
 
-> বিভুরপি সুখরূপঃ স্বপ্ৰকাশোঽপি ভাবঃ
-> ক্ষণমপি ন হি রাধাকৃষ্ণয়োর্যা ঋতে স্বাঃ ৷
-> প্ৰবহতি রসপুষ্টিং চিদ্বিভূতীরিবেশঃ
+> বিভুরপি সুখরূপঃ স্বপ্ৰকাশোঽপি ভাবঃ\
+> ক্ষণমপি ন হি রাধাকৃষ্ণয়োর্যা ঋতে স্বাঃ ৷\
+> প্ৰবহতি রসপুষ্টিং চিদ্বিভূতীরিবেশঃ\
 > শ্রয়তি ন পদমাসাং কঃ সখীনাং রসজ্ঞঃ ৷৷ ২০৬ ৷৷ ॥২০৬॥
 
-> vibhur api sukha-rūpaḥ sva-prakāśo 'pi bhāvaḥ
-> kṣaṇam api na hi rādhā-kṛṣṇayor yā ṛte svāḥ
-> pravahati rasa-puṣṭiṁ cid-vibhūtīr iveśaḥ
+> vibhur api sukha-rūpaḥ sva-prakāśo 'pi bhāvaḥ\
+> kṣaṇam api na hi rādhā-kṛṣṇayor yā ṛte svāḥ\
+> pravahati rasa-puṣṭiṁ cid-vibhūtīr iveśaḥ\
 > śrayati na padam āsāṁ kaḥ sakhīnāṁ rasa-jñaḥ
 
 *vibhuḥ*—todopoderoso; *api*—aunque; *sukha-rūpaḥ*—la felicidad personificada; *sva-prakāśaḥ*—autoefulgente; *api*—aunque; *bhāvaḥ*—las actividades completamente espirituales; *kṣaṇam api*—ni siquiera por un momento; *na*—nunca; *hi*—ciertamente; *rādhā-kṛṣṇayoḥ*—de Śrī Rādhā y Kṛṣṇa; *yāḥ*—a quienes; *ṛte*—sin; *svāḥ*—Su propio séquito (las gopīs); *pravahati*—conduce a; *rasa-puṣṭim*—la plenitud de la melosidad más elevada; *cit-vibhūtīḥ*—potencias espirituales; *iva*—como; *īśaḥ*—la Suprema Personalidad de Dios; *śrayati*—se refugia; *na*—no; *padam*—la posición; *āsām*—de ellas; *kaḥ*—quién; *sakhīnām*—de las asociadas personales; *rasa-jñaḥ*—aquel que está versado en la ciencia de las melosidades.

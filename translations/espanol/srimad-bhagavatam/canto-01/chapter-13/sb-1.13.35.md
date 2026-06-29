@@ -1,13 +1,13 @@
 ### SB 1.13.35
 
-> सूत उवाच
-> कृपया स्नेहवैक्लव्यात्सूतो विरहकर्शितः ।
+> सूत उवाच\
+> कृपया स्नेहवैक्लव्यात्सूतो विरहकर्शितः ।\
 > आत्मेश्वरमचक्षाणो न प्रत्याहातिपीडितः ॥३५॥
 
-> sūta uvāca
-> kṛpayā sneha-vaiklavyāt
-> sūto viraha-karśitaḥ
-> ātmeśvaram acakṣāṇo
+> sūta uvāca\
+> kṛpayā sneha-vaiklavyāt\
+> sūto viraha-karśitaḥ\
+> ātmeśvaram acakṣāṇo\
 > na pratyāhātipīḍitaḥ
 
 *sūtaḥ uvāca*—Sūta Gosvāmī dijo; *kṛpayā*—por una gran compasión; *sneha-vaiklavyāt*—trastorno mental debido a un profundo afecto; *sūtaḥ*—Sañjaya; *viraha-karśitaḥ*—afligido por la separación; *ātma-īśvaram*—su amo; *acakṣāṇaḥ*—al no ver; *na*—no; *pratyāha*—respondió; *ati-pīḍitaḥ*—estando muy acongojado.

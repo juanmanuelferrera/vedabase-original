@@ -1,9 +1,9 @@
 ### CC Antya 7.55
 
-> ভট্টের মনেতে এই ছিল দীর্ঘ গর্ব ।
+> ভট্টের মনেতে এই ছিল দীর্ঘ গর্ব ।\
 > প্রভুর বচন শুনি' সে হইল খর্ব ॥৫৫॥
 
-> bhaṭṭera manete ei chila dīrgha garva
+> bhaṭṭera manete ei chila dīrgha garva\
 > prabhura vacana śuni' se ha-ila kharva
 
 *bhaṭṭera manete*—in the mind of Vallabha Bhaṭṭa; *ei*—this; *chila*—was existing; *dīrgha*—for a long time; *garva*—pride; *prabhura*—of Śrī Caitanya Mahāprabhu; *vacana*—the words; *śuni'*—by hearing; *se*—that; *ha-ila*—was; *kharva*—cut down.

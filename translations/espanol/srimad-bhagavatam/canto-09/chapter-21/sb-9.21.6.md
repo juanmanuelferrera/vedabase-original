@@ -1,11 +1,11 @@
 ### SB 9.21.6
 
-> तस्मै संव्यभजत्सोऽन्नमादृत्य श्रद्धयान्वितः
+> तस्मै संव्यभजत्सोऽन्नमादृत्य श्रद्धयान्वितः\
 > हरिं सर्वत्र सम्पश्यन्स भुक्त्वा प्रययौ द्विजः ॥६॥
 
-> tasmai saṁvyabhajat so 'nnam
-> ādṛtya śraddhayānvitaḥ
-> hariṁ sarvatra sampaśyan
+> tasmai saṁvyabhajat so 'nnam\
+> ādṛtya śraddhayānvitaḥ\
+> hariṁ sarvatra sampaśyan\
 > sa bhuktvā prayayau dvijaḥ
 
 *tasmai*—a él (al *brāhmaṇa*); *saṁvyabhajat*—después de dividir, dio su parte; *saḥ*—él (Rantideva); *annam*—la comida; *ādṛtya*—con mucho respeto; *śraddhayā anvitaḥ*—y con fe; *harim*—al Señor Supremo; *sarvatra*—en todas partes, o en el corazón de todos los seres vivos; *saṁpaśyan*—concebir; *saḥ*—él; *bhuktvā*—después de comer; *prayayau*—se fue del lugar; *dvijaḥ*—el *brāhmaṇa*.

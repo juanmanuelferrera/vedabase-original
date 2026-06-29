@@ -1,11 +1,11 @@
 ### SB 9.4.27
 
-> गृहेषु दारेषु सुतेषु बन्धुषु द्विपोत्तमस्यन्दनवाजिवस्तुषु
+> गृहेषु दारेषु सुतेषु बन्धुषु द्विपोत्तमस्यन्दनवाजिवस्तुषु\
 > अक्षय्यरत्नाभरणाम्बरादिष्वनन्तकोशेष्वकरोदसन्मतिम ॥२७॥
 
-> gṛheṣu dāreṣu suteṣu bandhuṣu
-> dvipottama-syandana-vāji-vastuṣu
-> akṣayya-ratnābharaṇāmbarādiṣv
+> gṛheṣu dāreṣu suteṣu bandhuṣu\
+> dvipottama-syandana-vāji-vastuṣu\
+> akṣayya-ratnābharaṇāmbarādiṣv\
 > ananta-kośeṣv akarod asan-matim
 
 *gṛheṣu*—in the homes; *dāreṣu*—in wives; *suteṣu*—in children; *bandhuṣu*—in friends and relatives; *dvipa-uttama*—in the best of powerful elephants; *syandana*—in nice chariots; *vāji*—in first-class horses; *vastuṣu*—in all such things; *akṣayya*—whose value never decreases; *ratna*—in jewels; *ābharaṇa*—in ornaments; *ambara-ādiṣu*—in such dresses and ornaments; *ananta-kośeṣu*—in an inexhaustible treasury; *akarot*—accepted; *asat-matim*—no attachment.

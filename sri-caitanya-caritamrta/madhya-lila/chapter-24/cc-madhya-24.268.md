@@ -1,9 +1,9 @@
 ### CC Madhya 24.268
 
-> একদিন নারদ কহে, — “শুনহ, পর্বতে ।
+> একদিন নারদ কহে, — “শুনহ, পর্বতে ।\
 > আমার এক শিষ্য আছে, চলহ দেখিতে ।।” ॥২৬৮॥
 
-> eka-dina nārada kahe,—"śunaha, parvate
+> eka-dina nārada kahe,—"śunaha, parvate\
 > āmāra eka śiṣya āche, calaha dekhite"
 
 *eka-dina*—one day; *nārada kahe*—Nārada Muni said; *śunaha*—please hear; *parvate*—my dear Parvata; *āmāra*—my; *eka*—one; *śiṣya*—disciple; *āche*—there is; *calaha dekhite*—let us go see.

@@ -1,9 +1,9 @@
 ### CC Madhya 23.86
 
-> অনন্ত গুণ শ্রীরাধিকার, পঁচিশ — প্রধান ।
+> অনন্ত গুণ শ্রীরাধিকার, পঁচিশ — প্রধান ।\
 > যেই গুণের ‘বশ’ হয় কৃষ্ণ ভগবান্ ॥৮৬॥
 
-> ananta guṇa śrī-rādhikāra, pañciśa—pradhāna
+> ananta guṇa śrī-rādhikāra, pañciśa—pradhāna\
 > yei guṇera 'vaśa' haya kṛṣṇa bhagavān
 
 *ananta guṇa*—unlimited qualities; *śrī-rādhikāra*—of Śrīmatī Rādhārāṇī; *pañciśa*—twenty-five; *pradhāna*—chief; *yei guṇera*—of those qualities; *vaśa*—under the control; *haya*—is; *kṛṣṇa*—Lord Kṛṣṇa; *bhagavān*—the Supreme Personality of Godhead.

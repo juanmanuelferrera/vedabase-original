@@ -1,11 +1,11 @@
 ### SB 5.13.8
 
-> चलन्क्वचित्कण्टकशर्कराङ्घ्रिर्नगारुरुक्षुर्विमना इवास्ते
+> चलन्क्वचित्कण्टकशर्कराङ्घ्रिर्नगारुरुक्षुर्विमना इवास्ते\
 > पदे पदेऽभ्यन्तरवह्निनार्दितः कौटुम्बिकः क्रुध्यति वै जनाय ॥८॥
 
-> calan kvacit kaṇṭaka-śarkarāṅghrir
-> nagārurukṣur vimanā ivāste
-> pade pade 'bhyantara-vahninārditaḥ
+> calan kvacit kaṇṭaka-śarkarāṅghrir\
+> nagārurukṣur vimanā ivāste\
+> pade pade 'bhyantara-vahninārditaḥ\
 > kauṭumbikaḥ krudhyati vai janāya
 
 *calan*—wandering; *kvacit*—sometimes; *kaṇṭaka-śarkara*—pierced by thorns and small stones; *aṅghriḥ*—whose feet; *naga*—the hills; *ārurukṣuḥ*—one desiring to climb; *vimanāḥ*—disappointed; *iva*—like; *āste*—becomes; *pade pade*—step by step; *abhyantara*—within the abdomen; *vahninā*—by the strong fire of appetite; *arditaḥ*—being fatigued and aggrieved; *kauṭumbikaḥ*—a person living with his family members; *krudhyati*—becomes angry; *vai*—certainly; *janāya*—at the family members.

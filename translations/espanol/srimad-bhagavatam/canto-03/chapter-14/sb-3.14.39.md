@@ -1,11 +1,11 @@
 ### SB 3.14.39
 
-> भविष्यतस्तवाभद्रावभद्रे जाठराधमौ ।
+> भविष्यतस्तवाभद्रावभद्रे जाठराधमौ ।\
 > लोकान्सपालांस्त्रींश्चण्डि मुहुराक्रन्दयिष्यतः ॥३९॥
 
-> bhaviṣyatas tavābhadrāv
-> abhadre jāṭharādhamau
-> lokān sa-pālāṁs trīṁś caṇḍi
+> bhaviṣyatas tavābhadrāv\
+> abhadre jāṭharādhamau\
+> lokān sa-pālāṁs trīṁś caṇḍi\
 > muhur ākrandayiṣyataḥ
 
 *bhaviṣyataḥ*—nacerán; *tava*—tus; *abhadrau*—dos hijos arrogantes; *abhadre*—¡oh, desdichada mujer!; *jāṭhara-adhamau*—nacidos de un vientre condenado; *lokān*—todos los planetas; *sa-pālān*—con sus gobernantes; *trīn*—tres; *caṇḍi*—insolente; *muhuḥ*—constantemente; *ākran-dayiṣyataḥ*—serán causa de lamentación.

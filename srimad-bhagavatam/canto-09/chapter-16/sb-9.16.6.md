@@ -1,11 +1,11 @@
 ### SB 9.16.6
 
-> रामः सञ्चोदितः पित्रा भ्रात्न्मात्रा सहावधीत
+> रामः सञ्चोदितः पित्रा भ्रात्न्मात्रा सहावधीत\
 > प्रभावज्ञओ मुनेः सम्यक्समाधेस्तपसश्च सः ॥६॥
 
-> rāmaḥ sañcoditaḥ pitrā
-> bhrātṝn mātrā sahāvadhīt
-> prabhāva-jño muneḥ samyak
+> rāmaḥ sañcoditaḥ pitrā\
+> bhrātṝn mātrā sahāvadhīt\
+> prabhāva-jño muneḥ samyak\
 > samādhes tapasaś ca saḥ
 
 *rāmaḥ*—Lord Paraśurāma; *sañcoditaḥ*—being encouraged (to kill his mother and brothers); *pitrā*—by his father; *bhrātṝn*—all his brothers; *mātrā saha*—with the mother; *avadhīt*—killed immediately; *prabhāva-jñaḥ*—aware of the prowess; *muneḥ*—of the great sage; *samyak*—completely; *samādheḥ*—by meditation; *tapasaḥ*—by austerity; *ca*—also; *saḥ*—he.

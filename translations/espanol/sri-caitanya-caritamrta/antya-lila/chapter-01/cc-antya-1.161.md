@@ -1,13 +1,13 @@
 ### CC Antya 1.161
 
-> পরামৃষ্টাঙ্গুষ্ঠত্রয়মসিতরত্নৈরুভয়তো
-> বহন্তী সংকীর্ণৌ মণিভিররুণৈস্তৎপরিসরৌ ।
-> তয়োর্মধ্যে হীরোজ্জ্বলবিমল-জাম্বূনদময়ী
+> পরামৃষ্টাঙ্গুষ্ঠত্রয়মসিতরত্নৈরুভয়তো\
+> বহন্তী সংকীর্ণৌ মণিভিররুণৈস্তৎপরিসরৌ ।\
+> তয়োর্মধ্যে হীরোজ্জ্বলবিমল-জাম্বূনদময়ী\
 > করে কল্যাণীয়ং বিহরতি হরেঃ কেলিমুরলী ॥১৬১॥
 
-> parāmṛṣṭāṅguṣṭha-trayam asita-ratnair ubhayato
-> vahantī saṅkīrṇau maṇibhir aruṇais tat-parisarau
-> tayor madhye hīrojjvala-vimala-jāmbūnada-mayī
+> parāmṛṣṭāṅguṣṭha-trayam asita-ratnair ubhayato\
+> vahantī saṅkīrṇau maṇibhir aruṇais tat-parisarau\
+> tayor madhye hīrojjvala-vimala-jāmbūnada-mayī\
 > kare kalyāṇīyaṁ viharati hareḥ keli-muralī
 
 *parāmṛṣṭā*—medida; *aṅguṣṭha-trayam*—una longitud de tres dedos; *asita-ratnaiḥ*—con valiosas joyas indra-nīla; *ubhayataḥ*—por ambos extremos; *vahantī*—teniendo; *saṅkīrṇau*—adornados; *maṇibhiḥ*—con gemas; *aruṇaiḥ*—rubíes; *tat-parisarau*—los dos extremos de la flauta; *tayoḥ madhye*—entre ellos; *hīra*—con diamantes; *ujjvala*—resplandeciente; *vimala*—pura; *jāmbūnada-mayī*—recubierta de lámina de oro; *kare*—en la mano; *kalyāṇī*—muy auspiciosa; *iyam*—esta; *viharati*—brilla; *hareḥ*—de Kṛṣṇa; *keli-muralī*—la flauta de los pasatiempos.

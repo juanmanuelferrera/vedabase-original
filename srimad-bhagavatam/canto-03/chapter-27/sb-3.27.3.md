@@ -1,11 +1,11 @@
 ### SB 3.27.3
 
-> तेन संसारपदवीमवशोऽभ्येत्यनिर्वृतः ।
+> तेन संसारपदवीमवशोऽभ्येत्यनिर्वृतः ।\
 > प्रासङ्गिकैः कर्मदोषैः सदसन्मिश्रयोनिषु ॥३॥
 
-> tena saṁsāra-padavīm
-> avaśo 'bhyety anirvṛtaḥ
-> prāsaṅgikaiḥ karma-doṣaiḥ
+> tena saṁsāra-padavīm\
+> avaśo 'bhyety anirvṛtaḥ\
+> prāsaṅgikaiḥ karma-doṣaiḥ\
 > sad-asan-miśra-yoniṣu
 
 *tena*—by this; *saṁsāra*—of repeated birth and death; *padavīm*—the path; *avaśaḥ*—helplessly; *abhyeti*—he undergoes; *anirvṛtaḥ*—discontented; *prāsaṅgikaiḥ*—resulting from association with material nature; *karma-doṣaiḥ*—by faulty actions; *sat*—good; *asat*—bad; *miśra*—mixed; *yoniṣu*—in different species of life.

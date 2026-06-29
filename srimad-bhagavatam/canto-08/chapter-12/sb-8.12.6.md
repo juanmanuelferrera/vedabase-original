@@ -1,11 +1,11 @@
 ### SB 8.12.6
 
-> तवैव चरणाम्भोजं श्रेयस्कामा निराशिषः
+> तवैव चरणाम्भोजं श्रेयस्कामा निराशिषः\
 > विसृज्योभयतः सङ्गं मुनयः समुपासते ॥६॥
 
-> tavaiva caraṇāmbhojaṁ
-> śreyas-kāmā nirāśiṣaḥ
-> visṛjyobhayataḥ saṅgaṁ
+> tavaiva caraṇāmbhojaṁ\
+> śreyas-kāmā nirāśiṣaḥ\
+> visṛjyobhayataḥ saṅgaṁ\
 > munayaḥ samupāsate
 
 *tava*—Your; *eva*—indeed; *caraṇa-ambhojam*—lotus feet; *śreyaḥ-kāmāḥ*—persons desiring the ultimate auspiciousness, the ultimate goal of life; *nirāśiṣaḥ*—without material desire; *visṛjya*—giving up; *ubhayataḥ*—in this life and the next; *saṅgam*—attachment; *munayaḥ*—great sages; *samupāsate*—worship.

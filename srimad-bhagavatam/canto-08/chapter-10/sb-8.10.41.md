@@ -1,11 +1,11 @@
 ### SB 8.10.41
 
-> बलिर्महेन्द्रं दशभिस्त्रिभिरैरावतं शरैः
+> बलिर्महेन्द्रं दशभिस्त्रिभिरैरावतं शरैः\
 > चतुर्भिश्चतुरो वाहानेकेनारोहमार्च्छयत ॥४१॥
 
-> balir mahendraṁ daśabhis
-> tribhir airāvataṁ śaraiḥ
-> caturbhiś caturo vāhān
+> balir mahendraṁ daśabhis\
+> tribhir airāvataṁ śaraiḥ\
+> caturbhiś caturo vāhān\
 > ekenāroham ārcchayat
 
 *baliḥ*—Mahārāja Bali; *mahā-indram*—the King of heaven; *daśabhiḥ*—with ten; *tribhiḥ*—with three; *airāvatam*—Airāvata, carrying Indra; *śaraiḥ*—by arrows; *caturbhiḥ*—by four arrows; *caturaḥ*—the four; *vāhān*—mounted soldiers; *ekena*—by one; *āroham*—the driver of the elephants; *ārcchayat*—attacked.

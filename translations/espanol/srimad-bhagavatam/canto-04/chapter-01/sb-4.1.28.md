@@ -1,13 +1,13 @@
 ### SB 4.1.28
 
-> एको मयेह भगवान्विविधप्रधानैश्
-> चित्तीकृतः प्रजननाय कथं नु यूयम् ।
-> अत्रागतास्तनुभृतां मनसोऽपि दूराद्
+> एको मयेह भगवान्विविधप्रधानैश्\
+> चित्तीकृतः प्रजननाय कथं नु यूयम् ।\
+> अत्रागतास्तनुभृतां मनसोऽपि दूराद्\
 > ब्रूत प्रसीदत महानिह विस्मयो मे ॥२८॥
 
-> eko mayeha bhagavān vividha-pradhānaiś
-> cittī-kṛtaḥ prajananāya kathaṁ nu yūyam
-> atrāgatās tanu-bhṛtāṁ manaso 'pi dūrād
+> eko mayeha bhagavān vividha-pradhānaiś\
+> cittī-kṛtaḥ prajananāya kathaṁ nu yūyam\
+> atrāgatās tanu-bhṛtāṁ manaso 'pi dūrād\
 > brūta prasīdata mahān iha vismayo me
 
 *ekaḥ*—uno; *mayā*—por mí; *iha*—aquí; *bhagavān*—gran personalidad; *vividha*—varias; *pradhānaiḥ*—con utensilios; *cittī-kṛtaḥ*—fija en la mente; *prajananāya*—para engendrar un hijo; *katham*—por qué; *nu*—sin embargo; *yūyam*—todos ustedes; *atra*—aquí; *āgatāḥ*—aparecidos; *tanu-bhṛtām*—de los personificados; *manasaḥ*—las mentes; *api*—aunque; *dūrāt*—de muy lejos; *brūta*—por favor, explíquenme; *prasīdata*—siendo misericordiosos conmigo; *mahān*—muy grande; *iha*—esta; *vismayaḥ*—duda; *me*—mía.

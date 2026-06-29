@@ -1,9 +1,9 @@
 ### CC Madhya 13.13
 
-> বিশ্বম্ভর জগন্নাথে কে চালাইতে পারে ?
+> বিশ্বম্ভর জগন্নাথে কে চালাইতে পারে ?\
 > আপন ইচ্ছায় চলে করিতে বিহারে ॥১৩॥
 
-> viśvambhara jagannāthe ke cālāite pāre?
+> viśvambhara jagannāthe ke cālāite pāre?\
 > āpana icchāya cale karite vihāre
 
 *viśvambhara*—el sustentador del universo; *jagannāthe*—al Señor Jagannātha; *ke*—quién; *cālāite*—hacer que sea transportado; *pāre*—puede; *āpana*—por Su propia; *icchāya*—voluntad; *cale*—se mueve; *karite*—para realizar; *vihāre*—pasatiempos.

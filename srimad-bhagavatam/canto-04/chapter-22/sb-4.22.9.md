@@ -1,11 +1,11 @@
 ### SB 4.22.9
 
-> नैव लक्षयते लोको लोकान्पर्यटतोऽपि यान् ।
+> नैव लक्षयते लोको लोकान्पर्यटतोऽपि यान् ।\
 > यथा सर्वदृशं सर्व आत्मानं येऽस्य हेतवः ॥९॥
 
-> naiva lakṣayate loko
-> lokān paryaṭato 'pi yān
-> yathā sarva-dṛśaṁ sarva
+> naiva lakṣayate loko\
+> lokān paryaṭato 'pi yān\
+> yathā sarva-dṛśaṁ sarva\
 > ātmānaṁ ye 'sya hetavaḥ
 
 *na*—not; *eva*—thus; *lakṣayate*—can see; *lokaḥ*—people; *lokān*—all planets; *paryaṭataḥ*—traveling; *api*—although; *yān*—whom; *yathā*—as much as; *sarva-dṛśam*—the Supersoul; *sarve*—in all; *ātmānam*—within everyone; *ye*—those; *asya*—of the cosmic manifestation; *hetavaḥ*—causes.

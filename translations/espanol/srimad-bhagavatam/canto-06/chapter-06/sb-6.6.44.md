@@ -1,11 +1,11 @@
 ### SB 6.6.44
 
-> त्वष्टुर्दैत्यात्मजा भार्या रचना नाम कन्यका
+> त्वष्टुर्दैत्यात्मजा भार्या रचना नाम कन्यका\
 > सन्निवेशस्तयोर्जज्ञए विश्वरूपश्च वीर्यवान ॥४४॥
 
-> tvaṣṭur daityātmajā bhāryā
-> racanā nāma kanyakā
-> sanniveśas tayor jajñe
+> tvaṣṭur daityātmajā bhāryā\
+> racanā nāma kanyakā\
+> sanniveśas tayor jajñe\
 > viśvarūpaś ca vīryavān
 
 *tvaṣṭuḥ*—de Tvaṣṭā; *daitya-ātma-jā*—la hija de un demonio; *bhāryā*—esposa; *racanā*—Racanā; *nāma*—llamada; *kanyakā*—una doncella; *sanniveśaḥ*—Sanniveśa; *tayoḥ*—de esos dos; *jajñe*—nació; *viśvarūpaḥ*—Viśvarūpa; *ca*—y; *vīryavān*—muy poderosos en fuerza física.

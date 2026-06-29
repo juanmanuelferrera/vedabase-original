@@ -1,11 +1,11 @@
 ### SB 5.11.11
 
-> द्रव्यस्वभावाशयकर्मकालैरेकादशामी मनसो विकाराः
+> द्रव्यस्वभावाशयकर्मकालैरेकादशामी मनसो विकाराः\
 > सहस्रशः शतशः कोटिशश्च क्षेत्रज्ञअतो न मिथो न स्वतः स्युः ॥११॥
 
-> dravya-svabhāvāśaya-karma-kālair
-> ekādaśāmī manaso vikārāḥ
-> sahasraśaḥ śataśaḥ koṭiśaś ca
+> dravya-svabhāvāśaya-karma-kālair\
+> ekādaśāmī manaso vikārāḥ\
+> sahasraśaḥ śataśaḥ koṭiśaś ca\
 > kṣetrajñato na mitho na svataḥ syuḥ
 
 *dravya*—by physical objects; *sva-bhāva*—by nature as the cause of development; *āśaya*—by culture; *karma*—by predestined resultant actions; *kālaiḥ*—by time; *ekādaśa*—eleven; *amī*—all these; *manasaḥ*—of the mind; *vikārāḥ*—transformations; *sahasraśaḥ*—in thousands; *śataśaḥ*—in hundreds; *koṭiśaḥ ca*—and in millions; *kṣetra-jñataḥ*—from the original Supreme Personality of Godhead; *na*—not; *mithaḥ*—one another; *na*—nor; *svataḥ*—from themselves; *syuḥ*—are.

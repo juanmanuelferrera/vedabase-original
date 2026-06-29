@@ -1,11 +1,11 @@
 ### SB 7.7.17
 
-> भवतामपि भूयान्मे यदि श्रद्दधते वचः
+> भवतामपि भूयान्मे यदि श्रद्दधते वचः\
 > वैशारदी धीः श्रद्धातः स्त्रीबालानां च मे यथा ॥१७॥
 
-> bhavatām api bhūyān me
-> yadi śraddadhate vacaḥ
-> vaiśāradī dhīḥ śraddhātaḥ
+> bhavatām api bhūyān me\
+> yadi śraddadhate vacaḥ\
+> vaiśāradī dhīḥ śraddhātaḥ\
 > strī-bālānāṁ ca me yathā
 
 *bhavatām*—de ustedes mismos; *api*—también; *bhūyāt*—puede ser; *me*—de mí; *yadi*—si; *śraddadhate*—creen; *vacaḥ*—las palabras; *vaiśāradī*—del muy experto, o en relación con el Señor; *dhīḥ*—inteligencia; *śraddhātaḥ*—debido a la fe firme; *strī*—de mujeres; *bālānām*—de niños pequeños; *ca*—también; *me*—de mí; *yathā*—tal como.

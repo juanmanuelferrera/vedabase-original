@@ -1,9 +1,9 @@
 ### CC Madhya 24.286
 
-> তাঁতে রমে যেই, সেই সব — ‘আত্মারাম’ ।
+> তাঁতে রমে যেই, সেই সব — ‘আত্মারাম’ ।\
 > ‘বিধিভক্ত’, ‘রাগভক্ত’, — দুইবিধ নাম ॥২৮৬॥
 
-> tāṅte rame yei, sei saba--'ātmārāma'
+> tāṅte rame yei, sei saba--'ātmārāma'\
 > 'vidhi-bhakta', 'rāga-bhakta',--dui-vidha nāma
 
 *tāṅte*—en todas esas Supremas Personalidades de Dios; *rame*—se complace en el servicio devocional; *yei*—aquellas personas que; *sei saba*—todas ellas; *ātmārāma*—también se les conoce como *ātmārāma*; *vidhi-bhakta*—devotos que siguen los principios regulativos; *rāga-bhakta*—devotos que siguen el amor espontáneo; *dui-vidha nāma*—dos variedades diferentes.

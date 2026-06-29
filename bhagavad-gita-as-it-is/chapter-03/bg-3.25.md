@@ -1,11 +1,11 @@
 ### Bg 3.25
 
-> सक्ताः कर्मण्यविद्वांसो यथा कुर्वन्ति भारत ।
+> सक्ताः कर्मण्यविद्वांसो यथा कुर्वन्ति भारत ।\
 > कुर्याद्विद्वांस्तथासक्तश्चिकीर्षुर्लोकसंग्रहम् ॥२५॥
 
-> saktāḥ karmaṇy avidvāṁso
-> yathā kurvanti bhārata
-> kuryād vidvāṁs tathāsaktaś
+> saktāḥ karmaṇy avidvāṁso\
+> yathā kurvanti bhārata\
+> kuryād vidvāṁs tathāsaktaś\
 > cikīrṣur loka-saṅgraham
 
 *saktāḥ*—being attached; *karmaṇi*—prescribed duties; *avidvāṁsaḥ*—the ignorant; *yathā*—as much as; *kurvanti*—do it; *bhārata*—O descendant of Bharata; *kuryāt*—must do; *vidvān*—the learned; *tathā*—thus; *asaktaḥ*—without attachment; *cikīrṣuḥ*—desiring to; *loka-saṅgraham*—leading the people in general.

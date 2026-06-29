@@ -1,9 +1,9 @@
 ### CC Antya 7.21
 
-> ষড়্দর্শন-বেত্তা ভট্টাচার্য-সার্বভৌম ।
+> ষড়্দর্শন-বেত্তা ভট্টাচার্য-সার্বভৌম ।\
 > ষড়্দর্শনে জগদ্গুরু ভাগবতোত্তম ॥২১॥
 
-> ṣaḍ-darśana-vettā bhaṭṭācārya-sārvabhauma
+> ṣaḍ-darśana-vettā bhaṭṭācārya-sārvabhauma\
 > ṣaḍ-darśane jagad-guru bhāgavatottama
 
 *ṣaṭ-darśana*—of the six philosophical theses; *vettā*—the knower; *bhaṭṭācārya-sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *ṣaṭ-darśane*—in six philosophical theses; *jagat-guru*—the spiritual master of the entire world; *bhāgavata-uttama*—the best of the devotees.

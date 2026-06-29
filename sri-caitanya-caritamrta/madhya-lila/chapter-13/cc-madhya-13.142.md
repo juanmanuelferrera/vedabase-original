@@ -1,13 +1,13 @@
 ### CC Madhya 13.142
 
-> দেহ-স্মৃতি নাহি যার, সংসারকূপ কাহাঁ তার,
-> তাহা হৈতে না চাহে উদ্ধার ।
-> বিরহ-সমুদ্র-জলে, কাম-তিমিঙ্গিলে গিলে,
+> দেহ-স্মৃতি নাহি যার, সংসারকূপ কাহাঁ তার,\
+> তাহা হৈতে না চাহে উদ্ধার ।\
+> বিরহ-সমুদ্র-জলে, কাম-তিমিঙ্গিলে গিলে,\
 > গোপীগণে নেহ’ তার পার ॥১৪২॥
 
-> deha-smṛti nāhi yāra, saṁsāra-kūpa kāhāṅ tāra,
-> tāhā haite nā cāhe uddhāra
-> viraha-samudra-jale, kāma-timiṅgile gile,
+> deha-smṛti nāhi yāra, saṁsāra-kūpa kāhāṅ tāra,\
+> tāhā haite nā cāhe uddhāra\
+> viraha-samudra-jale, kāma-timiṅgile gile,\
 > gopī-gaṇe neha' tāra pāra
 
 *deha-smṛti*—bodily concept of life; *nāhi*—not; *yāra*—one whose; *saṁsāra-kūpa*—blind well of material life; *kāhāṅ*—where is; *tāra*—his; *tāhā haite*—from that; *nā*—does not; *cāhe*—want; *uddhāra*—liberation; *viraha-samudra-jale*—in the water of the ocean of separation; *kāma-timiṅgile*—the transcendental Cupid in the form of *timiṅgila* fish; *gile*—swallow; *gopī-gaṇe*—the *gopīs*; *neha'*—please take out; *tāra pāra*—beyond that.

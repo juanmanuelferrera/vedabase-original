@@ -1,11 +1,11 @@
 ### SB 7.14.35
 
-> देवर्ष्यर्हत्सु वै सत्सु तत्र ब्रह्मात्मजादिषु
+> देवर्ष्यर्हत्सु वै सत्सु तत्र ब्रह्मात्मजादिषु\
 > राजन्यदग्रपूजायां मतः पात्रतयाच्युतः ॥३५॥
 
-> devarṣy-arhatsu vai satsu
-> tatra brahmātmajādiṣu
-> rājan yad agra-pūjāyāṁ
+> devarṣy-arhatsu vai satsu\
+> tatra brahmātmajādiṣu\
+> rājan yad agra-pūjāyāṁ\
 > mataḥ pātratayācyutaḥ
 
 *deva-ṛṣi*—entre los semidioses y personas santas, con Nārada Muni entre ellos; *arhatsu*—las personalidades más venerables y dignas de adoración; *vai*—en verdad; *satsu*—los grandes devotos; *tatra*—allí (en el *rājasūya-yajña*); *brahma-ātma-jādiṣu*—y los hijos del Señor Brahmā (como Sanaka, Sanandana, Sanat y Sanātana); *rājan*—¡oh, rey!; *yat*—de quien; *agra-pūjāyām*—el primero en ser adorado; *mataḥ*—decisión; *pātratayā*—escogido como la mejor persona para presidir el *rājasūya-yajña*; *acyutaḥ*—Kṛṣṇa.

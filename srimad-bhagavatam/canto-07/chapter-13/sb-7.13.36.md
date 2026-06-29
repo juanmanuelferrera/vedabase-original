@@ -1,11 +1,11 @@
 ### SB 7.13.36
 
-> अनीहः परितुष्टात्मा यदृच्छोपनतादहम
+> अनीहः परितुष्टात्मा यदृच्छोपनतादहम\
 > नो चेच्छये बह्वहानि महाहिरिव सत्त्ववान ॥३६॥
 
-> virāgaḥ sarva-kāmebhyaḥ
-> śikṣito me madhu-vratāt
-> kṛcchrāptaṁ madhuvad vittaṁ
+> virāgaḥ sarva-kāmebhyaḥ\
+> śikṣito me madhu-vratāt\
+> kṛcchrāptaṁ madhuvad vittaṁ\
 > hatvāpy anyo haret patim
 
 *virāgaḥ*—detachment; *sarva-kāmebhyaḥ*—from all material desires; *śikṣitaḥ*—has been taught; *me*—unto me; *madhu-vratāt*—from the bumblebee; *kṛcchra*—with great difficulties; *āptam*—acquired; *madhu-vat*—as good as honey ("money is honey"); *vittam*—money; *hatvā*—killing; *api*—even; *anyaḥ*—another; *haret*—takes away; *patim*—the owner.

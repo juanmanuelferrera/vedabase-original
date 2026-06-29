@@ -1,9 +1,9 @@
 ### CC Adi 7.134
 
-> এই মতে প্রতিসূত্রে করেন দূষণ ।
+> এই মতে প্রতিসূত্রে করেন দূষণ ।\
 > শুনি’ চমৎকার হৈল সন্ন্যাসীর গণ ॥১৩৪॥
 
-> ei mate pratisūtre karena dūṣaṇa
+> ei mate pratisūtre karena dūṣaṇa\
 > śuni' camatkāra haila sannyāsīra gaṇa
 
 *ei mate*—de esta manera; *prati-sūtre*—en cada aforismo; *karena*—muestra; *dūṣaṇa*—defectos; *śuniyā*—al escuchar; *camatkāra*—asombrados; *haila*—quedaron; *sannyāsīra*—de todos los māyāvādīs; *gaṇa*—el grupo.

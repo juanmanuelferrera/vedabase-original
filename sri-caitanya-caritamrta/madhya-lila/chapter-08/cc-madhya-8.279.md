@@ -1,9 +1,9 @@
 ### CC Madhya 8.279
 
-> রাধিকার ভাবকান্তি করি’ অঙ্গীকার ।
+> রাধিকার ভাবকান্তি করি’ অঙ্গীকার ।\
 > নিজরস আস্বাদিতে করিয়াছ অবতার ॥২৭৯॥
 
-> rādhikāra bhāva-kānti kari' aṅgīkāra
+> rādhikāra bhāva-kānti kari' aṅgīkāra\
 > nija-rasa āsvādite kariyācha avatāra
 
 *rādhikāra*—of Śrīmatī Rādhārāṇī; *bhāva-kānti*—ecstatic love and luster; *kari'*—making; *aṅgīkāra*—acceptance; *nija-rasa*—Your own transcendental mellow; *āsvādite*—to taste; *kariyācha*—You have made; *avatāra*—incarnation.

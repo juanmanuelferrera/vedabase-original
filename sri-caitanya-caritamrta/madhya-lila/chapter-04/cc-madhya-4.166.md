@@ -1,9 +1,9 @@
 ### CC Madhya 4.166
 
-> পুরী কহে, — এই দুই ঘষিবে চন্দন ।
+> পুরী কহে, — এই দুই ঘষিবে চন্দন ।\
 > আর জনা-দুই দেহ, দিব যে বেতন ॥১৬৬॥
 
-> purī kahe,—ei dui ghaṣibe candana
+> purī kahe,—ei dui ghaṣibe candana\
 > āra janā-dui deha, diba ye vetana
 
 *purī kahe*—Mādhavendra Purī said; *ei dui*—these two assistants; *ghaṣibe*—will grind; *candana*—the sandalwood; *āra*—another; *janā-dui*—two men; *deha*—apply; *diba*—I shall pay; *ye*—that; *vetana*—salary.

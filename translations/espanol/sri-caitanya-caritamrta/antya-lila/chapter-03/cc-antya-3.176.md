@@ -1,9 +1,9 @@
 ### CC Antya 3.176
 
-> তিন-লক্ষ নাম ঠাকুর করেন কীর্তন ।
+> তিন-লক্ষ নাম ঠাকুর করেন কীর্তন ।\
 > নামের মহিমা উঠাইল পণ্ডিতগণ ॥১৭৬॥
 
-> tina-lakṣa nāma ṭhākura karena kīrtana
+> tina-lakṣa nāma ṭhākura karena kīrtana\
 > nāmera mahimā uṭhāila paṇḍita-gaṇa
 
 *tina-lakṣa*—300.000; *nāma*—santos nombres del Señor; *ṭhākura*—Haridāsa Ṭhākura; *karena kīrtana*—solía cantar; *nāmera*—del santo nombre; *mahimā*—glorias; *uṭhāila*—plantearon; *paṇḍita-gaṇa*—todos los eruditos.

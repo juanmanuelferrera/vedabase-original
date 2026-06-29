@@ -1,9 +1,9 @@
 ### CC Antya 7.72
 
-> রথযাত্রা-দিনে প্রভু কীর্তন আরম্ভিলা ।
+> রথযাত্রা-দিনে প্রভু কীর্তন আরম্ভিলা ।\
 > পূর্ববৎ সাত সম্প্রদায় পৃথক্ করিলা ॥৭২॥
 
-> ratha-yātrā-dine prabhu kīrtana ārambhilā
+> ratha-yātrā-dine prabhu kīrtana ārambhilā\
 > pūrvavat sāta sampradāya pṛthak karilā
 
 *ratha-yātrā-dine*—on the day of the car festival; *prabhu*—Śrī Caitanya Mahāprabhu; *kīrtana ārambhilā*—began the congregational chanting; *pūrva-vat*—as previously; *sāta sampradāya*—in seven groups; *pṛthak karilā*—He divided.

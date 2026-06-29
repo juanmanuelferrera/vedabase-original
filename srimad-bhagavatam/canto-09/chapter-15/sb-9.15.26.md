@@ -1,11 +1,11 @@
 ### SB 9.15.26
 
-> हविर्धानीमृषेर्दर्पान्नरान्हर्तुमचोदयत
+> हविर्धानीमृषेर्दर्पान्नरान्हर्तुमचोदयत\
 > ते च माहिष्मतीं निन्युः सवत्सां क्रन्दतीं बलात ॥२६॥
 
-> havirdhānīm ṛṣer darpān
-> narān hartum acodayat
-> te ca māhiṣmatīṁ ninyuḥ
+> havirdhānīm ṛṣer darpān\
+> narān hartum acodayat\
+> te ca māhiṣmatīṁ ninyuḥ\
 > sa-vatsāṁ krandatīṁ balāt
 
 *haviḥ-dhānīm*—the *kāmadhenu*; *ṛṣeḥ*—of the great sage Jamadagni; *darpāt*—because of his being puffed up with material power; *narān*—all his men (soldiers); *hartum*—to steal or take away; *acodayat*—encouraged; *te*—the men of Kārtavīryārjuna; *ca*—also; *māhiṣmatīm*—to the capital of Kārtavīryārjuna; *ninyuḥ*—brought; *sa-vatsām*—with the calf; *krandatīm*—crying; *balāt*—because of being taken away by force.

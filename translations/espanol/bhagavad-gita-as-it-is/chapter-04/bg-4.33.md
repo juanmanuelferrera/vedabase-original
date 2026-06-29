@@ -1,11 +1,11 @@
 ### Bg 4.33
 
-> श्रेयान्द्रव्यमयाद्यज्ञाज्ज्ञानयज्ञः परन्तप ।
+> श्रेयान्द्रव्यमयाद्यज्ञाज्ज्ञानयज्ञः परन्तप ।\
 > सर्वं कर्माखिलं पार्थ ज्ञाने परिसमाप्यते ॥३३॥
 
-> śreyān dravyamayād yajñāj
-> jñāna-yajñaḥ parantapa
-> sarvaṁ karmākhilaṁ pārtha
+> śreyān dravyamayād yajñāj\
+> jñāna-yajñaḥ parantapa\
+> sarvaṁ karmākhilaṁ pārtha\
 > jñāne parisamāpyate
 
 *śreyān*—más grande; *dravyamayāt*—de las posesiones materiales; *yajñat*—conocimiento; *jñāna-yajñaḥ*—sacrificio con conocimiento; *parantapa*—¡oh, subyugador del enemigo!; *sarvam*—todos; *karma*—actividades; *akhilam*—en su totalidad; *pārtha*—¡oh, hijo de Pṛthā!; *jñāne*—con conocimiento; *parisamāpyate*—termina en.

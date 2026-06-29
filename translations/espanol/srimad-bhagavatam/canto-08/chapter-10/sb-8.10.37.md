@@ -1,11 +1,11 @@
 ### SB 8.10.37
 
-> गजास्तुरङ्गाः सरथाः पदातयः सारोहवाहा विविधा विखण्डिताः
+> गजास्तुरङ्गाः सरथाः पदातयः सारोहवाहा विविधा विखण्डिताः\
 > निकृत्तबाहूरुशिरोधराङ्घ्रयश्छिन्नध्वजेष्वासतनुत्रभूषणाः ॥३७॥
 
-> gajās turaṅgāḥ sarathāḥ padātayaḥ
-> sāroha-vāhā vividhā vikhaṇḍitāḥ
-> nikṛtta-bāhūru-śirodharāṅghrayaś
+> gajās turaṅgāḥ sarathāḥ padātayaḥ\
+> sāroha-vāhā vividhā vikhaṇḍitāḥ\
+> nikṛtta-bāhūru-śirodharāṅghrayaś\
 > chinna-dhvajeṣvāsa-tanutra-bhūṣaṇāḥ
 
 *gajāḥ*—elefantes; *turaṅgāḥ*—caballos; *sa-rathāḥ*—con cuadrigas; *padātayaḥ*—soldados de infantería; *sāroha-vāhāḥ*—monturas con sus jinetes; *vividhāḥ*—diversas; *vikhaṇḍitāḥ*—cortados en pedazos; *nikṛtta-bāhu*—brazos cortados; *ūru*—muslos; *śirodhara*—cuellos; *aṅghrayaḥ*—piernas; *chinna*—cortados; *dhvaja*—banderas; *iṣvāsa*—arcos; *tanutra*—armaduras; *bhūṣaṇāḥ*—ornamentos.

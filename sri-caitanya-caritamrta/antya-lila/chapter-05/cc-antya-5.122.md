@@ -1,9 +1,9 @@
 ### CC Antya 5.122
 
-> ঈশ্বরের নাহি কভু দেহ-দেহি-ভেদ ।
+> ঈশ্বরের নাহি কভু দেহ-দেহি-ভেদ ।\
 > স্বরূপ, দেহ, — চিদানন্দ, নাহিক বিভেদ ॥১২২॥
 
-> īśvarera nāhi kabhu deha-dehi-bheda
+> īśvarera nāhi kabhu deha-dehi-bheda\
 > svarūpa, deha,—cid-ānanda, nāhika vibheda
 
 *īśvarera*—of the Supreme Personality of Godhead; *nāhi*—there is not; *kabhu*—at any time; *deha-dehi-bheda*—distinction between the body and soul; *svarūpa*—personal identity; *deha*—body; *cit-ānanda*—all made of blissful spiritual energy; *nāhika vibheda*—there is no distinction.

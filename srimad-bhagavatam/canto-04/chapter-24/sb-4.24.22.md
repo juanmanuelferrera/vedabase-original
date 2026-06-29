@@ -1,11 +1,11 @@
 ### SB 4.24.22
 
-> मत्तभ्रमरसौस्वर्य हृष्टरोमलताङ्घ्रिपम् ।
+> मत्तभ्रमरसौस्वर्य हृष्टरोमलताङ्घ्रिपम् ।\
 > पद्मकोशरजो दिक्षु विक्षिपत्पवनोत्सवम् ॥२२॥
 
-> matta-bhramara-sausvarya-
-> hṛṣṭa-roma-latāṅghripam
-> padma-kośa-rajo dikṣu
+> matta-bhramara-sausvarya-\
+> hṛṣṭa-roma-latāṅghripam\
+> padma-kośa-rajo dikṣu\
 > vikṣipat-pavanotsavam
 
 *matta*—mad; *bhramara*—bumblebees; *sau-svarya*—with great humming; *hṛṣṭa*—joyfully; *roma*—hair on the body; *latā*—creepers; *aṅghripam*—trees; *padma*—lotus flower; *kośa*—whorl; *rajaḥ*—saffron; *dikṣu*—in all directions; *vikṣipat*—throwing away; *pavana*—air; *utsavam*—festival.

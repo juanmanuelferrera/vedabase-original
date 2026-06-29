@@ -1,9 +1,9 @@
 ### CC Madhya 17.198
 
-> মৃগ-মৃগী মুখ দেখি’ প্রভু-অঙ্গ চাটে ।
+> মৃগ-মৃগী মুখ দেখি’ প্রভু-অঙ্গ চাটে ।\
 > ভয় নাহি করে, সঙ্গে যায় বাটে-বাটে ॥১৯৮॥
 
-> mṛga-mṛgī mukha dekhi' prabhu-aṅga cāṭe
+> mṛga-mṛgī mukha dekhi' prabhu-aṅga cāṭe\
 > bhaya nāhi kare, saṅge yāya vāṭe-vāṭe
 
 *mṛga-mṛgī*—the deer, both male and female; *mukha dekhi'*—seeing His face; *prabhu-aṅga cāṭe*—began to lick the body of the Lord; *bhaya nāhi kare*—they were not at all afraid; *saṅge yāya*—go with Him; *vāṭe-vāṭe*—all along the road.

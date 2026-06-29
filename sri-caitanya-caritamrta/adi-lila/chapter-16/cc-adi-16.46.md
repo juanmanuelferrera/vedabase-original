@@ -1,9 +1,9 @@
 ### CC Adi 16.46
 
-> বিপ্র কহে, শ্লোকে নাহি দোষের আভাস ।
+> বিপ্র কহে, শ্লোকে নাহি দোষের আভাস ।\
 > উপমালঙ্কার গুণ, কিছু অনুপ্রাস ॥৪৬॥
 
-> vipra kahe śloke nāhi doṣera ābhāsa
+> vipra kahe śloke nāhi doṣera ābhāsa\
 > upamālaṅkāra guṇa, kichu anuprāsa
 
 *vipra kahe*—the *brāhmaṇa* replied; *śloke*—in that verse; *nāhi*—there is not; *doṣera*—of fault; *ābhāsa*—even a tinge; *upamā-alaṅkāra*—simile or metaphor; *guṇa*—quality; *kichu*—something; *anuprāsa*—alliteration.

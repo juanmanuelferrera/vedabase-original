@@ -1,11 +1,11 @@
 ### CC Madhya 6.254
 
-> বৈরাগ্য-বিদ্যা-নিজ-ভক্তিযোগ-শিক্ষার্থমেকঃ পুরুষঃ পুরাণঃ ।
+> বৈরাগ্য-বিদ্যা-নিজ-ভক্তিযোগ-শিক্ষার্থমেকঃ পুরুষঃ পুরাণঃ ।\
 > শ্রীকৃষ্ণচৈতন্যশরীরধারী কৃপাম্বুধির্যস্তমহং প্ৰপদ্যে ॥২৫৪॥
 
-> vairāgya-vidyā-nija-bhakti-yoga-
-> śikṣārtham ekaḥ puruṣaḥ purāṇaḥ
-> śrī-kṛṣṇa-caitanya-śarīra-dhārī
+> vairāgya-vidyā-nija-bhakti-yoga-\
+> śikṣārtham ekaḥ puruṣaḥ purāṇaḥ\
+> śrī-kṛṣṇa-caitanya-śarīra-dhārī\
 > kṛpāmbudhir yas tam ahaṁ prapadye
 
 *vairāgya*—detachment from everything that does not help develop Kṛṣṇa consciousness; *vidyā*—knowledge; *nija*—own; *bhakti-yoga*—devotional service; *śikṣā-artham*—just to instruct; *ekaḥ*—the single person; *puruṣaḥ*—the Supreme Person; *purāṇaḥ*—very old, or eternal; *śrī-kṛṣṇa-caitanya*—of Lord Śrī Kṛṣṇa Caitanya Mahāprabhu; *śarīra-dhārī*—accepting the body; *kṛpā-ambudhiḥ*—the ocean of transcendental mercy; *yaḥ*—who; *tam*—unto Him; *aham*—I; *prapadye*—surrender.

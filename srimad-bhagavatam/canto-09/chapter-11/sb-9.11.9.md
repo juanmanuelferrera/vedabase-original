@@ -1,11 +1,11 @@
 ### SB 9.11.9
 
-> नाहं बिभर्मि त्वां दुष्टामसतीं परवेश्मगाम
+> नाहं बिभर्मि त्वां दुष्टामसतीं परवेश्मगाम\
 > स्त्रैणो हि बिभृयात्सीतां रामो नाहं भजे पुनः ॥९॥
 
-> nāhaṁ bibharmi tvāṁ duṣṭām
-> asatīṁ para-veśma-gām
-> straiṇo hi bibhṛyāt sītāṁ
+> nāhaṁ bibharmi tvāṁ duṣṭām\
+> asatīṁ para-veśma-gām\
+> straiṇo hi bibhṛyāt sītāṁ\
 > rāmo nāhaṁ bhaje punaḥ
 
 *na*—not; *aham*—I; *bibharmi*—can maintain; *tvām*—you; *duṣṭām*—because you are polluted; *asatīm*—unchaste; *para-veśma-gām*—one who has gone to another man's house and committed adultery; *straiṇaḥ*—a person who is henpecked; *hi*—indeed; *bibhṛyāt*—can accept; *sītām*—even Sītā; *rāmaḥ*—like Lord Rāmacandra; *na*—not; *aham*—I; *bhaje*—shall accept; *punaḥ*—again.

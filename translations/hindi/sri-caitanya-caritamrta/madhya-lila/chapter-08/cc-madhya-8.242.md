@@ -1,9 +1,9 @@
 ### CC Madhya 8.242
 
-> এত বলি’ দুঁহে নিজ-নিজ কার্যে গেলা ।
+> এত বলি’ দুঁহে নিজ-নিজ কার্যে গেলা ।\
 > সন্ধ্যাকালে রায় পুনঃ আসিয়া মিলিলা ॥২৪২॥
 
-> eta bali' duṅhe nija-nija kārye gelā
+> eta bali' duṅhe nija-nija kārye gelā\
 > sandhyā-kāle rāya punaḥ āsiyā mililā
 
 *eta bali'*—यह कहकर; *duṅhe*—दोनों ही; *nija-nija*—अपने-अपने; *kārye*—कर्तव्यों में; *gelā*—चले गये; *sandhyā-kāle*—सायंकाल में; *rāya*—रामानन्द राय; *punaḥ*—पुनः; *āsiyā*—वहाँ आकर; *mililā*—मिले।

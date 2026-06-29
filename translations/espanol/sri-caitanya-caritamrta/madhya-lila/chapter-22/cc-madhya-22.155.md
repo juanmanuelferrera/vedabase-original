@@ -1,11 +1,11 @@
 ### CC Madhya 22.155
 
-> তত্তদ্ভাবাদিমাধুর্যে শ্রুতে ধীর্যদপেক্ষতে ।
+> তত্তদ্ভাবাদিমাধুর্যে শ্রুতে ধীর্যদপেক্ষতে ।\
 > নাত্র শাস্ত্রং ন যুক্তিঞ্চ তল্লোভোৎপত্তিলক্ষণম্ ॥১৫৫॥
 
-> tat-tad-bhā' vādi-mādhurye
-> śrute dhīr yad apekṣate
-> nātra śāstraṁ na yuktiṁ ca
+> tat-tad-bhā' vādi-mādhurye\
+> śrute dhīr yad apekṣate\
+> nātra śāstraṁ na yuktiṁ ca\
 > tal lobhotpatti-lakṣaṇam
 
 *tat-tat*—respectivos; *bhāva-ādi-mādhurye*—la dulzura de los sentimientos amorosos (a saber, *śānta-rasa*, *dāsya-rasa*, *sakhya-rasa*, *vātsalya-rasa* y *mādhurya-rasa*) de los habitantes de Vṛndāvana; *śrute*—cuando se oye; *dhīḥ*—la inteligencia; *yat*—la cual; *apekṣate*—depende de; *na*—no; *atra*—aquí; *śāstram*—escrituras reveladas; *na*—no; *yuktim*—lógica y argumentación; *ca*—también; *tat*—eso; *lobha*—de la codicia de seguir las huellas; *utpatti-lakṣaṇam*—el síntoma del despertar.

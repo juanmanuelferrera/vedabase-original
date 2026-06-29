@@ -1,9 +1,9 @@
 ### CC Adi 10.74
 
-> শ্রীচৈতন্যের অতি প্রিয় বুদ্ধিমন্ত খান্ ।
+> শ্রীচৈতন্যের অতি প্রিয় বুদ্ধিমন্ত খান্ ।\
 > আজন্ম আজ্ঞাকারী তেঁহো সেবক-প্রধান ॥৭৪॥
 
-> śrī-caitanyera ati priya buddhimanta khān
+> śrī-caitanyera ati priya buddhimanta khān\
 > ājanma ājñākārī teṅho sevaka-pradhāna
 
 *śrī-caitanyera*—of Lord Śrī Caitanya Mahāprabhu; *ati priya*—very dear; *buddhimanta khān*—of the name Buddhimanta Khān; *ājanma*—from the very beginning of his life; *ājñā-kārī*—follower of the orders; *teṅho*—he; *sevaka*—servant; *pradhāna*—chief.

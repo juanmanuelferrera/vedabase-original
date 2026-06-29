@@ -1,9 +1,9 @@
 ### CC Adi 17.288
 
-> “নমো নারায়ণ, দেব করহ প্রসাদ ।
+> “নমো নারায়ণ, দেব করহ প্রসাদ ।\
 > কৃষ্ণসঙ্গ দেহ’ মোর ঘুচাহ বিষাদ ।।” ॥ ২৮৮ ॥
 
-> "namo nārāyaṇa, deva karaha prasāda
+> "namo nārāyaṇa, deva karaha prasāda\
 > kṛṣṇa-saṅga deha' mora ghucāha viṣāda"
 
 *namaḥ nārāyaṇa*—all respects to Nārāyaṇa; *deva*—the Supreme Personality of Godhead; *karaha*—kindly give; *prasāda*—Your mercy; *kṛṣṇa-saṅga*—association with Kṛṣṇa; *deha'*—giving; *mora*—our; *ghucāha*—please diminish; *viṣāda*—lamentation.

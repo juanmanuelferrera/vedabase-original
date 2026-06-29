@@ -1,9 +1,9 @@
 ### CC Madhya 5.3
 
-> চলিতে চলিতে আইলা যাজপুর-গ্রাম ।
+> চলিতে চলিতে আইলা যাজপুর-গ্রাম ।\
 > বরাহ-ঠাকুর দেখি’ করিলা প্রণাম ॥৩॥
 
-> calite calite āilā yājapura-grāma
+> calite calite āilā yājapura-grāma\
 > varāha-ṭhākura dekhi' karilā praṇāma
 
 *calitecalite*—walking on and on; *āilā*—reached; *yājapura-grāma*—the village of Yājapura-grāma; *varāha-ṭhākura*—the temple of Varāhadeva; *dekhi'*—seeing; *karilā*—offered; *praṇāma*—obeisances.

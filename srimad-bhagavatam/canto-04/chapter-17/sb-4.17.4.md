@@ -1,11 +1,11 @@
 ### SB 4.17.4
 
-> प्रकृत्या विषमा देवी कृता तेन समा कथम् ।
+> प्रकृत्या विषमा देवी कृता तेन समा कथम् ।\
 > तस्य मेध्यं हयं देवः कस्य हेतोरपाहरत् ॥४॥
 
-> prakṛtyā viṣamā devī
-> kṛtā tena samā katham
-> tasya medhyaṁ hayaṁ devaḥ
+> prakṛtyā viṣamā devī\
+> kṛtā tena samā katham\
+> tasya medhyaṁ hayaṁ devaḥ\
 > kasya hetor apāharat
 
 *prakṛtyā*—by nature; *viṣamā*—not level; *devī*—the earth; *kṛtā*—was made; *tena*—by him; *samā*—level; *katham*—how; *tasya*—his; *medhyam*—meant for offering in the sacrifice; *hayam*—horse; *devaḥ*—the demigod Indra; *kasya*—for what; *hetoḥ*—reason; *apāharat*—stole.

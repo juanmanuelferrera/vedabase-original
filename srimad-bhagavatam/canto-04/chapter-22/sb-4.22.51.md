@@ -1,11 +1,11 @@
 ### SB 4.22.51
 
-> फलं ब्रह्मणि सन्न्यस्य निर्विषङ्गः समाहितः ।
+> फलं ब्रह्मणि सन्न्यस्य निर्विषङ्गः समाहितः ।\
 > कर्माध्यक्षं च मन्वान आत्मानं प्रकृतेः परम् ॥५१॥
 
-> phalaṁ brahmaṇi sannyasya
-> nirviṣaṅgaḥ samāhitaḥ
-> karmādhyakṣaṁ ca manvāna
+> phalaṁ brahmaṇi sannyasya\
+> nirviṣaṅgaḥ samāhitaḥ\
+> karmādhyakṣaṁ ca manvāna\
 > ātmānaṁ prakṛteḥ param
 
 *phalam*—result; *brahmaṇi*—in the Absolute Truth; *sannyasya*—giving up; *nirviṣaṅgaḥ*—without being contaminated; *samāhitaḥ*—completely dedicated; *karma*—activity; *adhyakṣam*—superintendent; *ca*—and; *manvānaḥ*—always thinking of; *ātmānam*—the Supersoul; *prakṛteḥ*—of material nature; *param*—transcendental.

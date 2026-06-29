@@ -1,9 +1,9 @@
 ### CC Adi 7.63
 
-> ইহাঁ আইস, ইহাঁ আইস, শুনহ শ্রীপাদ ।
+> ইহাঁ আইস, ইহাঁ আইস, শুনহ শ্রীপাদ ।\
 > অপবিত্র স্থানে বৈস, কিবা অবসাদ ॥৬৩॥
 
-> ihāṅ āisa, ihāṅ āisa, śunaha śrīpāda
+> ihāṅ āisa, ihāṅ āisa, śunaha śrīpāda\
 > apavitra sthāne vaisa, kibā avasāda
 
 *ihāṅ āisa*—ven aquí; *ihāṅ āisa*—ven aquí; *śunaha*—escucha por favor; *śrīpāda*—Su Santidad; *apavitra*—impuro; *sthāne*—lugar; *vaisa*—estás sentado; *kibā*—qué es; *avasāda*—lamentación.

@@ -1,11 +1,11 @@
 ### SB 3.25.24
 
-> त एते साधवः साध्वि सर्वसङ्गविवर्जिताः ।
+> त एते साधवः साध्वि सर्वसङ्गविवर्जिताः ।\
 > सङ्गस्तेष्वथ ते प्रार्थ्यः सङ्गदोषहरा हि ते ॥२४॥
 
-> ta ete sādhavaḥ sādhvi
-> sarva-saṅga-vivarjitāḥ
-> saṅgas teṣv atha te prārthyaḥ
+> ta ete sādhavaḥ sādhvi\
+> sarva-saṅga-vivarjitāḥ\
+> saṅgas teṣv atha te prārthyaḥ\
 > saṅga-doṣa-harā hi te
 
 *te ete*—esos mismos; *sādhavaḥ*—devotos; *sādhvi*—virtuosa dama; *sarva*—todos; *saṅga*—apegos; *vivarjitāḥ*—libre de; *saṅgaḥ*—apego; *teṣu*—a ellos; *atha*—por consiguiente; *te*—por ti; *prārthyaḥ*—debe ser buscado; *saṅga-doṣa*—los efectos perniciosos del apego material; *harāḥ*—agentes que contrarrestan; *hi*—en verdad; *te*—ellos.

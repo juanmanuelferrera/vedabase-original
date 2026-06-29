@@ -1,11 +1,11 @@
 ### Bg 3.34
 
-> इन्द्रियस्येन्द्रियस्यार्थे रागद्वेषौ व्यवस्थितौ ।
+> इन्द्रियस्येन्द्रियस्यार्थे रागद्वेषौ व्यवस्थितौ ।\
 > तयोर्न वशमागच्छेत्तौ ह्यस्य परिपन्थिनौ ॥३४॥
 
-> indriyasyendriyasyārthe
-> rāga-dveṣau vyavasthitau
-> tayor na vaśam āgacchet
+> indriyasyendriyasyārthe\
+> rāga-dveṣau vyavasthitau\
+> tayor na vaśam āgacchet\
 > tau hy asya paripanthinau
 
 *indriyasya*—de los sentidos; *indriyasya arthe*—en los objetos de los sentidos; *rāga*—apego; *dveṣau*—también en el desapego; *vyavasthitau*—poner bajo regulaciones; *tayoḥ*—de ellos; *na*—nunca; *vaśam*—control; *āgacchet*—uno debe llegar; *tau*—esos; *hi*—son ciertamente; *asya*—sus; *paripanthinau*—obstáculos.

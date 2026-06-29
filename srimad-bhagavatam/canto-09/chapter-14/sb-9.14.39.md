@@ -1,11 +1,11 @@
 ### SB 9.14.39
 
-> संवत्सरान्ते हि भवानेकरात्रं मयेश्वरः
+> संवत्सरान्ते हि भवानेकरात्रं मयेश्वरः\
 > रंस्यत्यपत्यानि च ते भविष्यन्त्यपराणि भोः ॥३९॥
 
-> saṁvatsarānte hi bhavān
-> eka-rātraṁ mayeśvaraḥ
-> raṁsyaty apatyāni ca te
+> saṁvatsarānte hi bhavān\
+> eka-rātraṁ mayeśvaraḥ\
+> raṁsyaty apatyāni ca te\
 > bhaviṣyanty aparāṇi bhoḥ
 
 *saṁvatsara-ante*—at the end of every year; *hi*—indeed; *bhavān*—your good self; *eka-rātram*—one night only; *mayā*—with me; *īśvaraḥ*—my husband; *raṁsyati*—will enjoy sex life; *apatyāni*—children; *ca*—also; *te*—your; *bhaviṣyanti*—will generate; *aparāṇi*—others, one after another; *bhoḥ*—O my dear King.

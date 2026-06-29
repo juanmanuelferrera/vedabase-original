@@ -1,9 +1,9 @@
 ### CC Madhya 8.230
 
-> গোপী-আনুগত্য বিনা ঐশ্বর্যজ্ঞানে ।
+> গোপী-আনুগত্য বিনা ঐশ্বর্যজ্ঞানে ।\
 > ভজিলেহ নাহি পায় ব্রজেন্দ্রনন্দনে ॥২৩০॥
 
-> gopī-ānugatya vinā aiśvarya-jñāne
+> gopī-ānugatya vinā aiśvarya-jñāne\
 > bhajileha nāhi pāya vrajendra-nandane
 
 *gopī-ānugatya*—subservience to the *gopīs*; *vinā*—without; *aiśvarya-jñāne*—in the knowledge of opulence; *bhajileha*—if serving the Supreme Lord; *nāhi*—not; *pāya*—gets; *vrajendra-nandane*—the son of Mahārāja Nanda, Kṛṣṇa.

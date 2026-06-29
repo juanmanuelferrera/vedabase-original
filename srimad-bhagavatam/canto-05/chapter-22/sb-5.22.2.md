@@ -1,9 +1,9 @@
 ### SB 5.22.2
 
-> स होवाच
+> स होवाच\
 > यथा कुलालचक्रेण भ्रमता सह भ्रमतां तदाश्रयाणां पिपीलिकादीनां गतिरन्यैवप्रदेशान्तरेष्वप्युपलभ्यमानत्वादेवं नक्षत्रराशिभिरुपलक्षितेन कालचक्रेण ध्रुवं मेरुं चप्रदक्षिणेन परिधावता सह परिधावमानानां तदाश्रयाणां सूर्यादीनां ग्रहाणां गतिरन्यैवनक्षत्रान्तरे राश्यन्तरे चोपलभ्यमानत्वात ॥२॥
 
-> sa hovāca
+> sa hovāca\
 > yathā kulāla-cakreṇa bhramatā saha bhramatāṁ tad-āśrayāṇāṁ pipīlikādīnāṁ gatir anyaiva pradeśāntareṣv apy upalabhyamānatvād evaṁ nakṣatra-rāśibhir upalakṣitena kāla-cakreṇa dhruvaṁ meruṁ ca pradakṣiṇena paridhāvatā saha paridhāvamānānāṁ tad-āśrayāṇāṁ sūryādīnāṁ grahāṇāṁ gatir anyaiva nakṣatrāntare rāśy-antare copalabhyamānatvāt.
 
 *saḥ*—Śukadeva Gosvāmī; *ha*—very clearly; *uvāca*—answered; *yathā*—just as; *kulāla-cakreṇa*—a potter's wheel; *bhramatā*—turning around; *saha*—with; *bhramatām*—of those turning around; *tat-āśrayāṇām*—being located on that (wheel); *pipīlika-ādīnām*—of small ants; *gatiḥ*—the motion; *anyā*—other; *eva*—certainly; *pradeśa-antareṣu*—in different locations; *api*—also; *upalabhyamānatvāt*—due to being experienced; *evam*—similarly; *nakṣatra-rāśibhiḥ*—by the stars and signs; *upalakṣitena*—being seen; *kāla-cakreṇa*—with the great wheel of time; *dhruvam*—the star known as Dhruvaloka; *merum*—the mountain known as Sumeru; *ca*—and; *pradakṣiṇena*—on the right; *paridhāvatā*—going around; *saha*—with; *paridhāvamānānām*—of those going around; *tat-āśrayāṇām*—whose shelter is that wheel of time; *sūrya-ādīnām*—headed by the sun; *grahāṇām*—of the planets; *gatiḥ*—the motion; *anyā*—other; *eva*—certainly; *nakṣatra-antare*—in different stars; *rāśi-antare*—in different signs; *ca*—and; *upalabhyamānatvāt*—due to being observed.

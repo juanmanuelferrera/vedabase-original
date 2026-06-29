@@ -1,25 +1,25 @@
 ### SB 4.29.23-25
 
-> आधयो व्याधयस्तस्य सैनिका यवनाश्चराः ।
-> भूतोपसर्गाशुरयः प्रज्वारो द्विविधो ज्वरः ॥२३॥
-> एवं बहुविधैर्दुःखैर्दैवभूतात्मसम्भवैः ।
-> क्लिश्यमानः शतं वर्षं देहे देही तमोवृतः ॥२४॥
-> प्राणेन्द्रियमनोधर्मानात्मन्यध्यस्य निर्गुणः ।
+> आधयो व्याधयस्तस्य सैनिका यवनाश्चराः ।\
+> भूतोपसर्गाशुरयः प्रज्वारो द्विविधो ज्वरः ॥२३॥\
+> एवं बहुविधैर्दुःखैर्दैवभूतात्मसम्भवैः ।\
+> क्लिश्यमानः शतं वर्षं देहे देही तमोवृतः ॥२४॥\
+> प्राणेन्द्रियमनोधर्मानात्मन्यध्यस्य निर्गुणः ।\
 > शेते कामलवान्ध्यायन्ममाहमिति कर्मकृत् ॥२५॥
 
-> ādhayo vyādhayas tasya
-> sainikā yavanāś carāḥ
-> bhūtopasargāśu-rayaḥ
+> ādhayo vyādhayas tasya\
+> sainikā yavanāś carāḥ\
+> bhūtopasargāśu-rayaḥ\
 > prajvāro dvi-vidho jvaraḥ
 
-> evaṁ bahu-vidhair duḥkhair
-> daiva-bhūtātma-sambhavaiḥ
-> kliśyamānaḥ śataṁ varṣaṁ
+> evaṁ bahu-vidhair duḥkhair\
+> daiva-bhūtātma-sambhavaiḥ\
+> kliśyamānaḥ śataṁ varṣaṁ\
 > dehe dehī tamo-vṛtaḥ
 
-> prāṇendriya-mano-dharmān
-> ātmany adhyasya nirguṇaḥ
-> śete kāma-lavān dhyāyan
+> prāṇendriya-mano-dharmān\
+> ātmany adhyasya nirguṇaḥ\
+> śete kāma-lavān dhyāyan\
 > mamāham iti karma-kṛt
 
 *ādhayaḥ*—perturbaciones de la mente; *vyādhayaḥ*—perturbaciones del cuerpo, enfermedades; *tasya*—de Yavaneśvara; *sainikāḥ*—soldados; *yavanāḥ*—*yavanas*; *carāḥ*—seguidores; *bhūta*—de las entidades vivientes; *upasarga*—a la hora de la aflicción; *āśu*—muy pronto; *rayaḥ*—muy poderoso; *prajvāraḥ*—llamado Prajvāra; *dvi-vidhaḥ*—dos tipos; *jvaraḥ*—fiebre; *evam*—así; *bahu-vidhaiḥ*—de muchos tipos; *duḥkhaiḥ*—con sufrimientos; *daiva*—por la providencia; *bhūta*—por otras entidades vivientes; *ātma*—por el cuerpo y la mente; *sambhavaiḥ*—producidos; *kliśyamānaḥ*—expuesta a sufrimientos; *śatam*—cien; *varṣam*—años; *dehe*—en el cuerpo; *dehī*—la entidad viviente; *tamaḥ-vṛtaḥ*—cubierta por la existencia material; *prāṇa*—de vida; *indriya*—de los sentidos; *manaḥ*—de la mente; *dharmān*—características; *ātmani*—al alma; *adhyasya*—atribuyendo erróneamente; *nirguṇaḥ*—aunque trascendental; *śete*—yace; *kāma*—de disfrute sensorial; *lavān*—en fragmentos; *dhyāyan*—meditando; *mama*—mío; *aham*—yo; *iti*—así; *karma-kṛt*—el ejecutor.

@@ -1,21 +1,21 @@
 ### SB 4.9.20-21
 
-> नान्यैरधिष्ठितं भद्र यद्भ्राजिष्णु ध्रुवक्षिति ।
-> यत्र ग्रहर्क्षताराणां ज्योतिषां चक्रमाहितम् ॥२०॥
-> मेढ्यां गोचक्रवत्स्थास्नु परस्तात्कल्पवासिनाम् ।
-> धर्मोऽग्निः कश्यपः शुक्रो मुनयो ये वनौकसः ।
+> नान्यैरधिष्ठितं भद्र यद्भ्राजिष्णु ध्रुवक्षिति ।\
+> यत्र ग्रहर्क्षताराणां ज्योतिषां चक्रमाहितम् ॥२०॥\
+> मेढ्यां गोचक्रवत्स्थास्नु परस्तात्कल्पवासिनाम् ।\
+> धर्मोऽग्निः कश्यपः शुक्रो मुनयो ये वनौकसः ।\
 > चरन्ति दक्षिणीकृत्य भ्रमन्तो यत्सतारकाः ॥२१॥
 
-> nānyair adhiṣṭhitaṁ bhadra
-> yad bhrājiṣṇu dhruva-kṣiti
-> yatra graharkṣa-tārāṇāṁ
+> nānyair adhiṣṭhitaṁ bhadra\
+> yad bhrājiṣṇu dhruva-kṣiti\
+> yatra graharkṣa-tārāṇāṁ\
 > jyotiṣāṁ cakram āhitam
 
-> meḍhyāṁ go-cakravat sthāsnu
-> parastāt kalpa-vāsinām
-> dharmo 'gniḥ kaśyapaḥ śukro
-> munayo ye vanaukasaḥ
-> caranti dakṣiṇī-kṛtya
+> meḍhyāṁ go-cakravat sthāsnu\
+> parastāt kalpa-vāsinām\
+> dharmo 'gniḥ kaśyapaḥ śukro\
+> munayo ye vanaukasaḥ\
+> caranti dakṣiṇī-kṛtya\
 > bhramanto yat satārakāḥ
 
 *na*—never; *anyaiḥ*—by others; *adhiṣṭhitam*—was ruled; *bhadra*—My good boy; *yat*—which; *bhrājiṣṇu*—brightly glowing; *dhruva-kṣiti*—the land known as Dhruvaloka; *yatra*—where; *graha*—planets; *ṛkṣa*—constellations; *tārāṇām*—and stars; *jyotiṣām*—by luminaries; *cakram*—encirclement; *āhitam*—is done; *meḍhyām*—around a central pole; *go*—of bulls; *cakra*—a multitude; *vat*—like; *sthāsnu*—stationary; *parastāt*—beyond; *kalpa*—a day of Brahmā (millennium); *vāsinām*—those who live; *dharmaḥ*—Dharma; *agniḥ*—Agni; *kaśyapaḥ*—Kaśyapa; *śukraḥ*—Śukra; *munayaḥ*—great sages; *ye*—all of them who; *vana-okasaḥ*—living in the forest; *caranti*—move; *dakṣiṇī-kṛtya*—keeping it to their right; *bhramantaḥ*—circumambulating; *yat*—which planet; *satārakāḥ*—with all the stars.

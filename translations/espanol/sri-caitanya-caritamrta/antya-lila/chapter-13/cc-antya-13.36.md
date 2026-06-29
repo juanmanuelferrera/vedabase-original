@@ -1,9 +1,9 @@
 ### CC Antya 13.36
 
-> মথুরা গেলে সনাতন-সঙ্গেই রহিবা ।
+> মথুরা গেলে সনাতন-সঙ্গেই রহিবা ।\
 > মথুরার স্বামী সবের চরণ বন্দিবা ॥৩৬॥
 
-> mathurā gele sanātana-saṅgei rahibā
+> mathurā gele sanātana-saṅgei rahibā\
 > mathurāra svāmī sabera caraṇa vandibā
 
 *mathurā gele*—cuando llegues a Mathurā; *sanātana-saṅgei*—en la compañía de Sanātana Gosvāmī; *rahibā*—permanece; *mathurāra svāmī*—los hombres principales de Mathurā; *sabera*—de todos; *caraṇa vandibā*—adora los pies.

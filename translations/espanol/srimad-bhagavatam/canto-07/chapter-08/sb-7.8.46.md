@@ -1,13 +1,13 @@
 ### SB 7.8.46
 
-> श्रीविद्याधरा ऊचुः
-> विद्यां पृथग्धारणयानुराद्धां न्यषेधदज्ञओ बलवीर्यदृप्तः
+> श्रीविद्याधरा ऊचुः\
+> विद्यां पृथग्धारणयानुराद्धां न्यषेधदज्ञओ बलवीर्यदृप्तः\
 > स येन सङ्ख्ये पशुवद्धतस्तं मायानृसिंहं प्रणताः स्म नित्यम ॥४६॥
 
-> śrī-vidyādharā ūcuḥ
-> vidyāṁ pṛthag dhāraṇayānurāddhāṁ
-> nyaṣedhad ajño bala-vīrya-dṛptaḥ
-> sa yena saṅkhye paśuvad dhatas taṁ
+> śrī-vidyādharā ūcuḥ\
+> vidyāṁ pṛthag dhāraṇayānurāddhāṁ\
+> nyaṣedhad ajño bala-vīrya-dṛptaḥ\
+> sa yena saṅkhye paśuvad dhatas taṁ\
 > māyā-nṛsiṁhaṁ praṇatāḥ sma nityam
 
 *śrī-vidyādharāḥ ūcuḥ*—los habitantes de Vidyādhara-loka oraron; *vidyām*—fórmulas místicas (con las que se puede aparecer y desaparecer); *pṛthak*—por separado; *dhāraṇayā*—con diversas meditaciones en la mente; *anurāddhām*—alcanzadas; *nyaṣedhat*—interrumpió; *ajñaḥ*—ese necio; *bala-vīrya-dṛptaḥ*—envanecido de su fuerza física y de su capacidad de conquistar a todos; *saḥ*—él (Hiraṇyakaśipu); *yena*—por quien; *saṅkhye*—en la batalla; *paśu-vat*—igual que a un animal; *hataḥ*—matado; *tam*—ante Él; *māyā-nṛsiṁham*—que ha aparecido en la forma del Señor Nṛsiṁhadeva por influencia de Su propia energía; *praṇatāḥ*—postrados; *sma*—ciertamente; *nityam*—eternamente.

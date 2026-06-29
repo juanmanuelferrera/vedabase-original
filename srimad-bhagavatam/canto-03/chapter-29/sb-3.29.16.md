@@ -1,11 +1,11 @@
 ### SB 3.29.16
 
-> मद्धिष्ण्यदर्शनस्पर्श पूजास्तुत्यभिवन्दनैः ।
+> मद्धिष्ण्यदर्शनस्पर्श पूजास्तुत्यभिवन्दनैः ।\
 > भूतेषु मद्भावनया सत्त्वेनासङ्गमेन च ॥१६॥
 
-> mad-dhiṣṇya-darśana-sparśa-
-> pūjā-stuty-abhivandanaiḥ
-> bhūteṣu mad-bhāvanayā
+> mad-dhiṣṇya-darśana-sparśa-\
+> pūjā-stuty-abhivandanaiḥ\
+> bhūteṣu mad-bhāvanayā\
 > sattvenāsaṅgamena ca
 
 *mat*—My; *dhiṣṇya*—statue; *darśana*—seeing; *sparśa*—touching; *pūjā*—worshiping; *stuti*—praying to; *abhivandanaiḥ*—by offering obeisances; *bhūteṣu*—in all living entities; *mat*—of Me; *bhāvanayā*—with thought; *sattvena*—by the mode of goodness; *asaṅgamena*—with detachment; *ca*—and.

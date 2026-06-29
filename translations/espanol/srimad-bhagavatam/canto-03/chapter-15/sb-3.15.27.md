@@ -1,13 +1,13 @@
 ### SB 3.15.27
 
-> तस्मिन्नतीत्य मुनयः षडसज्जमानाः
-> कक्षाः समानवयसावथ सप्तमायाम् ।
-> देवावचक्षत गृहीतगदौ परार्ध्य
+> तस्मिन्नतीत्य मुनयः षडसज्जमानाः\
+> कक्षाः समानवयसावथ सप्तमायाम् ।\
+> देवावचक्षत गृहीतगदौ परार्ध्य\
 > केयूरकुण्डलकिरीटविटङ्कवेषौ ॥२७॥
 
-> tasminn atītya munayaḥ ṣaḍ asajjamānāḥ
-> kakṣāḥ samāna-vayasāv atha saptamāyām
-> devāv acakṣata gṛhīta-gadau parārdhya-
+> tasminn atītya munayaḥ ṣaḍ asajjamānāḥ\
+> kakṣāḥ samāna-vayasāv atha saptamāyām\
+> devāv acakṣata gṛhīta-gadau parārdhya-\
 > keyūra-kuṇḍala-kirīṭa-viṭaṅka-veṣau
 
 *tasmin*—en aquel Vaikuṇṭha; *atītya*—tras pasar a través de; *munayaḥ*—los grandes sabios; *ṣaṭ*—seis; *asajja mānāḥ*—sin sentirse muy atraídos; *kakṣāḥ*—muros; *samāna*—igual; *vayasau*—edad; *atha*—a continuación; *saptamāyām*—en la séptima puerta; *devau*—dos porteros de Vaikuṇṭha; *acakṣata*—vieron; *gṛhīta*—llevando; *gadau*—mazas; *para-ardhya*—sumamente valiosos; *keyūra*—brazaletes; *kuṇḍala*—pendientes; *kirīṭa*—yelmos; *viṭaṅka*—hermosas; *veṣau*—vestimentas.

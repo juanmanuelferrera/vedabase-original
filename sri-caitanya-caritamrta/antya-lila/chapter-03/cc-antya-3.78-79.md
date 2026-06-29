@@ -1,14 +1,14 @@
 ### CC Antya 3.78-79
 
-> হরিদাস বলে, — “তোমার যাবৎ মর্ত্যে স্থিতি ।
-> তাবৎ স্থাবর-জঙ্গম, সর্ব জীব-জাতি ॥৭৮॥
-> সব মুক্ত করি’ তুমি বৈকুণ্ঠে পাঠাইবা ।
+> হরিদাস বলে, — “তোমার যাবৎ মর্ত্যে স্থিতি ।\
+> তাবৎ স্থাবর-জঙ্গম, সর্ব জীব-জাতি ॥৭৮॥\
+> সব মুক্ত করি’ তুমি বৈকুণ্ঠে পাঠাইবা ।\
 > সূক্ষ্মজীবে পুনঃ কর্মে উদ্বুদ্ধ করিবা ॥৭৯॥
 
-> haridāsa bale,—"tomāra yāvat martye sthiti
+> haridāsa bale,—"tomāra yāvat martye sthiti\
 > tāvat sthāvara-jaṅgama, sarva jīva-jāti
 
-> saba mukta kari' tumi vaikuṇṭhe pāṭhāibā
+> saba mukta kari' tumi vaikuṇṭhe pāṭhāibā\
 > sūkṣma-jīve punaḥ karme udbuddha karibā
 
 *haridāsa bale*—Haridāsa Ṭhākura said; *tomāra*—Your; *yāvat*—as long as; *martye*—in this material world; *sthiti*—situation; *tāvat*—for that duration of time; *sthāvara-jaṅgama*—nonmoving and moving; *sarva*—all; *jīva-jāti*—species of living entities; *saba*—all; *mukta kari'*—liberating; *tumi*—You; *vaikuṇṭhe*—to the spiritual world; *pāṭhāibā*—will send; *sūkṣma-jīve*—the undeveloped living entities; *punaḥ*—again; *karme*—in their activities; *udbuddha karibā*—You will awaken;

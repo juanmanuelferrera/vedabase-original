@@ -1,11 +1,11 @@
 ### SB 8.22.31
 
-> एष मे प्रापितः स्थानं दुष्प्रापममरैरपि
+> एष मे प्रापितः स्थानं दुष्प्रापममरैरपि\
 > सावर्णेरन्तरस्यायं भवितेन्द्रो मदाश्रयः ॥३१॥
 
-> eṣa me prāpitaḥ sthānaṁ
-> duṣprāpam amarair api
-> sāvarṇer antarasyāyaṁ
+> eṣa me prāpitaḥ sthānaṁ\
+> duṣprāpam amarair api\
+> sāvarṇer antarasyāyaṁ\
 > bhavitendro mad-āśrayaḥ
 
 *eṣaḥ*—Bali Mahārāja; *me*—by Me; *prāpitaḥ*—has achieved; *sthānam*—a place; *duṣprāpam*—extremely difficult to obtain; *amaraiḥ api*—even by the demigods; *sāvarṇeḥ antarasya*—during the period of the Manu known as Sāvarṇi; *ayam*—this Bali Mahārāja; *bhavitā*—will become; *indraḥ*—the lord of the heavenly planet; *mat-āśrayaḥ*—completely under My protection.

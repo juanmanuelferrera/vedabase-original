@@ -1,9 +1,9 @@
 ### CC Madhya 4.118
 
-> ‘গোপীনাথের ক্ষীর’ বলি’ প্রসিদ্ধ নাম যার ।
+> ‘গোপীনাথের ক্ষীর’ বলি’ প্রসিদ্ধ নাম যার ।\
 > পৃথিবীতে ঐছে ভোগ কাহাঁ নাহি আর ॥১১৮॥
 
-> 'gopīnāthera kṣīra' bali' prasiddha nāma yāra
+> 'gopīnāthera kṣīra' bali' prasiddha nāma yāra\
 > pṛthivīte aiche bhoga kāhāṅ nāhi āra
 
 *gopīnāthera kṣīra*—the sweet rice offered to Gopīnātha; *bali'*—as; *prasiddha*—celebrated; *nāma*—the name; *yāra*—of which; *pṛthivīte*—throughout the whole world; *aiche*—such; *bhoga*—food; *kāhāṅ*—anywhere; *nāhi*—not; *āra*—else.

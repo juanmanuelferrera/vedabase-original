@@ -1,9 +1,9 @@
 ### CC Madhya 5.158
 
-> দণ্ডভঙ্গ-লীলা — এই পরম গম্ভীর ।
+> দণ্ডভঙ্গ-লীলা — এই পরম গম্ভীর ।\
 > সেই বুঝে, দুঁহার পদে যাঁর ভক্তি ধীর ॥১৫৮॥
 
-> daṇḍa-bhaṅga-līlā ei—parama gambhīra
+> daṇḍa-bhaṅga-līlā ei—parama gambhīra\
 > sei bujhe, duṅhāra pade yāṅra bhakti dhīra
 
 *daṇḍa-bhaṅga-līlā*—the pastime of breaking the staff; *ei*—this; *parama*—very; *gambhīra*—grave; *sei bujhe*—one can understand; *duṅhāra*—of both of Them; *pade*—to the lotus feet; *yāṅra*—whose; *bhakti*—devotional service; *dhīra*—fixed.

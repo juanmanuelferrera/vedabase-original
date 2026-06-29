@@ -1,11 +1,11 @@
 ### SB 6.1.20
 
-> अत्र चोदाहरन्तीममितिहासं पुरातनम
+> अत्र चोदाहरन्तीममितिहासं पुरातनम\
 > दूतानां विष्णुयमयोः संवादस्तं निबोध मे ॥२०॥
 
-> atra codāharantīmam
-> itihāsaṁ purātanam
-> dūtānāṁ viṣṇu-yamayoḥ
+> atra codāharantīmam\
+> itihāsaṁ purātanam\
+> dūtānāṁ viṣṇu-yamayoḥ\
 > saṁvādas taṁ nibodha me
 
 *atra*—en relación con esto; *ca*—también; *udāharanti*—dan como ejemplo; *imam*—este; *itihāsam*—la historia (de Ajāmila); *purātanam*—que es muy antigua; *dūtānām*—de los enviados; *viṣṇu*—del Señor Viṣṇu; *yamayoḥ*—y de Yamarāja; *saṁvādaḥ*—la discusión; *tam*—esa; *nibodha*—trata de entender; *me*—de mí.

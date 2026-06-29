@@ -1,11 +1,11 @@
 ### Bg 8.23
 
-> यत्र काले त्वनावृत्तिमावृत्तिं चैव योगिनः ।
+> यत्र काले त्वनावृत्तिमावृत्तिं चैव योगिनः ।\
 > प्रयाता यान्ति तं कालं वक्ष्यामि भरतर्षभ ॥२३॥
 
-> yatra kāle tv anāvṛttim
-> āvṛttiṁ caiva yoginaḥ
-> prayātā yānti taṁ kālaṁ
+> yatra kāle tv anāvṛttim\
+> āvṛttiṁ caiva yoginaḥ\
+> prayātā yānti taṁ kālaṁ\
 > vakṣyāmi bharatarṣabha
 
 *yatra*—en aquel; *kāle*—momento; *tu*—pero; *ānavṛttim*—sin regresar; *āvṛttim*—regresar; *ca*—también; *eva*—ciertamente; *yoginaḥ*—de diferentes clases de místicos; *prayātāh*—aquel que va; *yānti*—parte; *tam*—ese; *kālam*—momento; *vakṣyāmi*—describiendo; *bharatarṣabha*—¡oh, mejor de los Bhāratas!

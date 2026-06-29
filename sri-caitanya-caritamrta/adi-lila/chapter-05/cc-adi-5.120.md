@@ -1,9 +1,9 @@
 ### CC Adi 5.120
 
-> সেই ত’ ‘অনন্ত’ ‘শেষ’ — ভক্ত-অবতার ।
+> সেই ত’ ‘অনন্ত’ ‘শেষ’ — ভক্ত-অবতার ।\
 > ঈশ্বরের সেবা বিনা নাহি জানে আর ॥১২০॥
 
-> sei ta' 'ananta' 'śeṣa'—bhakta-avatāra
+> sei ta' 'ananta' 'śeṣa'—bhakta-avatāra\
 > īśvarera sevā vinā nāhi jāne āra
 
 *sei ta'*—that; *ananta*—Lord Ananta; *śeṣa*—the incarnation Śeṣa; *bhakta-avatāra*—incarnation of a devotee; *īśvarera sevā*—the service of the Lord; *vinā*—without; *nāhi*—not; *jāne*—knows; *āra*—anything else.

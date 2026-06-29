@@ -1,9 +1,9 @@
 ### CC Adi 8.33
 
-> ওরে মূঢ় লোক, শুন চৈতন্যমঙ্গল ।
+> ওরে মূঢ় লোক, শুন চৈতন্যমঙ্গল ।\
 > চৈতন্য-মহিমা যাতে জানিবে সকল ॥৩৩॥
 
-> ore mūḍha loka, śuna caitanya-maṅgala
+> ore mūḍha loka, śuna caitanya-maṅgala\
 > caitanya-mahimā yāte jānibe sakala
 
 *ore*—O all of you; *mūḍha*—foolish; *loka*—people; *śuna*—just hear; *caitanya-maṅgala*—the book of this name; *caitanya*—Lord Caitanya's; *mahimā*—glories; *yāte*—in which; *jānibe*—you will know; *sakala*—all.

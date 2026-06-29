@@ -1,9 +1,9 @@
 ### CC Adi 14.86
 
-> মিশ্র কহে, — “দেব, সিদ্ধ, মুনি কেনে নয় ।
+> মিশ্র কহে, — “দেব, সিদ্ধ, মুনি কেনে নয় ।\
 > যে সে বড় হউক্ মাত্র আমার তনয় ॥৮৬॥
 
-> miśra kahe,—deva, siddha, muni kene naya
+> miśra kahe,—deva, siddha, muni kene naya\
 > ye se baḍa ha-uk mātra āmāra tanaya
 
 *miśra kahe*—Jagannātha Miśra replied; *deva*—demigod; *siddha*—mystic *yogī*; *muni*—great saintly person; *kenenaya*—may be so or not; *ye se*—whatever; *baḍa*—great; *ha-uk*—He may be; *mātra*—only; *āmāra*—my; *tanaya*—son.

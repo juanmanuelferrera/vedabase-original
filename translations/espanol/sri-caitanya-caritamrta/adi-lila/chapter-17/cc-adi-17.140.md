@@ -1,9 +1,9 @@
 ### CC Adi 17.140
 
-> তর্জ-গর্জ করে লোক, করে কোলাহল ।
+> তর্জ-গর্জ করে লোক, করে কোলাহল ।\
 > গৌরচন্দ্র-বলে লোক প্রশ্রয়-পাগল ॥১৪০॥
 
-> tarja-garja kare loka, kare kolāhala
+> tarja-garja kare loka, kare kolāhala\
 > gauracandra-bale loka praśraya-pāgala
 
 *tarja-garja*—murmurando con ira; *kare*—hacen; *loka*—la gente; *kare*—hace; *kolāhala*—estruendo; *gauracandra*—del Señor Śrī Caitanya Mahāprabhu; *bale*—por el poder; *loka*—la gente; *praśraya-pāgala*—enloquecida por tal confianza.

@@ -1,11 +1,11 @@
 ### SB 1.5.11
 
-> तद्वाग्विसर्गो जनताघविप्लवो यस्मिन्प्रतिश्लोकमबद्धवत्यपि ।
+> तद्वाग्विसर्गो जनताघविप्लवो यस्मिन्प्रतिश्लोकमबद्धवत्यपि ।\
 > नामान्यनन्तस्य यशोऽङ्कितानि यत्शृण्वन्ति गायन्ति गृणन्ति साधवः ॥११॥
 
-> tad-vāg-visargo janatāgha-viplavo
-> yasmin prati-ślokam abaddhavaty api
-> nāmāny anantasya yaśo 'ṅkitāni yat
+> tad-vāg-visargo janatāgha-viplavo\
+> yasmin prati-ślokam abaddhavaty api\
+> nāmāny anantasya yaśo 'ṅkitāni yat\
 > śṛṇvanti gāyanti gṛṇanti sādhavaḥ
 
 *tat*—ese; *vāk*—vocabulario; *visargaḥ*—creación; *janatā*—la generalidad de la gente; *agha*—pecados; *viplavaḥ*—revolucionario; *yasmin*—en el cual; *prati-ślokam*—todas y cada una de las estrofas; *abaddhavati*—compuestas de manera irregular; *api*—a pesar de; *nāmāni*—nombres trascendentales, etc; *anantasya*—del ilimitado Señor; *yaśaḥ*—glorias; *aṅkitāni*—descritas; *yat*—que; *śṛṇvanti*—oyen; *gāyanti*—cantan; *gṛṇanti*—aceptan; *sādhavaḥ*—los hombres purificados que son honestos.

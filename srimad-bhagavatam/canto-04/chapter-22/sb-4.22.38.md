@@ -1,13 +1,13 @@
 ### SB 4.22.38
 
-> यस्मिन्निदं सदसदात्मतया विभाति
-> माया विवेकविधुति स्रजि वाहिबुद्धिः ।
-> तं नित्यमुक्तपरिशुद्धविशुद्धतत्त्वं
+> यस्मिन्निदं सदसदात्मतया विभाति\
+> माया विवेकविधुति स्रजि वाहिबुद्धिः ।\
+> तं नित्यमुक्तपरिशुद्धविशुद्धतत्त्वं\
 > प्रत्यूढकर्मकलिलप्रकृतिं प्रपद्ये ॥३८॥
 
-> yasminn idaṁ sad-asad-ātmatayā vibhāti
-> māyā viveka-vidhuti sraji vāhi-buddhiḥ
-> taṁ nitya-mukta-pariśuddha-viśuddha-tattvaṁ
+> yasminn idaṁ sad-asad-ātmatayā vibhāti\
+> māyā viveka-vidhuti sraji vāhi-buddhiḥ\
+> taṁ nitya-mukta-pariśuddha-viśuddha-tattvaṁ\
 > pratyūḍha-karma-kalila-prakṛtiṁ prapadye
 
 *yasmin*—in which; *idam*—this; *sat-asat*—the Supreme Lord and His different energies; *ātmatayā*—being the root of all cause and effect; *vibhāti*—manifests; *māyā*—illusion; *viveka-vidhuti*—liberated by deliberate consideration; *sraji*—on the rope; *vā*—or; *ahi*—serpent; *buddhiḥ*—intelligence; *tam*—unto Him; *nitya*—eternally; *mukta*—liberated; *pariśuddha*—uncontaminated; *viśuddha*—pure; *tattvam*—truth; *pratyūḍha*—transcendental; *karma*—fruitive activities; *kalila*—impurities; *prakṛtim*—situated in spiritual energy; *prapadye*—surrender.

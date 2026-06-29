@@ -1,9 +1,9 @@
 ### CC Madhya 3.42
 
-> তিন ঠাঞি ভোগ বাড়াইল সম করি’ ।
+> তিন ঠাঞি ভোগ বাড়াইল সম করি’ ।\
 > কৃষ্ণের ভোগ বাড়াইল ধাতু-পাত্রোপরি ॥৪২॥
 
-> tina ṭhāñi bhoga bāḍāila sama kari'
+> tina ṭhāñi bhoga bāḍāila sama kari'\
 > kṛṣṇera bhoga bāḍāila dhātu-pātropari
 
 *tina ṭhāñi*—en tres lugares; *bhoga*—comida cocinada; *bāḍāila*—distribuyó; *sama*—igual; *kari'*—haciendo; *kṛṣṇera bhoga*—la comida ofrecida a Kṛṣṇa; *bāḍāila*—se dispuso; *dhātu-pātra upari*—sobre un plato de metal.

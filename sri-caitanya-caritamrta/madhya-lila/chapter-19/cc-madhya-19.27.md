@@ -1,9 +1,9 @@
 ### CC Madhya 19.27
 
-> এত শুনি’ গৌড়েশ্বর উঠি’ ঘরে গেলা ।
+> এত শুনি’ গৌড়েশ্বর উঠি’ ঘরে গেলা ।\
 > পলাইব বলি’ সনাতনেরে বান্ধিলা ॥২৭॥
 
-> eta śuni' gauḍeśvara uṭhi' ghare gelā
+> eta śuni' gauḍeśvara uṭhi' ghare gelā\
 > palāiba bali' sanātanere bāndhilā
 
 *eta śuni'*—hearing this; *gauḍa-īśvara*—the Nawab of Bengal; *uṭhi'*—standing up; *ghare gelā*—went back home; *palāiba*—I shall run away; *bali'*—because of this; *sanātanere bāndhilā*—he arrested Sanātana.

@@ -1,11 +1,11 @@
 ### SB 2.6.46
 
-> प्राधान्यतो यानृष आमनन्ति लीलावतारान्पुरुषस्य भूम्नः ।
+> प्राधान्यतो यानृष आमनन्ति लीलावतारान्पुरुषस्य भूम्नः ।\
 > आपीयतां कर्णकषायशोषाननुक्रमिष्ये त इमान्सुपेशान् ॥४६॥
 
-> prādhānyato yān ṛṣa āmananti
-> līlāvatārān puruṣasya bhūmnaḥ
-> āpīyatāṁ karṇa-kaṣāya-śoṣān
+> prādhānyato yān ṛṣa āmananti\
+> līlāvatārān puruṣasya bhūmnaḥ\
+> āpīyatāṁ karṇa-kaṣāya-śoṣān\
 > anukramiṣye ta imān supeśān
 
 *prādhānyataḥ*—chiefly; *yān*—all those; *ṛṣe*—O Nārada; *āmananti*—worship; *līlā*—pastimes; *avatārān*—incarnations; *puruṣasya*—of the Personality of Godhead; *bhūmnaḥ*—the Supreme; *āpīyatām*—in order to be relished by you; *karṇa*—ears; *kaṣāya*—foul matter; *śoṣān*—that which evaporates; *anukramiṣye*—shall state one after another; *te*—they; *imān*—as they are in my heart; *su-peśān*—all pleasing to hear.

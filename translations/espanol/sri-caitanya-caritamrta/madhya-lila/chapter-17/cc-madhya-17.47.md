@@ -1,9 +1,9 @@
 ### CC Madhya 17.47
 
-> যেই গ্রাম দিয়া যান, যাহাঁ করেন স্থিতি ।
+> যেই গ্রাম দিয়া যান, যাহাঁ করেন স্থিতি ।\
 > সে-সব গ্রামের লোকের হয় ‘প্রেমভক্তি’ ॥৪৭॥
 
-> yei grāma diyā yāna, yāhāṅ karena sthiti
+> yei grāma diyā yāna, yāhāṅ karena sthiti\
 > se-saba grāmera lokera haya 'prema-bhakti'
 
 *yei grāma*—las aldeas que; *diyā yāna*—el Señor atraviesa; *yāhāṅ*—donde; *karena*—toma; *sthiti*—descanso; *se-saba*—todas esas; *grāmera*—de las aldeas; *lokera*—de la gente; *haya*—se despierta; *prema-bhakti*—amor extático por Dios.

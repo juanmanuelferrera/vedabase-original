@@ -1,9 +1,9 @@
 ### CC Madhya 5.137
 
-> মহা-তেজোময় দুঁহে কমল-নয়ন ।
+> মহা-তেজোময় দুঁহে কমল-নয়ন ।\
 > দুঁহার ভাবাবেশ, দুঁহে — চন্দ্রবদন ॥১৩৭॥
 
-> mahā-tejo-maya duṅhe kamala-nayana
+> mahā-tejo-maya duṅhe kamala-nayana\
 > duṅhāra bhāvāveśa, duṅhe--candra-vadana
 
 *mahā-tejaḥ-maya*—de brillante efulgencia; *duṅhe*—ambos; *kamala-nayana*—de ojos de loto; *duṅhāra*—de ambos; *bhāva-āveśa*—absortos en éxtasis; *duṅhe*—ambos; *candra-vadana*—de rostro como la luna.

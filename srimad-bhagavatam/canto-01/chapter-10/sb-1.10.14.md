@@ -1,11 +1,11 @@
 ### SB 1.10.14
 
-> न्यरुन्धन्नुद्गलद्बाष्पमौत्कण्ठ्याद्देवकीसुते ।
+> न्यरुन्धन्नुद्गलद्बाष्पमौत्कण्ठ्याद्देवकीसुते ।\
 > निर्यात्यगारान्नोऽभद्रमिति स्याद्बान्धवस्त्रियः ॥१४॥
 
-> nyarundhann udgalad bāṣpam
-> autkaṇṭhyād devakī-sute
-> niryāty agārān no 'bhadram
+> nyarundhann udgalad bāṣpam\
+> autkaṇṭhyād devakī-sute\
+> niryāty agārān no 'bhadram\
 > iti syād bāndhava-striyaḥ
 
 *nyarundhan*—checking with great difficulty; *udgalat*—overflowing; *bāṣpam*—tears; *autkaṇṭhyāt*—because of great anxiety; *devakī-sute*—unto the son of Devakī; *niryāti*—having come out; *agārāt*—from the palace; *naḥ*—not; *abhadram*—inauspiciousness; *iti*—thus; *syāt*—may happen; *bāndhava*—relative; *striyaḥ*—ladies.

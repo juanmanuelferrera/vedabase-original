@@ -1,11 +1,11 @@
 ### SB 7.8.13
 
-> यस्त्वया मन्दभाग्योक्तो मदन्यो जगदीश्वरः
+> यस्त्वया मन्दभाग्योक्तो मदन्यो जगदीश्वरः\
 > क्वासौ यदि स सर्वत्र कस्मात्स्तम्भे न दृश्यते ॥१३॥
 
-> so 'haṁ vikatthamānasya
-> śiraḥ kāyād dharāmi te
-> gopāyeta haris tvādya
+> so 'haṁ vikatthamānasya\
+> śiraḥ kāyād dharāmi te\
+> gopāyeta haris tvādya\
 > yas te śaraṇam īpsitam
 
 *saḥ*—él; *aham*—yo; *vikatthamānasya*—que estás diciendo semejantes tonterías; *śiraḥ*—la cabeza; *kāyāt*—del cuerpo; *harāmi*—te voy a quitar; *te*—de ti; *gopāyeta*—que Él proteja; *hariḥ*—la Suprema Personalidad de Dios; *tvā*—a ti; *adya*—ahora; *yaḥ*—aquel que; *te*—tuyo; *śaraṇam*—protector; *īpsitam*—deseado.

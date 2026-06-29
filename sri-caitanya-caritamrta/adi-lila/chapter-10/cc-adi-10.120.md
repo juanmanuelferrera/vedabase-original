@@ -1,9 +1,9 @@
 ### CC Adi 10.120
 
-> মহা-কৃপাপাত্র প্রভুর জগাই, মাধাই ।
+> মহা-কৃপাপাত্র প্রভুর জগাই, মাধাই ।\
 > ‘পতিতপাবন’ নামের সাক্ষী দুই ভাই ॥১২০॥
 
-> mahā-kṛpā-pātra prabhura jagāi, mādhāi
+> mahā-kṛpā-pātra prabhura jagāi, mādhāi\
 > 'patita-pāvana' nāmera sākṣī dui bhāi
 
 *mahā-kṛpā-pātra*—object of very great mercy; *prabhura*—of the Lord; *jagāimādhāi*—the two brothers Jagāi and Mādhāi; *patita-pāvana*—deliverer of the fallen; *nāmera*—of this name; *sākṣī*—witness; *dui bhāi*—these two brothers.

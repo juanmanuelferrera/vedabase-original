@@ -1,13 +1,13 @@
 ### Bg 2.9
 
-> सञ्जय उवाच ।
-> एवमुक्त्वा हृषीकेशं गुडाकेशः परन्तप ।
+> सञ्जय उवाच ।\
+> एवमुक्त्वा हृषीकेशं गुडाकेशः परन्तप ।\
 > न योत्स्य इति गोविन्दमुक्त्वा तूष्णीं बभूव ह ॥९॥
 
-> sañjaya uvāca
-> evam uktvā hṛṣīkeśaṁ
-> guḍākeśaḥ parantapaḥ
-> na yotsya iti govindam
+> sañjaya uvāca\
+> evam uktvā hṛṣīkeśaṁ\
+> guḍākeśaḥ parantapaḥ\
+> na yotsya iti govindam\
 > uktvā tūṣṇīṁ babhūva ha
 
 *sañjayaḥ uvāca*—Sañjaya dijo; *evam*—así pues; *uktvā*—hablando; *hṛṣīkeśam*—a Kṛṣṇa, el amo de los sentidos; *guḍākeśaḥ*—Arjuna, el maestro en dominar la ignorancia; *parantapaḥ*—el castigador de los enemigos; *na yotsye*—no lucharé; *iti*—así; *govindam*—a Kṛṣṇa, el que da placer a los sentidos; *uktvā*—diciendo; *tūṣṇīm*—callado; *babhūva*—se volvió; *ha*—ciertamente.

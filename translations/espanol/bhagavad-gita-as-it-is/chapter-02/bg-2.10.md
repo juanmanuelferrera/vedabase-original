@@ -1,11 +1,11 @@
 ### Bg 2.10
 
-> तमुवाच हृषीकेशः प्रहसन्निव भारत ।
+> तमुवाच हृषीकेशः प्रहसन्निव भारत ।\
 > सेनयोरुभयोर्मध्ये विषीदन्तमिदं वचः ॥१०॥
 
-> tam uvāca hṛṣīkeśaḥ
-> prahasann iva bhārata
-> senayor ubhayor madhye
+> tam uvāca hṛṣīkeśaḥ\
+> prahasann iva bhārata\
+> senayor ubhayor madhye\
 > viṣīdantam idaṁ vacaḥ
 
 *tam*—a él; *uvāca*—dijo; *hṛṣīkeśaḥ*—el amo de los sentidos, Kṛṣṇa; *prahasan*—sonriendo; *iva*—así; *bhārata*—¡oh, Dhṛtarāṣṭra, descendiente de Bharata!; *senayoḥ*—de los ejércitos; *ubhayoḥ*—de ambos bandos; *madhye*—entre; *viṣīdantam*—al que se lamentaba; *idam*—las siguientes; *vacaḥ*—palabras.

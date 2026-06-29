@@ -1,11 +1,11 @@
 ### SB 2.9.9
 
-> तस्मै स्वलोकं भगवान्सभाजितः सन्दर्शयामास परं न यत्परम् ।
+> तस्मै स्वलोकं भगवान्सभाजितः सन्दर्शयामास परं न यत्परम् ।\
 > व्यपेतसङ्क्लेशविमोहसाध्वसं स्वदृष्टवद्भिर्पुरुषैरभिष्टुतम् ॥९॥
 
-> tasmai sva-lokaṁ bhagavān sabhājitaḥ
-> sandarśayām āsa paraṁ na yat-param
-> vyapeta-saṅkleśa-vimoha-sādhvasaṁ
+> tasmai sva-lokaṁ bhagavān sabhājitaḥ\
+> sandarśayām āsa paraṁ na yat-param\
+> vyapeta-saṅkleśa-vimoha-sādhvasaṁ\
 > sva-dṛṣṭavadbhir puruṣair abhiṣṭutam
 
 *tasmai*—unto him; *sva-lokam*—His own planet or abode; *bhagavān*—the Personality of Godhead; *sabhājitaḥ*—being pleased by the penance of Brahmā; *sandarśayām āsa*—manifested; *param*—the supreme; *na*—not; *yat*—of which; *param*—further supreme; *vyapeta*—completely given up; *saṅkleśa*—five kinds of material afflictions; *vimoha*—without illusion; *sādhvasam*—fear of material existence; *sva-dṛṣṭa-vadbhiḥ*—by those who have perfectly realized the self; *puruṣaiḥ*—by persons; *abhiṣṭutam*—worshiped by.

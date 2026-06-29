@@ -1,11 +1,11 @@
 ### SB 7.12.25
 
-> खे खानि वायौ निश्वासांस्तेजःसूष्माणमात्मवान
+> खे खानि वायौ निश्वासांस्तेजःसूष्माणमात्मवान\
 > अप्स्वसृक्ष्लेष्मपूयानि क्षितौ शेषं यथोद्भवम ॥२५॥
 
-> khe khāni vāyau niśvāsāṁs
-> tejaḥsūṣmāṇam ātmavān
-> apsv asṛk-śleṣma-pūyāni
+> khe khāni vāyau niśvāsāṁs\
+> tejaḥsūṣmāṇam ātmavān\
+> apsv asṛk-śleṣma-pūyāni\
 > kṣitau śeṣaṁ yathodbhavam
 
 *khe*—in the sky; *khāni*—all the holes of the body; *vāyau*—in the air; *niśvāsān*—all the different airs moving within the body (*prāṇa, apāna,* etc.); *tejaḥsu*—in fire; *uṣmāṇam*—the heat of the body; *ātma-vān*—a person who knows the self; *apsu*—in water; *asṛk*—blood; *śleṣma*—mucus; *pūyāni*—and urine; *kṣitau*—in the earth; *śeṣam*—the remaining (namely skin, bones and the other hard things in the body); *yathā-udbhavam*—wherefrom all of them grew.

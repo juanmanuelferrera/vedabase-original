@@ -1,11 +1,11 @@
 ### SB 6.18.17
 
-> बाणज्येष्ठं पुत्रशतमशनायां ततोऽभवत
+> बाणज्येष्ठं पुत्रशतमशनायां ततोऽभवत\
 > तस्यानुभावं सुश्लोक्यं पश्चादेवाभिधास्यते ॥१७॥
 
-> bāṇa-jyeṣṭhaṁ putra-śatam
-> aśanāyāṁ tato 'bhavat
-> tasyānubhāvaṁ suślokyaṁ
+> bāṇa-jyeṣṭhaṁ putra-śatam\
+> aśanāyāṁ tato 'bhavat\
+> tasyānubhāvaṁ suślokyaṁ\
 > paścād evābhidhāsyate
 
 *bāṇa-jyeṣṭham*—having Bāṇa as the eldest; *putra-śatam*—one hundred sons; *aśanāyām*—through Aśanā; *tataḥ*—from him; *abhavat*—there were; *tasya*—his; *anubhāvam*—character; *su-ślokyam*—laudable; *paścāt*—later; *eva*—certainly; *abhidhāsyate*—will be described.

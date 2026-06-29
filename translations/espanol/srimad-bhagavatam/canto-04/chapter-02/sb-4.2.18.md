@@ -1,11 +1,11 @@
 ### SB 4.2.18
 
-> अयं तु देवयजन इन्द्रोपेन्द्रादिभिर्भवः ।
+> अयं तु देवयजन इन्द्रोपेन्द्रादिभिर्भवः ।\
 > सह भागं न लभतां देवैर्देवगणाधमः ॥१८॥
 
-> ayaṁ tu deva-yajana
-> indropendrādibhir bhavaḥ
-> saha bhāgaṁ na labhatāṁ
+> ayaṁ tu deva-yajana\
+> indropendrādibhir bhavaḥ\
+> saha bhāgaṁ na labhatāṁ\
 > devair deva-gaṇādhamaḥ
 
 *ayam*—este; *tu*—pero; *deva-yajane*—en el sacrificio de los semidioses; *indra-upendra-ādibhiḥ*—con Indra, Upendra y los demás; *bhavaḥ*—Śiva; *saha*—junto con; *bhāgam*—una parte; *na*—no; *labhatām*—debe obtener; *devaiḥ*—con los semidioses; *deva-gaṇa-adhamaḥ*—el más bajo de todos los semidioses.

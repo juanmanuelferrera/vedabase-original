@@ -1,11 +1,11 @@
 ### SB 3.12.39
 
-> इतिहासपुराणानि पञ्चमं वेदमीश्वरः ।
+> इतिहासपुराणानि पञ्चमं वेदमीश्वरः ।\
 > सर्वेभ्य एव वक्त्रेभ्यः ससृजे सर्वदर्शनः ॥३९॥
 
-> itihāsa-purāṇāni
-> pañcamaṁ vedam īśvaraḥ
-> sarvebhya eva vaktrebhyaḥ
+> itihāsa-purāṇāni\
+> pañcamaṁ vedam īśvaraḥ\
+> sarvebhya eva vaktrebhyaḥ\
 > sasṛje sarva-darśanaḥ
 
 *itihāsa*—histories; *purāṇāni*—the *Purāṇas* (supplementary *Vedas*); *pañcamam*—the fifth; *vedam*—the Vedic literature; *īśvaraḥ*—the Lord; *sarvebhyaḥ*—all together; *eva*—certainly; *vaktrebhyaḥ*—from his mouths; *sasṛje*—created; *sarva*—all around; *darśanaḥ*—one who can see all time.

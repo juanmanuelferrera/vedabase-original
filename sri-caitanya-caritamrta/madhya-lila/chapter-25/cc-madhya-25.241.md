@@ -1,9 +1,9 @@
 ### CC Madhya 25.241
 
-> শেষ অষ্টাদশ বৎসর নীলাচলে বাস ।
+> শেষ অষ্টাদশ বৎসর নীলাচলে বাস ।\
 > ভক্তগণ-সঙ্গে করে কীর্তন-বিলাস ॥২৪১॥
 
-> śeṣa aṣṭādaśa vatsara nīlācale vāsa
+> śeṣa aṣṭādaśa vatsara nīlācale vāsa\
 > bhakta-gaṇa-saṅge kare kīrtana-vilāsa
 
 *śeṣa aṣṭādaśa vatsara*—the remaining eighteen years; *nīlācale vāsa*—residence at Jagannātha Purī; *bhakta-gaṇa-saṅge*—with devotees; *kare*—performs; *kīrtana-vilāsa*—the pastimes of chanting the Hare Kṛṣṇa *mantra.*

@@ -1,9 +1,9 @@
 ### CC Antya 10.93
 
-> মোর নিদ্রা হৈলে কেনে না গেলা প্রসাদ খাইতে?' ।
+> মোর নিদ্রা হৈলে কেনে না গেলা প্রসাদ খাইতে?' ।\
 > গোবিন্দ কহে — 'দ্বারে শুইলা, যাইতে নাহি পথে' ॥৯৩॥
 
-> mora nidrā haile kene nā gelā prasāda khāite?'
+> mora nidrā haile kene nā gelā prasāda khāite?'\
 > govinda kahe—'dvāre śuilā, yāite nāhi pathe'
 
 *mora nidrā haile*—when I fell asleep; *kene*—why; *nā gelā*—did you not go; *prasāda khāite*—to take your meal; *govinda kahe*—Govinda said; *dvāre*—the door; *śuilā*—You were blocking; *yāite*—to go; *nāhi pathe*—there is no passage.

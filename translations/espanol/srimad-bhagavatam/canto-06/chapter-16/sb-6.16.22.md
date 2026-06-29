@@ -1,11 +1,11 @@
 ### SB 6.16.22
 
-> यस्मिन्निदं यतश्चेदं तिष्ठत्यप्येति जायते
+> यस्मिन्निदं यतश्चेदं तिष्ठत्यप्येति जायते\
 > मृण्मयेष्विव मृज्जातिस्तस्मै ते ब्रह्मणे नमः ॥२२॥
 
-> yasminn idaṁ yataś cedaṁ
-> tiṣṭhaty apyeti jāyate
-> mṛṇmayeṣv iva mṛj-jātis
+> yasminn idaṁ yataś cedaṁ\
+> tiṣṭhaty apyeti jāyate\
+> mṛṇmayeṣv iva mṛj-jātis\
 > tasmai te brahmaṇe namaḥ
 
 *yasmin*—en quien; *idam*—esta (manifestación cósmica); *yataḥ*—de quien; *ca*—también; *idam*—esta (manifestación cósmica); *tiṣṭhati*—se sostiene; *apyeti*—se disuelve; *jāyate*—nace; *mṛt-mayeṣu*—en cosas hechas de tierra; *iva*—como; *mṛt-jātiḥ*—nacimiento a partir de la tierra; *tasmai*—a Él; *te*—a Ti; *brahmaṇe*—la causa suprema; *namaḥ*—reverencias respetuosas.

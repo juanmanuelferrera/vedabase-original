@@ -1,13 +1,13 @@
 ### SB 2.7.49
 
-> स श्रेयसामपि विभुर्भगवान्यतोऽस्य
-> भावस्वभावविहितस्य सतः प्रसिद्धिः ।
-> देहे स्वधातुविगमेऽनुविशीर्यमाणे
+> स श्रेयसामपि विभुर्भगवान्यतोऽस्य\
+> भावस्वभावविहितस्य सतः प्रसिद्धिः ।\
+> देहे स्वधातुविगमेऽनुविशीर्यमाणे\
 > व्योमेव तत्र पुरुषो न विशीर्यते ञ्जः ॥४९॥
 
-> sa śreyasām api vibhur bhagavān yato 'sya
-> bhāva-svabhāva-vihitasya sataḥ prasiddhiḥ
-> dehe sva-dhātu-vigame 'nuviśīryamāṇe
+> sa śreyasām api vibhur bhagavān yato 'sya\
+> bhāva-svabhāva-vihitasya sataḥ prasiddhiḥ\
+> dehe sva-dhātu-vigame 'nuviśīryamāṇe\
 > vyomeva tatra puruṣo na viśīryate 'jaḥ
 
 *saḥ*—He; *śreyasām*—all auspiciousness; *api*—also; *vibhuḥ*—the master; *bhagavān*—the Personality of Godhead; *yataḥ*—because; *asya*—of the living entity; *bhāva*—natural modes; *sva-bhāva*—own constitution; *vihitasya*—performances; *sataḥ*—all good work; *prasiddhiḥ*—ultimate success; *dehe*—of the body; *sva-dhātu*—forming elements; *vigame*—being vanquished; *anu*—after; *viśīryamāṇe*—having given up; *vyoma*—sky; *iva*—like; *tatra*—thereupon; *puruṣaḥ*—the living entity; *na*—never; *viśīryate*—becomes vanquished; *ajaḥ*—due to being unborn.

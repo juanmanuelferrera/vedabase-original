@@ -1,9 +1,9 @@
 ### CC Madhya 14.255
 
-> এইমত ভক্তগণে যাত্রা দেখাইল ।
+> এইমত ভক্তগণে যাত্রা দেখাইল ।\
 > ভক্তগণ লঞা বৃন্দাবন-কেলি কৈল ॥২৫৫॥
 
-> ei-mata bhakta-gaṇe yātrā dekhāila
+> ei-mata bhakta-gaṇe yātrā dekhāila\
 > bhakta-gaṇa lañā vṛndāvana-keli kaila
 
 *ei-mata*—in this way; *bhakta-gaṇe*—to all the devotees; *yātrā*—the Ratha-yātrā festival; *dekhāila*—showed; *bhakta-gaṇa*—the devotees; *lañā*—with; *vṛndāvana-keli*—pastimes of Vṛndāvana; *kaila*—performed.

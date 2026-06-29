@@ -1,9 +1,9 @@
 ### CC Antya 16.32
 
-> সেই ধূলি লঞা কালিদাস সর্বাঙ্গে লেপিলা  ।
+> সেই ধূলি লঞা কালিদাস সর্বাঙ্গে লেপিলা  ।\
 > তাঁর নিকট একস্থানে লুকাঞা রহিলা ॥৩২॥
 
-> sei dhūli lañā kālidāsa sarvāṅge lepilā
+> sei dhūli lañā kālidāsa sarvāṅge lepilā\
 > tāṅra nikaṭa eka-sthāne lukāñā rahilā
 
 *sei dhūli*—ese polvo; *lañā*—tomando; *kālidāsa*—Kālidāsa; *sarva-aṅge*—por todo su cuerpo; *lepilā*—se untó; *tāṅra nikaṭa*—cerca de su lugar; *eka-sthāne*—en un lugar; *lukāñā rahilā*—permaneció escondido.

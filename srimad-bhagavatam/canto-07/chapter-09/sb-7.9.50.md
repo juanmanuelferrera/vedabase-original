@@ -1,13 +1,13 @@
 ### SB 7.9.50
 
-> तत्तेऽर्हत्तम नमः स्तुतिकर्मपूजाः
-> कर्म स्मृतिश्चरणयोः श्रवणं कथायाम
-> संसेवया त्वयि विनेति षडङ्गया किं
+> तत्तेऽर्हत्तम नमः स्तुतिकर्मपूजाः\
+> कर्म स्मृतिश्चरणयोः श्रवणं कथायाम\
+> संसेवया त्वयि विनेति षडङ्गया किं\
 > भक्तिं जनः परमहंसगतौ लभेत ॥५०॥
 
-> tat te 'rhattama namaḥ stuti-karma-pūjāḥ
-> karma smṛtiś caraṇayoḥ śravaṇaṁ kathāyām
-> saṁsevayā tvayi vineti ṣaḍ-aṅgayā kiṁ
+> tat te 'rhattama namaḥ stuti-karma-pūjāḥ\
+> karma smṛtiś caraṇayoḥ śravaṇaṁ kathāyām\
+> saṁsevayā tvayi vineti ṣaḍ-aṅgayā kiṁ\
 > bhaktiṁ janaḥ paramahaṁsa-gatau labheta
 
 *tat*—therefore; *te*—unto You; *arhat-tama*—O supreme of all worshipable persons; *namaḥ*—respectful obeisances; *stuti-karma-pūjāḥ*—worshiping Your Lordship by offering prayers and other devotional activities; *karma*—activities being dedicated to You; *smṛtiḥ*—constant remembrance; *caraṇayoḥ*—of Your lotus feet; *śravaṇam*—always hearing; *kathāyām*—in topics (about You); *saṁsevayā*—such devotional service; *tvayi*—unto You; *vinā*—without; *iti*—thus; *ṣaṭ-aṅgayā*—having six different parts; *kim*—how; *bhaktim*—devotional service; *janaḥ*—a person; *paramahaṁsa-gatau*—obtainable by the *paramahaṁsa*; *labheta*—may attain.

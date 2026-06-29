@@ -1,11 +1,11 @@
 ### SB 6.18.24
 
-> कदा नु भ्रातृहन्तारमिन्द्रियाराममुल्बणम
+> कदा नु भ्रातृहन्तारमिन्द्रियाराममुल्बणम\
 > अक्लिन्नहृदयं पापं घातयित्वा शये सुखम ॥२४॥
 
-> kadā nu bhrātṛ-hantāram
-> indriyārāmam ulbaṇam
-> aklinna-hṛdayaṁ pāpaṁ
+> kadā nu bhrātṛ-hantāram\
+> indriyārāmam ulbaṇam\
+> aklinna-hṛdayaṁ pāpaṁ\
 > ghātayitvā śaye sukham
 
 *kadā*—when; *nu*—indeed; *bhrātṛ-hantāram*—the killer of the brothers; *indriya-ārāmam*—very fond of sense gratification; *ulbaṇam*—cruel; *aklinna-hṛdayam*—hard hearted; *pāpam*—sinful; *ghātayitvā*—having caused to be killed; *śaye*—shall I rest; *sukham*—happily.

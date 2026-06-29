@@ -1,9 +1,9 @@
 ### CC Antya 4.137
 
-> “ইহাঁ আইলাঙ প্রভুরে দেখি’ দুঃখ খণ্ডাইতে ।
+> “ইহাঁ আইলাঙ প্রভুরে দেখি’ দুঃখ খণ্ডাইতে ।\
 > যেবা মনে, তাহা প্রভু না দিলা করিতে ॥১৩৭॥
 
-> "ihāṅ āilāṅ prabhure dekhi' duḥkha khaṇḍāite
+> "ihāṅ āilāṅ prabhure dekhi' duḥkha khaṇḍāite\
 > yebā mane, tāhā prabhu nā dilā karite
 
 *ihāṅ*—aquí (a Jagannātha Purī); *āilāṅ*—he venido; *prabhure*—al Señor Śrī Caitanya Mahāprabhu; *dekhi'*—al ver; *duḥkha khaṇḍāite*—para disminuir mi infelicidad; *yebā mane*—lo que tenía en mente; *tāhā*—eso; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *nā dilā karite*—no me permitió hacer.

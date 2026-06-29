@@ -1,9 +1,9 @@
 ### CC Antya 6.6
 
-> রামানন্দের কৃষ্ণকথা, স্বরূপের গান ।
+> রামানন্দের কৃষ্ণকথা, স্বরূপের গান ।\
 > বিরহ-বেদনায় প্রভুর রাখয়ে পরাণ ॥৬॥
 
-> rāmānandera kṛṣṇa-kathā, svarūpera gāna
+> rāmānandera kṛṣṇa-kathā, svarūpera gāna\
 > viraha-vedanāya prabhura rākhaye parāṇa
 
 *rāmānandera*—of Rāmānanda Rāya; *kṛṣṇa-kathā*—talks of Lord Kṛṣṇa; *svarūpera gāna*—the songs of Svarūpa Dāmodara; *viraha-vedanāya*—at the time of pangs of separation; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *rākhaye*—keep; *parāṇa*—the life.

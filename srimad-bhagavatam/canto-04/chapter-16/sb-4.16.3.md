@@ -1,11 +1,11 @@
 ### SB 4.16.3
 
-> अथाप्युदारश्रवसः पृथोर्हरेः कलावतारस्य कथामृतादृताः ।
+> अथाप्युदारश्रवसः पृथोर्हरेः कलावतारस्य कथामृतादृताः ।\
 > यथोपदेशं मुनिभिः प्रचोदिताः श्लाघ्यानि कर्माणि वयं वितन्महि ॥३॥
 
-> athāpy udāra-śravasaḥ pṛthor hareḥ
-> kalāvatārasya kathāmṛtādṛtāḥ
-> yathopadeśaṁ munibhiḥ pracoditāḥ
+> athāpy udāra-śravasaḥ pṛthor hareḥ\
+> kalāvatārasya kathāmṛtādṛtāḥ\
+> yathopadeśaṁ munibhiḥ pracoditāḥ\
 > ślāghyāni karmāṇi vayaṁ vitanmahi
 
 *atha api*—nevertheless; *udāra*—liberal; *śravasaḥ*—whose fame; *pṛthoḥ*—of King Pṛthu; *hareḥ*—of Lord Viṣṇu; *kalā*—part of a plenary expansion; *avatārasya*—incarnation; *kathā*—words; *amṛta*—nectarean; *ādṛtāḥ*—attentive to; *yathā*—according to; *upadeśam*—instruction; *munibhiḥ*—by the great sages; *pracoditāḥ*—being encouraged; *ślāghyāni*—laudable; *karmāṇi*—activities; *vayam*—we; *vitanmahi*—shall try to spread.

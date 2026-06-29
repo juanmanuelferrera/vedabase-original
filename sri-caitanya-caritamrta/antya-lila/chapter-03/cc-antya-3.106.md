@@ -1,9 +1,9 @@
 ### CC Antya 3.106
 
-> বেশ্যাগণ-মধ্যে এক সুন্দরী যুবতী ।
+> বেশ্যাগণ-মধ্যে এক সুন্দরী যুবতী ।\
 > সে কহে, — “তিনদিনে হরিব তাঁর মতি” ॥১০৬॥
 
-> veśyā-gaṇa-madhye eka sundarī yuvatī
+> veśyā-gaṇa-madhye eka sundarī yuvatī\
 > se kahe,—"tina-dine hariba tāṅra mati"
 
 *veśyā-gaṇa-madhye*—among the prostitutes; *eka*—one; *sundarī*—attractive; *yuvatī*—young; *se*—she; *kahe*—said; *tina-dine*—in three days; *hariba*—I shall attract; *tāṅra*—his; *mati*—mind.

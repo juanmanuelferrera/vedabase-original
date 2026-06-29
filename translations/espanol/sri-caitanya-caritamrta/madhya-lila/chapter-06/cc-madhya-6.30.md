@@ -1,9 +1,9 @@
 ### CC Madhya 6.30
 
-> সার্বভৌম-স্থানে গিয়া প্রভুকে দেখিল ।
+> সার্বভৌম-স্থানে গিয়া প্রভুকে দেখিল ।\
 > প্রভু দেখি’ আচার্যের দুঃখ-হর্ষ হৈল ॥৩০॥
 
-> sārvabhauma-sthāne giyā prabhuke dekhila
+> sārvabhauma-sthāne giyā prabhuke dekhila\
 > prabhu dekhi' ācāryera duḥkha-harṣa haila
 
 *sārvabhauma-sthāne*—al lugar de Sārvabhauma Bhaṭṭācārya; *giyā*—yendo allí; *prabhuke*—al Señor Śrī Caitanya Mahāprabhu; *dekhila*—todos Lo vieron; *prabhu dekhi'*—al ver al Señor; *ācāryera*—de Gopīnātha Ācārya; *duḥkha*—infelicidad; *harṣa*—felicidad; *haila*—hubo.

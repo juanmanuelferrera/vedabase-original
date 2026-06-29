@@ -1,9 +1,9 @@
 ### CC Madhya 24.249
 
-> নারদ কহে, — “অর্ধ মারিলে জীব পায় ব্যথা ।
+> নারদ কহে, — “অর্ধ মারিলে জীব পায় ব্যথা ।\
 > জীবে দুঃখ দিতেছ, তোমার হইবে ঐছে অবস্থা ॥২৪৯॥
 
-> nārada kahe,--"ardha mārile jīva pāya vyathā
+> nārada kahe,--"ardha mārile jīva pāya vyathā\
 > jīve duḥkha ditecha, tomāra ha-ibe aiche avasthā
 
 *nārada kahe*—Nārada Muni respondió; *ardha mārile*—al dejar a los animales medio muertos; *jīva pāya vyathā*—los seres vivientes sufren demasiado dolor; *jīve duḥkha ditecha*—estás causando sufrimiento a los seres vivientes; *tomāra*—tu; *ha-ibe*—habrá; *aiche avasthā*—el mismo sufrimiento como represalia.

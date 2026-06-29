@@ -1,11 +1,11 @@
 ### SB 3.6.37
 
-> एकान्तलाभं वचसो नु पुंसां सुश्लोकमौलेर्गुणवादमाहुः ।
+> एकान्तलाभं वचसो नु पुंसां सुश्लोकमौलेर्गुणवादमाहुः ।\
 > श्रुतेश्च विद्वद्भिरुपाकृतायां कथासुधायामुपसम्प्रयोगम् ॥३७॥
 
-> ekānta-lābhaṁ vacaso nu puṁsāṁ
-> suśloka-mauler guṇa-vādam āhuḥ
-> śruteś ca vidvadbhir upākṛtāyāṁ
+> ekānta-lābhaṁ vacaso nu puṁsāṁ\
+> suśloka-mauler guṇa-vādam āhuḥ\
+> śruteś ca vidvadbhir upākṛtāyāṁ\
 > kathā-sudhāyām upasamprayogam
 
 *eka-anta*—the one which has no comparison; *lābham*—gain; *vacasaḥ*—by discussions; *nu puṁsām*—after the Supreme Person; *suśloka*—pious; *mauleḥ*—activities; *guṇa-vādam*—glorification; *āhuḥ*—it is so said; *śruteḥ*—of the ear; *ca*—also; *vidvadbhiḥ*—by the learned; *upākṛtāyām*—being so edited; *kathā-sudhāyām*—in the nectar of such a transcendental message; *upasamprayogam*—serves the real purpose, being nearer to.

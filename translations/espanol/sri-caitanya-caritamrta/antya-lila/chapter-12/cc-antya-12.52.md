@@ -1,9 +1,9 @@
 ### CC Antya 12.52
 
-> তবে সব ভক্ত লঞা করিলা ভোজন  ।
+> তবে সব ভক্ত লঞা করিলা ভোজন  ।\
 > গোবিন্দেরে আজ্ঞা দিলা করি’ আচমন ॥৫২॥
 
-> tabe saba bhakta lañā karilā bhojana
+> tabe saba bhakta lañā karilā bhojana\
 > govindere ājñā dilā kari' ācamana
 
 *tabe*—entonces; *saba bhakta lañā*—con todos los devotos; *karilā bhojana*—almorzó; *govindere*—a Govinda; *ājñā dilā*—dio la orden; *kari' ācamana*—tras lavarse las manos y la boca.

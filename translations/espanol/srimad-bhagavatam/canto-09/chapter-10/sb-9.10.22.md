@@ -1,13 +1,13 @@
 ### SB 9.10.22
 
-> रामस्तमाह पुरुषादपुरीष यन्नः
-> कान्तासमक्षमसतापहृता श्ववत्ते
-> त्यक्तत्रपस्य फलमद्य जुगुप्सितस्य
+> रामस्तमाह पुरुषादपुरीष यन्नः\
+> कान्तासमक्षमसतापहृता श्ववत्ते\
+> त्यक्तत्रपस्य फलमद्य जुगुप्सितस्य\
 > यच्छामि काल इव कर्तुरलङ्घ्यवीर्यः ॥२२॥
 
-> rāmas tam āha puruṣāda-purīṣa yan naḥ
-> kāntāsamakṣam asatāpahṛtā śvavat te
-> tyakta-trapasya phalam adya jugupsitasya
+> rāmas tam āha puruṣāda-purīṣa yan naḥ\
+> kāntāsamakṣam asatāpahṛtā śvavat te\
+> tyakta-trapasya phalam adya jugupsitasya\
 > yacchāmi kāla iva kartur alaṅghya-vīryaḥ
 
 *rāmaḥ*—el Señor Rāmacandra; *tam*—a él, a Rāvaṇa; *āha*—dijo; *puruṣa-ada-purīṣa*—eres el excremento de los caníbales (*rākṣasas*); *yat*—puesto que; *naḥ*—Mía; *kāntā*—esposa; *asamakṣam*—indefensa por Mi ausencia; *asatā*—por ti, el más pecador; *apahṛtā*—fue raptada; *śva-vat*—como un perro que roba comida de la cocina cuando el dueño no está en casa; *te*—de ti; *tyakta-trapasya*—porque eres un desvergonzado; *phalam adya*—hoy voy a darte tu merecido; *jugupsitasya*—de ti, el más abominable; *yacchāmi*—voy a castigarte; *kālaḥ iva*—como la muerte; *kartuḥ*—de ti, que has cometido todas las actividades pecaminosas; *alaṅghya-vīryaḥ*—pero Yo, que soy omnipotente, nunca fracaso en Mi intento.

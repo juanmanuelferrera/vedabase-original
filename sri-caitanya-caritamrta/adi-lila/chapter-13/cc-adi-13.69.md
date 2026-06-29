@@ -1,9 +1,9 @@
 ### CC Adi 13.69
 
-> কৃষ্ণ অবতরি’ করেন ভক্তির বিস্তার ।
+> কৃষ্ণ অবতরি’ করেন ভক্তির বিস্তার ।\
 > তবে ত’ সকল লোকের হইবে নিস্তার ॥৬৯॥
 
-> kṛṣṇa avatari' karena bhaktira vistāra
+> kṛṣṇa avatari' karena bhaktira vistāra\
 > tabe ta' sakala lokera ha-ibe nistāra
 
 *kṛṣṇa*—Lord Kṛṣṇa; *avatari'*—descending; *karena*—does; *bhaktira*—of devotional service; *vistāra*—expansion; *tabe*—then; *ta'*—certainly; *sakala*—all; *lokera*—of the people; *ha-ibe*—there will be; *nistāra*—liberation.

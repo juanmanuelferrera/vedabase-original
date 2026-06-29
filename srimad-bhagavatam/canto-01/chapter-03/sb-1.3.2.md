@@ -1,11 +1,11 @@
 ### SB 1.3.2
 
-> यस्याम्भसि शयानस्य योगनिद्रां वितन्वतः ।
+> यस्याम्भसि शयानस्य योगनिद्रां वितन्वतः ।\
 > नाभिह्रदाम्बुजादासीद्ब्रह्मा विश्वसृजां पतिः ॥२॥
 
-> yasyāmbhasi śayānasya
-> yoga-nidrāṁ vitanvataḥ
-> nābhi-hradāmbujād āsīd
+> yasyāmbhasi śayānasya\
+> yoga-nidrāṁ vitanvataḥ\
+> nābhi-hradāmbujād āsīd\
 > brahmā viśva-sṛjāṁ patiḥ
 
 *yasya*—whose; *ambhasi*—in the water; *śayānasya*—lying down; *yoga-nidrām*—sleeping in meditation; *vitanvataḥ*—ministering; *nābhi*—navel; *hrada*—out of the lake; *ambujāt*—from the lotus; *āsīt*—was manifested; *brahmā*—the grandfather of the living beings; *viśva*—the universe; *sṛjām*—the engineers; *patiḥ*—master.

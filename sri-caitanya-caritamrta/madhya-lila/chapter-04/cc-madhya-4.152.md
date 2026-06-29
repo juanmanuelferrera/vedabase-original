@@ -1,9 +1,9 @@
 ### CC Madhya 4.152
 
-> এক বিপ্র, এক সেবক, চন্দন বহিতে ।
+> এক বিপ্র, এক সেবক, চন্দন বহিতে ।\
 > পুরী-গোসাঞির সঙ্গে দিল সম্বল-সহিতে ॥১৫২॥
 
-> eka vipra, eka sevaka, candana vahite
+> eka vipra, eka sevaka, candana vahite\
 > purī-gosāñira saṅge dila sambala-sahite
 
 *ekavipra*—one *brāhmaṇa*; *eka sevaka*—one servant; *candana*—the sandalwood; *vahite*—to carry; *purī-gosāñira*—Mādhavendra Purī; *saṅge*—with; *dila*—gave; *sambala-sahite*—with the necessary expenditure.

@@ -1,11 +1,11 @@
 ### SB 1.12.12
 
-> ततः सर्वगुणोदर्के सानुकूलग्रहोदये ।
+> ततः सर्वगुणोदर्के सानुकूलग्रहोदये ।\
 > जज्ञे वंशधरः पाण्डोर्भूयः पाण्डुरिवौजसा ॥१२॥
 
-> tataḥ sarva-guṇodarke
-> sānukūla-grahodaye
-> jajñe vaṁśa-dharaḥ pāṇḍor
+> tataḥ sarva-guṇodarke\
+> sānukūla-grahodaye\
+> jajñe vaṁśa-dharaḥ pāṇḍor\
 > bhūyaḥ pāṇḍur ivaujasā
 
 *tataḥ*—inmediatamente después; *sarva*—todos; *guṇa*—buenos signos; *udarke*—habiendo evolucionado gradualmente; *sa-anukūla*—todos favorables; *grahodaye*—constelación de influencia estelar; *jajñe*—nació; *vaṁśa-dharaḥ*—el heredero legítimo; *pāṇḍoḥ*—de Pāṇḍu; *bhūyaḥ*—siendo; *pāṇḍuḥ iva*—exactamente igual que Pāṇḍu; *ojasā*—por la valentía.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.105
 
-> কৃষ্ণশক্তি ধর তুমি, জান তত্ত্বভাব ।
+> কৃষ্ণশক্তি ধর তুমি, জান তত্ত্বভাব ।\
 > জানি’ দার্ঢ্য লাগি’ পুছে, — সাধুর স্বভাব ॥১০৫॥
 
-> kṛṣṇa-śakti dhara tumi, jāna tattva-bhāva
+> kṛṣṇa-śakti dhara tumi, jāna tattva-bhāva\
 > jāni' dārḍhya lāgi' puche,—sādhura svabhāva
 
 *kṛṣṇa-śakti*—the energy of Lord Kṛṣṇa; *dhara*—process; *tumi*—you; *jāna*—know; *tattva-bhāva*—the factual position; *jāni'*—although knowing all these things; *dārḍhya lāgi'*—for the sake of strictness; *puche*—he inquires; *sādhura*—of the saintly persons; *sva-bhāva*—the nature.

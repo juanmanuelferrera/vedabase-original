@@ -1,9 +1,9 @@
 ### CC Madhya 13.194
 
-> বামে — ‘বিপ্রশাসন’, নারিকেল-বন ।
+> বামে — ‘বিপ্রশাসন’, নারিকেল-বন ।\
 > ডাহিনে ত’ পুষ্পোদ্যান যেন বৃন্দাবন ॥১৯৪॥
 
-> vāme-'vipra-śāsana' nārikela-vana
+> vāme-'vipra-śāsana' nārikela-vana\
 > ḍāhine ta' puṣpodyāna yena vṛndāvana
 
 *vāme*—a la izquierda; *vipra-śāsana*—el lugar conocido como vipra-śāsana; *nārikela-vana*—un bosque de cocoteros; *ḍāhine*—al lado derecho; *ta'*—ciertamente; *puṣpa-udyāna*—jardines de flores; *yena*—como si; *vṛndāvana*—Vṛndāvana.

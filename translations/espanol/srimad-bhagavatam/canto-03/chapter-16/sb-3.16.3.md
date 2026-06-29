@@ -1,11 +1,11 @@
 ### SB 3.16.3
 
-> यस्त्वेतयोर्धृतो दण्डो भवद्भिर्मामनुव्रतैः ।
+> यस्त्वेतयोर्धृतो दण्डो भवद्भिर्मामनुव्रतैः ।\
 > स एवानुमतोऽस्माभिर्मुनयो देवहेलनात् ॥३॥
 
-> yas tv etayor dhṛto daṇḍo
-> bhavadbhir mām anuvrataiḥ
-> sa evānumato 'smābhir
+> yas tv etayor dhṛto daṇḍo\
+> bhavadbhir mām anuvrataiḥ\
+> sa evānumato 'smābhir\
 > munayo deva-helanāt
 
 *yaḥ*—que; *tu*—pero; *etayoḥ*—acerca de Jaya y Vijaya; *dhṛtaḥ*—se ha dado; *daṇḍaḥ*—castigo; *bhavadbhiḥ*—por ustedes; *mām*—Mí; *anuvrataiḥ*—dedicados a; *saḥ*—esto; *eva*—ciertamente; *anumataḥ*—es aprobado; *asmābhiḥ*—por Mí; *munayaḥ*—¡oh, grandes sabios!; *deva*—contra ustedes; *helanāt*—por una ofensa.

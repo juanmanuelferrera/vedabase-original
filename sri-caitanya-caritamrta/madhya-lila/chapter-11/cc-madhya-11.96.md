@@ -1,9 +1,9 @@
 ### CC Madhya 11.96
 
-> ঐছে প্রেম, ঐছে নৃত্য, ঐছে হরিধ্বনি ।
+> ঐছে প্রেম, ঐছে নৃত্য, ঐছে হরিধ্বনি ।\
 > কাহাঁ নাহি দেখি, ঐছে কাহাঁ নাহি শুনি ॥৯৬॥
 
-> aiche prema, aiche nṛtya, aiche hari-dhvani
+> aiche prema, aiche nṛtya, aiche hari-dhvani\
 > kāhāṅ nāhi dekhi, aiche kāhāṅ nāhi śuni
 
 *aiche*—such; *prema*—ecstatic love; *aiche nṛtya*—such dancing; *aiche hari-dhvani*—such vibration of the chanting of the holy name; *kāhāṅ*—anywhere; *nāhi dekhi*—I have never seen; *aiche*—such; *kāhāṅ*—anywhere; *nāhi śuni*—I never heard.

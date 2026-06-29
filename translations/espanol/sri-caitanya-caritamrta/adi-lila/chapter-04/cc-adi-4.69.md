@@ -1,9 +1,9 @@
 ### CC Adi 4.69
 
-> মহাভাবস্বরূপা শ্রীরাধা-ঠাকুরাণী ।
+> মহাভাবস্বরূপা শ্রীরাধা-ঠাকুরাণী ।\
 > সর্বগুণখনি কৃষ্ণকান্তাশিরোমণি ॥৬৯॥
 
-> mahābhāva-svarūpā śrī-rādhā-ṭhākurāṇī
+> mahābhāva-svarūpā śrī-rādhā-ṭhākurāṇī\
 > sarva-guṇa-khani kṛṣṇa-kāntā-śiromaṇi
 
 *mahā-bhāva*—de mahābhāva; *svarūpā*—la forma; *śrī-rādhā-ṭhākurāṇī*—Śrīmatī Rādhārāṇī; *sarva-guṇa*—de todas las buenas cualidades; *khani*—mina; *kṛṣṇa-kāntā*—de las amantes del Señor Kṛṣṇa; *śiromaṇi*—joya de la corona.

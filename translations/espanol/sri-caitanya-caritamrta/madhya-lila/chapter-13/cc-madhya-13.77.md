@@ -1,11 +1,11 @@
 ### CC Madhya 13.77
 
-> নমো ব্রহ্মণ্যদেবায় গোব্রাহ্মণহিতায় চ ।
+> নমো ব্রহ্মণ্যদেবায় গোব্রাহ্মণহিতায় চ ।\
 > জগদ্ধিতায় কৃষ্ণায় গোবিন্দায় নমো নমঃ ॥৭৭॥
 
-> namo brahmaṇya-devāya
-> go-brāhmaṇa-hitāya ca
-> jagad-dhitāya kṛṣṇāya
+> namo brahmaṇya-devāya\
+> go-brāhmaṇa-hitāya ca\
+> jagad-dhitāya kṛṣṇāya\
 > govindāya namo namaḥ
 
 *namaḥ*—todas las reverencias; *brahmaṇya-devāya*—al Señor adorado por las personas de cultura brahmínica; *go-brāhmaṇa*—para las vacas y los brāhmaṇas; *hitāya*—beneficioso; *ca*—también; *jagat-hitāya*—a aquel que siempre beneficia al mundo entero; *kṛṣṇāya*—a Kṛṣṇa; *govindāya*—a Govinda; *namaḥ namaḥ*—reverencias repetidas.

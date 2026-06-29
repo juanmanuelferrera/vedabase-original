@@ -1,9 +1,9 @@
 ### CC Antya 5.85
 
-> ‘ভক্তি’, ‘প্রেম’, ‘তত্ত্ব’ কহে রায়ে করি’ ‘বক্তা’ ।
+> ‘ভক্তি’, ‘প্রেম’, ‘তত্ত্ব’ কহে রায়ে করি’ ‘বক্তা’ ।\
 > আপনি প্রদ্যুম্নমিশ্র-সহ হয় ‘শ্রোতা’ ॥৮৫॥
 
-> 'bhakti', 'prema', 'tattva' kahe rāye kari' 'vaktā'
+> 'bhakti', 'prema', 'tattva' kahe rāye kari' 'vaktā'\
 > āpani pradyumna-miśra-saha haya 'śrotā'
 
 *bhakti*—servicio devocional; *prema*—amor extático; *tattva*—la verdad; *kahe*—dice; *rāye*—a Rāmānanda Rāya; *kari'*—al hacer; *vaktā*—el orador; *āpani*—Él mismo; *pradyumna-miśra*—Pradyumna Miśra; *saha*—con; *haya śrotā*—se convierte en el oyente.

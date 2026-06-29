@@ -1,13 +1,13 @@
 ### CC Madhya 19.202
 
-> তস্যাঃ সুদুঃখভয় শোক-বিনষ্ট-বুদ্ধে-
-> র্হস্তাচ্ছ্লথদ্বলয়তো ব্যজনং পপাত ।
-> দেহশ্চ বিক্লবধিয়ঃ সহসৈব মুহ্যন্
+> তস্যাঃ সুদুঃখভয় শোক-বিনষ্ট-বুদ্ধে-\
+> র্হস্তাচ্ছ্লথদ্বলয়তো ব্যজনং পপাত ।\
+> দেহশ্চ বিক্লবধিয়ঃ সহসৈব মুহ্যন্\
 > রম্ভেব বাতবিহতা প্রবিকীর্য কেশান্ ॥২০২॥
 
-> tasyāḥ suduḥkha-bhaya-śoka-vinaṣṭa-buddher
-> hastāc chlathad-valayato vyajanaṁ papāta
-> dehaś ca viklava-dhiyaḥ sahasaiva muhyan
+> tasyāḥ suduḥkha-bhaya-śoka-vinaṣṭa-buddher\
+> hastāc chlathad-valayato vyajanaṁ papāta\
+> dehaś ca viklava-dhiyaḥ sahasaiva muhyan\
 > rambheva vāta-vihatā pravikīrya keśān
 
 *tasyāḥ*—de ella; *su-duḥkha-bhaya*—debido al gran sufrimiento y temor; *śoka*—y lamento; *vinaṣṭa*—perdida; *buddheḥ*—cuya inteligencia; *hastāt*—de la mano; *ślathat*—aflojándose; *valayataḥ*—las pulseras; *vyajanam*—el abanico; *papāta*—cayó; *dehaḥ*—el cuerpo; *ca*—también; *viklava*—paralizada por el temor; *dhiyaḥ*—cuyo entendimiento; *sahasā eva*—repentinamente; *muhyan*—desmayándose; *rambhā iva*—como un plátano; *vāta-vihatā*—azotado por un fuerte viento; *pravikīrya*—esparciendo; *keśān*—los cabellos.

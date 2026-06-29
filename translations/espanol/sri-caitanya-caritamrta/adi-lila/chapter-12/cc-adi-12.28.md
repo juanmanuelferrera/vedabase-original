@@ -1,9 +1,9 @@
 ### CC Adi 12.28
 
-> ‘কমলাকান্ত বিশ্বাস’ — নাম আচার্যকিঙ্কর ।
+> ‘কমলাকান্ত বিশ্বাস’ — নাম আচার্যকিঙ্কর ।\
 > আচার্য-ব্যবহার সব — তাঁহার গোচর ॥২৮॥
 
-> 'kamalākānta viśvāsa'-nāma ācārya-kiṅkara
+> 'kamalākānta viśvāsa'-nāma ācārya-kiṅkara\
 > ācārya-vyavahāra saba--tāṅhāra gocara
 
 *kamalākānta viśvāsa*—de nombre Kamalākānta Viśvāsa; *nāma*—nombre; *ācārya-kiṅkara*—sirviente de Advaita Ācārya; *ācārya-vyavahāra*—los tratos de Advaita Ācārya; *saba*—todos; *tāṅhāra*—de él; *gocara*—dentro de su conocimiento.

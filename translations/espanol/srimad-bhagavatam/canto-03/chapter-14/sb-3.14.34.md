@@ -1,13 +1,13 @@
 ### SB 3.14.34
 
-> दितिरुवाच
-> न मे गर्भमिमं ब्रह्मन्भूतानामृषभोऽवधीत् ।
+> दितिरुवाच\
+> न मे गर्भमिमं ब्रह्मन्भूतानामृषभोऽवधीत् ।\
 > रुद्रः पतिर्हि भूतानां यस्याकरवमंहसम् ॥३४॥
 
-> ditir uvāca
-> na me garbham imaṁ brahman
-> bhūtānām ṛṣabho 'vadhīt
-> rudraḥ patir hi bhūtānāṁ
+> ditir uvāca\
+> na me garbham imaṁ brahman\
+> bhūtānām ṛṣabho 'vadhīt\
+> rudraḥ patir hi bhūtānāṁ\
 > yasyākaravam aṁhasam
 
 *ditiḥ uvāca*—la hermosa Diti dijo; *na*—no; *me*—mi; *garbham*—embarazo; *imam*—este; *brahman*—¡oh, *brāhmaṇa*!; *bhūtānām*—de todas las entidades vivientes; *ṛṣabhaḥ*—la más noble de todas las entidades vivientes; *avadhīt*—que él mate; *rudraḥ*—Śiva; *patiḥ*—amo; *hi*—ciertamente; *bhūtānām*—de todas las entidades vivientes; *yasya*—cuya; *akaravam*—he hecho; *aṁhasam*—ofensa.

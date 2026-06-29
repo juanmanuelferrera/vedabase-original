@@ -1,11 +1,11 @@
 ### Bg 6.2
 
-> यं संन्यासमिति प्राहुर्योगं तं विद्धि पाण्डव ।
+> यं संन्यासमिति प्राहुर्योगं तं विद्धि पाण्डव ।\
 > न ह्यसंन्यस्तसङ्कल्पो योगी भवति कश्चन ॥२॥
 
-> yaṁ sannyāsam iti prāhur
-> yogaṁ taṁ viddhi pāṇḍava
-> na hy asannyasta-saṅkalpo
+> yaṁ sannyāsam iti prāhur\
+> yogaṁ taṁ viddhi pāṇḍava\
+> na hy asannyasta-saṅkalpo\
 > yogī bhavati kaścana
 
 *yam*—que; *sannyāsam*—renunciación; *iti*—así; *prāhuḥ*—dicen; *yogam*—vinculándose con el Supremo; *tam*—eso; *viddhi*—has de saber; *pāṇḍava*—¡oh, hijo de Pāṇḍu!; *na*—nunca; *hi*—ciertamente; *asannyasta*—sin abandonar; *saṅkalpaḥ*—satisfacción personal; *yogī*—un trascendentalista místico; *bhavati*—se vuelve; *kaścana*—cualquiera.

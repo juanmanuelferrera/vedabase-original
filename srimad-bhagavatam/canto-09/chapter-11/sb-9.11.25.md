@@ -1,13 +1,13 @@
 ### SB 9.11.25
 
-> श्रीबादरायणिरुवाच
-> अथादिशद्दिग्विजये भ्रातंस्त्रिभुवनेश्वरः
+> श्रीबादरायणिरुवाच\
+> अथादिशद्दिग्विजये भ्रातंस्त्रिभुवनेश्वरः\
 > आत्मानं दर्शयन्स्वानां पुरीमैक्षत सानुगः ॥२५॥
 
-> śrī-bādarāyaṇir uvāca
-> athādiśad dig-vijaye
-> bhrātṝṁs tri-bhuvaneśvaraḥ
-> ātmānaṁ darśayan svānāṁ
+> śrī-bādarāyaṇir uvāca\
+> athādiśad dig-vijaye\
+> bhrātṝṁs tri-bhuvaneśvaraḥ\
+> ātmānaṁ darśayan svānāṁ\
 > purīm aikṣata sānugaḥ
 
 *śrī-bādarāyaṇiḥ uvāca*—Śrī Śukadeva Gosvāmī said; *atha*—hereafter (when the Lord accepted the throne on the request of Bharata); *ādiśat*—ordered; *dik-vijaye*—to conquer all the world; *bhrātṝn*—His younger brothers; *tri-bhuvana-īśvaraḥ*—the Lord of the universe; *ātmānam*—personally, Himself; *darśayan*—giving audience; *svānām*—to the family members and the citizens; *purīm*—the city; *aikṣata*—supervised; *sa-anugaḥ*—with other assistants.

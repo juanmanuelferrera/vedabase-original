@@ -1,11 +1,11 @@
 ### SB 4.21.48
 
-> वीरवर्य पितः पृथ्व्याः समाः सञ्जीव शाश्वतीः ।
+> वीरवर्य पितः पृथ्व्याः समाः सञ्जीव शाश्वतीः ।\
 > यस्येदृश्यच्युते भक्तिः सर्वलोकैकभर्तरि ॥४८॥
 
-> vīra-varya pitaḥ pṛthvyāḥ
-> samāḥ sañjīva śāśvatīḥ
-> yasyedṛśy acyute bhaktiḥ
+> vīra-varya pitaḥ pṛthvyāḥ\
+> samāḥ sañjīva śāśvatīḥ\
+> yasyedṛśy acyute bhaktiḥ\
 > sarva-lokaika-bhartari
 
 *vīra-varya*—the best of the warriors; *pitaḥ*—the father; *pṛthvyāḥ*—of the globe; *samāḥ*—equal to in years; *sañjīva*—live; *śāśvatīḥ*—forever; *yasya*—whose; *īdṛśī*—like this; *acyute*—unto the Supreme; *bhaktiḥ*—devotion; *sarva*—all; *loka*—planets; *eka*—one; *bhartari*—maintainer.

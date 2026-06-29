@@ -1,9 +1,9 @@
 ### CC Antya 10.147
 
-> শিবানন্দের গৌরবে প্রভু করিলা ভোজন ।
+> শিবানন্দের গৌরবে প্রভু করিলা ভোজন ।\
 > অতি গুরু-ভোজনে প্রভুর প্রসন্ন নহে মন ॥১৪৭॥
 
-> śivānandera gaurave prabhu karilā bhojana
+> śivānandera gaurave prabhu karilā bhojana\
 > ati-guru-bhojane prabhura prasanna nahe mana
 
 *śivānandera*—of Śivānanda Sena; *gaurave*—out of honor; *prabhu*—Śrī Caitanya Mahāprabhu; *karilā bhojana*—ate; *ati-guru-bhojane*—because of eating too much; *prabhura*—of Śrī Caitanya Mahāprabhu; *prasanna nahe mana*—the mind was not satisfied.

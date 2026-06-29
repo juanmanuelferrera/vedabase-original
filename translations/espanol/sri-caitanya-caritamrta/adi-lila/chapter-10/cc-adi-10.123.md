@@ -1,9 +1,9 @@
 ### CC Adi 10.123
 
-> কেবল নীলাচলে প্রভুর যে যে ভক্তগণ ।
+> কেবল নীলাচলে প্রভুর যে যে ভক্তগণ ।\
 > সংক্ষেপে করিয়ে কিছু সে সব কথন ॥১২৩॥
 
-> kevala nīlācale prabhura ye ye bhakta-gaṇa
+> kevala nīlācale prabhura ye ye bhakta-gaṇa\
 > saṅkṣepe kariye kichu se saba kathana
 
 *kevala*—solo; *nīlācale*—en Jagannātha Purī; *prabhura*—del Señor; *ye ye*—todos aquellos; *bhakta-gaṇa*—devotos; *saṅkṣepe*—en resumen; *kariye*—hago; *kichu*—algo; *se saba*—todos esos; *kathana*—narración.

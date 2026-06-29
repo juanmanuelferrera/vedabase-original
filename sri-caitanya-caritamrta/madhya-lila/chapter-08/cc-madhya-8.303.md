@@ -1,9 +1,9 @@
 ### CC Madhya 8.303
 
-> সংক্ষেপে কহিলুঁ রামানন্দের মিলন ।
+> সংক্ষেপে কহিলুঁ রামানন্দের মিলন ।\
 > বিস্তারি’ বর্ণিতে নারে সহস্র-বদন ॥৩০৩॥
 
-> saṅkṣepe kahiluṅ rāmānandera milana
+> saṅkṣepe kahiluṅ rāmānandera milana\
 > vistāri' varṇite nāre sahasra-vadana
 
 *saṅkṣepe*—in brief; *kahiluṅ*—I have described; *rāmānandera milana*—meeting with Śrīla Rāmānanda Rāya; *vistāri'*—expanding; *varṇite*—to describe; *nāre*—not able; *sahasra-vadana*—Lord Śeṣa Nāga, who has thousands of hoods.

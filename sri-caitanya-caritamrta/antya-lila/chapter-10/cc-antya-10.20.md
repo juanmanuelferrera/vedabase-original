@@ -1,9 +1,9 @@
 ### CC Antya 10.20
 
-> সুকুতা খাইলে সেই আম হইবেক নাশ ।
+> সুকুতা খাইলে সেই আম হইবেক নাশ ।\
 > এই স্নেহ মনে ভাবি’ প্রভুর উল্লাস ॥২০॥
 
-> sukutā khāile sei āma ha-ibeka nāśa
+> sukutā khāile sei āma ha-ibeka nāśa\
 > ei sneha mane bhāvi' prabhura ullāsa
 
 *sukutā khāile*—by eating the *sukutā*; *sei āma*—that mucus; *ha-ibeka nāśa*—will be vanquished; *ei*—this; *sneha*—affection; *mane*—in the mind; *bhāvi'*—thinking of; *prabhura*—of Śrī Caitanya Mahāprabhu; *ullāsa*—delight.

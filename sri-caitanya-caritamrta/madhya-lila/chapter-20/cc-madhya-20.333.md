@@ -1,11 +1,11 @@
 ### CC Madhya 20.333
 
-> ত্রেতায়াং রক্তবর্ণোঽসৌ চতুর্বাহুস্ত্রিমেখলঃ ।
+> ত্রেতায়াং রক্তবর্ণোঽসৌ চতুর্বাহুস্ত্রিমেখলঃ ।\
 > হিরণ্যকেশস্ত্রয্যাত্মা স্রুক্স্রুবাদ্যুপলক্ষণঃ ॥৩৩৩॥
 
-> tretāyāṁ rakta-varṇo 'sau
-> catur-bāhus trimekhalaḥ
-> hiraṇya-keśas trayy-ātmā
+> tretāyāṁ rakta-varṇo 'sau\
+> catur-bāhus trimekhalaḥ\
+> hiraṇya-keśas trayy-ātmā\
 > sruk-sruv-ādy-upalakṣaṇaḥ
 
 *tretāyām*—in the Tretā-yuga; *rakta-varṇaḥ*—of a reddish color; *asau*—He; *catuḥ-bāhuḥ*—with four arms; *tri-mekhalaḥ*—having three circles on the abdomen; *hiraṇya-keśaḥ*—hair colored like gold; *trayī-ātmā*—whose form manifests the Vedas; *sruk-sruv-ādi-upalakṣaṇaḥ*—decorated with the sacrificial spoon, ladle and so on.

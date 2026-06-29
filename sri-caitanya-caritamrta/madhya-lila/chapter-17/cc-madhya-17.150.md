@@ -1,9 +1,9 @@
 ### CC Madhya 17.150
 
-> যমুনা দেখিয়া প্রেমে পড়ে ঝাঁপ দিয়া ।
+> যমুনা দেখিয়া প্রেমে পড়ে ঝাঁপ দিয়া ।\
 > আস্তে-ব্যস্তে ভট্টাচার্য উঠায় ধরিয়া ॥১৫০॥
 
-> yamunā dekhiyā preme paḍe jhāṅpa diyā
+> yamunā dekhiyā preme paḍe jhāṅpa diyā\
 > āste-vyaste bhaṭṭācārya uṭhāya dhariyā
 
 *yamunā*—the River Yamunā; *dekhiyā*—seeing; *preme*—in ecstatic love; *paḍe*—falls down; *jhāṅpa diyā*—jumping; *āste-vyaste*—in great haste; *bhaṭṭācārya*—Balabhadra Bhaṭṭācārya; *uṭhāya*—raises; *dhariyā*—catching.

@@ -1,9 +1,9 @@
 ### CC Madhya 9.73
 
-> শ্বেতবরাহ দেখি, তাঁরে নমস্করি’ ।
+> শ্বেতবরাহ দেখি, তাঁরে নমস্করি’ ।\
 > পীতাম্বর-শিব-স্থানে গেলা গৌরহরি ॥৭৩॥
 
-> śveta-varāha dekhi, tāṅre namaskari'
+> śveta-varāha dekhi, tāṅre namaskari'\
 > pītāmbara-śiva-sthāne gelā gaurahari
 
 *śveta-varāha*—the white boar incarnation; *dekhi*—seeing; *tāṅre*—unto Him; *namaskari'*—offering respect; *pīta-ambara*—dressed with yellow garments; *śiva-sthāne*—to the temple of Lord Śiva; *gelā*—went; *gaurahari*—Lord Śrī Caitanya Mahāprabhu.

@@ -1,11 +1,11 @@
 ### SB 1.11.34
 
-> एवं नृपाणां क्षितिभारजन्मनामक्षौहिणीभिः परिवृत्ततेजसाम् ।
+> एवं नृपाणां क्षितिभारजन्मनामक्षौहिणीभिः परिवृत्ततेजसाम् ।\
 > विधाय वैरं श्वसनो यथानलं मिथो वधेनोपरतो निरायुधः ॥३४॥
 
-> evaṁ nṛpāṇāṁ kṣiti-bhāra-janmanām
-> akṣauhiṇībhiḥ parivṛtta-tejasām
-> vidhāya vairaṁ śvasano yathānalaṁ
+> evaṁ nṛpāṇāṁ kṣiti-bhāra-janmanām\
+> akṣauhiṇībhiḥ parivṛtta-tejasām\
+> vidhāya vairaṁ śvasano yathānalaṁ\
 > mitho vadhenoparato nirāyudhaḥ
 
 *evam*—así pues; *nṛpāṇām*—de los reyes o administradores; *kṣiti-bhāra*—la carga de la Tierra; *janmanām*—nacidos de ese modo; *akṣauhiṇībhiḥ*—apoderados por una fuerza militar constituida por caballos, elefantes, cuadrigas e infantería; *parivṛtta*—engreídos por ese ambiente; *tejasām*—valentía; *vidhāya*—habiendo creado; *vairam*—hostilidad; *śvasanaḥ*—interacción del viento y las plantas tubulares; *yathā*—tal como es; *analam*—fuego; *mithaḥ*—entre sí; *vadhena*—matándolos; *uparataḥ*—alivió; *nirāyudhaḥ*—Él mismo, sin ser uno de los participantes de esa lucha.

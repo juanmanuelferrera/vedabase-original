@@ -1,11 +1,11 @@
 ### SB 4.24.43
 
-> शक्तित्रयसमेताय मीढुषेऽहङ्कृतात्मने ।
+> शक्तित्रयसमेताय मीढुषेऽहङ्कृतात्मने ।\
 > चेतआकूतिरूपाय नमो वाचो विभूतये ॥४३॥
 
-> śakti-traya-sametāya
-> mīḍhuṣe 'haṅkṛtātmane
-> ceta-ākūti-rūpāya
+> śakti-traya-sametāya\
+> mīḍhuṣe 'haṅkṛtātmane\
+> ceta-ākūti-rūpāya\
 > namo vāco vibhūtaye
 
 *śakti-traya*—three kinds of energies; *sametāya*—unto the reservoir; *mīḍhuṣe*—unto Rudra; *ahaṅkṛta-ātmane*—the source of egotism; *cetaḥ*—knowledge; *ākūti*—eagerness to work; *rūpāya*—unto the form of; *namaḥ*—my obeisances; *vācaḥ*—unto the sound; *vibhūtaye*—unto the different types of opulences.

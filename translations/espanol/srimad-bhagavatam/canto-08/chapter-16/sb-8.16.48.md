@@ -1,11 +1,11 @@
 ### SB 8.16.48
 
-> प्रतिपद्दिनमारभ्य यावच्छुक्लत्रयोदशीम
+> प्रतिपद्दिनमारभ्य यावच्छुक्लत्रयोदशीम\
 > ब्रह्मचर्यमधःस्वप्नं स्नानं त्रिषवणं चरेत ॥४८॥
 
-> pratipad-dinam ārabhya
-> yāvac chukla-trayodaśīm
-> brahmacaryam adhaḥ-svapnaṁ
+> pratipad-dinam ārabhya\
+> yāvac chukla-trayodaśīm\
+> brahmacaryam adhaḥ-svapnaṁ\
 > snānaṁ tri-ṣavaṇaṁ caret
 
 *pratipat-dinam*—el día de *pratipat*; *ārabhya*—comenzando; *yāvat*—hasta; *śukla*—de la quincena brillante; *trayodaśīm*—el decimotercer día de la Luna (el segundo día después de *ekādaśī*); *brahmacaryam*—observar completo celibato; *adhaḥ-svapnam*—acostarse en el suelo; *snānam*—bañarse; *tri-savanam*—tres veces (mañana, tarde y mediodía); *caret*—se debe realizar.

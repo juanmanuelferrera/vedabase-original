@@ -1,13 +1,13 @@
 ### CC Madhya 8.73
 
-> ভবন্তমেবানুচরন্নিরন্তরঃ
-> প্রসান্তনিঃশেষমনোরথান্তরঃ ।
-> কদাঽমৈকান্তিকনিত্যকিঙ্করঃ
+> ভবন্তমেবানুচরন্নিরন্তরঃ\
+> প্রসান্তনিঃশেষমনোরথান্তরঃ ।\
+> কদাঽমৈকান্তিকনিত্যকিঙ্করঃ\
 > প্রহর্ষয়িষ্যামি স-নাথ-জীবিতম্ ॥৭৩॥
 
-> bhavantam evānucaran nirantaraḥ
-> praśānta-niḥśeṣa-mano-rathāntaraḥ
-> kadāham aikāntika-nitya-kiṅkaraḥ
+> bhavantam evānucaran nirantaraḥ\
+> praśānta-niḥśeṣa-mano-rathāntaraḥ\
+> kadāham aikāntika-nitya-kiṅkaraḥ\
 > praharṣayiṣyāmi sa-nātha-jīvitam
 
 *bhavantam*—You; *eva*—certainly; *anucaran*—serving; *nirantaraḥ*—always; *praśānta*—pacified; *niḥśeṣa*—all; *manaḥ-ratha*—desires; *antaraḥ*—other; *kadā*—when; *aham*—I; *aikāntika*—exclusive; *nitya*—eternal; *kiṅkaraḥ*—servant; *praharṣayiṣyāmi*—I shall become joyful; *sa-nātha*—with a fitting master; *jīvitam*—living.

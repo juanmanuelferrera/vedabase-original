@@ -1,9 +1,9 @@
 ### CC Antya 2.123
 
-> “অল্প অপরাধ, প্রভু করহ প্রসাদ  ।
+> “অল্প অপরাধ, প্রভু করহ প্রসাদ  ।\
 > এবে শিক্ষা হইল না করিবে অপরাধ” ॥১২৩॥
 
-> "alpa aparādha, prabhu karaha prasāda
+> "alpa aparādha, prabhu karaha prasāda\
 > ebe śikṣā ha-ila nā karibe aparādha"
 
 *alpa aparādha*—the offense is not very great; *prabhu*—O Lord; *karaha prasāda*—be merciful; *ebe*—now; *śikṣā ha-ila*—he has gotten a sufficient lesson; *nā karibe*—he will not do; *aparādha*—offense.

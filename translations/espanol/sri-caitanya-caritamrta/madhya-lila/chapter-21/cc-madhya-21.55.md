@@ -1,10 +1,10 @@
 ### CC Madhya 21.55
 
-> চিচ্ছক্তিবিভূতি-ধাম — ত্রিপাদৈশ্বর্য-নাম ।
+> চিচ্ছক্তিবিভূতি-ধাম — ত্রিপাদৈশ্বর্য-নাম ।\
 > মায়িক বিভূতি — একপাদ অভিধান ॥৫৫॥
 
-> cic-chakti-vibhūti-dhāma--tripād-aiśvarya-nāma
-> māyika vibhūti--eka-pāda abhidhāna
+> cic-chakti-vibhūti-dhāma--tripād-aiśvarya-nāma\
+> māyika vibhūti--eka-pāda abhidhāna\
 > SYNONYMS
 
 *cit-śakti*—de la energía espiritual; *vibhūti-dhāma*—morada opulenta; *tri-pād*—tres cuartas partes; *aiśvarya*—opulencia; *nāma*—denominada; *māyika vibhūti*—opulencia material; *eka-pāda*—una cuarta parte; *abhidhāna*—conocida.

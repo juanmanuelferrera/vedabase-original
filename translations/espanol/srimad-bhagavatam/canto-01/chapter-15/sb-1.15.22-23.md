@@ -1,18 +1,18 @@
 ### SB 1.15.22-23
 
-> राजंस्त्वयानुपृष्टानां सुहृदां नः सुहृत्पुरे ।
-> विप्रशापविमूढानां निघ्नतां मुष्टिभिर्मिथः ॥२२॥
-> वारुणीं मदिरां पीत्वा मदोन्मथितचेतसाम् ।
+> राजंस्त्वयानुपृष्टानां सुहृदां नः सुहृत्पुरे ।\
+> विप्रशापविमूढानां निघ्नतां मुष्टिभिर्मिथः ॥२२॥\
+> वारुणीं मदिरां पीत्वा मदोन्मथितचेतसाम् ।\
 > अजानतामिवान्योन्यं चतुःपञ्चावशेषिताः ॥२३॥
 
-> rājaṁs tvayānupṛṣṭānāṁ
-> suhṛdāṁ naḥ suhṛt-pure
-> vipra-śāpa-vimūḍhānāṁ
+> rājaṁs tvayānupṛṣṭānāṁ\
+> suhṛdāṁ naḥ suhṛt-pure\
+> vipra-śāpa-vimūḍhānāṁ\
 > nighnatāṁ muṣṭibhir mithaḥ
 
-> vāruṇīṁ madirāṁ pītvā
-> madonmathita-cetasām
-> ajānatām ivānyonyaṁ
+> vāruṇīṁ madirāṁ pītvā\
+> madonmathita-cetasām\
+> ajānatām ivānyonyaṁ\
 > catuḥ-pañcāvaśeṣitāḥ
 
 *rājan*—¡oh, rey!; *tvayā*—por ti; *anupṛṣṭānām*—como preguntaste; *suhṛdām*—de amigos y parientes; *naḥ*—nuestros; *suhṛt-pure*—en la ciudad de Dvārakā; *vipra*—los *brāhmaṇas*; *śāpa*—por la maldición de; *vimūḍhānām*—de los engañados; *nighnatām*—de los matados; *muṣṭibhiḥ*—con grupos de varas; *mithaḥ*—entre sí; *vāruṇīm*—arroz fermentado; *madirām*—vino; *pītvā*—habiendo bebido; *mada-unmathita*—estando embriagados; *cetasām*—de esa situación mental; *ajānatām*—de los no reconocidos; *iva*—como; *anyonyam*—entre sí; *catuḥ*—cuatro; *pañca*—cinco; *avaśeṣitāḥ*—quedan ahora.

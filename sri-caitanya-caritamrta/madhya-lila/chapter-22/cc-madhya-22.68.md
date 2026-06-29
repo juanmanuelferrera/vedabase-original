@@ -2,7 +2,7 @@
 
 > যঃ শাস্ত্রাদিষ্বনিপুণঃ শ্রদ্ধাবান্ স তু মধ্যমঃ ॥৬৮॥
 
-> yaḥ śāstrādiṣv anipuṇaḥ
+> yaḥ śāstrādiṣv anipuṇaḥ\
 > śraddhāvān sa tu madhyamaḥ
 
 *yaḥ*—anyone who; *śāstra-ādiṣu*—in the revealed scriptures; *anipuṇaḥ*—not very expert; *śraddhāvān*—full of faith; *saḥ*—he; *tu*—certainly; *madhyamaḥ*—second-class or middle-class devotee.

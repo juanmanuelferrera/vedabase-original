@@ -1,11 +1,11 @@
 ### SB 8.4.9
 
-> यदृच्छया तत्र महायशा मुनिः समागमच्छिष्यगणैः परिश्रितः
+> यदृच्छया तत्र महायशा मुनिः समागमच्छिष्यगणैः परिश्रितः\
 > तं वीक्ष्य तूष्णीमकृतार्हणादिकं रहस्युपासीनमृषिश्चुकोप ह ॥९॥
 
-> yadṛcchayā tatra mahā-yaśā muniḥ
-> samāgamac chiṣya-gaṇaiḥ pariśritaḥ
-> taṁ vīkṣya tūṣṇīm akṛtārhaṇādikaṁ
+> yadṛcchayā tatra mahā-yaśā muniḥ\
+> samāgamac chiṣya-gaṇaiḥ pariśritaḥ\
+> taṁ vīkṣya tūṣṇīm akṛtārhaṇādikaṁ\
 > rahasy upāsīnam ṛṣiś cukopa ha
 
 *yadṛcchayā*—out of his own will (without being invited); *tatra*—there; *mahā-yaśāḥ*—very celebrated, well-known; *muniḥ*—Agastya Muni; *samāgamat*—arrived; *śiṣya-gaṇaiḥ*—by his disciples; *pariśritaḥ*—surrounded; *tam*—him; *vīkṣya*—seeing; *tūṣṇīm*—silent; *akṛta-arhaṇa-ādikam*—without offering a respectful reception; *rahasi*—in a secluded place; *upāsīnam*—sitting in meditation; *ṛṣiḥ*—the great sage; *cukopa*—became very angry; *ha*—it so happened.

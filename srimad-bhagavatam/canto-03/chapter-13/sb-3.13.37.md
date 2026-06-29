@@ -1,11 +1,11 @@
 ### SB 3.13.37
 
-> दीक्षानुजन्मोपसदः शिरोधरं त्वं प्रायणीयोदयनीयदंष्ट्रः ।
+> दीक्षानुजन्मोपसदः शिरोधरं त्वं प्रायणीयोदयनीयदंष्ट्रः ।\
 > जिह्वा प्रवर्ग्यस्तव शीर्षकं क्रतोः सत्यावसथ्यं चितयोऽसवो हि ते ॥३७॥
 
-> dīkṣānujanmopasadaḥ śirodharaṁ
-> tvaṁ prāyaṇīyodayanīya-daṁṣṭraḥ
-> jihvā pravargyas tava śīrṣakaṁ kratoḥ
+> dīkṣānujanmopasadaḥ śirodharaṁ\
+> tvaṁ prāyaṇīyodayanīya-daṁṣṭraḥ\
+> jihvā pravargyas tava śīrṣakaṁ kratoḥ\
 > satyāvasathyaṁ citayo 'savo hi te
 
 *dīkṣā*—initiation; *anujanma*—spiritual birth, or repeated incarnations; *upasadaḥ*—three kinds of desires (relationship, activities and ultimate goal); *śiraḥ-dharam*—the neck; *tvam*—You; *prāyaṇīya*—after the result of initiation; *udayanīya*—the last rites of desires; *daṁṣṭraḥ*—the tusks; *jihvā*—the tongue; *pravargyaḥ*—prior activities; *tava*—Your; *śīrṣakam*—head; *kratoḥ*—of the sacrifice; *satya*—fire without sacrifice; *āvasathyam*—fire of worship; *citayaḥ*—aggregate of all desires; *asavaḥ*—life breath; *hi*—certainly; *te*—Your.

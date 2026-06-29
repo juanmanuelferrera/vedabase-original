@@ -1,11 +1,11 @@
 ### SB 7.10.12
 
-> कथा मदीया जुषमाणः प्रियास्त्वमावेश्य मामात्मनि सन्तमेकम
+> कथा मदीया जुषमाणः प्रियास्त्वमावेश्य मामात्मनि सन्तमेकम\
 > सर्वेषु भूतेष्वधियज्ञअमीशं यजस्व योगेन च कर्म हिन्वन ॥१२॥
 
-> kathā madīyā juṣamāṇaḥ priyās tvam
-> āveśya mām ātmani santam ekam
-> sarveṣu bhūteṣv adhiyajñam īśaṁ
+> kathā madīyā juṣamāṇaḥ priyās tvam\
+> āveśya mām ātmani santam ekam\
+> sarveṣu bhūteṣv adhiyajñam īśaṁ\
 > yajasva yogena ca karma hinvan
 
 *kathāḥ*—mensajes o instrucciones; *madīyāḥ*—dados por Mí; *juṣamāṇaḥ*—siempre escuchando o meditando; *priyāḥ*—sumamente agradables; *tvam*—tú mismo; *āveśya*—completamente absorto en Mí; *mām*—Yo; *ātmani*—en lo más hondo de tu corazón; *santam*—que estoy; *ekam*—uno (la misma Alma Suprema); *sarveṣu*—en todas; *bhūteṣu*—las entidades vivientes; *adhiyajñam*—al disfrutador de todas las ceremonias rituales; *īśam*—al Señor Supremo; *yajasva*—adora; *yogena*—mediante el *bhakti-yoga*, el servicio devocional; *ca*—también; *karma*—actividades fruitivas; *hinvan*—abandonando.

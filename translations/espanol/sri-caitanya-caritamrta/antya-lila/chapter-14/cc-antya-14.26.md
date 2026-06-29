@@ -1,9 +1,9 @@
 ### CC Antya 14.26
 
-> ‘আদিবস্যা’ এই স্ত্রীরে না কর বর্জন ।
+> ‘আদিবস্যা’ এই স্ত্রীরে না কর বর্জন ।\
 > করুক যথেষ্ট জগন্নাথ দরশন ॥২৬॥
 
-> 'ādi-vasyā' ei strīre nā kara varjana
+> 'ādi-vasyā' ei strīre nā kara varjana\
 > karuka yatheṣṭa jagannātha daraśana
 
 *ādi-vasyā*—incivilizado; *ei*—esta; *strīre*—mujer; *nā kara varjana*—no prohíbas; *karuka*—que haga; *yathā-iṣṭa*—como desee; *jagannātha daraśana*—ver al Señor Jagannātha.

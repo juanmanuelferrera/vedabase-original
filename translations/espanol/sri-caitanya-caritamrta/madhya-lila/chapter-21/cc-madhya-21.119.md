@@ -1,13 +1,13 @@
 ### CC Madhya 21.119
 
-> কর্ম, তপ, যোগ, জ্ঞান, বিধি-ভক্তি, জপ, ধ্যান,
-> ইহা হৈতে মাধুর্য দুর্লভ ।
-> কেবল যে রাগমার্গে, ভজে কৃষ্ণে অনুরাগে,
+> কর্ম, তপ, যোগ, জ্ঞান, বিধি-ভক্তি, জপ, ধ্যান,\
+> ইহা হৈতে মাধুর্য দুর্লভ ।\
+> কেবল যে রাগমার্গে, ভজে কৃষ্ণে অনুরাগে,\
 > তারে কৃষ্ণমাধুর্য সুলভ ॥১১৯॥
 
-> karma, tapa, yoga, jñāna, vidhi-bhakti, japa, dhyāna,
-> ihā haite mādhurya durlabha
-> kevala ye rāga-mārge, bhaje kṛṣṇe anurāge,
+> karma, tapa, yoga, jñāna, vidhi-bhakti, japa, dhyāna,\
+> ihā haite mādhurya durlabha\
+> kevala ye rāga-mārge, bhaje kṛṣṇe anurāge,\
 > tāre kṛṣṇa-mādhurya sulabha
 
 *karma*—actividades fruitivas; *tapa*—austeridades; *yoga*—la práctica del yoga místico; *jñāna*—cultivo especulativo de conocimiento; *vidhi-bhakti*—principios regulativos del servicio devocional; *japa*—recitación; *dhyāna*—meditación; *ihā haite*—a partir de estas cosas; *mādhurya*—la dulzura de Kṛṣṇa; *durlabha*—muy difícil de percibir; *kevala*—solo; *ye*—aquel; *rāga-mārge*—por el sendero del amor extático espontáneo; *bhaje*—adora; *kṛṣṇe*—al Señor Kṛṣṇa; *anurāge*—con sentimiento trascendental; *tāre*—para él; *kṛṣṇa-mādhurya*—la dulzura de Kṛṣṇa; *sulabha*—se aprecia muy fácilmente.

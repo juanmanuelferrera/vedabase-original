@@ -1,9 +1,9 @@
 ### CC Madhya 15.82
 
-> পণ্ডিত কহে, — দ্বারে লোক করে গতায়াতে ৷
+> পণ্ডিত কহে, — দ্বারে লোক করে গতায়াতে ৷\
 > তার পদধূলি উড়ি’ লাগে উপর ভিতে ॥৮২॥
 
-> paṇḍita kahe,--dvāre loka kare gatāyāte
+> paṇḍita kahe,--dvāre loka kare gatāyāte\
 > tāra pada-dhūli uḍi' lāge upara bhite
 
 *paṇḍita kahe*—Rāghava Paṇḍita dijo; *dvāre*—por la puerta; *loka*—la gente en general; *kare*—hace; *gatāyāte*—ir y venir; *tāra*—su; *pada-dhūli*—polvo de los pies; *uḍi'*—siendo llevado por el aire; *lāge*—toca; *upara*—arriba; *bhite*—el techo.

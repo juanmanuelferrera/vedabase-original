@@ -1,11 +1,11 @@
 ### SB 8.15.32
 
-> एष विप्रबलोदर्कः सम्प्रत्यूर्जितविक्रमः
+> एष विप्रबलोदर्कः सम्प्रत्यूर्जितविक्रमः\
 > तेषामेवापमानेन सानुबन्धो विनङ्क्ष्यति ॥३२॥
 
-> evaṁ sumantritārthās te
-> guruṇārthānudarśinā
-> hitvā tri-viṣṭapaṁ jagmur
+> evaṁ sumantritārthās te\
+> guruṇārthānudarśinā\
+> hitvā tri-viṣṭapaṁ jagmur\
 > gīrvāṇāḥ kāma-rūpiṇaḥ
 
 *evam*—así; *su-mantrita*—siendo bien aconsejados; *arthāḥ*—acerca de los deberes; *te*—ellos (los semidioses); *guruṇā*—por su maestro espiritual; *artha-anudarśinā*—cuyas instrucciones eran muy adecuadas; *hitvā*—abandonar; *tri-viṣṭapam*—el reino celestial; *jagmuḥ*—fueron; *gīrvāṇāḥ*—los semidioses; *kāma-rūpiṇaḥ*—que podían adoptar la forma que deseasen.

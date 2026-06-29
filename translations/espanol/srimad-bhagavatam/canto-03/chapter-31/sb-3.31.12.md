@@ -1,15 +1,15 @@
 ### SB 3.31.12
 
-> जन्तुरुवाच
-> तस्योपसन्नमवितुं जगदिच्छयात्त
-> नानातनोर्भुवि चलच्चरणारविन्दम् ।
-> सोऽहं व्रजामि शरणं ह्यकुतोभयं मे
+> जन्तुरुवाच\
+> तस्योपसन्नमवितुं जगदिच्छयात्त\
+> नानातनोर्भुवि चलच्चरणारविन्दम् ।\
+> सोऽहं व्रजामि शरणं ह्यकुतोभयं मे\
 > येनेदृशी गतिरदर्श्यसतोऽनुरूपा ॥१२॥
 
-> jantur uvāca
-> tasyopasannam avituṁ jagad icchayātta-
-> nānā-tanor bhuvi calac-caraṇāravindam
-> so 'haṁ vrajāmi śaraṇaṁ hy akuto-bhayaṁ me
+> jantur uvāca\
+> tasyopasannam avituṁ jagad icchayātta-\
+> nānā-tanor bhuvi calac-caraṇāravindam\
+> so 'haṁ vrajāmi śaraṇaṁ hy akuto-bhayaṁ me\
 > yenedṛśī gatir adarśy asato'nurūpā
 
 *jantuḥ uvāca*—el alma humana dice; *tasya*—de la Suprema Personalidad de Dios; *upasannam*—habiendo acudido en busca de protección; *avitum*—para proteger; *jagat*—el universo; *icchayā*—por Su propia voluntad; *ātta-nānā-tanoḥ*—que adopta diversas formas; *bhuvi*—sobre la Tierra; *calat*—caminar; *caraṇa-aravindam*—los pies de loto; *saḥ aham*—yo mismo; *vrajāmi*—voy; *śaraṇam*—al refugio; *hi*—ciertamente; *akutaḥ-bhayam*—aliviar del temor; *me*—para mí; *yena*—por quien; *īdṛśī*—esta; *gatiḥ*—condición de vida; *adarśi*—fue considerada; *asataḥ*—impía; *anurūpā*—merecida.

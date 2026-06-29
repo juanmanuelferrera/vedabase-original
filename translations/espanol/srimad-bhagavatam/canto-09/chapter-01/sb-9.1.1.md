@@ -1,13 +1,13 @@
 ### SB 9.1.1
 
-> श्रीराजोवाच
-> मन्वन्तराणि सर्वाणि त्वयोक्तानि श्रुतानि मे
+> श्रीराजोवाच\
+> मन्वन्तराणि सर्वाणि त्वयोक्तानि श्रुतानि मे\
 > वीर्याण्यनन्तवीर्यस्य हरेस्तत्र कृतानि च ॥१॥
 
-> śrī-rājovāca
-> manvantarāṇi sarvāṇi
-> tvayoktāni śrutāni me
-> vīryāṇy ananta-vīryasya
+> śrī-rājovāca\
+> manvantarāṇi sarvāṇi\
+> tvayoktāni śrutāni me\
+> vīryāṇy ananta-vīryasya\
 > hares tatra kṛtāni ca
 
 *śrī-rājā uvāca*—el rey Parīkṣit dijo; *manvantarāṇi*—todo acerca de las épocas de los diversos *manus*; *sarvāṇi*—todos ellos; *tvayā*—por ti; *uktāni*—han sido explicadas; *śrutāni*—han sido escuchadas; *me*—por mí; *vīryāṇi*—las maravillosas actividades; *ananta-vīryasya*—de la Suprema Personalidad de Dios, que posee ilimitada potencia; *hareḥ*—del Señor Supremo, Hari; *tatra*—en esos períodos *manvantara*; *kṛtāni*—que han sido realizadas; *ca*—también.

@@ -1,9 +1,9 @@
 ### CC Antya 16.57
 
-> বৈষ্ণবের শেষ-ভক্ষণের এতেক মহিমা ।
+> বৈষ্ণবের শেষ-ভক্ষণের এতেক মহিমা ।\
 > কালিদাসে পাওয়াইল প্রভুর কৃপা-সীমা ॥৫৭॥
 
-> vaiṣṇavera śeṣa-bhakṣaṇera eteka mahimā
+> vaiṣṇavera śeṣa-bhakṣaṇera eteka mahimā\
 > kālidāse pāoyāila prabhura kṛpā-sīmā
 
 *vaiṣṇavera*—of Vaiṣṇavas; *śeṣa-bhakṣaṇera*—of eating the remnants of food; *eteka mahimā*—so much value; *kālidāse*—Kālidāsa; *pāoyāila*—caused to get; *prabhura*—of Śrī Caitanya Mahāprabhu; *kṛpā-sīmā*—the supreme mercy.

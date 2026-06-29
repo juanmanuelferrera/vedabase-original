@@ -1,11 +1,11 @@
 ### SB 8.19.34
 
-> क्रमतो गां पदैकेन द्वितीयेन दिवं विभोः
+> क्रमतो गां पदैकेन द्वितीयेन दिवं विभोः\
 > खं च कायेन महता तार्तीयस्य कुतो गतिः ॥३४॥
 
-> kramato gāṁ padaikena
-> dvitīyena divaṁ vibhoḥ
-> khaṁ ca kāyena mahatā
+> kramato gāṁ padaikena\
+> dvitīyena divaṁ vibhoḥ\
+> khaṁ ca kāyena mahatā\
 > tārtīyasya kuto gatiḥ
 
 *kramataḥ*—gradualmente; *gām*—la superficie de la Tierra; *padā ekena*—con un paso; *dvitīyena*—con el segundo paso; *divam*—todo el espacio exterior; *vibhoḥ*—de la forma universal; *kham ca*—también el cielo; *kāyena*—con la expansión de Su cuerpo trascendental; *mahatā*—por la forma universal; *tārtīyasya*—en lo que se refiere al tercer paso; *kutaḥ*—dónde es; *gatiḥ*—para medir el paso.

@@ -1,9 +1,9 @@
 ### CC Antya 2.114
 
-> দ্বার মানা হৈল, হরিদাস দুঃখী হৈল মনে ।
+> দ্বার মানা হৈল, হরিদাস দুঃখী হৈল মনে ।\
 > কি লাগিয়া দ্বার-মানা কেহ নাহি জানে ॥১১৪॥
 
-> dvāra mānā haila, haridāsa duḥkhī haila mane
+> dvāra mānā haila, haridāsa duḥkhī haila mane\
 > ki lāgiyā dvāra-mānā keha nāhi jāne
 
 *dvāra mānā*—puerta cerrada; *haila*—hubo; *haridāsa*—Choṭa Haridāsa; *duḥkhī*—muy infeliz; *haila mane*—se sintió en su mente; *ki lāgiyā*—por qué razón; *dvāra-mānā*—la puerta fue cerrada; *keha nāhi jāne*—nadie podía entender.

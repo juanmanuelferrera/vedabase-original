@@ -1,9 +1,9 @@
 ### CC Madhya 12.197
 
-> তবে প্রভু সর্ব-বৈষ্ণবের নাম লঞা ।
+> তবে প্রভু সর্ব-বৈষ্ণবের নাম লঞা ।\
 > মহাপ্রসাদ দেন মহা-অমৃত সিঞ্চিয়া ॥১৯৭॥
 
-> tabe prabhu sarva-vaiṣṇavera nāma lañā
+> tabe prabhu sarva-vaiṣṇavera nāma lañā\
 > mahā-prasāda dena mahā-amṛta siñciyā
 
 *tabe*—a continuación; *prabhu*—Śrī Caitanya Mahāprabhu; *sarva-vaiṣṇavera*—de todos los vaiṣṇavas; *nāma*—nombres; *lañā*—llamando; *mahā-prasāda*—los restos de los alimentos del Señor Jagannātha; *dena*—entrega; *mahā-amṛta*—néctar trascendental; *siñciyā*—rociando.

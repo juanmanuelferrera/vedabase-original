@@ -1,11 +1,11 @@
 ### SB 9.20.32
 
-> सर्वान्कामान्दुदुहतुः प्रजानां तस्य रोदसी
+> सर्वान्कामान्दुदुहतुः प्रजानां तस्य रोदसी\
 > समास्त्रिणवसाहस्रीर्दिक्षु चक्रमवर्तयत ॥३२॥
 
-> sarvān kāmān duduhatuḥ
-> prajānāṁ tasya rodasī
-> samās tri-ṇava-sāhasrīr
+> sarvān kāmān duduhatuḥ\
+> prajānāṁ tasya rodasī\
+> samās tri-ṇava-sāhasrīr\
 > dikṣu cakram avartayat
 
 *sarvān kāmān*—all necessities or desirable things; *duduhatuḥ*—fulfilled; *prajānām*—of the subjects; *tasya*—his; *rodasī*—this earth and the heavenly planets; *samāḥ*—years; *tri-nava-sāhasrīḥ*—three times nine thousand (that is, twenty-seven thousand); *dikṣu*—in all directions; *cakram*—soldiers or orders; *avartayat*—circulated.

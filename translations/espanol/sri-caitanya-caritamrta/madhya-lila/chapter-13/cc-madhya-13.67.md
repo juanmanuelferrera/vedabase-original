@@ -1,9 +1,9 @@
 ### CC Madhya 13.67
 
-> ভক্তগণ অনুভবে, নাহি জানে আন ।
+> ভক্তগণ অনুভবে, নাহি জানে আন ।\
 > শ্রীভাগবত-শাস্ত্র তাহাতে প্রমাণ ॥৬৭॥
 
-> bhakta-gaṇa anubhave, nāhi jāne āna
+> bhakta-gaṇa anubhave, nāhi jāne āna\
 > śrī-bhāgavata-śāstra tāhāte pramāṇa
 
 *bhakta-gaṇa*—todos los devotos; *anubhave*—podían percibir; *nāhi jāne*—no saben; *āna*—los demás; *śrī-bhāgavata-śāstra*—la escritura revelada Śrīmad-Bhāgavatam; *tāhāte*—a ese respecto; *pramāṇa*—prueba.

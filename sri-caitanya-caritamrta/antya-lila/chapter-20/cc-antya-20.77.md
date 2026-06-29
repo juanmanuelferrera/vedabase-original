@@ -1,9 +1,9 @@
 ### CC Antya 20.77
 
-> প্রভুর গম্ভীর-লীলা না পারি বুঝিতে ।
+> প্রভুর গম্ভীর-লীলা না পারি বুঝিতে ।\
 > বুদ্ধি-প্রবেশ নাহি তাতে, না পারি বর্ণিতে ॥৭৭॥
 
-> prabhura gambhīra-līlā nā pāri bujhite
+> prabhura gambhīra-līlā nā pāri bujhite\
 > buddhi-praveśa nāhi tāte, nā pāri varṇite
 
 *prabhura*—of Śrī Caitanya Mahāprabhu; *gambhīra*—deep; *līlā*—the pastimes; *nā pāri*—I am not able; *bujhite*—to understand; *buddhi-praveśa nāhi*—my intelligence cannot penetrate; *tāte*—because of this; *nā pāri*—I am not able; *varṇite*—to describe properly.

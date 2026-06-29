@@ -1,9 +1,9 @@
 ### CC Madhya 8.288
 
-> তাঁর ভাবে ভাবিত করি’ আত্ম-মন ৷
+> তাঁর ভাবে ভাবিত করি’ আত্ম-মন ৷\
 > তবে নিজ-মাধুর্য করি আস্বাদন ৷৷ ২৮৮ ৷৷ ॥২৮৮॥
 
-> tāṅra bhāve bhāvita kari' ātma-mana
+> tāṅra bhāve bhāvita kari' ātma-mana\
 > tabe nija-mādhurya kari āsvādana
 
 *tāṅra*—de Śrīmatī Rādhārāṇī; *bhāve*—en el éxtasis; *bhāvita*—iluminado; *kari'*—haciendo; *ātma-mana*—cuerpo y mente; *tabe*—entonces; *nija-mādhurya*—Mi propia dulzura trascendental; *kari*—hago; *āsvādana*—saborear.

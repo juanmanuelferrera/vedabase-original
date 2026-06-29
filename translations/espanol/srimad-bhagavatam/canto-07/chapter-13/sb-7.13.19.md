@@ -1,12 +1,12 @@
 ### SB 7.13.19
 
-> श्रीनारद उवाच
-> स इत्थं दैत्यपतिना परिपृष्टो महामुनिः
+> श्रीनारद उवाच\
+> स इत्थं दैत्यपतिना परिपृष्टो महामुनिः\
 > स्मयमानस्तमभ्याह तद्वागमृतयन्त्रितः ॥१९॥
 
-> kaviḥ kalpo nipuṇa-dṛk
-> citra-priya-kathaḥ samaḥ
-> lokasya kurvataḥ karma
+> kaviḥ kalpo nipuṇa-dṛk\
+> citra-priya-kathaḥ samaḥ\
+> lokasya kurvataḥ karma\
 > śeṣe tad-vīkṣitāpi vā
 
 *kaviḥ*—muy erudito; *kalpaḥ*—experto; *nipuṇa-dṛk*—inteligente; *citra-priya-kathaḥ*—capaz de hablar con palabras dulces, que son agradables al corazón; *samaḥ*—equilibrado; *lokasya*—de la gente en general; *kurvataḥ*—ocupados en; *karma*—trabajo fruitivo; *śeṣe*—tú estás acostado; *tat-vīkṣitā*—viéndoles; *api*—aunque; *vā*—o.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.29
 
-> এত শুনি’ গোপীনাথ সবারে লঞা ।
+> এত শুনি’ গোপীনাথ সবারে লঞা ।\
 > সার্বভৌম-ঘরে গেলা হরষিত হঞা ॥২৯॥
 
-> eta śuni' gopīnātha sabāre lañā
+> eta śuni' gopīnātha sabāre lañā\
 > sārvabhauma-ghare gelā haraṣita hañā
 
 *eta śuni'*—al oír esto; *gopīnātha*—Gopīnātha Ācārya; *sabāre*—a todos ellos; *lañā*—llevándolos consigo; *sārvabhauma-ghare*—a la casa de Sārvabhauma Bhaṭṭācārya; *gelā*—fue; *haraṣita hañā*—sintiéndose muy complacido.

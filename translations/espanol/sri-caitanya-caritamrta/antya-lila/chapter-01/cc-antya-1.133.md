@@ -1,9 +1,9 @@
 ### CC Antya 1.133
 
-> সব ভক্তগণ কহে শ্লোক শুনিয়া ।
+> সব ভক্তগণ কহে শ্লোক শুনিয়া ।\
 > কৃতার্থ করিলা সবায় শ্লোক শুনাঞা ॥১৩৩॥
 
-> saba bhakta-gaṇa kahe śloka śuniyā
+> saba bhakta-gaṇa kahe śloka śuniyā\
 > kṛtārtha karilā sabāya śloka śunāñā
 
 *saba bhakta-gaṇa*—todos los devotos allí presentes; *kahe*—dicen; *śloka śuniyā*—al escuchar este verso; *kṛta-artha karilā*—nos has complacido; *sabāya*—a todos; *śloka śunāñā*—al recitar este verso.

@@ -1,9 +1,9 @@
 ### CC Adi 14.94
 
-> কত দিনে মিশ্র পুত্রের হাতে খড়ি দিল ।
+> কত দিনে মিশ্র পুত্রের হাতে খড়ি দিল ।\
 > অল্প দিনে দ্বাদশ-ফলা অক্ষর শিখিল ॥৯৪॥
 
-> kata dine miśra putrera hāte khaḍi dila
+> kata dine miśra putrera hāte khaḍi dila\
 > alpa dine dvādaśa-phalā akṣara śikhila
 
 *kata dine*—after some days; *miśra*—Jagannātha Miśra; *putrera*—of his son; *hāte*—in the hand; *khaḍi*—chalk; *dila*—gave; *alpa*—within a very few; *dine*—days; *dvādaśa-phalā*—twelve combinations of letters; *akṣara*—letters; *śikhila*—learned.

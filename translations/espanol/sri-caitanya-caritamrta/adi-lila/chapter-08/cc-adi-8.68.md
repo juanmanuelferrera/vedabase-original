@@ -1,9 +1,9 @@
 ### CC Adi 8.68
 
-> পণ্ডিত-গোসাঞির শিষ্য — ভুগর্ভ গোসাঞি ।
+> পণ্ডিত-গোসাঞির শিষ্য — ভুগর্ভ গোসাঞি ।\
 > গৌরকথা বিনা আর মুখে অন্য নাই ॥৬৮॥
 
-> paṇḍita-gosāñira śiṣya--bhugarbha gosāñi
+> paṇḍita-gosāñira śiṣya--bhugarbha gosāñi\
 > gaura-kathā vinā āra mukhe anya nāi
 
 *paṇḍita-gosāñira*—de Paṇḍita Gosāñi (Gadādhara Paṇḍita); *śiṣya*—discípulo; *bhugarbha gosāñi*—de nombre Bhugarbha Gosāñi; *gaura-kathā*—temas del Señor Caitanya; *vinā*—sin; *āra*—otra cosa; *mukhe*—en su boca; *anya nāi*—nada más.

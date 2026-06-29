@@ -1,14 +1,14 @@
 ### SB 7.2.60
 
-> अतः शोचत मा यूयं परं चात्मानमेव वा
-> क आत्मा कः परो वात्र स्वीयः पारक्य एव वा
+> अतः शोचत मा यूयं परं चात्मानमेव वा\
+> क आत्मा कः परो वात्र स्वीयः पारक्य एव वा\
 > स्वपराभिनिवेशेन विनाज्ञआनेन देहिनाम ॥६०॥
 
-> ataḥ śocata mā yūyaṁ
-> paraṁ cātmānam eva vā
-> ka ātmā kaḥ paro vātra
-> svīyaḥ pārakya eva vā
-> sva-parābhiniveśena
+> ataḥ śocata mā yūyaṁ\
+> paraṁ cātmānam eva vā\
+> ka ātmā kaḥ paro vātra\
+> svīyaḥ pārakya eva vā\
+> sva-parābhiniveśena\
 > vinājñānena dehinām
 
 *ataḥ*—por lo tanto; *śocata*—lamentar; *mā*—no; *yūyam*—todos ustedes; *param*—otro; *ca*—y; *ātmānam*—ustedes mismos; *eva*—ciertamente; *vā*—o; *kaḥ*—quién; *ātmā*—ser; *kaḥ*—quién; *paraḥ*—otro; *vā*—o; *atra*—en el mundo material; *svīyaḥ*—propio; *pārakyaḥ*—para otros; *eva*—en verdad; *vā*—o; *sva-para-abhiniveśena*—que consiste en estar absorto en el concepto corporal de la vida en relación con uno mismo y con los demás; *vinā*—además de; *ajñānena*—la falta de conocimiento; *dehinām*—de todas las entidades vivientes corporificadas.

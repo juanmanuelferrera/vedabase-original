@@ -1,9 +1,9 @@
 ### CC Madhya 9.323
 
-> তীর্থ-যাত্রা-কথা প্রভু সকল কহিলা ।
+> তীর্থ-যাত্রা-কথা প্রভু সকল কহিলা ।\
 > কর্ণামৃত, ব্রহ্মসংহিতা, — দুই পুঁথি দিলা ॥৩২৩॥
 
-> tīrtha-yātrā-kathā prabhu sakala kahilā
+> tīrtha-yātrā-kathā prabhu sakala kahilā\
 > karṇāmṛta, brahma-saṁhitā,—dui puṅthi dilā
 
 *tīrtha-yātrā-kathā*—topics of His pilgrimage; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *sakala kahilā*—described everything; *karṇāmṛta*—the book named *Kṛṣṇa-karṇāmṛta*; *brahma-saṁhitā*—the book named *Brahma-saṁhitā*; *dui*—two; *puṅthi*—scriptures; *dilā*—delivered.

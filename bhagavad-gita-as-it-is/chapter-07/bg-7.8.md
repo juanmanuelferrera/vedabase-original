@@ -1,11 +1,11 @@
 ### Bg 7.8
 
-> रसोऽहमप्सु कौन्तेय प्रभास्मि शशिसूर्ययोः ।
+> रसोऽहमप्सु कौन्तेय प्रभास्मि शशिसूर्ययोः ।\
 > प्रणवः सर्ववेदेषु शब्दः खे पौरुषं नृषु ॥८॥
 
-> raso 'ham apsu kaunteya
-> prabhāsmi śaśi-sūryayoḥ
-> praṇavaḥ sarva-vedeṣu
+> raso 'ham apsu kaunteya\
+> prabhāsmi śaśi-sūryayoḥ\
+> praṇavaḥ sarva-vedeṣu\
 > śabdaḥ khe pauruṣaṁ nṛṣu
 
 *rasaḥ*—taste; *aham*—I; *apsu*—in water; *kaunteya*—O son of Kuntī; *prabhā asmi*—I am the light; *śaśi-sūryayoḥ*—in the sun and the moon; *praṇavaḥ*—the three letters A.U.M.; *sarva*—in all; *vedeṣu*—in the *Vedas*; *śabdaḥ*—sound vibration; *khe*—in the ether; *pauruṣam*—ability; *nṛṣu*—in man.

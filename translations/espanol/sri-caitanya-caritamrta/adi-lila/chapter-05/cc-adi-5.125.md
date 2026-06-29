@@ -1,9 +1,9 @@
 ### CC Adi 5.125
 
-> সেই ত’ অনন্ত, যাঁর কহি এক কলা ।
+> সেই ত’ অনন্ত, যাঁর কহি এক কলা ।\
 > হেন প্রভু নিত্যানন্দ, কে জানে তাঁর খেলা ॥১২৫॥
 
-> sei ta' ananta, yāṅra kahi eka kalā
+> sei ta' ananta, yāṅra kahi eka kalā\
 > hena prabhu nityānanda, ke jāne tāṅra khelā
 
 *sei ta'*—ese; *ananta*—el Señor Ananta; *yāṅra*—de quien; *kahi*—digo; *eka kalā*—una parte de la parte; *hena*—tal; *prabhu nityānanda*—el Señor Nityānanda Prabhu; *ke*—quién; *jāne*—conoce; *tāṅra*—Sus; *khelā*—pasatiempos.

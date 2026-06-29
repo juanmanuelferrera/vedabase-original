@@ -1,9 +1,9 @@
 ### CC Madhya 17.145
 
-> ভারী বোঝা লঞা আইলাঙ, কেমনে লঞা যাব ?
+> ভারী বোঝা লঞা আইলাঙ, কেমনে লঞা যাব ?\
 > অল্প-স্বল্প-মূল্য পাইলে, এথাই বেচিব ॥১৪৫॥
 
-> bhārī bojhā lañā āilāṅa, kemane lañā yāba?
+> bhārī bojhā lañā āilāṅa, kemane lañā yāba?\
 > alpa-svalpa-mūlya pāile, ethāi veciba
 
 *bhārī bojhā*—heavy load; *lañā*—bearing; *āilāṅa*—I came; *kemane*—how; *lañā yāba*—shall I take it back; *alpa-svalpa-mūlya*—a fraction of the real price; *pāile*—if I get; *ethāi*—here; *veciba*—I shall sell.

@@ -1,11 +1,11 @@
 ### SB 8.7.8
 
-> ते सुनिर्विण्णमनसः परिम्लानमुखश्रियः
+> ते सुनिर्विण्णमनसः परिम्लानमुखश्रियः\
 > आसन्स्वपौरुषे नष्टे दैवेनातिबलीयसा ॥८॥
 
-> vilokya vighneśa-vidhiṁ tadeśvaro
-> duranta-vīryo 'vitathābhisandhiḥ
-> kṛtvā vapuḥ kacchapam adbhutaṁ mahat
+> vilokya vighneśa-vidhiṁ tadeśvaro\
+> duranta-vīryo 'vitathābhisandhiḥ\
+> kṛtvā vapuḥ kacchapam adbhutaṁ mahat\
 > praviśya toyaṁ girim ujjahāra
 
 *vilokya*—al observar; *vighna*—el obstáculo (el hundimiento de la montaña); *īśa-vidhim*—por disposición de la providencia; *tadā*—entonces; *īśvaraḥ*—la Suprema Personalidad de Dios; *duranta-vīryaḥ*—de poder inconcebible; *avitatha*—infalible; *abhisandhiḥ*—cuya determinación; *kṛtvā*—expandiendo; *vapuḥ*—cuerpo; *kacchapam*—tortuga; *adbhutam*—maravilloso; *mahat*—muy grande; *praviśya*—entrando; *toyam*—en el agua; *girim*—la montaña (Mandara); *ujjahāra*—levantó.

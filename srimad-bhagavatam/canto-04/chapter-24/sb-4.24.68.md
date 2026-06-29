@@ -1,11 +1,11 @@
 ### SB 4.24.68
 
-> अथ त्वमसि नो ब्रह्मन्परमात्मन्विपश्चिताम् ।
+> अथ त्वमसि नो ब्रह्मन्परमात्मन्विपश्चिताम् ।\
 > विश्वं रुद्रभयध्वस्तमकुतश्चिद्भया गतिः ॥६८॥
 
-> atha tvam asi no brahman
-> paramātman vipaścitām
-> viśvaṁ rudra-bhaya-dhvastam
+> atha tvam asi no brahman\
+> paramātman vipaścitām\
+> viśvaṁ rudra-bhaya-dhvastam\
 > akutaścid-bhayā gatiḥ
 
 *atha*—therefore; *tvam*—You, my Lord; *asi*—are; *naḥ*—our; *brahman*—O Supreme Brahman; *parama-ātman*—O Supersoul; *vipaścitām*—for the learned wise men; *viśvam*—the whole universe; *rudra-bhaya*—being afraid of Rudra; *dhvastam*—annihilated; *akutaścit-bhayā*—undoubtedly fearless; *gatiḥ*—destination.

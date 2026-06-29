@@ -1,11 +1,11 @@
 ### SB 4.11.21
 
-> आयुषोऽपचयं जन्तोस्तथैवोपचयं विभुः ।
+> आयुषोऽपचयं जन्तोस्तथैवोपचयं विभुः ।\
 > उभाभ्यां रहितः स्वस्थो दुःस्थस्य विदधात्यसौ ॥२१॥
 
-> āyuṣo 'pacayaṁ jantos
-> tathaivopacayaṁ vibhuḥ
-> ubhābhyāṁ rahitaḥ sva-stho
+> āyuṣo 'pacayaṁ jantos\
+> tathaivopacayaṁ vibhuḥ\
+> ubhābhyāṁ rahitaḥ sva-stho\
 > duḥsthasya vidadhāty asau
 
 *āyuṣaḥ*—de duración de la vida; *apacayam*—disminución; *jantoḥ*—de las entidades vivientes; *tathā*—de manera similar; *eva*—también; *upacayam*—aumenta; *vibhuḥ*—la Suprema Personalidad de Dios; *ubhābhyām*—de ambas; *rahitaḥ*—libre; *sva-sthaḥ*—siempre establecido en Su posición trascendental; *duḥsthasya*—de las entidades vivientes que están bajo las leyes del *karma*; *vidadhāti*—concede; *asau*—Él.

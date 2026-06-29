@@ -1,11 +1,11 @@
 ### SB 1.19.23
 
-> समागताः सर्वत एव सर्वे वेदा यथा मूर्तिधरास्त्रिपृष्ठे ।
+> समागताः सर्वत एव सर्वे वेदा यथा मूर्तिधरास्त्रिपृष्ठे ।\
 > नेहाथ नामुत्र च कश्चनार्थ ऋते परानुग्रहमात्मशीलम् ॥२३॥
 
-> samāgatāḥ sarvata eva sarve
-> vedā yathā mūrti-dharās tri-pṛṣṭhe
-> nehātha nāmutra ca kaścanārtha
+> samāgatāḥ sarvata eva sarve\
+> vedā yathā mūrti-dharās tri-pṛṣṭhe\
+> nehātha nāmutra ca kaścanārtha\
 > ṛte parānugraham ātma-śīlam
 
 *samāgatāḥ*—assembled; *sarvataḥ*—from all directions; *eva*—certainly; *sarve*—all of you; *vedāḥ*—supreme knowledge; *yathā*—as; *mūrti-dharāḥ*—personified; *tri-pṛṣṭhe*—on the planet of Brahmā (which is situated above the three planetary systems, namely the upper, intermediate and lower worlds); *na*—not; *iha*—in this world; *atha*—thereafter; *na*—nor; *amutra*—in the other world; *ca*—also; *kaścana*—any other; *arthaḥ*—interest; *ṛte*—save and except; *para*—others; *anugraham*—doing good to; *ātma-śīlam*—own nature.

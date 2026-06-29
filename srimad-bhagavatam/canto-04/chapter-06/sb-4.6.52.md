@@ -1,11 +1,11 @@
 ### SB 4.6.52
 
-> देवानां भग्नगात्राणामृत्विजां चायुधाश्मभिः ।
+> देवानां भग्नगात्राणामृत्विजां चायुधाश्मभिः ।\
 > भवतानुगृहीतानामाशु मन्योऽस्त्वनातुरम् ॥५२॥
 
-> devānāṁ bhagna-gātrāṇām
-> ṛtvijāṁ cāyudhāśmabhiḥ
-> bhavatānugṛhītānām
+> devānāṁ bhagna-gātrāṇām\
+> ṛtvijāṁ cāyudhāśmabhiḥ\
+> bhavatānugṛhītānām\
 > āśu manyo 'stv anāturam
 
 *devānām*—of the demigods; *bhagna-gātrāṇām*—whose limbs are badly broken; *ṛtvijām*—of the priests; *ca*—and; *āyudha-aśmabhiḥ*—by weapons and by stones; *bhavatā*—by you; *anugṛhītānām*—being favored; *āśu*—at once; *manyo*—O Lord Śiva (in an angry mood); *astu*—let there be; *anāturam*—recovery from injuries.

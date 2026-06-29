@@ -1,11 +1,11 @@
 ### SB 8.19.33
 
-> त्रिभिः क्रमैरिमाल्लोकान्विश्वकायः क्रमिष्यति
+> त्रिभिः क्रमैरिमाल्लोकान्विश्वकायः क्रमिष्यति\
 > सर्वस्वं विष्णवे दत्त्वा मूढ वर्तिष्यसे कथम ॥३३॥
 
-> tribhiḥ kramair imāl lokān
-> viśva-kāyaḥ kramiṣyati
-> sarvasvaṁ viṣṇave dattvā
+> tribhiḥ kramair imāl lokān\
+> viśva-kāyaḥ kramiṣyati\
+> sarvasvaṁ viṣṇave dattvā\
 > mūḍha vartiṣyase katham
 
 *tribhiḥ*—tres; *kramaiḥ*—con pasos; *imān*—todos estos; *lokān*—tres sistemas plane-tarios; *viśva-kāyaḥ*—volviéndose la forma universal; *kramiṣyati*—expandirá gradual-mente; *arvasvam*—todo; *viṣṇave*—** al Señor Viṣṇu; *dattvā*—después de dar caridad; *mūḍha*—¡oh, sinvergüenza!; *vartiṣyase*—solucionarás tu sustento; *katham*—cómo.

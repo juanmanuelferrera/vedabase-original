@@ -1,11 +1,11 @@
 ### CC Adi 6.75
 
-> আত্মারামস্য তস্যেমা বয়ং বৈ গৃহদাসিকাঃ ।
+> আত্মারামস্য তস্যেমা বয়ং বৈ গৃহদাসিকাঃ ।\
 > সর্বসঙ্গনিবৃত্ত্যাদ্ধা তপসা চ বভূবিম ॥৭৫॥
 
-> ātmārāmasya tasyemā
-> vayaṁ vai gṛha-dāsikāḥ
-> sarva-saṅga-nivṛttyāddhā
+> ātmārāmasya tasyemā\
+> vayaṁ vai gṛha-dāsikāḥ\
+> sarva-saṅga-nivṛttyāddhā\
 > tapasā ca babhūvima
 
 *ātmārāmasya*—de la Suprema Personalidad de Dios, que está satisfecho en Sí mismo; *tasya*—Sus; *imāḥ*—todas; *vayam*—nosotras; *vai*—ciertamente; *gṛha-dāsikāḥ*—las sirvientas del hogar; *sarva*—toda; *saṅga*—asociación; *nivṛttyā*—completamente desprovistas de; *addhā*—directamente; *tapasā*—por la austeridad; *ca*—también; *babhūvima*—nos hemos convertido.

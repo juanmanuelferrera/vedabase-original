@@ -1,13 +1,13 @@
 ### SB 7.8.53
 
-> श्रीकिम्पुरुषा ऊचुः
-> वयं किम्पुरुषास्त्वं तु महापुरुष ईश्वरः
+> श्रीकिम्पुरुषा ऊचुः\
+> वयं किम्पुरुषास्त्वं तु महापुरुष ईश्वरः\
 > अयं कुपुरुषो नष्टो धिक्कृतः साधुभिर्यदा ॥५३॥
 
-> śrī-kimpuruṣā ūcuḥ
-> vayaṁ kimpuruṣās tvaṁ tu
-> mahā-puruṣa īśvaraḥ
-> ayaṁ kupuruṣo naṣṭo
+> śrī-kimpuruṣā ūcuḥ\
+> vayaṁ kimpuruṣās tvaṁ tu\
+> mahā-puruṣa īśvaraḥ\
+> ayaṁ kupuruṣo naṣṭo\
 > dhik-kṛtaḥ sādhubhir yadā
 
 *śrī-kimpuruṣāḥ ūcuḥ*—the inhabitants of Kimpuruṣa-loka said; *vayam*—we; *kimpuruṣāḥ*—the inhabitants of Kimpuruṣa-loka, or insignificant living entities; *tvam*—Your Lordship; *tu*—however; *mahā-puruṣaḥ*—the Supreme Personality of Godhead; *īśvaraḥ*—the supreme controller; *ayam*—this; *ku-puruṣaḥ*—most sinful person, Hiraṇyakaśipu; *naṣṭaḥ*—slain; *dhik-kṛtaḥ*—being condemned; *sādhubhiḥ*—by the saintly persons; *yadā*—when.

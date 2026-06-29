@@ -1,11 +1,11 @@
 ### SB 6.16.24
 
-> देहेन्द्रियप्राणमनोधियोऽमी यदंशविद्धाः प्रचरन्ति कर्मसु
+> देहेन्द्रियप्राणमनोधियोऽमी यदंशविद्धाः प्रचरन्ति कर्मसु\
 > नैवान्यदा लौहमिवाप्रतप्तं स्थानेषु तद्द्रष्ट्रपदेशमेति ॥२४॥
 
-> dehendriya-prāṇa-mano-dhiyo 'mī
-> yad-aṁśa-viddhāḥ pracaranti karmasu
-> naivānyadā lauham ivāprataptaṁ
+> dehendriya-prāṇa-mano-dhiyo 'mī\
+> yad-aṁśa-viddhāḥ pracaranti karmasu\
+> naivānyadā lauham ivāprataptaṁ\
 > sthāneṣu tad draṣṭrapadeśam eti
 
 *deha*—el cuerpo; *indriya*—los sentidos; *prāṇa*—los aires vitales; *manaḥ*—la mente; *dhiyaḥ*—y la inteligencia; *amī*—todos estos; *yat-aṁśa-viddhāḥ*—bajo la influencia de los rayos del Brahman, o del Señor Supremo; *pracaranti*—se mueven; *karmasu*—en diversas actividades; *na*—no; *eva*—en verdad; *anyadā*—en otros momentos; *lauham*—hierro; *iva*—como; *aprataptam*—no calentado (por fuego); *sthāneṣu*—en esas circunstancias; *tat*—eso; *draṣṭṛ-apadeśam*—el nombre de un tema; *eti*—alcanza.

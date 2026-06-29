@@ -1,11 +1,11 @@
 ### SB 6.7.33
 
-> न गर्हयन्ति ह्यर्थेषु यविष्ठाङ्घ्र्यभिवादनम
+> न गर्हयन्ति ह्यर्थेषु यविष्ठाङ्घ्र्यभिवादनम\
 > छन्दोभ्योऽन्यत्र न ब्रह्मन्वयो ज्यैष्ठ्यस्य कारणम ॥३३॥
 
-> na garhayanti hy artheṣu
-> yaviṣṭhāṅghry-abhivādanam
-> chandobhyo 'nyatra na brahman
+> na garhayanti hy artheṣu\
+> yaviṣṭhāṅghry-abhivādanam\
+> chandobhyo 'nyatra na brahman\
 > vayo jyaiṣṭhyasya kāraṇam
 
 *na*—no; *garhayanti*—prohibido; *hi*—en verdad; *artheṣu*—en adquirir intereses; *yaviṣṭha-aṅghri*—a los pies de loto de alguien más joven; *abhivādanam*—ofrecer reverencias; *chandobhyaḥ*—los *mantras* védicos; *anyatra*—aparte de; *na*—no; *brahman*—¡oh, *brāhmaṇa*!; *vayaḥ*—edad; *jyaiṣṭhyasya*—de madurez; *kāraṇam*—la causa.

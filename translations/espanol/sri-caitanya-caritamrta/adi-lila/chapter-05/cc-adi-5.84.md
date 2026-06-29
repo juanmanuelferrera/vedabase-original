@@ -1,11 +1,11 @@
 ### CC Adi 5.84
 
-> জগৃহে পৌরুষং রূপং ভগবান্মহদাদিভিঃ ।
+> জগৃহে পৌরুষং রূপং ভগবান্মহদাদিভিঃ ।\
 > সম্ভূতং ষোড়শকলমাদৌ লোকসিসৃক্ষয়া ॥৮৪॥
 
-> jagṛhe pauruṣaṁ rūpaṁ
-> bhagavān mahad-ādibhiḥ
-> sambhūtaṁ ṣoḍaśa-kalam
+> jagṛhe pauruṣaṁ rūpaṁ\
+> bhagavān mahad-ādibhiḥ\
+> sambhūtaṁ ṣoḍaśa-kalam\
 > ādau loka-sisṛkṣayā
 
 *jagṛhe*—aceptó; *pauruṣam*—la encarnación *puruṣa*; *rūpam*—la forma; *bhagavān*—la Suprema Personalidad de Dios; *mahat-ādibhiḥ*—por la energía material total, etc.; *sambhūtam*—creadas; *ṣoḍaśa*—dieciséis; *kalam*—energías; *ādau*—originalmente; *loka*—los mundos materiales; *sisṛkṣayā*—con el deseo de crear.

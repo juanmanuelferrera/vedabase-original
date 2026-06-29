@@ -1,9 +1,9 @@
 ### CC Antya 6.248
 
-> চারি মাস রহি’ ভক্তগণ গৌড়ে গেলা ।
+> চারি মাস রহি’ ভক্তগণ গৌড়ে গেলা ।\
 > শুনি’ রঘুনাথের পিতা মনুষ্য পাঠাইলা ॥২৪৮॥
 
-> cāri māsa rahi' bhakta-gaṇa gauḍe gelā
+> cāri māsa rahi' bhakta-gaṇa gauḍe gelā\
 > śuni' raghunāthera pitā manuṣya pāṭhāilā
 
 *cāri māsa*—for four months; *rahi'*—remaining; *bhakta-gaṇa*—all the devotees; *gauḍe gelā*—returned to Bengal; *śuni'*—hearing; *raghunāthera pitā*—the father of Raghunātha dāsa; *manuṣya*—a man; *pāṭhāilā*—sent.

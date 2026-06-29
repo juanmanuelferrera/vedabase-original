@@ -1,9 +1,9 @@
 ### CC Antya 13.64
 
-> এইমত মাস দুই রহিলা বৃন্দাবনে ।
+> এইমত মাস দুই রহিলা বৃন্দাবনে ।\
 > চৈতন্যবিরহ-দুঃখ না যায় সহনে ॥৬৪॥
 
-> ei-mata māsa dui rahilā vṛndāvane
+> ei-mata māsa dui rahilā vṛndāvane\
 > caitanya-viraha-duḥkha nā yāya sahane
 
 *ei-mata*—de esta manera; *māsa*—meses; *dui*—dos; *rahilā*—permanecieron; *vṛndāvane*—en Vṛndāvana; *caitanya-viraha*—de separación de Śrī Caitanya Mahāprabhu; *duḥkha*—infelicidad; *nā yāya sahane*—no podían tolerar.

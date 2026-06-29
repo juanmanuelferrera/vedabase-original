@@ -1,9 +1,9 @@
 ### CC Madhya 8.250
 
-> ‘গান-মধ্যে কোন্ গান — জীবের নিজ ধর্ম?’
+> ‘গান-মধ্যে কোন্ গান — জীবের নিজ ধর্ম?’\
 > ‘রাধাকৃষ্ণের প্রেমকেলি’ — যেই গীতের মর্ম’ ৷৷ ২৫০ ৷৷ ॥২৫০॥
 
-> 'gāna-madhye kona gāna--jīvera nija dharma?'
+> 'gāna-madhye kona gāna--jīvera nija dharma?'\
 > 'rādhā-kṛṣṇera prema-keli'--yei gītera marma'
 
 *gāna-madhye*—entre los cantos; *kona gāna*—cuál canto; *jīvera*—de la entidad viviente; *nija*—su propia; *dharma*—religión; *rādhā-kṛṣṇera prema-keli*—los pasatiempos amorosos de Rādhā y Kṛṣṇa; *yei*—cuyo; *gītera*—del canto; *marma*—esencia.

@@ -1,11 +1,11 @@
 ### SB 9.15.34
 
-> पुनः स्वहस्तैरचलान्मृधेऽङ्घ्रिपानुत्क्षिप्य वेगादभिधावतो युधि
+> पुनः स्वहस्तैरचलान्मृधेऽङ्घ्रिपानुत्क्षिप्य वेगादभिधावतो युधि\
 > भुजान्कुठारेण कठोरनेमिना चिच्छेद रामः प्रसभं त्वहेरिव ॥३४॥
 
-> punaḥ sva-hastair acalān mṛdhe 'ṅghripān
-> utkṣipya vegād abhidhāvato yudhi
-> bhujān kuṭhāreṇa kaṭhora-neminā
+> punaḥ sva-hastair acalān mṛdhe 'ṅghripān\
+> utkṣipya vegād abhidhāvato yudhi\
+> bhujān kuṭhāreṇa kaṭhora-neminā\
 > ciccheda rāmaḥ prasabhaṁ tv aher iva
 
 *punaḥ*—de nuevo; *sva-hastaiḥ*—con sus propios brazos; *acalān*—montañas; *mṛdhe*—en el campo de batalla; *aṅghripān*—árboles; *utkṣipya*—después de arrancar; *vegāt*—con mucha fuerza; *abhidhāvataḥ*—del que corría con gran ímpetu; *yudhi*—en el campo de batalla; *bhujān*—todos los brazos; *kuṭhāreṇa*—con su hacha; *kaṭhora-neminā*—que era muy afilada; *ciccheda*—cortó en pedazos; *rāmaḥ*—el Señor Paraśurāma; *prasabham*—con mucha fuerza; *tu*—pero; *ahaḥ iva*—como las capuchas de una serpiente.

@@ -1,11 +1,11 @@
 ### SB 8.11.32
 
-> न तस्य हि त्वचमपि वज्र ऊर्जितो बिभेद यः सुरपतिनौजसेरितः
+> न तस्य हि त्वचमपि वज्र ऊर्जितो बिभेद यः सुरपतिनौजसेरितः\
 > तदद्भुतं परमतिवीर्यवृत्रभित्तिरस्कृतो नमुचिशिरोधरत्वचा ॥३२॥
 
-> na tasya hi tvacam api vajra ūrjito
-> bibheda yaḥ sura-patinaujaseritaḥ
-> tad adbhutaṁ param ativīrya-vṛtra-bhit
+> na tasya hi tvacam api vajra ūrjito\
+> bibheda yaḥ sura-patinaujaseritaḥ\
+> tad adbhutaṁ param ativīrya-vṛtra-bhit\
 > tiraskṛto namuci-śirodhara-tvacā
 
 *na*—not; *tasya*—of him (Namuci); *hi*—indeed; *tvacam api*—even the skin; *vajraḥ*—the thunderbolt; *ūrjitaḥ*—very powerful; *bibheda*—could pierce; *yaḥ*—the weapon which; *sura-patinā*—by the king of the demigods; *ojasā*—very forcefully; *īritaḥ*—had been released; *tat*—therefore; *adbhutam param*—it was extraordinarily wonderful; *ativīrya-vṛtra-bhit*—so powerful that it could pierce the body of the very powerful Vṛtrāsura; *tiraskṛtaḥ*—(now in the future) which had been repelled; *namuci-śirodhara-tvacā*—by the skin of Namuci's neck.

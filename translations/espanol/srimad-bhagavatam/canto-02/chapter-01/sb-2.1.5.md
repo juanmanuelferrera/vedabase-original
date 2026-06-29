@@ -1,11 +1,11 @@
 ### SB 2.1.5
 
-> तस्माद्भारत सर्वात्मा भगवानीश्वरो हरिः ।
+> तस्माद्भारत सर्वात्मा भगवानीश्वरो हरिः ।\
 > श्रोतव्यः कीर्तितव्यश्च स्मर्तव्यश्चेच्छताभयम् ॥५॥
 
-> tasmād bhārata sarvātmā
-> bhagavān īśvaro hariḥ
-> śrotavyaḥ kīrtitavyaś ca
+> tasmād bhārata sarvātmā\
+> bhagavān īśvaro hariḥ\
+> śrotavyaḥ kīrtitavyaś ca\
 > smartavyaś cecchatābhayam
 
 *tasmāt*—por esa razón; *bhārata*—¡oh, descendiente de Bharata!; *sarvātmā*—la Superalma; *bhagavān*—La Personalidad de Dios; *īśvaraḥ*—el controlador; *hariḥ*—el Señor, quien elimina todos los sufrimientos; *śrotavyaḥ*—debe oírse; *kīrtitavyaḥ*—ser glorificado; *ca*—también; *smartavyaḥ*—ser recordado; *ca*—y; *icchatā*—de aquel que desea; *abhayam*—libertad.

@@ -1,9 +1,9 @@
 ### CC Madhya 7.109
 
-> নবদ্বীপে যেই শক্তি না কৈলা প্রকাশে ।
+> নবদ্বীপে যেই শক্তি না কৈলা প্রকাশে ।\
 > সে শক্তি প্ৰকাশি’ নিস্তারিল দক্ষিণদেশে ॥১০৯॥
 
-> navadvīpe yei śakti nā kailā prakāśe
+> navadvīpe yei śakti nā kailā prakāśe\
 > se śakti prakāśi' nistārila dakṣiṇa-deśe
 
 *navadvīpe*—at Navadvīpa; *yei*—that which; *śakti*—the potency; *nā*—not; *kailā*—did; *prakāśe*—manifestation; *se*—that; *śakti*—potency; *prakāśi'*—manifesting; *nistārila*—delivered; *dakṣiṇa-deśe*—South India.

@@ -1,14 +1,14 @@
 ### SB 1.18.46
 
-> धर्मपालो नरपतिः स तु सम्राड्बृहच्छ्रवाः ।
-> साक्षान्महाभागवतो राजर्षिर्हयमेधयाट् ।
+> धर्मपालो नरपतिः स तु सम्राड्बृहच्छ्रवाः ।\
+> साक्षान्महाभागवतो राजर्षिर्हयमेधयाट् ।\
 > क्षुत्तृट्श्रमयुतो दीनो नैवास्मच्छापमर्हति ॥४६॥
 
-> dharma-pālo nara-patiḥ
-> sa tu samrāḍ bṛhac-chravāḥ
-> sākṣān mahā-bhāgavato
-> rājarṣir haya-medhayāṭ
-> kṣut-tṛṭ-śrama-yuto dīno
+> dharma-pālo nara-patiḥ\
+> sa tu samrāḍ bṛhac-chravāḥ\
+> sākṣān mahā-bhāgavato\
+> rājarṣir haya-medhayāṭ\
+> kṣut-tṛṭ-śrama-yuto dīno\
 > naivāsmac chāpam arhati
 
 *dharma-pālaḥ*—el protector de la religión; *nara-patiḥ*—el rey; *saḥ*—él; *tu*—pero; *samrāṭ*—emperador; *bṛhat*—sumamente; *śravāḥ*—célebre; *sākṣāt*—directamente; *mahā-bhāgavataḥ*—el devoto de primera del Señor; *rāja-ṛṣiḥ*—santo entre los reyes; *haya-medhayāṭ*—gran ejecutor de sacrificios de caballo; *kṣut*—hambre; *tṛṭ*—sed; *śrama-yutaḥ*—cansado y fatigado; *dīnaḥ*—atacado; *na*—nunca; *eva*—así pues; *asmat*—por nosotros; *śāpam*—maldición; *arhati*—merece.

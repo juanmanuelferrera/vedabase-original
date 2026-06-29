@@ -1,9 +1,9 @@
 ### CC Madhya 9.258
 
-> প্রভু কহে, — শাস্ত্রে কহে শ্রবণ-কীর্তন ৷
+> প্রভু কহে, — শাস্ত্রে কহে শ্রবণ-কীর্তন ৷\
 > কৃষ্ণপ্রেমসেবা-ফলের ‘পরম সাধন’ ৷৷ ২৫৮ ৷৷ ॥২৫৮॥
 
-> prabhu kahe,--śāstre kahe śravaṇa-kīrtana
+> prabhu kahe,--śāstre kahe śravaṇa-kīrtana\
 > kṛṣṇa-prema-sevā-phalera 'parama-sādhana'
 
 *prabhu kahe*—el Señor Śrī Caitanya Mahāprabhu dijo; *śāstre kahe*—en el śāstra se dice; *śravaṇa-kīrtana*—el proceso de cantar y escuchar; *kṛṣṇa-prema-sevā*—del servicio amoroso al Señor Kṛṣṇa; *phalera*—del resultado; *parama-sādhana*—el mejor proceso para lograrlo.

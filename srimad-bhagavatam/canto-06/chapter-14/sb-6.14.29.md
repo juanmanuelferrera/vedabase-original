@@ -1,11 +1,11 @@
 ### SB 6.14.29
 
-> अथाह नृपतिं राजन्भवितैकस्तवात्मजः
+> अथाह नृपतिं राजन्भवितैकस्तवात्मजः\
 > हर्षशोकप्रदस्तुभ्यमिति ब्रह्मसुतो ययौ ॥२९॥
 
-> athāha nṛpatiṁ rājan
-> bhavitaikas tavātmajaḥ
-> harṣa-śoka-pradas tubhyam
+> athāha nṛpatiṁ rājan\
+> bhavitaikas tavātmajaḥ\
+> harṣa-śoka-pradas tubhyam\
 > iti brahma-suto yayau
 
 *atha*—thereafter; *āha*—said; *nṛpatim*—unto the King; *rājan*—O King Citraketu; *bhavitā*—there will be; *ekaḥ*—one; *tava*—your; *ātmajaḥ*—son; *harṣa-śoka*—jubilation and lamentation; *pradaḥ*—who will give; *tubhyam*—unto you; *iti*—thus; *brahma-sutaḥ*—Aṅgirā Ṛṣi, the son of Lord Brahmā; *yayau*—left.

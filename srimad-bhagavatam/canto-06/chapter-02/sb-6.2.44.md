@@ -1,11 +1,11 @@
 ### SB 6.2.44
 
-> साकं विहायसा विप्रो महापुरुषकिङ्करैः
+> साकं विहायसा विप्रो महापुरुषकिङ्करैः\
 > हैमं विमानमारुह्य ययौ यत्र श्रियः पतिः ॥४४॥
 
-> sākaṁ vihāyasā vipro
-> mahāpuruṣa-kiṅkaraiḥ
-> haimaṁ vimānam āruhya
+> sākaṁ vihāyasā vipro\
+> mahāpuruṣa-kiṅkaraiḥ\
+> haimaṁ vimānam āruhya\
 > yayau yatra śriyaḥ patiḥ
 
 *sākam*—along; *vihāyasā*—by the path in the sky, or the airways; *vipraḥ*—the *brāhmaṇa* (Ajāmila); *mahāpuruṣa-kiṅkaraiḥ*—with the order carriers of Lord Viṣṇu; *haimam*—made of gold; *vimānam*—an airplane; *āruhya*—boarding; *yayau*—went; *yatra*—where; *śriyaḥ patiḥ*—Lord Viṣṇu, the husband of the goddess of fortune.

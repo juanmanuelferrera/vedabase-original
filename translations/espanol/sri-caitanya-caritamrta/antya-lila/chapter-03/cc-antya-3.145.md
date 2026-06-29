@@ -1,9 +1,9 @@
 ### CC Antya 3.145
 
-> মহদপরাধের ফল অদ্ভুত কথন ।
+> মহদপরাধের ফল অদ্ভুত কথন ।\
 > প্রস্তাব পাঞা কহি, শুন, ভক্তগণ ॥১৪৫॥
 
-> mahad-aparādhera phala adbhuta kathana
+> mahad-aparādhera phala adbhuta kathana\
 > prastāva pāñā kahi, śuna, bhakta-gaṇa
 
 *mahat-aparādhera*—de una gran ofensa a los pies del devoto excelso; *phala*—el resultado; *adbhuta*—asombrosa; *kathana*—narración; *prastāva*—oportunidad; *pāñā*—aprovechando; *kahi*—digo; *śuna*—escuchad; *bhakta-gaṇa*—¡oh, devotos!.

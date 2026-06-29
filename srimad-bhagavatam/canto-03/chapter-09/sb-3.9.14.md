@@ -1,13 +1,13 @@
 ### SB 3.9.14
 
-> शश्वत्स्वरूपमहसैव निपीतभेद
-> मोहाय बोधधिषणाय नमः परस्मै ।
-> विश्वोद्भवस्थितिलयेषु निमित्तलीला
+> शश्वत्स्वरूपमहसैव निपीतभेद\
+> मोहाय बोधधिषणाय नमः परस्मै ।\
+> विश्वोद्भवस्थितिलयेषु निमित्तलीला\
 > रासाय ते नम इदं चकृमेश्वराय ॥१४॥
 
-> śaśvat svarūpa-mahasaiva nipīta-bheda-
-> mohāya bodha-dhiṣaṇāya namaḥ parasmai
-> viśvodbhava-sthiti-layeṣu nimitta-līlā-
+> śaśvat svarūpa-mahasaiva nipīta-bheda-\
+> mohāya bodha-dhiṣaṇāya namaḥ parasmai\
+> viśvodbhava-sthiti-layeṣu nimitta-līlā-\
 > rāsāya te nama idaṁ cakṛmeśvarāya
 
 *śaśvat*—eternally; *svarūpa*—transcendental form; *mahasā*—by the glories; *eva*—certainly; *nipīta*—distinguished; *bheda*—differentiation; *mohāya*—unto the illusory conception; *bodha*—self-knowledge; *dhiṣaṇāya*—intelligence; *namaḥ*—obeisances; *parasmai*—unto the Transcendence; *viśva-udbhava*—creation of the cosmic manifestation; *sthiti*—maintenance; *layeṣu*—also destruction; *nimitta*—for the matter of; *līlā*—by such pastimes; *rāsāya*—for enjoyment; *te*—unto You; *namaḥ*—obeisances; *idam*—this; *cakṛma*—do I perform; *īśvarāya*—unto the Supreme.

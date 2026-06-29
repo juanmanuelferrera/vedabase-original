@@ -1,13 +1,13 @@
 ### SB 6.14.58
 
-> नाहं तनूज ददृशे हतमङ्गला ते
-> मुग्धस्मितं मुदितवीक्षणमाननाब्जम
-> किं वा गतोऽस्यपुनरन्वयमन्यलोकं
+> नाहं तनूज ददृशे हतमङ्गला ते\
+> मुग्धस्मितं मुदितवीक्षणमाननाब्जम\
+> किं वा गतोऽस्यपुनरन्वयमन्यलोकं\
 > नीतोऽघृणेन न शृणोमि कला गिरस्ते ॥५८॥
 
-> nāhaṁ tanūja dadṛśe hata-maṅgalā te
-> mugdha-smitaṁ mudita-vīkṣaṇam ānanābjam
-> kiṁ vā gato 'sy apunar-anvayam anya-lokaṁ
+> nāhaṁ tanūja dadṛśe hata-maṅgalā te\
+> mugdha-smitaṁ mudita-vīkṣaṇam ānanābjam\
+> kiṁ vā gato 'sy apunar-anvayam anya-lokaṁ\
 > nīto 'ghṛṇena na śṛṇomi kalā giras te
 
 *na*—no; *aham*—yo; *tanū-ja*—mi querido hijo (nacido de mi cuerpo); *dadṛśe*—vi; *hata-maṅgalā*—por ser yo la más desdichada; *te*—tuya; *mugdha-smitam*—con encantadora sonrisa; *mudita-vīkṣaṇam*—con ojos cerrados; *ānana-abjam*—cara de loto; *kiṁ vā*—si; *gataḥ*—ido; *asi*—tú te has; *a-punaḥ-anvayam*—del cual no se regresa; *anya-lokam*—a otro planeta, al planeta de Yamarāja; *nītaḥ*—haber sido llevado; *aghṛṇena*—por el cruel Yamarāja; *na*—no; *śṛṇomi*—puedo escuchar; *kalāḥ*—muy agradables; *giraḥ*—balbuceos; *te*—tuyos.

@@ -1,9 +1,9 @@
 ### CC Adi 6.86
 
-> চৈতন্যের দাস মুঞি, চৈতন্যের দাস ।
+> চৈতন্যের দাস মুঞি, চৈতন্যের দাস ।\
 > চৈতন্যের দাস মুঞি, তাঁর দাসের দাস ॥৮৬॥
 
-> caitanyera dāsa muñi, caitanyera dāsa
+> caitanyera dāsa muñi, caitanyera dāsa\
 > caitanyera dāsa muñi, tāṅra dāsera dāsa
 
 *caitanyera*—del Señor Śrī Caitanya Mahāprabhu; *dāsa*—sirviente; *muñi*—yo; *caitanyera dāsa*—un sirviente del Señor Caitanya; *caitanyera dāsa muñi*—soy sirviente de Caitanya Mahāprabhu; *tāṅra dāsera dāsa*—un sirviente de Su sirviente.

@@ -1,11 +1,11 @@
 ### CC Madhya 2.50
 
-> এই মত দিনে দিনে, স্বরূপ-রামানন্দ-সনে,
+> এই মত দিনে দিনে, স্বরূপ-রামানন্দ-সনে,\
 > নিজ-ভাব করেন বিদিত । ॥৫০॥
 
-> ei mata dine dine, svarūpa-rāmānanda-sane,
-> nija-bhāva karena vidita
-> bāhye viṣa-jvālā haya, bhitare ānanda-maya,
+> ei mata dine dine, svarūpa-rāmānanda-sane,\
+> nija-bhāva karena vidita\
+> bāhye viṣa-jvālā haya, bhitare ānanda-maya,\
 > kṛṣṇa-premāra adbhuta carita
 
 *ei mata*—in this way; *dine dine*—day after day; *svarūpa*—Svarūpa Dāmodara; *rāmānanda*—Rāmānanda Rāya; *sane*—with; *nija*—own; *bhāva*—ecstasy; *karena*—makes; *vidita*—known; *bāhye*—externally; *viṣa-jvālā haya*—there is suffering from poisonous effects; *bhitare*—within; *ānanda-maya*—transcendental ecstasy; *kṛṣṇa-premāra*—of love of Kṛṣṇa; *adbhuta*—wonderful; *carita*—characteristic.

@@ -1,13 +1,13 @@
 ### SB 3.32.1
 
-> कपिल उवाच
-> अथ यो गृहमेधीयान्धर्मानेवावसन्गृहे ।
+> कपिल उवाच\
+> अथ यो गृहमेधीयान्धर्मानेवावसन्गृहे ।\
 > काममर्थं च धर्मान्स्वान्दोग्धि भूयः पिपर्ति तान् ॥१॥
 
-> kapila uvāca
-> atha yo gṛha-medhīyān
-> dharmān evāvasan gṛhe
-> kāmam arthaṁ ca dharmān svān
+> kapila uvāca\
+> atha yo gṛha-medhīyān\
+> dharmān evāvasan gṛhe\
+> kāmam arthaṁ ca dharmān svān\
 > dogdhi bhūyaḥ piparti tān
 
 *kapilaḥ uvāca*—el Señor Kapila dijo; *atha*—ahora; *yaḥ*—la persona que; *gṛha-medhīyān*—de los jefes de familia; *dharmān*—deberes; *eva*—ciertamente; *āvasan*—viviendo; *gṛhe*—en el hogar; *kāmam*—complacencia de los sentidos; *artham*—desarrollo económico; *ca*—y; *dharmān*—rituales religiosos; *svān*—su; *dogdhi*—disfruta; *bhūyaḥ*—una y otra vez; *piparti*—ejecuta; *tān*—esos.

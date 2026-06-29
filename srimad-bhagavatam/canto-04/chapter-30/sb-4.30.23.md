@@ -1,11 +1,11 @@
 ### SB 4.30.23
 
-> शुद्धाय शान्ताय नमः स्वनिष्ठया मनस्यपार्थं विलसद्द्वयाय ।
+> शुद्धाय शान्ताय नमः स्वनिष्ठया मनस्यपार्थं विलसद्द्वयाय ।\
 > नमो जगत्स्थानलयोदयेषु गृहीतमायागुणविग्रहाय ॥२३॥
 
-> śuddhāya śāntāya namaḥ sva-niṣṭhayā
-> manasy apārthaṁ vilasad-dvayāya
-> namo jagat-sthāna-layodayeṣu
+> śuddhāya śāntāya namaḥ sva-niṣṭhayā\
+> manasy apārthaṁ vilasad-dvayāya\
+> namo jagat-sthāna-layodayeṣu\
 > gṛhīta-māyā-guṇa-vigrahāya
 
 *śuddhāya*—unto the unadulterated; *śāntāya*—unto the most peaceful; *namaḥ*—we offer our obeisances; *sva-niṣṭhayā*—by being situated in one's position; *manasi*—in the mind; *apārtham*—without any meaning; *vilasat*—appearing; *dvayāya*—in whom the dual world; *namaḥ*—obeisances; *jagat*—of the cosmic manifestation; *sthāna*—maintenance; *laya*—annihilation; *udayeṣu*—and for creation; *gṛhīta*—accepted; *māyā*—material; *guṇa*—of the modes of nature; *vigrahāya*—the forms.

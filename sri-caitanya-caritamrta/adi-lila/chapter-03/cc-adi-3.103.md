@@ -1,9 +1,9 @@
 ### CC Adi 3.103
 
-> কৃষ্ণ বশ করিবেন কোন্ আরাধনে ।
+> কৃষ্ণ বশ করিবেন কোন্ আরাধনে ।\
 > বিচারিতে এক শ্লোক আইল তাঁর মনে ॥১০৩॥
 
-> kṛṣṇa vaśa karibena kon ārādhane
+> kṛṣṇa vaśa karibena kon ārādhane\
 > vicārite eka śloka āila tāṅra mane
 
 *kṛṣṇa*—Lord Kṛṣṇa; *vaśa karibena*—shall propitiate; *konārādhane*—by what worship; *vicārite*—while considering; *eka*—one; *śloka*—verse; *āila*—came; *tāṅra*—of Him; *mane*—in the mind.

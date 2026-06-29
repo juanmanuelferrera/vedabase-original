@@ -1,9 +1,9 @@
 ### CC Madhya 21.21
 
-> বেত্র, বেণু, দল, শৃঙ্গ, বস্ত্র, অলঙ্কার ।
+> বেত্র, বেণু, দল, শৃঙ্গ, বস্ত্র, অলঙ্কার ।\
 > গোপগণের যত, তার নাহি লেখা-পার ॥২১॥
 
-> vetra, veṇu, dala, śṛṅga, vastra, alaṅkāra
+> vetra, veṇu, dala, śṛṅga, vastra, alaṅkāra\
 > gopa-gaṇera yata, tāra nāhi lekhā-pāra
 
 *vetra*—bastones; *veṇu*—flautas; *dala*—flores de loto; *śṛṅga*—cuernos; *vastra*—vestimentas; *alaṅkāra*—ornamentos; *gopa-gaṇera yata*—todo lo que poseen los pastorcillos de vacas; *tāra*—de ellos; *nāhi*—no hay; *lekhā-pāra*—límite al escribirlo.

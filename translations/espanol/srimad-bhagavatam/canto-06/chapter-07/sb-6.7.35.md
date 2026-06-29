@@ -1,16 +1,16 @@
 ### SB 6.7.35
 
-> श्रीविश्वरूप उवाच
-> विगर्हितं धर्मशीलैर्ब्रह्मवर्चौपव्ययम
-> कथं नु मद्विधो नाथा लोकेशैरभियाचितम
+> श्रीविश्वरूप उवाच\
+> विगर्हितं धर्मशीलैर्ब्रह्मवर्चौपव्ययम\
+> कथं नु मद्विधो नाथा लोकेशैरभियाचितम\
 > प्रत्याख्यास्यति तच्छिष्यः स एव स्वार्थ उच्यते ॥३५॥
 
-> śrī-viśvarūpa uvāca
-> vigarhitaṁ dharma-śīlair
-> brahmavarca-upavyayam
-> kathaṁ nu mad-vidho nāthā
-> lokeśair abhiyācitam
-> pratyākhyāsyati tac-chiṣyaḥ
+> śrī-viśvarūpa uvāca\
+> vigarhitaṁ dharma-śīlair\
+> brahmavarca-upavyayam\
+> kathaṁ nu mad-vidho nāthā\
+> lokeśair abhiyācitam\
+> pratyākhyāsyati tac-chiṣyaḥ\
 > sa eva svārtha ucyate
 
 *śrī-viśvarūpaḥ uvāca*—Śrī Viśvarūpa dijo; *vigarhitam*—condenado; *dharma-śīlaiḥ*—por personas que son respetuosas con los principios religiosos; *brahma-varcaḥ*—de fuerza o poder brahmínicos; *upavyayam*—causa la pérdida; *katham*—cómo; *nu*—en verdad; *mat-vidhaḥ*—una persona como yo; *nāthāḥ*—¡oh, señores!; *loka-īśaiḥ*—por los poderes que rigen los diversos planetas; *abhiyācitam*—ruego; *pratyākhyāsyati*—se negará; *tat-śiṣyaḥ*—que está al mismo nivel que el discípulo; *saḥ*—eso; *eva*—en verdad; *sva-arthaḥ*—verdadero interés; *ucyate*—se dice que es.

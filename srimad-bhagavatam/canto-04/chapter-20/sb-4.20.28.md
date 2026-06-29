@@ -1,11 +1,11 @@
 ### SB 4.20.28
 
-> जगज्जनन्यां जगदीश वैशसं स्यादेव यत्कर्मणि नः समीहितम् ।
+> जगज्जनन्यां जगदीश वैशसं स्यादेव यत्कर्मणि नः समीहितम् ।\
 > करोषि फल्ग्वप्युरु दीनवत्सलः स्व एव धिष्ण्येऽभिरतस्य किं तया ॥२८॥
 
-> jagaj-jananyāṁ jagad-īśa vaiśasaṁ
-> syād eva yat-karmaṇi naḥ samīhitam
-> karoṣi phalgv apy uru dīna-vatsalaḥ
+> jagaj-jananyāṁ jagad-īśa vaiśasaṁ\
+> syād eva yat-karmaṇi naḥ samīhitam\
+> karoṣi phalgv apy uru dīna-vatsalaḥ\
 > sva eva dhiṣṇye 'bhiratasya kiṁ tayā
 
 *jagat-jananyām*—in the mother of the universe (Lakṣmī); *jagat-īśa*—O Lord of the universe; *vaiśasam*—anger; *syāt*—may arise; *eva*—certainly; *yat-karmaṇi*—in whose activity; *naḥ*—my; *samīhitam*—desire; *karoṣi*—You consider; *phalgu*—insignificant service; *api*—even; *uru*—very great; *dīna-vatsalaḥ*—favorably inclined to the poor; *sve*—own; *eva*—certainly; *dhiṣṇye*—in Your opulence; *abhiratasya*—of one who is fully satisfied; *kim*—what need is there; *tayā*—with her.

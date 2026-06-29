@@ -1,9 +1,9 @@
 ### CC Madhya 9.358
 
-> তীর্থযাত্রা-কথা এই কৈলুঁ সমাপন ৷
+> তীর্থযাত্রা-কথা এই কৈলুঁ সমাপন ৷\
 > সংক্ষেপে কহিলুঁ, বিস্তার না যায় বর্ণন ৷৷ ৩৫৮ ৷৷ ॥৩৫৮॥
 
-> tīrtha-yātrā-kathā ei kailuṅ samāpana
+> tīrtha-yātrā-kathā ei kailuṅ samāpana\
 > saṅkṣepe kahiluṅ, vistāra nā yāya varṇana
 
 *tīrtha-yātrā-kathā*—temas de la peregrinación; *ei*—estos; *kailuṅ samāpana*—he concluido; *saṅkṣepe kahiluṅ*—he descrito brevemente; *vistāra*—extensamente; *nā yāya varṇana*—no es posible describir.

@@ -1,11 +1,11 @@
 ### SB 3.29.28
 
-> जीवाः श्रेष्ठा ह्यजीवानां ततः प्राणभृतः शुभे ।
+> जीवाः श्रेष्ठा ह्यजीवानां ततः प्राणभृतः शुभे ।\
 > ततः सचित्ताः प्रवरास्ततश्चेन्द्रियवृत्तयः ॥२८॥
 
-> jīvāḥ śreṣṭhā hy ajīvānāṁ
-> tataḥ prāṇa-bhṛtaḥ śubhe
-> tataḥ sa-cittāḥ pravarās
+> jīvāḥ śreṣṭhā hy ajīvānāṁ\
+> tataḥ prāṇa-bhṛtaḥ śubhe\
+> tataḥ sa-cittāḥ pravarās\
 > tataś cendriya-vṛttayaḥ
 
 *jīvāḥ*—living entities; *śreṣṭhāḥ*—better; *hi*—indeed; *ajīvānām*—than inanimate objects; *tataḥ*—than them; *prāṇa-bhṛtaḥ*—entities with life symptoms; *śubhe*—O blessed mother; *tataḥ*—than them; *sa-cittāḥ*—entities with developed consciousness; *pravarāḥ*—better; *tataḥ*—than them; *ca*—and; *indriya-vṛttayaḥ*—those with sense perception.

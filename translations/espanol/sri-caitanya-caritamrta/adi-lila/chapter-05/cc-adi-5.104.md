@@ -1,9 +1,9 @@
 ### CC Adi 5.104
 
-> বিষ্ণুরূপ হঞা করে জগৎ পালনে ।
+> বিষ্ণুরূপ হঞা করে জগৎ পালনে ।\
 > গুণাতীত-বিষ্ণু স্পর্শ নাহি মায়া-গুণে ॥১০৪॥
 
-> viṣṇu-rūpa hañā kare jagat pālane
+> viṣṇu-rūpa hañā kare jagat pālane\
 > guṇātīta-viṣṇu sparśa nāhi māyā-guṇe
 
 *viṣṇu-rūpa*—la forma del Señor Viṣṇu; *hañā*—adoptando; *kare*—hace; *jagat pālane*—la manutención del mundo material; *guṇa-atīta*—más allá de las cualidades materiales; *viṣṇu*—el Señor Viṣṇu; *sparśa*—contacto; *nāhi*—no; *māyā-guṇe*—con las cualidades materiales.

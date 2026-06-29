@@ -1,9 +1,9 @@
 ### CC Adi 9.54
 
-> এই ত’ কহিলুঁ প্রেমফল-বিতরণ ।
+> এই ত’ কহিলুঁ প্রেমফল-বিতরণ ।\
 > এবে শুন, ফলদাতা যে যে শাখাগণ ॥৫৪॥
 
-> ei ta' kahiluṅ prema-phala-vitaraṇa
+> ei ta' kahiluṅ prema-phala-vitaraṇa\
 > ebe śuna, phala-dātā ye ye śākhā-gaṇa
 
 *ei*—this; *ta'*—however; *kahiluṅ*—I have explained; *prema-phala*—the fruit of love of Godhead; *vitaraṇa*—distribution; *ebe*—now; *śuna*—hear; *phala-dātā*—the giver of the fruit; *ye ye*—who and who; *śākhā-gaṇa*—branches.

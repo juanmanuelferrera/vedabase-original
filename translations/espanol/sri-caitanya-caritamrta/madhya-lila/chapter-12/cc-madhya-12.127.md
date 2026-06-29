@@ -1,9 +1,9 @@
 ### CC Madhya 12.127
 
-> এই অপরাধে মোর কাহাঁ হবে গতি ।
+> এই অপরাধে মোর কাহাঁ হবে গতি ।\
 > তোমার ‘গৌড়ীয়া’ করে এতেক ফৈজতি ! ॥ ১২৭ ॥
 
-> ei aparādhe mora kāhāṅ habe gati
+> ei aparādhe mora kāhāṅ habe gati\
 > tomāra 'gauḍīyā' kare eteka phaijati!
 
 *ei aparādhe*—por semejante ofensa; *mora*—de Mí; *kāhāṅ*—dónde; *habe*—será; *gati*—destino; *tomāra gauḍīyā*—tu vaiṣṇava bengalí; *kare*—hace; *eteka*—semejante; *phaijati*—implicación.

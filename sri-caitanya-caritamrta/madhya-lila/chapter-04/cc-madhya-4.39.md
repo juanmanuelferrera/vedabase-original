@@ -1,9 +1,9 @@
 ### CC Madhya 4.39
 
-> বহুদিন তোমার পথ করি নিরীক্ষণ ।
+> বহুদিন তোমার পথ করি নিরীক্ষণ ।\
 > কবে আসি’ মাধব আমা করিবে সেবন ॥৩৯॥
 
-> bahu-dina tomāra patha kari nirīkṣaṇa
+> bahu-dina tomāra patha kari nirīkṣaṇa\
 > kabe āsi' mādhava āmā karibe sevana
 
 *bahu-dina*—many days; *tomāra*—of you; *patha*—the path; *kari*—I do; *nirīkṣaṇa*—observing; *kabe*—when; *āsi'*—coming; *mādhava*—Mādhavendra Purī; *āmā*—Me; *karibe*—he will do; *sevana*—serving.

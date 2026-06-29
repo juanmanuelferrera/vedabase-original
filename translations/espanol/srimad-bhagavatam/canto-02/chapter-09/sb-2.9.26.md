@@ -1,11 +1,11 @@
 ### SB 2.9.26
 
-> तथापि नाथमानस्य नाथ नाथय नाथितम् ।
+> तथापि नाथमानस्य नाथ नाथय नाथितम् ।\
 > परावरे यथा रूपेजानीयां ते त्वरूपिणः ॥२६॥
 
-> tathāpi nāthamānasya
-> nātha nāthaya nāthitam
-> parāvare yathā rūpe
+> tathāpi nāthamānasya\
+> nātha nāthaya nāthitam\
+> parāvare yathā rūpe\
 > jānīyāṁ te tv arūpiṇaḥ
 
 *tathā api*—a pesar de esto; *nāthamānasya*—de aquel que está pidiendo; *nātha*—¡oh, Señor!; *nāthaya*—por favor, otorga; *nāthitam*—tal como se desea; *para-avare*—en cuanto a lo mundano y a lo trascendental; *yathā*—tal como es; *rūpe*—en la forma; *jānīyām*—que sea conocido; *te*—Tu; *tu*—pero; *arūpiṇaḥ*—aquel que no tiene forma.

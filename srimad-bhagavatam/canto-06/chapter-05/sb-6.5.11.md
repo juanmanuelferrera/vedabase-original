@@ -1,11 +1,11 @@
 ### SB 6.5.11
 
-> भूः क्षेत्रं जीवसंज्ञअं यदनादि निजबन्धनम
+> भूः क्षेत्रं जीवसंज्ञअं यदनादि निजबन्धनम\
 > अदृष्ट्वा तस्य निर्वाणं किमसत्कर्मभिर्भवेत ॥११॥
 
-> bhūḥ kṣetraṁ jīva-saṁjñaṁ yad
-> anādi nija-bandhanam
-> adṛṣṭvā tasya nirvāṇaṁ
+> bhūḥ kṣetraṁ jīva-saṁjñaṁ yad\
+> anādi nija-bandhanam\
+> adṛṣṭvā tasya nirvāṇaṁ\
 > kim asat-karmabhir bhavet
 
 *bhūḥ*—the earth; *kṣetram*—the field of activities; *jīva-saṁjñam*—the designation of the spiritual living being who is bound by different results of activity; *yat*—which; *anādi*—existing since time immemorial; *nija-bandhanam*—causing his own bondage; *adṛṣṭvā*—without seeing; *tasya*—of this; *nirvāṇam*—the cessation; *kim*—what benefit; *asat-karmabhiḥ*—with temporary fruitive activities; *bhavet*—there can be.

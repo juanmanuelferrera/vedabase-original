@@ -1,11 +1,11 @@
 ### CC Antya 17.42
 
-> কহ, সখি, কি করি উপায় ?
-> কৃষ্ণের সে শব্দ-গুণে, হরিলে আমার কাণে,
+> কহ, সখি, কি করি উপায় ?\
+> কৃষ্ণের সে শব্দ-গুণে, হরিলে আমার কাণে,\
 > এবে না পায়, তৃষ্ণায় মরি’ যায় ।। ৪২ ।। ধ্রু ।। ॥৪২॥
 
-> kaha, sakhi, ki kari upāya?
-> kṛṣṇera se śabda-guṇe, harile āmāra kāṇe,
+> kaha, sakhi, ki kari upāya?\
+> kṛṣṇera se śabda-guṇe, harile āmāra kāṇe,\
 > ebe nā pāya, tṛṣṇāya mari' yāya
 
 *kaha*—por favor di; *sakhi*—Mi querida amiga; *ki*—qué; *kari*—puedo hacer; *upāya*—medios; *kṛṣṇera*—de Kṛṣṇa; *se*—esas; *śabda*—del sonido; *guṇe*—las cualidades; *harile*—habiendo atraído; *āmāra*—Mis; *kāṇe*—oídos; *ebe*—ahora; *nā pāya*—no obtienen; *tṛṣṇāya*—de sed; *mari' yāya*—estoy muriendo.

@@ -1,9 +1,9 @@
 ### CC Madhya 17.147
 
-> সেই তিন সঙ্গে চলে, প্রভু নিষেধিল ।
+> সেই তিন সঙ্গে চলে, প্রভু নিষেধিল ।\
 > দূর হৈতে তিনজনে ঘরে পাঠাইল ॥১৪৭॥
 
-> sei tina saṅge cale, prabhu niṣedhila
+> sei tina saṅge cale, prabhu niṣedhila\
 > dūra haite tina-jane ghare pāṭhāila
 
 *sei tina*—those three; *saṅge*—with Śrī Caitanya Mahāprabhu; *cale*—go; *prabhu*—Śrī Caitanya Mahāprabhu; *niṣedhila*—forbade; *dūra haite*—from a distance; *tina-jane*—the three persons; *ghare*—home; *pāṭhāila*—sent back.

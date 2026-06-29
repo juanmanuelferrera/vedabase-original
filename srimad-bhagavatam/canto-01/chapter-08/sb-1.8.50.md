@@ -1,11 +1,11 @@
 ### SB 1.8.50
 
-> नैनो राज्ञः प्रजाभर्तुर्धर्मयुद्धे वधो द्विषाम् ।
+> नैनो राज्ञः प्रजाभर्तुर्धर्मयुद्धे वधो द्विषाम् ।\
 > इति मे न तु बोधाय कल्पते शासनं वचः ॥५०॥
 
-> naino rājñaḥ prajā-bhartur
-> dharma-yuddhe vadho dviṣām
-> iti me na tu bodhāya
+> naino rājñaḥ prajā-bhartur\
+> dharma-yuddhe vadho dviṣām\
+> iti me na tu bodhāya\
 > kalpate śāsanaṁ vacaḥ
 
 *na*—never; *enaḥ*—sins; *rājñaḥ*—of the king; *prajā-bhartuḥ*—of one who is engaged in the maintenance of the citizens; *dharma*—for the right cause; *yuddhe*—in the fight; *vadhaḥ*—killing; *dviṣām*—of the enemies; *iti*—all these; *me*—for me; *na*—never; *tu*—but; *bodhāya*—for satisfaction; *kalpate*—they are meant for administration; *śāsanam*—injunction; *vacaḥ*—words of.

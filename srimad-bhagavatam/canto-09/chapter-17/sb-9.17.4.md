@@ -1,13 +1,13 @@
 ### SB 9.17.4
 
-> काश्यस्य काशिस्तत्पुत्रो राष्ट्रो दीर्घतमःपिता
+> काश्यस्य काशिस्तत्पुत्रो राष्ट्रो दीर्घतमःपिता\
 > धन्वन्तरिर्दीर्घतमस आयुर्वेदप्रवर्तकः ॥४॥
 
-> kāśyasya kāśis tat-putro
-> rāṣṭro dīrghatamaḥ-pitā
-> dhanvantarir dīrghatamasa
-> āyur-veda-pravartakaḥ
-> yajña-bhug vāsudevāṁśaḥ
+> kāśyasya kāśis tat-putro\
+> rāṣṭro dīrghatamaḥ-pitā\
+> dhanvantarir dīrghatamasa\
+> āyur-veda-pravartakaḥ\
+> yajña-bhug vāsudevāṁśaḥ\
 > smṛta-mātrārti-nāśanaḥ
 
 *kāśyasya*—of Kāśya; *kāśiḥ*—Kāśi; *tat-putraḥ*—his son; *rāṣṭraḥ*—Rāṣṭra; *dīrghatamaḥ-pitā*—he became the father of Dīrghatama; *dhanvantariḥ*—Dhanvantari; *dīrghatamasaḥ*—from Dīrghatama; *āyuḥ-veda-pravartakaḥ*—the inaugurator of medical science, *Āyur Veda*; *yajña-bhuk*—the enjoyer of the results of sacrifice; *vāsudeva-aṁśaḥ*—incarnation of Lord Vāsudeva; *smṛta-mātra*—if he is remembered; *ārti-nāśanaḥ*—it immediately vanquishes all kinds of disease.

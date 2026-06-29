@@ -1,11 +1,11 @@
 ### SB 2.10.33
 
-> एतद्भगवतो रूपं स्थूलं ते व्याहृतं मया ।
+> एतद्भगवतो रूपं स्थूलं ते व्याहृतं मया ।\
 > मह्यादिभिश्चावरणैरष्टभिर्बहिरावृतम् ॥३३॥
 
-> etad bhagavato rūpaṁ
-> sthūlaṁ te vyāhṛtaṁ mayā
-> mahy-ādibhiś cāvaraṇair
+> etad bhagavato rūpaṁ\
+> sthūlaṁ te vyāhṛtaṁ mayā\
+> mahy-ādibhiś cāvaraṇair\
 > aṣṭabhir bahir āvṛtam
 
 *etat*—todos estos; *bhagavataḥ*—de la Personalidad de Dios; *rūpam*—forma; *sthūlam*—tosco; *te*—a ti; *vyāhṛtam*—explicada; *mayā*—por mí; *mahī*—los planetas; *ādibhiḥ*—y así sucesivamente; *ca*—ilimitadamente; *avaraṇaiḥ*—mediante coberturas; *aṣṭabhiḥ*—mediante ocho; *bahiḥ*—externas; *āvṛtam*—cubierta.

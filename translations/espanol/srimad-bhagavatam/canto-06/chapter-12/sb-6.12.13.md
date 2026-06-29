@@ -1,11 +1,11 @@
 ### SB 6.12.13
 
-> आयुः श्रीः कीर्तिरैश्वर्यमाशिषः पुरुषस्य याः
+> आयुः श्रीः कीर्तिरैश्वर्यमाशिषः पुरुषस्य याः\
 > भवन्त्येव हि तत्काले यथानिच्छोर्विपर्ययाः ॥१३॥
 
-> āyuḥ śrīḥ kīrtir aiśvaryam
-> āśiṣaḥ puruṣasya yāḥ
-> bhavanty eva hi tat-kāle
+> āyuḥ śrīḥ kīrtir aiśvaryam\
+> āśiṣaḥ puruṣasya yāḥ\
+> bhavanty eva hi tat-kāle\
 > yathānicchor viparyayāḥ
 
 *āyuḥ*—longevidad; *śrīḥ*—opulencia; *kīrtiḥ*—fama; *aiśvaryam*—poder; *āśiṣaḥ*—bendiciones; *puruṣasya*—de la entidad viviente; *yāḥ*—que; *bhavanti*—surgen; *eva*—en verdad; *hi*—ciertamente; *tat-kāle*—en ese momento adecuado; *yathā*—tal y como; *anicchoḥ*—de quien no desea; *viparyayāḥ*—condiciones adversas.

@@ -1,11 +1,11 @@
 ### Bg 4.34
 
-> तद्विद्धि प्रणिपातेन परिप्रश्नेन सेवया ।
+> तद्विद्धि प्रणिपातेन परिप्रश्नेन सेवया ।\
 > उपदेक्ष्यन्ति ते ज्ञानं ज्ञानिनस्तत्त्वदर्शिनः ॥३४॥
 
-> tad viddhi praṇipātena
-> paripraśnena sevayā
-> upadekṣyanti te jñānaṁ
+> tad viddhi praṇipātena\
+> paripraśnena sevayā\
+> upadekṣyanti te jñānaṁ\
 > jñāninas tattva-darśinaḥ
 
 *tat*—that knowledge of different sacrifices; *viddhi*—try to understand; *praṇipātena*—by approaching a spiritual master; *paripraśnena*—by submissive inquiries; *sevayā*—by the rendering of service; *upadekṣyanti*—initiate; *te*—unto you; *jñānam*—knowledge; *jñāninaḥ*—the self-realized; *tattva*—truth; *darśinaḥ*—the seers.

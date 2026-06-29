@@ -1,9 +1,9 @@
 ### CC Madhya 17.19
 
-> সেই বিপ্র বহি’ নিবে বস্ত্রাম্বুভাজন ।
+> সেই বিপ্র বহি’ নিবে বস্ত্রাম্বুভাজন ।\
 > ভট্টাচার্য ভিক্ষা দিবে করি’ ভিক্ষাটন ॥১৯॥
 
-> sei vipra vahi' nibe vastrāmbu-bhājana
+> sei vipra vahi' nibe vastrāmbu-bhājana\
 > bhaṭṭācārya bhikṣā dibe kari' bhikṣāṭana
 
 *sei vipra*—el otro *brāhmaṇa*; *vahi' nibe*—portará; *vastra-ambu-bhājana*—la ropa y la vasija de agua; *bhaṭṭācārya*—Balabhadra Bhaṭṭācārya; *bhikṣā dibe*—preparará la comida; *kari'*—efectuando; *bhikṣā-aṭana*—la recolección de limosna.

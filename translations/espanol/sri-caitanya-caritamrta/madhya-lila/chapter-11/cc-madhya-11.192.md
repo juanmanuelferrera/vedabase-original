@@ -1,13 +1,13 @@
 ### CC Madhya 11.192
 
-> অহো বত শ্বপচোঽতো গরীয়ান্
-> যজ্জিহ্বাগ্রে বর্ততে নাম তুভ্যম্ ৷
-> তেপুস্তপস্তে জুহুবুঃ সস্নুরার্যা
+> অহো বত শ্বপচোঽতো গরীয়ান্\
+> যজ্জিহ্বাগ্রে বর্ততে নাম তুভ্যম্ ৷\
+> তেপুস্তপস্তে জুহুবুঃ সস্নুরার্যা\
 > ব্রহ্মানূচুর্নাম গৃণন্তি যে তে ৷৷ ১৯২ ৷৷ ॥১৯২॥
 
-> aho bata śva-paco 'to garīyān
-> yaj-jihvāgre vartate nāma tubhyam
-> tepus tapas te juhuvuḥ sasnur āryā
+> aho bata śva-paco 'to garīyān\
+> yaj-jihvāgre vartate nāma tubhyam\
+> tepus tapas te juhuvuḥ sasnur āryā\
 > brahmānūcur nāma gṛṇanti ye te
 
 *aho bata*—¡cuán maravilloso es!; *śva-pacaḥ*—comedores de perros; *ataḥ*—que el *brāhmaṇa* iniciado; *garīyān*—más glorioso; *yat*—de quien; *jihvā-agre*—en la punta de la lengua; *vartate*—permanece; *nāma*—santo nombre; *tubhyam*—de Ti, mi Señor; *tepuḥ*—han realizado; *tapaḥ*—austeridades; *te*—ellos; *juhuvuḥ*—han efectuado sacrificios; *sasnuḥ*—se han bañado en todos los lugares sagrados; *āryāḥ*—pertenecientes realmente a la raza aria; *brahma*—todos los Vedas; *anūcuḥ*—han estudiado; *nāma*—santo nombre; *gṛṇanti*—cantan; *ye*—quienes; *te*—ellos.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.121
 
-> শ্রবণ, কীর্তন স্মরণ, পূজন, বন্দন ।
+> শ্রবণ, কীর্তন স্মরণ, পূজন, বন্দন ।\
 > পরিচর্যা, দাস্য, সখ্য, আত্মনিবেদন ॥১২১॥
 
-> śravaṇa, kīrtana, smaraṇa, pūjana, vandana
+> śravaṇa, kīrtana, smaraṇa, pūjana, vandana\
 > paricaryā, dāsya, sakhya, ātma-nivedana
 
 *śravaṇa*—hearing; *kīrtana*—chanting; *smaraṇa*—remembering; *pūjana*—worshiping; *vandana*—praying; *paricaryā*—serving; *dāsya*—accepting servitorship; *sakhya*—friendship; *ātma-nivedana*—surrendering fully.

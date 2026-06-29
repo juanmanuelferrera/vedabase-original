@@ -1,9 +1,9 @@
 ### CC Madhya 20.330
 
-> শুক্ল-রক্ত-কৃষ্ণ-পীত — ক্রমে চারি বর্ণ ।
+> শুক্ল-রক্ত-কৃষ্ণ-পীত — ক্রমে চারি বর্ণ ।\
 > চারি বর্ণ ধরি’ কৃষ্ণ করেন যুগধর্ম ॥৩৩০॥
 
-> śukla-rakta-kṛṣṇa-pīta--krame cāri varṇa
+> śukla-rakta-kṛṣṇa-pīta--krame cāri varṇa\
 > cāri varṇa dhari' kṛṣṇa karena yuga-dharma
 
 *śukla*—blanco; *rakta*—rojo; *kṛṣṇa*—negro; *pīta*—amarillo; *krame*—uno tras otro; *cāri varṇa*—cuatro colores; *cāri varṇa dhari'*—al adoptar estos cuatro colores; *kṛṣṇa*—el Señor Kṛṣṇa; *karena yuga-dharma*—manifiesta Sus pasatiempos en diferentes milenios.

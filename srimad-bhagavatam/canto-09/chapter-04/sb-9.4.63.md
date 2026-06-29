@@ -1,13 +1,13 @@
 ### SB 9.4.63
 
-> श्रीभगवानुवाच
-> अहं भक्तपराधीनो ह्यस्वतन्त्र इव द्विज
+> श्रीभगवानुवाच\
+> अहं भक्तपराधीनो ह्यस्वतन्त्र इव द्विज\
 > साधुभिर्ग्रस्तहृदयो भक्तैर्भक्तजनप्रियः ॥६३॥
 
-> śrī-bhagavān uvāca
-> ahaṁ bhakta-parādhīno
-> hy asvatantra iva dvija
-> sādhubhir grasta-hṛdayo
+> śrī-bhagavān uvāca\
+> ahaṁ bhakta-parādhīno\
+> hy asvatantra iva dvija\
+> sādhubhir grasta-hṛdayo\
 > bhaktair bhakta-jana-priyaḥ
 
 *śrī-bhagavān uvāca*—the Supreme Personality of Godhead said; *aham*—I; *bhakta-parādhīnaḥ*—am dependent on the will of My devotees; *hi*—indeed; *asvatantraḥ*—am not independent; *iva*—exactly like that; *dvija*—O *brāhmaṇa*; *sādhubhiḥ*—by pure devotees, completely free from all material desires; *grasta-hṛdayaḥ*—My heart is controlled; *bhaktaiḥ*—because they are devotees; *bhakta-jana-priyaḥ*—I am dependent not only on My devotee but also on My devotee's devotee (the devotee's devotee is extremely dear to Me).

@@ -1,9 +1,9 @@
 ### CC Madhya 15.254
 
-> আচমন করাঞা ভট্ট দিল মুখবাস ৷
+> আচমন করাঞা ভট্ট দিল মুখবাস ৷\
 > তুলসী-মঞ্জরী, লবঙ্গ, এলাচি রসবাস ॥২৫৪॥
 
-> ācamana karāñā bhaṭṭa dila mukha-vāsa
+> ācamana karāñā bhaṭṭa dila mukha-vāsa\
 > tulasī-mañjarī, lavaṅga, elāci rasa-vāsa
 
 *ācamana karāñā*—lavando la boca, las manos y los pies de Śrī Caitanya Mahāprabhu; *bhaṭṭa*—Sārvabhauma Bhaṭṭācārya; *dila mukha-vāsa*—le dio algunas especias aromáticas; *tulasī-mañjarī*—las flores de tulasī; *lavaṅga*—clavos de olor; *elāci*—cardamomo; *rasa-vāsa*—aquello que produce salivación.

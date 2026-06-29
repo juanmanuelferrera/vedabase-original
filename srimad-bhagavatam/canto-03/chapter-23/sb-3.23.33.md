@@ -1,11 +1,11 @@
 ### SB 3.23.33
 
-> सुदता सुभ्रुवा श्लक्ष्ण स्निग्धापाङ्गेन चक्षुषा ।
+> सुदता सुभ्रुवा श्लक्ष्ण स्निग्धापाङ्गेन चक्षुषा ।\
 > पद्मकोशस्पृधा नीलैरलकैश्च लसन्मुखम् ॥३३॥
 
-> sudatā subhruvā ślakṣṇa-
-> snigdhāpāṅgena cakṣuṣā
-> padma-kośa-spṛdhā nīlair
+> sudatā subhruvā ślakṣṇa-\
+> snigdhāpāṅgena cakṣuṣā\
+> padma-kośa-spṛdhā nīlair\
 > alakaiś ca lasan-mukham
 
 *su-datā*—with beautiful teeth; *su-bhruvā*—with charming eyebrows; *ślakṣṇa*—lovely; *snigdha*—moist; *apāṅgena*—corners of eyes; *cakṣuṣā*—with eyes; *padma-kośa*—lotus buds; *spṛdhā*—defeating; *nīlaiḥ*—bluish; *alakaiḥ*—with curling hair; *ca*—and; *lasat*—shining; *mukham*—countenance.

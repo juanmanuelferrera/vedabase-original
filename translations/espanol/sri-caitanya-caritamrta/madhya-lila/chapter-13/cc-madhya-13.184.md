@@ -2,7 +2,7 @@
 
 > যদ্যপি রাজার দেখি’ হাড়ির সেবন ৷ প্রসন্ন হঞাছে তাঁরে মিলিবারে মন ॥১৮৪॥
 
-> yadyapi rājāra dekhi' hāḍira sevana
+> yadyapi rājāra dekhi' hāḍira sevana\
 > prasanna hañāche tāṅre milibāre mana
 
 *yadyapi*—aunque; *rājāra*—del rey; *dekhi'*—al ver; *hāḍira sevana*—el servicio de barrendero; *prasanna hañāche*—estaba satisfecho; *tāṅre milibāre*—de verle; *mana*—Su mente.

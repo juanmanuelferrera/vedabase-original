@@ -1,11 +1,11 @@
 ### SB 2.9.23
 
-> प्रत्यादिष्टं मया तत्र त्वयि कर्मविमोहिते ।
+> प्रत्यादिष्टं मया तत्र त्वयि कर्मविमोहिते ।\
 > तपो मे हृदयं साक्षादात्माहं तपसोऽनघ ॥२३॥
 
-> pratyādiṣṭaṁ mayā tatra
-> tvayi karma-vimohite
-> tapo me hṛdayaṁ sākṣād
+> pratyādiṣṭaṁ mayā tatra\
+> tvayi karma-vimohite\
+> tapo me hṛdayaṁ sākṣād\
 > ātmāhaṁ tapaso 'nagha
 
 *pratyādiṣṭam*—ordenado; *mayā*—por Mí; *tatra*—debido a; *tvayi*—a ti; *karma*—deber; *vimohite*—estando perplejo; *tapaḥ*—penitencia; *me*—Mi; *hṛdayam*—corazón; *sākṣāt*—directamente; *ātmā*—vida y alma; *aham*—Yo Mismo; *tapasaḥ*—de aquel que está dedicado a la penitencia; *anagha*—¡oh, impecable!.

@@ -1,11 +1,11 @@
 ### SB 4.18.22
 
-> तथाहयो दन्दशूकाः सर्पा नागाश्च तक्षकम् ।
+> तथाहयो दन्दशूकाः सर्पा नागाश्च तक्षकम् ।\
 > विधाय वत्सं दुदुहुर्बिलपात्रे विषं पयः ॥२२॥
 
-> tathāhayo dandaśūkāḥ
-> sarpā nāgāś ca takṣakam
-> vidhāya vatsaṁ duduhur
+> tathāhayo dandaśūkāḥ\
+> sarpā nāgāś ca takṣakam\
+> vidhāya vatsaṁ duduhur\
 > bila-pātre viṣaṁ payaḥ
 
 *tathā*—similarly; *ahayaḥ*—snakes without hoods; *dandaśūkāḥ*—scorpions; *sarpāḥ*—cobras; *nāgāḥ*—big snakes; *ca*—and; *takṣakam*—Takṣaka, chief of the snakes; *vidhāya*—making; *vatsam*—calf; *duduhuḥ*—milked out; *bila-pātre*—in the pot of snake holes; *viṣam*—poison; *payaḥ*—as milk.

@@ -1,11 +1,11 @@
 ### SB 3.5.50
 
-> त्वं नः सुराणामसि सान्वयानां कूटस्थ आद्यः पुरुषः पुराणः ।
+> त्वं नः सुराणामसि सान्वयानां कूटस्थ आद्यः पुरुषः पुराणः ।\
 > त्वं देव शक्त्यां गुणकर्मयोनौ रेतस्त्वजायां कविमादधेऽजः ॥५०॥
 
-> tvaṁ naḥ surāṇām asi sānvayānāṁ
-> kūṭa-stha ādyaḥ puruṣaḥ purāṇaḥ
-> tvaṁ deva śaktyāṁ guṇa-karma-yonau
+> tvaṁ naḥ surāṇām asi sānvayānāṁ\
+> kūṭa-stha ādyaḥ puruṣaḥ purāṇaḥ\
+> tvaṁ deva śaktyāṁ guṇa-karma-yonau\
 > retas tv ajāyāṁ kavim ādadhe 'jaḥ
 
 *tvam*—Tu Señoría; *naḥ*—de nosotros; *surāṇām*—de los semidioses; *asi*—Tú eres; *sa-anvayānām*—con diferentes gradaciones; *kūṭa-sthaḥ*—aquel que es inmutable; *ādyaḥ*—que no tiene ningún superior; *puruṣaḥ*—la persona fundadora; *purāṇaḥ*—el más antiguo de todos, que no tiene ningún otro fundador; *tvam*—Tú; *deva*—¡oh, Señor!; *śaktyām*—a la energía; *guṇa-karma-yonau*—a la causa de las actividades y modalidades materiales; *retaḥ*—semen de nacimiento; *tu*—en verdad; *ajāyām*—para engendrar; *kavim*—todas las entidades vivientes; *ādadhe*—inició; *ajaḥ*—aquel que es innaciente.

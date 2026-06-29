@@ -1,9 +1,9 @@
 ### CC Antya 12.85
 
-> কাষ্ঠের পুতলী যেন কুহকে নাচায় ।
+> কাষ্ঠের পুতলী যেন কুহকে নাচায় ।\
 > ঈশ্বর-চরিত্র কিছু বুঝন না যায় ॥৮৫॥
 
-> kāṣṭhera putalī yena kuhake nācāya
+> kāṣṭhera putalī yena kuhake nācāya\
 > īśvara-caritra kichu bujhana nā yāya
 
 *kāṣṭhera*—made of wood; *putalī*—doll; *yena*—as; *kuhake*—a magician; *nācāya*—causes to dance; *īśvara-caritra*—the characteristic of the Supreme Personality of Godhead; *kichu bujhana nā yāya*—no one can understand.

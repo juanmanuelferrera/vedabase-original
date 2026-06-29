@@ -1,18 +1,18 @@
 ### SB 4.28.35-36
 
-> तत्र चन्द्रवसा नाम ताम्रपर्णी वटोदका ।
-> तत्पुण्यसलिलैर्नित्यमुभयत्रात्मनो मृजन् ॥३५॥
-> कन्दाष्टिभिर्मूलफलैः पुष्पपर्णैस्तृणोदकैः ।
+> तत्र चन्द्रवसा नाम ताम्रपर्णी वटोदका ।\
+> तत्पुण्यसलिलैर्नित्यमुभयत्रात्मनो मृजन् ॥३५॥\
+> कन्दाष्टिभिर्मूलफलैः पुष्पपर्णैस्तृणोदकैः ।\
 > वर्तमानः शनैर्गात्र कर्शनं तप आस्थितः ॥३६॥
 
-> tatra candravasā nāma
-> tāmraparṇī vaṭodakā
-> tat-puṇya-salilair nityam
+> tatra candravasā nāma\
+> tāmraparṇī vaṭodakā\
+> tat-puṇya-salilair nityam\
 > ubhayatrātmano mṛjan
 
-> kandāṣṭibhir mūla-phalaiḥ
-> puṣpa-parṇais tṛṇodakaiḥ
-> vartamānaḥ śanair gātra-
+> kandāṣṭibhir mūla-phalaiḥ\
+> puṣpa-parṇais tṛṇodakaiḥ\
+> vartamānaḥ śanair gātra-\
 > karśanaṁ tapa āsthitaḥ
 
 *tatra*—there; *candravasā*—the Candravasā River; *nāma*—named; *tāmraparṇī*—the Tāmraparṇī River; *vaṭodakā*—the Vaṭodakā River; *tat*—of those rivers; *puṇya*—pious; *salilaiḥ*—with the waters; *nityam*—daily; *ubhayatra*—in both ways; *ātmanaḥ*—of himself; *mṛjan*—washing; *kanda*—bulbs; *aṣṭibhiḥ*—and by seeds; *mūla*—roots; *phalaiḥ*—and by fruits; *puṣpa*—flowers; *parṇaiḥ*—and by leaves; *tṛṇā*—grass; *udakaiḥ*—and by water; *vartamānaḥ*—subsisting; *śanaiḥ*—gradually; *gātra*—his body; *karśanam*—rendering thin; *tapaḥ*—austerity; *āsthitaḥ*—he underwent.

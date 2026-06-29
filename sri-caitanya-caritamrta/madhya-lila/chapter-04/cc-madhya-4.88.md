@@ -1,9 +1,9 @@
 ### CC Madhya 4.88
 
-> পুনঃ দিন-শেষে প্ৰভুর করাইল উত্থান ।
+> পুনঃ দিন-শেষে প্ৰভুর করাইল উত্থান ।\
 > কিছু ভোগ লাগাইল করাইল জলপান ॥৮৮॥
 
-> punaḥ dina-śeṣe prabhura karāila utthāna
+> punaḥ dina-śeṣe prabhura karāila utthāna\
 > kichu bhoga lāgāila karāila jala-pāna
 
 *punaḥ*—again; *dina-śeṣe*—at the end of the day; *prabhura*—of the Lord; *karāila*—caused to do; *utthāna*—rising; *kichu*—some; *bhoga*—food; *lāgāila*—offered; *karāila*—caused to do; *jala*—water; *pāna*—drinking.

@@ -1,11 +1,11 @@
 ### SB 7.3.24
 
-> स निरीक्ष्याम्बरे देवं हंसवाहमुपस्थितम
+> स निरीक्ष्याम्बरे देवं हंसवाहमुपस्थितम\
 > ननाम शिरसा भूमौ तद्दर्शनमहोत्सवः ॥२४॥
 
-> sa nirīkṣyāmbare devaṁ
-> haṁsa-vāham upasthitam
-> nanāma śirasā bhūmau
+> sa nirīkṣyāmbare devaṁ\
+> haṁsa-vāham upasthitam\
+> nanāma śirasā bhūmau\
 > tad-darśana-mahotsavaḥ
 
 *saḥ*—he (Hiraṇyakaśipu); *nirīkṣya*—seeing; *ambare*—in the sky; *devam*—the supreme demigod; *haṁsa-vāham*—who rides a swan airplane; *upasthitam*—situated before him; *nanāma*—offered obeisances; *śirasā*—with his head; *bhūmau*—on the ground; *tat-darśana*—by seeing Lord Brahmā; *mahā-utsavaḥ*—very much pleased.

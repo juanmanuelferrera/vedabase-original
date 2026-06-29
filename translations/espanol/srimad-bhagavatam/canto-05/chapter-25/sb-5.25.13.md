@@ -1,13 +1,13 @@
 ### SB 5.25.13
 
-> एवम्प्रभावो भगवाननन्तो
-> दुरन्तवीर्योरुगुणानुभावः
-> मूले रसायाः स्थित आत्मतन्त्रो
+> एवम्प्रभावो भगवाननन्तो\
+> दुरन्तवीर्योरुगुणानुभावः\
+> मूले रसायाः स्थित आत्मतन्त्रो\
 > यो लीलया क्ष्मां स्थितये बिभर्ति ॥१३॥
 
-> evam-prabhāvo bhagavān ananto
-> duranta-vīryoru-guṇānubhāvaḥ
-> mūle rasāyāḥ sthita ātma-tantro
+> evam-prabhāvo bhagavān ananto\
+> duranta-vīryoru-guṇānubhāvaḥ\
+> mūle rasāyāḥ sthita ātma-tantro\
 > yo līlayā kṣmāṁ sthitaye bibharti
 
 *evam-prabhāvaḥ*—que es tan poderoso; *bhagavān*—la Suprema Personalidad de Dios; *anantaḥ*—Ananta; *duranta-vīrya*—poderío insuperable; *uru*—grande; *guṇa-anubhāvaḥ*—con cualidades y glorias trascendentales; *mūle*—en la base; *rasāyāḥ*—de los sistemas planetarios inferiores; *sthitaḥ*—que existe; *ātma-tantraḥ*—autosuficiente por completo; *yaḥ*—quien; *līlayā*—fácilmente; *kṣmām*—el universo; *sthitaye*—para su mantenimiento; *bibharti*—sostiene.

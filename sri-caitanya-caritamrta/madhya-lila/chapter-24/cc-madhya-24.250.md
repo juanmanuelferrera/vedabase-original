@@ -1,9 +1,9 @@
 ### CC Madhya 24.250
 
-> ব্যাধ তুমি, জীব মার — ‘অল্প’ অপরাধ তোমার ।
+> ব্যাধ তুমি, জীব মার — ‘অল্প’ অপরাধ তোমার ।\
 > কদর্থনা দিয়া মার’ — এ পাপ ‘অপার’ ॥২৫০॥
 
-> vyādha tumi, jīva māra—'alpa' aparādha tomāra
+> vyādha tumi, jīva māra—'alpa' aparādha tomāra\
 > kadarthanā diyā māra'—e pāpa 'apāra'
 
 *vyādha tumi*—you are a hunter; *jīva māra*—your occupation is to kill animals; *alpa*—slight; *aparādha*—offense; *tomāra*—your; *kadarthanā diyā*—unnecessarily giving them pain; *māra'*—when you kill; *e pāpa apāra*—this sinful activity is unlimited.

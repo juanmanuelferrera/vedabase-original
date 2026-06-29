@@ -1,9 +1,9 @@
 ### CC Antya 4.174
 
-> ‘প্রাকৃত’ হৈলেহ তোমার বপু নারি উপেক্ষিতে ।
+> ‘প্রাকৃত’ হৈলেহ তোমার বপু নারি উপেক্ষিতে ।\
 > ভদ্রাভদ্র-বস্তুজ্ঞান নাহিক ‘প্রাকৃতে’ ॥১৭৪॥
 
-> 'prākṛta' haile ha tomāra vapu nāri upekṣite
+> 'prākṛta' haile ha tomāra vapu nāri upekṣite\
 > bhadrābhadra-vastu-jñāna nāhika 'prākṛte'
 
 *prākṛta*—material; *haile ha*—incluso si fuera; *tomāra*—tu; *vapu*—cuerpo; *nāri*—no puedo; *upekṣite*—desatender; *bhadra-abhadra*—bueno y malo; *vastu-jñāna*—apreciación de las cosas; *nāhika*—no hay; *prākṛte*—en el mundo material.

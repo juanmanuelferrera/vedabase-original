@@ -1,9 +1,9 @@
 ### CC Adi 10.110
 
-> শ্রীনাথ মিশ্র, শুভানন্দ, শ্রীরাম, ঈশান ।
+> শ্রীনাথ মিশ্র, শুভানন্দ, শ্রীরাম, ঈশান ।\
 > শ্রীনিধি, শ্রীগোপীকান্ত, মিশ্র ভগবান্ ॥১১০॥
 
-> śrīnātha miśra, śubhānanda, śrīrāma, īśāna
+> śrīnātha miśra, śubhānanda, śrīrāma, īśāna\
 > śrīnidhi, śrīgopīkānta, miśra bhagavān
 
 *śrīnātha miśra*—de nombre Śrīnātha Miśra; *śubhānanda*—de nombre Śubhānanda; *śrīrāma*—de nombre Śrīrāma; *īśāna*—de nombre Īśāna; *śrīnidhi*—de nombre Śrīnidhi; *śrī-gopīkānta*—de nombre Śrī Gopīkānta; *miśra bhagavān*—de nombre Miśra Bhagavān.

@@ -1,9 +1,9 @@
 ### CC Antya 7.30
 
-> শুদ্ধভাবে সখা করে স্কন্ধে আরোহণ ।
+> শুদ্ধভাবে সখা করে স্কন্ধে আরোহণ ।\
 > শুদ্ধভাবে ব্রজেশ্বরী করেন বন্ধন ॥৩০॥
 
-> śuddha-bhāve sakhā kare skandhe ārohaṇa
+> śuddha-bhāve sakhā kare skandhe ārohaṇa\
 > śuddha-bhāve vrajeśvarī karena bandhana
 
 *śuddha-bhāve*—in pure consciousness; *sakhā*—friend; *kare*—does; *skandhe*—on the shoulder; *ārohaṇa*—rising; *śuddha-bhāve*—in pure consciousness; *vraja-īśvarī*—the Queen of Vraja; *karena bandhana*—binds.

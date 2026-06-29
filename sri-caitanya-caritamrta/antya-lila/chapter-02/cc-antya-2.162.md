@@ -1,9 +1,9 @@
 ### CC Antya 2.162
 
-> বর্ষান্তরে শিবানন্দ সব ভক্ত লঞা ।
+> বর্ষান্তরে শিবানন্দ সব ভক্ত লঞা ।\
 > প্রভুরে মিলিলা আসি’ আনন্দিত হঞা ॥১৬২॥
 
-> varṣāntare śivānanda saba bhakta lañā
+> varṣāntare śivānanda saba bhakta lañā\
 > prabhure mililā āsi' ānandita hañā
 
 *varṣa-antare*—at the end of the year; *śivānanda*—Śivānanda Sena; *saba*—all; *bhakta lañā*—taking the devotees; *prabhure mililā*—met Śrī Caitanya Mahāprabhu; *āsi'*—coming; *ānandita hañā*—becoming greatly happy.

@@ -1,11 +1,11 @@
 ### SB 5.20.23
 
-> आपः पुरुषवीर्याः स्थ पुनन्तीर्भूर्भुवःसुवः
+> आपः पुरुषवीर्याः स्थ पुनन्तीर्भूर्भुवःसुवः\
 > ता नः पुनीतामीवघ्नीः स्पृशतामात्मना भुव इति ॥२३॥
 
-> āpaḥ puruṣa-vīryāḥ stha
-> punantīr bhūr-bhuvaḥ-suvaḥ
-> tā naḥ punītāmīva-ghnīḥ
+> āpaḥ puruṣa-vīryāḥ stha\
+> punantīr bhūr-bhuvaḥ-suvaḥ\
+> tā naḥ punītāmīva-ghnīḥ\
 > spṛśatām ātmanā bhuva iti
 
 *āpaḥ*—¡oh, agua!; *puruṣa-vīryāḥ*—dotada con la energía de la Suprema Personalidad de Dios; *stha*—tú estás; *punantīḥ*—santificando; *bhūḥ*—del sistema planetario que recibe el nombre de Bhūḥ; *bhuvaḥ*—del sistema planetario Bhuvaḥ; *suvaḥ*—del sistema planetario Svaḥ; *tāḥ*—ese agua; *naḥ*—de nosotros; *punīta*—purifica; *amīva-ghnīḥ*—que destruye el pecado; *spṛśatām*—de aquellos que tocan; *ātmanā*—por tu posición constitucional; *bhuvaḥ*—los cuerpos; *iti*—así.

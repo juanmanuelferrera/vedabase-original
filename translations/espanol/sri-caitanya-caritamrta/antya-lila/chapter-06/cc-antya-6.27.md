@@ -1,9 +1,9 @@
 ### CC Antya 6.27
 
-> আমি যৈছে পিতার, তৈছে তোমার বালক  ।
+> আমি যৈছে পিতার, তৈছে তোমার বালক  ।\
 > আমি তোমার পাল্য, তুমি আমার পালক ॥২৭॥
 
-> āmi yaiche pitāra, taiche tomāra bālaka
+> āmi yaiche pitāra, taiche tomāra bālaka\
 > āmi tomāra pālya, tumi āmāra pālaka
 
 *āmi*—yo; *yaiche*—tal como; *pitāra*—de mi padre; *taiche*—de igual manera; *tomāra*—tu; *bālaka*—hijo; *āmi*—yo; *tomāra*—tu; *pālya*—persona a la que hay que mantener; *tumi*—tú; *āmāra*—mi; *pālaka*—sustentador.

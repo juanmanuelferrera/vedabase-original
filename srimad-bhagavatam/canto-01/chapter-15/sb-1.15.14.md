@@ -1,11 +1,11 @@
 ### SB 1.15.14
 
-> यद्बान्धवः कुरुबलाब्धिमनन्तपारमेको रथेन ततरेऽहमतीर्यसत्त्वम् ।
+> यद्बान्धवः कुरुबलाब्धिमनन्तपारमेको रथेन ततरेऽहमतीर्यसत्त्वम् ।\
 > प्रत्याहृतं बहु धनं च मया परेषां तेजास्पदं मणिमयं च हृतं शिरोभ्यः ॥१४॥
 
-> yad-bāndhavaḥ kuru-balābdhim ananta-pāram
-> eko rathena tatare 'ham atīrya-sattvam
-> pratyāhṛtaṁ bahu dhanaṁ ca mayā pareṣāṁ
+> yad-bāndhavaḥ kuru-balābdhim ananta-pāram\
+> eko rathena tatare 'ham atīrya-sattvam\
+> pratyāhṛtaṁ bahu dhanaṁ ca mayā pareṣāṁ\
 > tejāspadaṁ maṇimayaṁ ca hṛtaṁ śirobhyaḥ
 
 *yat-bāndhavaḥ*—by whose friendship only; *kuru-bala-abdhim*—the ocean of the military strength of the Kurus; *ananta-pāram*—which was insurmountable; *ekaḥ*—alone; *rathena*—being seated on the chariot; *tatare*—was able to cross over; *aham*—myself; *atīrya*—invincible; *sattvam*—existence; *pratyāhṛtam*—drew back; *bahu*—very large quantity; *dhanam*—wealth; *ca*—also; *mayā*—by my; *pareṣām*—of the enemy; *teja-āspadam*—source of brilliance; *maṇi-mayam*—bedecked with jewels; *ca*—also; *hṛtam*—taken by force; *śirobhyaḥ*—from their heads.

@@ -1,9 +1,9 @@
 ### CC Adi 17.22
 
-> কলিকালে নামরূপে কৃষ্ণ-অবতার ।
+> কলিকালে নামরূপে কৃষ্ণ-অবতার ।\
 > নাম হৈতে হয় সর্বজগৎ-নিস্তার ॥২২॥
 
-> kali-kāle nāma-rūpe kṛṣṇa-avatāra
+> kali-kāle nāma-rūpe kṛṣṇa-avatāra\
 > nāma haite haya sarva-jagat-nistāra
 
 *kali-kāle*—in this Age of Kali; *nāma-rūpe*—in the form of the holy name; *kṛṣṇa*—Lord Kṛṣṇa; *avatāra*—incarnation; *nāma*—holy name; *haite*—from; *haya*—becomes; *sarva*—all; *jagat*—of the world; *nistāra*—deliverance.

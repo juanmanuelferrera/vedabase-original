@@ -1,11 +1,11 @@
 ### Bg 2.27
 
-> जातस्य हि ध्रुवो मृत्युर्ध्रुवं जन्म मृतस्य च ।
+> जातस्य हि ध्रुवो मृत्युर्ध्रुवं जन्म मृतस्य च ।\
 > तस्मादपरिहार्येऽर्थे न त्वं शोचितुमर्हसि ॥२७॥
 
-> jātasya hi dhruvo mṛtyur
-> dhruvaṁ janma mṛtasya ca
-> tasmād aparihārye 'rthe
+> jātasya hi dhruvo mṛtyur\
+> dhruvaṁ janma mṛtasya ca\
+> tasmād aparihārye 'rthe\
 > na tvaṁ śocitum arhasi
 
 *jātasya*—one who has taken his birth; *hi*—certainly; *dhruvaḥ*—a fact; *mṛtyuḥ*—death; *dhruvam*—it is also a fact; *janma*—birth; *mṛtasya*—of the dead; *ca*—also; *tasmāt*—therefore; *aparihārye*—for that which is unavoidable; *arthe*—in the matter of; *na*—do not; *tvam*—you; *śocitum*—to lament; *arhasi*—deserve.

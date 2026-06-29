@@ -1,11 +1,11 @@
 ### SB 3.26.45
 
-> करम्भपूतिसौरभ्य शान्तोग्राम्लादिभिः पृथक् ।
+> करम्भपूतिसौरभ्य शान्तोग्राम्लादिभिः पृथक् ।\
 > द्रव्यावयववैषम्याद्गन्ध एको विभिद्यते ॥४५॥
 
-> karambha-pūti-saurabhya-
-> śāntogrāmlādibhiḥ pṛthak
-> dravyāvayava-vaiṣamyād
+> karambha-pūti-saurabhya-\
+> śāntogrāmlādibhiḥ pṛthak\
+> dravyāvayava-vaiṣamyād\
 > gandha eko vibhidyate
 
 *karambha*—mixto; *pūti*—fétido; *saurabhya*—fragante; *śānta*—suave; *ugra*—fuerte, acre; *amla*—ácido; *ādibhiḥ*—etc.; *pṛthak*—por separado; *dravya*—de sustancia; *avayava*—de porciones; *vaiṣamyāt*—según la diversidad; *gandhaḥ*—el olor; *ekaḥ*—uno; *vibhidyate*—se divide.

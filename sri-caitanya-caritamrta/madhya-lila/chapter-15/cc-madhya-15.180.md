@@ -1,13 +1,13 @@
 ### CC Madhya 15.180
 
-> জয় জয় জহ্যজামজিত দোষগৃভীতগুণাং
-> ত্বমসি যদাত্মনা সমবরুদ্ধসমস্তভগঃ ।
-> অগজগদোকসামখিলশক্ত্যববোধক তে
+> জয় জয় জহ্যজামজিত দোষগৃভীতগুণাং\
+> ত্বমসি যদাত্মনা সমবরুদ্ধসমস্তভগঃ ।\
+> অগজগদোকসামখিলশক্ত্যববোধক তে\
 > ক্বচিদজয়াত্মনা চ চরতোঽনুচরেন্নিগমঃ ।।” ॥১৮০॥
 
-> jaya jaya jahy ajām ajita doṣa-gṛbhīta-guṇāṁ
-> tvam asi yad ātmanā samavaruddha-samasta-bhagaḥ
-> aga-jagad-okasām akhila-śakty-avabodhaka te
+> jaya jaya jahy ajām ajita doṣa-gṛbhīta-guṇāṁ\
+> tvam asi yad ātmanā samavaruddha-samasta-bhagaḥ\
+> aga-jagad-okasām akhila-śakty-avabodhaka te\
 > kvacid ajayātmanā ca carato 'nucaren nigamaḥ"
 
 *jaya jaya*—kindly exhibit Your glory; *jahi*—please conquer; *ajām*—nescience, *māyā*; *ajita*—O unconquerable one; *doṣa*—faulty; *gṛbhīta-guṇām*—by which the qualities are accepted; *tvam*—You; *asi*—are; *yat*—because; *ātmanā*—by Your internal potency; *samavaruddha*—possessing; *samasta-bhagaḥ*—all kinds of opulences; *aga*—nonmoving; *jagat*—moving; *okasām*—of the embodied living entities; *akhila*—all; *śakti*—of potencies; *avabodhaka*—master; *te*—You; *kvacit*—sometimes; *ajayā*—by the external energy; *ātmanā*—of Your self; *ca*—also; *carataḥ*—manifesting pastimes (by Your glance); *anucaret*—confirm; *nigamaḥ*—all the Vedas.

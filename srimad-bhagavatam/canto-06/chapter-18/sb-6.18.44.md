@@ -1,11 +1,11 @@
 ### SB 6.18.44
 
-> इति सञ्चिन्त्य भगवान्मारीचः कुरुनन्दन
+> इति सञ्चिन्त्य भगवान्मारीचः कुरुनन्दन\
 > उवाच किञ्चित्कुपित आत्मानं च विगर्हयन ॥४४॥
 
-> iti sañcintya bhagavān
-> mārīcaḥ kurunandana
-> uvāca kiñcit kupita
+> iti sañcintya bhagavān\
+> mārīcaḥ kurunandana\
+> uvāca kiñcit kupita\
 > ātmānaṁ ca vigarhayan
 
 *iti*—thus; *sañcintya*—thinking; *bhagavān*—the powerful; *mārīcaḥ*—Kaśyapa Muni; *kuru-nandana*—O descendant of Kuru; *uvāca*—spoke; *kiñcit*—somewhat; *kupitaḥ*—angry; *ātmānam*—himself; *ca*—and; *vigarhayan*—condemning.

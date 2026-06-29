@@ -1,14 +1,14 @@
 ### SB 1.3.44
 
-> तत्र कीर्तयतो विप्रा विप्रर्षेर्भूरितेजसः ।
-> अहं चाध्यगमं तत्र निविष्टस्तदनुग्रहात् ।
+> तत्र कीर्तयतो विप्रा विप्रर्षेर्भूरितेजसः ।\
+> अहं चाध्यगमं तत्र निविष्टस्तदनुग्रहात् ।\
 > सोऽहं वः श्रावयिष्यामि यथाधीतं यथामति ॥४४॥
 
-> tatra kīrtayato viprā
-> viprarṣer bhūri-tejasaḥ
-> ahaṁ cādhyagamaṁ tatra
-> niviṣṭas tad-anugrahāt
-> so 'haṁ vaḥ śrāvayiṣyāmi
+> tatra kīrtayato viprā\
+> viprarṣer bhūri-tejasaḥ\
+> ahaṁ cādhyagamaṁ tatra\
+> niviṣṭas tad-anugrahāt\
+> so 'haṁ vaḥ śrāvayiṣyāmi\
 > yathādhītaṁ yathā-mati
 
 *tatra*—ahí; *kīrtayataḥ*—mientras recitaba; *viprāḥ*—¡oh, *brāhmaṇas*!; *vipra-ṛṣeḥ*—del gran *brāhmaṇa*; *bhūri*—sumamente; *tejasaḥ*—poderoso; *aham*—yo; *ca*—también; *adhyagamam*—pude entender; *tatra*—en esa reunión; *niviṣṭaḥ*—estando perfectamente atento; *tat-anugrahāt*—por su misericordia; *saḥ*—esa misma cosa; *aham*—yo; *vaḥ*—a ustedes; *śrāvayiṣyāmi*—les haré oír; *yathā-adhītam yathā-mati*—hasta donde he comprendido.

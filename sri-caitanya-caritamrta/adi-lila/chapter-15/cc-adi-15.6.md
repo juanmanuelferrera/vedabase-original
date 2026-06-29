@@ -1,9 +1,9 @@
 ### CC Adi 15.6
 
-> অল্পকালে হৈলা পঞ্জী-টীকাতে প্রবীণ ।
+> অল্পকালে হৈলা পঞ্জী-টীকাতে প্রবীণ ।\
 > চিরকালের পড়ুয়া জিনে হইয়া নবীন ॥৬॥
 
-> alpa-kāle hailā pañjī-ṭīkāte pravīṇa
+> alpa-kāle hailā pañjī-ṭīkāte pravīṇa\
 > cira-kālera paḍuyā jine ha-iyā navīna
 
 *alpa-kāle*—within a very short time; *hailā*—became; *pañjī-ṭīkāte*—in the commentary on grammar named *Pañjī-ṭīkā*; *pravīṇa*—very expert; *cira-kālera*—all older; *paḍuyā*—students; *jine*—conquers; *ha-iyā*—being; *navīna*—their junior.

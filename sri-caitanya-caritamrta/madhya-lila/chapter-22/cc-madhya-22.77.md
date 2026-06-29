@@ -1,9 +1,9 @@
 ### CC Madhya 22.77
 
-> সেই সব গুণ হয় বৈষ্ণব-লক্ষণ ।
+> সেই সব গুণ হয় বৈষ্ণব-লক্ষণ ।\
 > সব কহা না যায়, করি দিগ্দরশন ॥৭৭॥
 
-> sei saba guṇa haya vaiṣṇava-lakṣaṇa
+> sei saba guṇa haya vaiṣṇava-lakṣaṇa\
 > saba kahā nā yāya, kari dig-daraśana
 
 *sei saba guṇa*—all those transcendental qualities; *haya*—are; *vaiṣṇava-lakṣaṇa*—the symptoms of a Vaiṣṇava; *saba*—all; *kahā nā yāya*—cannot be explained; *kari*—I shall do; *dik-daraśana*—a general review.

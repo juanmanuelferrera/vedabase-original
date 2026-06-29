@@ -1,11 +1,11 @@
 ### SB 4.11.14
 
-> सम्प्रसन्ने भगवति पुरुषः प्राकृतैर्गुणैः ।
+> सम्प्रसन्ने भगवति पुरुषः प्राकृतैर्गुणैः ।\
 > विमुक्तो जीवनिर्मुक्तो ब्रह्म निर्वाणमृच्छति ॥१४॥
 
-> samprasanne bhagavati
-> puruṣaḥ prākṛtair guṇaiḥ
-> vimukto jīva-nirmukto
+> samprasanne bhagavati\
+> puruṣaḥ prākṛtair guṇaiḥ\
+> vimukto jīva-nirmukto\
 > brahma nirvāṇam ṛcchati
 
 *samprasanne*—con la satisfacción; *bhagavati*—de la Suprema Personalidad de Dios; *puruṣaḥ*—una persona; *prākṛtaiḥ*—de las materiales; *guṇaiḥ*—modalidades de la naturaleza; *vimuktaḥ*—estando liberada; *jīva-nirmuktaḥ*—liberada también del cuerpo sutil; *brahma*—ilimitada; *nirvāṇam*—bienaventuranza espiritual; *ṛcchati*—obtiene.

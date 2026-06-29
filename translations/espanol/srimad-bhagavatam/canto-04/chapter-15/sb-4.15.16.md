@@ -1,11 +1,11 @@
 ### SB 4.15.16
 
-> ब्रह्मा ब्रह्ममयं वर्म भारती हारमुत्तमम् ।
+> ब्रह्मा ब्रह्ममयं वर्म भारती हारमुत्तमम् ।\
 > हरिः सुदर्शनं चक्रं तत्पत्न्यव्याहतां श्रियम् ॥१६॥
 
-> brahmā brahmamayaṁ varma
-> bhāratī hāram uttamam
-> hariḥ sudarśanaṁ cakraṁ
+> brahmā brahmamayaṁ varma\
+> bhāratī hāram uttamam\
+> hariḥ sudarśanaṁ cakraṁ\
 > tat-patny avyāhatāṁ śriyam
 
 *brahmā*—el Señor Brahmā; *brahma-mayam*—hecha de conocimiento espiritual; *varma*—armadura; *bhāratī*—la diosa de la sabiduría; *hāram*—gargantilla; *uttamam*—trascendental; *hariḥ*—la Suprema Personalidad de Dios; *sudarśanam cakram*—disco Sudarśana; *tat-patnī*—Su esposa (Lakṣmī); *avyāhatām*—imperecederas; *śriyam*—belleza y opulencia.

@@ -1,13 +1,13 @@
 ### SB 4.29.2b
 
-> अदृष्टं दृष्टवन्नङ्क्षेद्
-> भूतं स्वप्नवदन्यथा
-> भूतं भवद्भविष्यच्च
+> अदृष्टं दृष्टवन्नङ्क्षेद्\
+> भूतं स्वप्नवदन्यथा\
+> भूतं भवद्भविष्यच्च\
 > सुप्तं सर्वरहोरहः ॥२॥
 
-> adṛṣṭaṁ dṛṣṭavan naṅkṣed
-> bhūtaṁ svapnavad anyathā
-> bhūtaṁ bhavad bhaviṣyac ca
+> adṛṣṭaṁ dṛṣṭavan naṅkṣed\
+> bhūtaṁ svapnavad anyathā\
+> bhūtaṁ bhavad bhaviṣyac ca\
 > suptaṁ sarva-raho-rahaḥ
 
 *adṛṣṭam*—future happiness; *dṛṣṭa-vat*—like direct experience; *naṅkṣet*—becomes vanquished; *bhūtam*—the material existence; *svapnavat*—like a dream; *anyathā*—otherwise; *bhūtam*—which happened in the past; *bhavat*—present; *bhaviṣyat*—future; *ca*—also; *suptam*—a dream; *sarva*—of all; *rahaḥ-rahaḥ*—the secret conclusion.

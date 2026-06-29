@@ -1,11 +1,11 @@
 ### SB 9.16.31
 
-> यो वै हरिश्चन्द्रमखे विक्रीतः पुरुषः पशुः
+> यो वै हरिश्चन्द्रमखे विक्रीतः पुरुषः पशुः\
 > स्तुत्वा देवान्प्रजेशादीन्मुमुचे पाशबन्धनात ॥३१॥
 
-> yo vai hariścandra-makhe
-> vikrītaḥ puruṣaḥ paśuḥ
-> stutvā devān prajeśādīn
+> yo vai hariścandra-makhe\
+> vikrītaḥ puruṣaḥ paśuḥ\
+> stutvā devān prajeśādīn\
 > mumuce pāśa-bandhanāt
 
 *yaḥ*—he who (Śunaḥśepha); *vai*—indeed; *hariścandra-makhe*—in the sacrifice performed by King Hariścandra; *vikrītaḥ*—was sold; *puruṣaḥ*—man; *paśuḥ*—sacrificial animal; *stutvā*—offering prayers; *devān*—to the demigods; *prajā-īśa-ādīn*—headed by Lord Brahmā; *mumuce*—was released; *pāśa-bandhanāt*—from being bound with ropes like an animal.

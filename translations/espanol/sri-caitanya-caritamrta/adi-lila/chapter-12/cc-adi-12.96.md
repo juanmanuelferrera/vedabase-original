@@ -1,9 +1,9 @@
 ### CC Adi 12.96
 
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।\
 > চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৯৬॥
 
-> śrī-rūpa-raghunātha-pade yāra āśa
+> śrī-rūpa-raghunātha-pade yāra āśa\
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
 
 *śrī-rūpa*—Śrīla Rūpa Gosvāmī; *raghunātha*—Śrīla Raghunātha dāsa Gosvāmī; *pade*—a sus pies de loto; *yāra*—cuya; *āśa*—aspiración; *caitanya-caritāmṛta*—el libro llamado Caitanya-caritāmṛta; *kahe*—describe; *kṛṣṇa-dāsa*—Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī.

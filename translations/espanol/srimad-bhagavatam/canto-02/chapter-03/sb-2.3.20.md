@@ -1,11 +1,11 @@
 ### SB 2.3.20
 
-> बिले बतोरुक्रमविक्रमान्ये न शृण्वतः कर्णपुटे नरस्य ।
+> बिले बतोरुक्रमविक्रमान्ये न शृण्वतः कर्णपुटे नरस्य ।\
 > जिह्वासती दार्दुरिकेव सूत न चोपगायत्युरुगायगाथाः ॥२०॥
 
-> bile batorukrama-vikramān ye
-> na śṛṇvataḥ karṇa-puṭe narasya
-> jihvāsatī dārdurikeva sūta
+> bile batorukrama-vikramān ye\
+> na śṛṇvataḥ karṇa-puṭe narasya\
+> jihvāsatī dārdurikeva sūta\
 > na copagāyaty urugāya-gāthāḥ
 
 *bile*—los orificios de la serpiente; *bata*—como; *urukrama*—del Señor, que actúa maravillosamente; *vikramān*—valentía; *ye*—todos estos; *na*—nunca; *śṛṇvataḥ*—oído; *karṇa-puṭe*—los oídos; *narasya*—del hombre; *jihvā*—la lengua; *asatī*—inútil; *dārdurikā*—de las ranas; *iva*—tal como; *sūta*—¡oh, Sūta Gosvāmī!; *na*—nunca; *ca*—también; *upagāyati*—canta en voz alta; *urugāya*—dignas de ser cantadas; *gāthāḥ*—canciones.

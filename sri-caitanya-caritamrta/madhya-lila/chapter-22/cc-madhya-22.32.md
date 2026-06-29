@@ -1,11 +1,11 @@
 ### CC Madhya 22.32
 
-> বিলজ্জমানয়া যস্য স্থাতুমীক্ষাপথেঽমুয়া ।
+> বিলজ্জমানয়া যস্য স্থাতুমীক্ষাপথেঽমুয়া ।\
 > বিমোহিতা বিকত্থন্তে মমাহমিতি দুর্ধিয়ঃ ॥৩২॥
 
-> vilajjamānayā yasya
-> sthātum īkṣā-pathe 'muyā
-> vimohitā vikatthante
+> vilajjamānayā yasya\
+> sthātum īkṣā-pathe 'muyā\
+> vimohitā vikatthante\
 > mamāham iti durdhiyaḥ
 
 *vilajjamānaya*—being ashamed; *yasya*—of whom; *sthātum*—to remain; *īkṣā-pathe*—in the line of sight; *amuyā*—by that (māyā); *vimohitāḥ*—bewildered; *vikatthante*—boast; *mama*—my; *aham*—I; *iti*—thus; *durdhiyaḥ*—having poor intelligence.

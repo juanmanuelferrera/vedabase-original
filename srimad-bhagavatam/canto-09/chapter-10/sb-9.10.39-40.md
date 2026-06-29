@@ -1,18 +1,18 @@
 ### SB 9.10.39-40
 
-> पारमेष्ठ्यान्युपादाय पण्यान्युच्चावचानि च
-> पादयोर्न्यपतत्प्रेम्णा प्रक्लिन्नहृदयेक्षणः ॥३९॥
-> पादुके न्यस्य पुरतः प्राञ्जलिर्बाष्पलोचनः
+> पारमेष्ठ्यान्युपादाय पण्यान्युच्चावचानि च\
+> पादयोर्न्यपतत्प्रेम्णा प्रक्लिन्नहृदयेक्षणः ॥३९॥\
+> पादुके न्यस्य पुरतः प्राञ्जलिर्बाष्पलोचनः\
 > तमाश्लिष्य चिरं दोर्भ्यां स्नापयन्नेत्रजैर्जलैः ॥४०॥
 
-> pāduke nyasya purataḥ
-> prāñjalir bāṣpa-locanaḥ
-> tam āśliṣya ciraṁ dorbhyāṁ
+> pāduke nyasya purataḥ\
+> prāñjalir bāṣpa-locanaḥ\
+> tam āśliṣya ciraṁ dorbhyāṁ\
 > snāpayan netrajair jalaiḥ
 
-> rāmo lakṣmaṇa-sītābhyāṁ
-> viprebhyo ye 'rha-sattamāḥ
-> tebhyaḥ svayaṁ namaścakre
+> rāmo lakṣmaṇa-sītābhyāṁ\
+> viprebhyo ye 'rha-sattamāḥ\
+> tebhyaḥ svayaṁ namaścakre\
 > prajābhiś ca namaskṛtaḥ
 
 *pāduke*—the two wooden shoes; *nyasya*—after placing; *purataḥ*—before Lord Rāmacandra; *prāñjaliḥ*—with folded hands; *bāṣpa-locanaḥ*—with tears in the eyes; *tam*—unto Him, Bharata; *āśliṣya*—embracing; *ciram*—for a long time; *dorbhyām*—with His two arms; *snāpayan*—bathing; *netra-jaiḥ*—coming from His eyes; *jalaiḥ*—with the water; *rāmaḥ*—Lord Rāmacandra; *lakṣmaṇa-sītābhyām*—with Lakṣmaṇa and mother Sītā; *viprebhyaḥ*—unto the learned *brāhmaṇas*; *ye*—also others who; *arha-sattamāḥ*—worthy of being worshiped; *tebhyaḥ*—unto them; *svayam*—personally; *namaḥ-cakre*—offered respectful obeisances; *prajābhiḥ*—by the citizens; *ca*—and; *namaḥ-kṛtaḥ*—was offered obeisances.

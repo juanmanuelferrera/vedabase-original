@@ -1,11 +1,11 @@
 ### CC Madhya 6.109
 
-> যুক্তং সন্তি সর্বত্র ভাষন্তে ব্রাহ্মণা যথা ।
+> যুক্তং সন্তি সর্বত্র ভাষন্তে ব্রাহ্মণা যথা ।\
 > মায়াং মদীয়ামুদ্গৃহ্য বদতাং কিং নু দুর্ঘটম্ ॥১০৯॥
 
-> yuktaṁ ca santi sarvatra
-> bhāṣante brāhmaṇā yathā
-> māyāṁ madīyām udgṛhya
+> yuktaṁ ca santi sarvatra\
+> bhāṣante brāhmaṇā yathā\
+> māyāṁ madīyām udgṛhya\
 > vadatāṁ kiṁ nu durghaṭam
 
 *yuktam*—quite befitting; *ca*—also; *santi*—are; *sarvatra*—everywhere; *bhāṣante*—speak; *brāhmaṇāḥ*—the learned; *yathā*—as much; *māyām*—illusion; *madīyām*—of Me; *udgṛhya*—accepting; *vadatām*—of the speculators; *kim*—what; *nu*—certainly; *durghaṭam*—impossible.

@@ -1,11 +1,11 @@
 ### SB 9.16.11
 
-> दृष्ट्वाग्न्यागार आसीनमावेशितधियं मुनिम
+> दृष्ट्वाग्न्यागार आसीनमावेशितधियं मुनिम\
 > भगवत्युत्तमश्लोके जघ्नुस्ते पापनिश्चयाः ॥११॥
 
-> dṛṣṭvāgny-āgāra āsīnam
-> āveśita-dhiyaṁ munim
-> bhagavaty uttamaśloke
+> dṛṣṭvāgny-āgāra āsīnam\
+> āveśita-dhiyaṁ munim\
+> bhagavaty uttamaśloke\
 > jaghnus te pāpa-niścayāḥ
 
 *dṛṣṭvā*—by seeing; *agni-āgāre*—at the place where the fire sacrifice is performed; *āsīnam*—sitting; *āveśita*—completely absorbed; *dhiyam*—by intelligence; *munim*—the great sage Jamadagni; *bhagavati*—unto the Supreme Personality of Godhead; *uttama-śloke*—who is praised by the best of selected prayers; *jaghnuḥ*—killed; *te*—the sons of Kārtavīryārjuna; *pāpa-niścayāḥ*—determined to commit a greatly sinful act, or the personified sins.

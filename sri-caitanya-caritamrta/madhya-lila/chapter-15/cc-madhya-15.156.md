@@ -1,9 +1,9 @@
 ### CC Madhya 15.156
 
-> সাক্ষাৎ হনুমান্ তুমি শ্ৰীরাম-কিঙ্কর  ।
+> সাক্ষাৎ হনুমান্ তুমি শ্ৰীরাম-কিঙ্কর  ।\
 > তুমি কেনে ছাড়িবে তাঁর চরণ-কমল ॥১৫৬॥
 
-> sākṣāt hanumān tumi śrī-rāma-kiṅkara
+> sākṣāt hanumān tumi śrī-rāma-kiṅkara\
 > tumi kene chāḍibe tāṅra caraṇa-kamala
 
 *sākṣāt*—directly; *hanumān*—Hanumān; *tumi*—you; *śrī-rāma-kiṅkara*—the servant of Śrī Rāma; *tumi*—you; *kene*—why; *chāḍibe*—should give up; *tāṅra*—His; *caraṇa-kamala*—lotus feet.

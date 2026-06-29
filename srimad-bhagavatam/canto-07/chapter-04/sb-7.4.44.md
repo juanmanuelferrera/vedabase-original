@@ -1,13 +1,13 @@
 ### SB 7.4.44
 
-> श्रीयुधिष्ठिर उवाच
-> देवर्ष एतदिच्छामो वेदितुं तव सुव्रत
+> श्रीयुधिष्ठिर उवाच\
+> देवर्ष एतदिच्छामो वेदितुं तव सुव्रत\
 > यदात्मजाय शुद्धाय पितादात्साधवे ह्यघम ॥४४॥
 
-> śrī-yudhiṣṭhira uvāca
-> devarṣa etad icchāmo
-> vedituṁ tava suvrata
-> yad ātmajāya śuddhāya
+> śrī-yudhiṣṭhira uvāca\
+> devarṣa etad icchāmo\
+> vedituṁ tava suvrata\
+> yad ātmajāya śuddhāya\
 > pitādāt sādhave hy agham
 
 *śrī-yudhiṣṭhiraḥ uvāca*—Mahārāja Yudhiṣṭhira inquired; *deva-ṛṣe*—O best saintly person among the demigods; *etat*—this; *icchāmaḥ*—we wish; *veditum*—to know; *tava*—from you; *su-vrata*—having the determination for spiritual advancement; *yat*—because; *ātma-jāya*—unto his own son; *śuddhāya*—who was pure and exalted; *pitā*—the father, Hiraṇyakaśipu; *adāt*—gave; *sādhave*—a great saint; *hi*—indeed; *agham*—trouble.

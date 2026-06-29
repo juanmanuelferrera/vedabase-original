@@ -1,15 +1,15 @@
 ### SB 4.7.28
 
-> सदस्या ऊचुः
-> उत्पत्त्यध्वन्यशरण उरुक्लेशदुर्गेऽन्तकोग्र
-> व्यालान्विष्टे विषयमृगतृष्यात्मगेहोरुभारः ।
-> द्वन्द्वश्वभ्रे खलमृगभये शोकदावेऽज्ञसार्थः
+> सदस्या ऊचुः\
+> उत्पत्त्यध्वन्यशरण उरुक्लेशदुर्गेऽन्तकोग्र\
+> व्यालान्विष्टे विषयमृगतृष्यात्मगेहोरुभारः ।\
+> द्वन्द्वश्वभ्रे खलमृगभये शोकदावेऽज्ञसार्थः\
 > पादौकस्ते शरणद कदा याति कामोपसृष्टः ॥२८॥
 
-> sadasyā ūcuḥ
-> utpatty-adhvany aśaraṇa uru-kleśa-durge 'ntakogra-
-> vyālānviṣṭe viṣaya-mṛga-tṛṣy ātma-gehoru-bhāraḥ
-> dvandva-śvabhre khala-mṛga-bhaye śoka-dāve 'jña-sārthaḥ
+> sadasyā ūcuḥ\
+> utpatty-adhvany aśaraṇa uru-kleśa-durge 'ntakogra-\
+> vyālānviṣṭe viṣaya-mṛga-tṛṣy ātma-gehoru-bhāraḥ\
+> dvandva-śvabhre khala-mṛga-bhaye śoka-dāve 'jña-sārthaḥ\
 > pādaukas te śaraṇada kadā yāti kāmopasṛṣṭaḥ
 
 *sadasyāḥ*—los miembros de la asamblea; *ūcuḥ*—dijeron; *utpatti*—ciclo de nacimientos y muertes; *adhvani*—en el sendero de; *aśaraṇe*—sin tener dónde refugiarse; *uru*—grande; *kleśa*—llena de problemas; *durge*—en la fortaleza inexpugnable; *antaka*—terminación; *ugra*—feroces; *vyāla*—serpientes; *anviṣṭe*—plagada de; *viṣaya*—felicidad material; *mṛga-tṛṣi*—espejismo; *ātma*—cuerpo; *geha*—hogar; *uru*—pesada; *bhāraḥ*—carga; *dvandva*—dual; *śvabhre*—hoyos, fosos de supuesta felicidad y aflicción; *khala*—feroces; *mṛga*—animales; *bhaye*—temerosos de; *śoka-dāve*—el incendio forestal de la lamentación; *ajña-sa-arthaḥ*—en interés de los sinvergüenzas; *pāda-okaḥ*—refugio de Tus pies de loto; *te*—a Ti; *śaraṇa-da*—que da refugio; *kadā*—cuándo; *yāti*—fueron; *kāma-upasṛṣṭaḥ*—afligidos por toda clase de deseos.

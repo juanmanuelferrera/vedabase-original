@@ -1,11 +1,11 @@
 ### SB 1.4.13
 
-> तत्सर्वं नः समाचक्ष्व पृष्टो यदिह किञ्चन ।
+> तत्सर्वं नः समाचक्ष्व पृष्टो यदिह किञ्चन ।\
 > मन्ये त्वां विषये वाचां स्नातमन्यत्र छान्दसात् ॥१३॥
 
-> tat sarvaṁ naḥ samācakṣva
-> pṛṣṭo yad iha kiñcana
-> manye tvāṁ viṣaye vācāṁ
+> tat sarvaṁ naḥ samācakṣva\
+> pṛṣṭo yad iha kiñcana\
+> manye tvāṁ viṣaye vācāṁ\
 > snātam anyatra chāndasāt
 
 *tat*—that; *sarvam*—all; *naḥ*—unto us; *samācakṣva*—clearly explain; *pṛṣṭaḥ*—questioned; *yat iha*—herein; *kiñcana*—all that; *manye*—we think; *tvām*—you; *viṣaye*—in all subjects; *vācām*—meanings of words; *snātam*—fully acquainted; *anyatra*—except; *chāndasāt*—portion of the *Vedas.*

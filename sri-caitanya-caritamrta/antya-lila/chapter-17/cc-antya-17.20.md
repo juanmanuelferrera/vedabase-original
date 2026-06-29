@@ -1,9 +1,9 @@
 ### CC Antya 17.20
 
-> উচ্চ করি’ শ্রবণে করে নামসঙ্কীর্তন ।
+> উচ্চ করি’ শ্রবণে করে নামসঙ্কীর্তন ।\
 > অনেকক্ষণে মহাপ্রভু পাইলা চেতন ॥২০॥
 
-> ucca kari' śravaṇe kare nāma-saṅkīrtana
+> ucca kari' śravaṇe kare nāma-saṅkīrtana\
 > aneka-kṣaṇe mahāprabhu pāilā cetana
 
 *ucca kari'*—very loudly; *śravaṇe*—in the ears; *kare*—perform; *nāma-saṅkīrtana*—chanting of the holy name; *aneka-kṣaṇe*—after a considerable time; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *pāilā cetana*—returned to consciousness.

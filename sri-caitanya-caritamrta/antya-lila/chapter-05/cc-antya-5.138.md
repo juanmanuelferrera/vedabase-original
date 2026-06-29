@@ -1,9 +1,9 @@
 ### CC Antya 5.138
 
-> ঐশ্বর্য-মদে মত্ত ইন্দ্র, — যেন মাতোয়াল ।
+> ঐশ্বর্য-মদে মত্ত ইন্দ্র, — যেন মাতোয়াল ।\
 > বুদ্ধিনাশ হৈল, কেবল নাহিক সাম্ভাল ॥১৩৮॥
 
-> aiśvarya-made matta indra,—yena mātoyāla
+> aiśvarya-made matta indra,—yena mātoyāla\
 > buddhi-nāśa haila, kevala nāhika sāmbhāla
 
 *aiśvarya-made*—being proud of his opulence; *matta*—maddened; *indra*—the King of heaven; *yena*—as if; *mātoyāla*—a mad person; *buddhi-nāśa*—bereft of intelligence; *haila*—became; *kevala*—only; *nāhika*—there is not; *sāmbhāla*—caution.

@@ -1,11 +1,11 @@
 ### SB 3.28.39
 
-> यथा पुत्राच्च वित्ताच्च पृथङ्मर्त्यः प्रतीयते ।
+> यथा पुत्राच्च वित्ताच्च पृथङ्मर्त्यः प्रतीयते ।\
 > अप्यात्मत्वेनाभिमताद्देहादेः पुरुषस्तथा ॥३९॥
 
-> yathā putrāc ca vittāc ca
-> pṛthaṅ martyaḥ pratīyate
-> apy ātmatvenābhimatād
+> yathā putrāc ca vittāc ca\
+> pṛthaṅ martyaḥ pratīyate\
+> apy ātmatvenābhimatād\
 > dehādeḥ puruṣas tathā
 
 *yathā*—as; *putrāt*—from a son; *ca*—and; *vittāt*—from wealth; *ca*—also; *pṛthak*—differently; *martyaḥ*—a mortal man; *pratīyate*—is understood; *api*—even; *ātmatvena*—by nature; *abhimatāt*—for which one has affection; *deha-ādeḥ*—from his material body, senses and mind; *puruṣaḥ*—the liberated soul; *tathā*—similarly.

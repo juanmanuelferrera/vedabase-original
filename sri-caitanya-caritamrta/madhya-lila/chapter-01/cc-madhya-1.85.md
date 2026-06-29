@@ -1,9 +1,9 @@
 ### CC Madhya 1.85
 
-> এইমত মহাপ্রভু দেখি’ জগন্নাথে ।
+> এইমত মহাপ্রভু দেখি’ জগন্নাথে ।\
 > সুভদ্রা-সহিত দেখে, বংশী নাহি হাতে ॥৮৫॥
 
-> ei-mata mahāprabhu dekhi' jagannāthe
+> ei-mata mahāprabhu dekhi' jagannāthe\
 > subhadrā-sahita dekhe, vaṁśī nāhi hāte
 
 *ei-mata*—in this way; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *dekhi'*—after seeing; *jagannāthe*—Lord Jagannātha; *subhadrā*—Subhadrā; *sahita*—with; *dekhe*—He sees; *vaṁśī*—the flute; *nāhi*—not; *hāte*—in the hand.

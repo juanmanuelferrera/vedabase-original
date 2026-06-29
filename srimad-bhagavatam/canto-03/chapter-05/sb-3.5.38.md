@@ -1,11 +1,11 @@
 ### SB 3.5.38
 
-> एते देवाः कला विष्णोः कालमायांशलिङ्गिनः ।
+> एते देवाः कला विष्णोः कालमायांशलिङ्गिनः ।\
 > नानात्वात्स्वक्रियानीशाः प्रोचुः प्राञ्जलयो विभुम् ॥३८॥
 
-> ete devāḥ kalā viṣṇoḥ
-> kāla-māyāṁśa-liṅginaḥ
-> nānātvāt sva-kriyānīśāḥ
+> ete devāḥ kalā viṣṇoḥ\
+> kāla-māyāṁśa-liṅginaḥ\
+> nānātvāt sva-kriyānīśāḥ\
 > procuḥ prāñjalayo vibhum
 
 *ete*—of all these physical elements; *devāḥ*—the controlling demigods; *kalāḥ*—parts and parcels; *viṣṇoḥ*—of the Supreme Personality of Godhead; *kāla*—time; *māyā*—external energy; *aṁśa*—part and parcel; *liṅginaḥ*—so embodied; *nānātvāt*—because of various; *sva-kriyā*—personal duties; *anīśāḥ*—not being able to perform; *procuḥ*—uttered; *prāñjalayaḥ*—fascinating; *vibhum*—unto the Lord.

@@ -1,11 +1,11 @@
 ### SB 8.20.11
 
-> यजन्ति यज्ञअं क्रतुभिर्यमादृता भवन्त आम्नायविधानकोविदाः
+> यजन्ति यज्ञअं क्रतुभिर्यमादृता भवन्त आम्नायविधानकोविदाः\
 > स एव विष्णुर्वरदोऽस्तु वा परो दास्याम्यमुष्मै क्षितिमीप्सितां मुने ॥११॥
 
-> yajanti yajñaṁ kratubhir yam ādṛtā
-> bhavanta āmnāya-vidhāna-kovidāḥ
-> sa eva viṣṇur varado 'stu vā paro
+> yajanti yajñaṁ kratubhir yam ādṛtā\
+> bhavanta āmnāya-vidhāna-kovidāḥ\
+> sa eva viṣṇur varado 'stu vā paro\
 > dāsyāmy amuṣmai kṣitim īpsitāṁ mune
 
 *yajanti*—worship; *yajñam*—who is the enjoyer of sacrifice; *kratubhiḥ*—by the different paraphernalia for sacrifice; *yam*—unto the Supreme Person; *ādṛtāḥ*—very respectfully; *bhavantaḥ*—all of you; *āmnāya-vidhāna-kovidāḥ*—great saintly persons fully aware of the Vedic principles of performing sacrifice; *saḥ*—that; *eva*—indeed; *viṣṇuḥ*—is Lord Viṣṇu, the Supreme Personality of Godhead; *varadaḥ*—either He is prepared to give benedictions; *astu*—He becomes; *vā*—or; *paraḥ*—comes as an enemy; *dāsyāmi*—I shall give; *amuṣmai*—unto Him (unto Lord Viṣṇu, Vāmanadeva); *kṣitim*—the tract of land; *īpsitām*—whatever He has desired; *mune*—O great sage.

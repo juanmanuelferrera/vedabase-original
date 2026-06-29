@@ -1,13 +1,13 @@
 ### CC Antya 1.163
 
-> সখি মুরলি বিশালচ্ছিদ্রজালেন পূর্ণা
-> লঘুরতিকঠিনা ত্বং গ্রন্থিলা নীরসাসি ।
-> তদপি ভজসি শশ্বচ্চুম্বনানন্দসান্দ্রং
+> সখি মুরলি বিশালচ্ছিদ্রজালেন পূর্ণা\
+> লঘুরতিকঠিনা ত্বং গ্রন্থিলা নীরসাসি ।\
+> তদপি ভজসি শশ্বচ্চুম্বনানন্দসান্দ্রং\
 > হরিকরপরিরম্ভং কেন পুণ্যোদয়েন ॥১৬৩॥
 
-> sakhi murali viśāla-cchidra-jalena pūrṇā
-> laghur atikaṭhinā tvaṁ granthilā nīrasāsi
-> tad api bhajasi śvaśvac cumbanānanda-sāndraṁ
+> sakhi murali viśāla-cchidra-jalena pūrṇā\
+> laghur atikaṭhinā tvaṁ granthilā nīrasāsi\
+> tad api bhajasi śvaśvac cumbanānanda-sāndraṁ\
 > hari-kara-parirambhaṁ kena puṇyodayena
 
 *sakhi murali*—O dear friend the flute; *viśāla-chidra-jālena*—with so many big holes in your body (in other words, full of *chidra,* which also means "faults"); *pūrṇā*—full; *laghuḥ*—very light; *atikaṭhinā*—very hard in constitution; *tvam*—you; *granthilā*—full of knots; *nīrasā*—without juice; *asi*—are; *tat api*—therefore; *bhajasi*—you obtain through service; *śvaśvat*—continuously; *cumbana-ānanda*—the transcendental bliss of kissing by the Lord; *sāndram*—intense; *hari-kara-parirambham*—embracing by the hands of Śrī Kṛṣṇa; *kena*—by what; *puṇya-udayena*—means of pious activities.

@@ -1,14 +1,14 @@
 ### SB 8.15.26
 
-> नैनं कश्चित्कुतो वापि प्रतिव्योढुमधीश्वरः
-> पिबन्निव मुखेनेदं लिहन्निव दिशो दश
+> नैनं कश्चित्कुतो वापि प्रतिव्योढुमधीश्वरः\
+> पिबन्निव मुखेनेदं लिहन्निव दिशो दश\
 > दहन्निव दिशो दृग्भिः संवर्ताग्निरिवोत्थितः ॥२६॥
 
-> nainaṁ kaścit kuto vāpi
-> prativyoḍhum adhīśvaraḥ
-> pibann iva mukhenedaṁ
-> lihann iva diśo daśa
-> dahann iva diśo dṛgbhiḥ
+> nainaṁ kaścit kuto vāpi\
+> prativyoḍhum adhīśvaraḥ\
+> pibann iva mukhenedaṁ\
+> lihann iva diśo daśa\
+> dahann iva diśo dṛgbhiḥ\
 > saṁvartāgnir ivotthitaḥ
 
 *na*—no; *enam*—este despliegue; *kaścit*—nadie; *kutaḥ*—de ningún lugar; *vā api*—ni; *prativyoḍhum*—neutralizar; *adhīśvaraḥ*—capaz; *piban iva*—como si bebiese; *mukhena*—con la boca; *idam*—este (mundo); *lihan iva*—como si lamiese; *diśaḥ daśa*—las diez direcciones; *dahan iva*—como si quemase; *diśaḥ*—todas las direcciones; *dṛgbhiḥ*—con la vista; *saṁvarta-agniḥ*—el fuego denominado *saṁvarta*; *iva*—como; *utthitaḥ*—ahora surgido.

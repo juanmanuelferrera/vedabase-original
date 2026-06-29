@@ -1,13 +1,13 @@
 ### SB 4.26.17
 
-> रामा ऊचुः
-> नरनाथ न जानीमस्त्वत्प्रिया यद्व्यवस्यति ।
+> रामा ऊचुः\
+> नरनाथ न जानीमस्त्वत्प्रिया यद्व्यवस्यति ।\
 > भूतले निरवस्तारे शयानां पश्य शत्रुहन् ॥१७॥
 
-> rāmā ūcuḥ
-> nara-nātha na jānīmas
-> tvat-priyā yad vyavasyati
-> bhūtale niravastāre
+> rāmā ūcuḥ\
+> nara-nātha na jānīmas\
+> tvat-priyā yad vyavasyati\
+> bhūtale niravastāre\
 > śayānāṁ paśya śatru-han
 
 *rāmāḥ ūcuḥ*—the women thus spoke; *nara-nātha*—O King; *na jānīmaḥ*—we do not know; *tvat-priyā*—your beloved; *yat vyavasyati*—why she has taken to this sort of life; *bhū-tale*—on the ground; *niravastāre*—without bedding; *śayānām*—lying down; *paśya*—look; *śatru-han*—O killer of enemies.

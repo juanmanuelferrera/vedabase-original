@@ -1,9 +1,9 @@
 ### CC Antya 4.13
 
-> এই ত’ নিশ্চয় করি’ নীলাচলে আইলা ।
+> এই ত’ নিশ্চয় করি’ নীলাচলে আইলা ।\
 > লোকে পুছি’ হরিদাস-স্থানে উত্তরিলা ॥১৩॥
 
-> ei ta' niścaya kari' nīlācale āilā
+> ei ta' niścaya kari' nīlācale āilā\
 > loke puchi' haridāsa-sthāne uttarilā
 
 *ei ta'*—de esta manera; *niścaya kari'*—determinando; *nīlācale āilā*—vino a Jagannātha Purī; *loke puchi'*—preguntando a la gente; *haridāsa-sthāne*—al lugar de Haridāsa Ṭhākura; *uttarilā*—se acercó.

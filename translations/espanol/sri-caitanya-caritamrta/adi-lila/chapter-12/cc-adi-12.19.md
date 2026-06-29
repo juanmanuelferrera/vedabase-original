@@ -1,9 +1,9 @@
 ### CC Adi 12.19
 
-> শ্রীগোপাল-নামে আর আচার্যের সুত ।
+> শ্রীগোপাল-নামে আর আচার্যের সুত ।\
 > তাঁহার চরিত্র, শুন, অত্যন্ত অদ্ভুত ॥১৯॥
 
-> śrī-gopāla-nāme āra ācāryera suta
+> śrī-gopāla-nāme āra ācāryera suta\
 > tāṅhāra caritra, śuna, atyanta adbhuta
 
 *śrī-gopāla*—de nombre Śrī Gopāla; *nāme*—por el nombre; *āra*—otro; *ācāryera*—de Advaita Ācārya; *suta*—hijo; *tāṅhāra*—sus; *caritra*—características; *śuna*—escuchen; *atyanta*—muy; *adbhuta*—maravillosas.

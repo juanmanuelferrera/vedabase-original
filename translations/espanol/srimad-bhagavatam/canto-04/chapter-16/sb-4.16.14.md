@@ -1,11 +1,11 @@
 ### SB 4.16.14
 
-> अस्याप्रतिहतं चक्रं पृथोरामानसाचलात् ।
+> अस्याप्रतिहतं चक्रं पृथोरामानसाचलात् ।\
 > वर्तते भगवानर्को यावत्तपति गोगणैः ॥१४॥
 
-> asyāpratihataṁ cakraṁ
-> pṛthor āmānasācalāt
-> vartate bhagavān arko
+> asyāpratihataṁ cakraṁ\
+> pṛthor āmānasācalāt\
+> vartate bhagavān arko\
 > yāvat tapati go-gaṇaiḥ
 
 *asya*—de este rey; *apratihatam*—sin encontrar obstáculos; *cakram*—el círculo de influencia; *pṛthoḥ*—del rey Pṛthu; *ā-mānasa-acalāt*—hasta la montaña Mānasa; *vartate*—se mantiene; *bhagavān*—el más poderoso; *arkaḥ*—dios del Sol; *yāvat*—tal como; *tapati*—brilla; *go-gaṇaiḥ*—con rayos de luz.

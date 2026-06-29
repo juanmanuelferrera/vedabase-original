@@ -1,9 +1,9 @@
 ### CC Antya 15.3
 
-> জয়াদ্বৈতাচার্য কৃষ্ণচৈতন্য-প্রিয়তম ।
+> জয়াদ্বৈতাচার্য কৃষ্ণচৈতন্য-প্রিয়তম ।\
 > জয় শ্রীবাস-আদি প্রভুর ভক্তগণ ॥৩॥
 
-> jayādvaitācārya kṛṣṇa-caitanya-priyatama
+> jayādvaitācārya kṛṣṇa-caitanya-priyatama\
 > jaya śrīvāsa-ādi prabhura bhakta-gaṇa
 
 *jaya*—¡todas las glorias!; *advaita-ācārya*—a Advaita Ācārya; *kṛṣṇa-caitanya*—al Señor Caitanya Mahāprabhu; *priya-tama*—muy querido; *jaya*—¡todas las glorias!; *śrīvāsa-ādi*—encabezados por Śrīvāsa Ṭhākura; *prabhura*—del Señor Śrī Caitanya Mahāprabhu; *bhakta-gaṇa*—a los devotos.

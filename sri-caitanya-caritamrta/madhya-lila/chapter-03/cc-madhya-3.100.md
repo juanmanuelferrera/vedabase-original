@@ -1,9 +1,9 @@
 ### CC Madhya 3.100
 
-> শতেক সন্ন্যাসী যদি করাহ ভোজন ।
+> শতেক সন্ন্যাসী যদি করাহ ভোজন ।\
 > তবে এই অপরাধ হইবে খণ্ডন ॥১০০॥
 
-> śateka sannyāsī yadi karāha bhojana
+> śateka sannyāsī yadi karāha bhojana\
 > tabe ei aparādha ha-ibe khaṇḍana
 
 *śateka sannyāsī*—one hundred *sannyāsīs*; *yadi*—if; *karāha*—You make; *bhojana*—the eating; *tabe*—then; *ei*—this; *aparādha*—offense; *ha-ibe*—there will be; *khaṇḍana*—nullification.

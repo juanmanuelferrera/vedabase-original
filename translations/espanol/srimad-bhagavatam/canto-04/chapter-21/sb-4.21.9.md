@@ -1,13 +1,13 @@
 ### SB 4.21.9
 
-> विदुर उवाच
-> सोऽभिषिक्तः पृथुर्विप्रैर्लब्धाशेषसुरार्हणः ।
+> विदुर उवाच\
+> सोऽभिषिक्तः पृथुर्विप्रैर्लब्धाशेषसुरार्हणः ।\
 > बिभ्रत्स वैष्णवं तेजो बाह्वोर्याभ्यां दुदोह गाम् ॥९॥
 
-> vidura uvāca
-> so 'bhiṣiktaḥ pṛthur viprair
-> labdhāśeṣa-surārhaṇaḥ
-> bibhrat sa vaiṣṇavaṁ tejo
+> vidura uvāca\
+> so 'bhiṣiktaḥ pṛthur viprair\
+> labdhāśeṣa-surārhaṇaḥ\
+> bibhrat sa vaiṣṇavaṁ tejo\
 > bāhvor yābhyāṁ dudoha gām
 
 *viduraḥ uvāca*—Vidura dijo; *saḥ*—él (el rey Pṛthu); *abhiṣiktaḥ*—cuando fue sentado en el trono; *pṛthuḥ*—el rey Pṛthu; *vipraiḥ*—por los grandes sabios y *brāhmaṇas*; *labdha*—obtuvo; *aśeṣa*—infinidad; *sura-arhaṇaḥ*—obsequio de los semidioses; *bibhrat*—en aumento; *saḥ*—él; *vaiṣṇavam*—que ha recibido a través del Señor Viṣṇu; *tejaḥ*—fuerza; *bāhvoḥ*—brazos; *yābhyām*—con los cuales; *dudoha*—explotó; *gām*—la Tierra.

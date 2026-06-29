@@ -1,11 +1,11 @@
 ### SB 3.2.24
 
-> मन्येऽसुरान्भागवतांस्त्र्यधीशे संरम्भमार्गाभिनिविष्टचित्तान् ।
+> मन्येऽसुरान्भागवतांस्त्र्यधीशे संरम्भमार्गाभिनिविष्टचित्तान् ।\
 > ये संयुगेऽचक्षत तार्क्ष्यपुत्रमंसे सुनाभायुधमापतन्तम् ॥२४॥
 
-> manye 'surān bhāgavatāṁs tryadhīśe
-> saṁrambha-mārgābhiniviṣṭa-cittān
-> ye saṁyuge 'cakṣata tārkṣya-putram
+> manye 'surān bhāgavatāṁs tryadhīśe\
+> saṁrambha-mārgābhiniviṣṭa-cittān\
+> ye saṁyuge 'cakṣata tārkṣya-putram\
 > aṁse sunābhāyudham āpatantam
 
 *manye*—I think; *asurān*—the demons; *bhāgavatān*—great devotees; *tri-adhīśe*—unto the Lord of the threes; *saṁrambha*—enmity; *mārga*—by the way of; *abhiniviṣṭa-cittān*—absorbed in thought; *ye*—those; *saṁyuge*—in the fight; *acakṣata*—could see; *tārkṣya-putram*—Garuḍa, the carrier of the Lord; *aṁse*—on the shoulder; *sunābha*—the wheel; *āyudham*—one who carries the weapon; *āpatantam*—coming forward.

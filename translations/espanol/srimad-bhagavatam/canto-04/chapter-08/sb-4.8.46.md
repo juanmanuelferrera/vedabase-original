@@ -1,11 +1,11 @@
 ### SB 4.8.46
 
-> तरुणं रमणीयाङ्गमरुणोष्ठेक्षणाधरम् ।
+> तरुणं रमणीयाङ्गमरुणोष्ठेक्षणाधरम् ।\
 > प्रणताश्रयणं नृम्णं शरण्यं करुणार्णवम् ॥४६॥
 
-> taruṇaṁ ramaṇīyāṅgam
-> aruṇoṣṭhekṣaṇādharam
-> praṇatāśrayaṇaṁ nṛmṇaṁ
+> taruṇaṁ ramaṇīyāṅgam\
+> aruṇoṣṭhekṣaṇādharam\
+> praṇatāśrayaṇaṁ nṛmṇaṁ\
 > śaraṇyaṁ karuṇārṇavam
 
 *taruṇam*—joven; *ramaṇīya*—atractivo; *aṅgam*—todas las partes del cuerpo; *aruṇa-oṣṭha*—labios rosados como el sol naciente; *īkṣaṇa-adharam*—ojos de la misma naturaleza; *praṇata*—el que se ha entregado; *āśrayaṇam*—refugio del que se ha entregado; *nṛmṇam*—trascendentalmente agradable en todo aspecto; *śaraṇyam*—la persona digna de recibir nuestra entrega; *karuṇā*—misericordioso como; *arṇavam*—el océano.

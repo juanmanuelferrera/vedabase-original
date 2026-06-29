@@ -1,13 +1,13 @@
 ### CC Madhya 22.141
 
-> দেবর্ষিভূতাপ্তনৃণাং পিতৄণাং
-> ন কিঙ্করো নায়মৃণী চ রাজন্ ।
-> সর্বাত্মনা যঃ শরণং শরণ্যং
+> দেবর্ষিভূতাপ্তনৃণাং পিতৄণাং\
+> ন কিঙ্করো নায়মৃণী চ রাজন্ ।\
+> সর্বাত্মনা যঃ শরণং শরণ্যং\
 > গতো মুকুন্দং পরিহৃত্য কর্তম্ ॥১৪১॥
 
-> devarṣi-bhūtāpta-nṛṇāṁ pitṝṇāṁ
-> na kiṅkaro nāyam ṛṇī ca rājan
-> sarvātmanā yaḥ śaraṇaṁ śaraṇyaṁ
+> devarṣi-bhūtāpta-nṛṇāṁ pitṝṇāṁ\
+> na kiṅkaro nāyam ṛṇī ca rājan\
+> sarvātmanā yaḥ śaraṇaṁ śaraṇyaṁ\
 > gato mukundaṁ parihṛtya kartam
 
 *deva*—de los semidioses; *ṛṣi*—de los sabios; *bhūta*—de las entidades vivientes comunes; *āpta*—de los amigos y parientes; *nṛṇām*—de los hombres comunes; *pitṝṇām*—de los antepasados; *na*—no; *kiṅkaraḥ*—el sirviente; *na*—ni; *ayam*—este; *ṛṇī*—deudor; *ca*—también; *rājan*—¡oh, rey!; *sarva-ātmanā*—con todo su ser; *yaḥ*—una persona que; *śaraṇam*—refugio; *śaraṇyam*—la Suprema Personalidad de Dios, que ofrece refugio a todos; *gataḥ*—acudió; *mukundam*—Mukunda; *parihṛtya*—abandonando; *kartam*—deberes.

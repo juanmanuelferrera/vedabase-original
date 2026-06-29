@@ -1,11 +1,11 @@
 ### SB 4.25.26
 
-> का त्वं कञ्जपलाशाक्षि कस्यासीह कुतः सति ।
+> का त्वं कञ्जपलाशाक्षि कस्यासीह कुतः सति ।\
 > इमामुप पुरीं भीरु किं चिकीर्षसि शंस मे ॥२६॥
 
-> kā tvaṁ kañja-palāśākṣi
-> kasyāsīha kutaḥ sati
-> imām upa purīṁ bhīru
+> kā tvaṁ kañja-palāśākṣi\
+> kasyāsīha kutaḥ sati\
+> imām upa purīṁ bhīru\
 > kiṁ cikīrṣasi śaṁsa me
 
 *kā*—quién; *tvam*—tú; *kañja-palāśa*—como los pétalos del loto; *akṣi*—ojos; *kasya*—cuyos; *asi*—tú eres; *iha*—aquí; *kutaḥ*—de dónde; *sati*—¡oh, casta muchacha!; *imām*—esta; *upa*—cerca; *purīm*—ciudad; *bhīru*—¡oh, tímida muchacha!; *kim*—qué; *cikīrṣasi*—estás tratando de hacer; *śaṁsa*—por favor, explica; *me*—a mí.

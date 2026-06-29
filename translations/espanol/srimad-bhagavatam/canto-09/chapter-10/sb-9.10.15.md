@@ -1,13 +1,13 @@
 ### SB 9.10.15
 
-> कामं प्रयाहि जहि विश्रवसोऽवमेहं
-> त्रैलोक्यरावणमवाप्नुहि वीर पत्नीम
-> बध्नीहि सेतुमिह ते यशसो वितत्यै
+> कामं प्रयाहि जहि विश्रवसोऽवमेहं\
+> त्रैलोक्यरावणमवाप्नुहि वीर पत्नीम\
+> बध्नीहि सेतुमिह ते यशसो वितत्यै\
 > गायन्ति दिग्विजयिनो यमुपेत्य भूपाः ॥१५॥
 
-> kāmaṁ prayāhi jahi viśravaso 'vamehaṁ
-> trailokya-rāvaṇam avāpnuhi vīra patnīm
-> badhnīhi setum iha te yaśaso vitatyai
+> kāmaṁ prayāhi jahi viśravaso 'vamehaṁ\
+> trailokya-rāvaṇam avāpnuhi vīra patnīm\
+> badhnīhi setum iha te yaśaso vitatyai\
 > gāyanti dig-vijayino yam upetya bhūpāḥ
 
 *kāmam*—como desees; *prayāhi*—puedes pasar sobre mis aguas; *jahi*—conquista; *viśravasaḥ*—de Viśravā Muni; *avameham*—polución, como la orina; *trailokya*—para los tres mundos; *rāvaṇam*—a la persona llamada Rāvaṇa, causa de sollozos; *avāpnuhi*—recupera; *vīra*—¡oh, gran héroe!; *patnīm*—a Tu esposa; *badhnīhi*—construye; *setum*—un puente; *iha*—aquí (sobre estas aguas); *te*—de Tu Gracia; *yaśasaḥ*—fama; *vitatyai*—para difundir; *gāyanti*—glorificarán; *dik-vijayinaḥ*—grandes héroes, conquistadores de todas las direcciones; *yam*—el cual (puente); *upetya*—acercar; *bhūpāḥ*—grandes reyes.

@@ -1,11 +1,11 @@
 ### Bg 3.20
 
-> कर्मणैव हि संसिद्धिमास्थिता जनकादयः ।
+> कर्मणैव हि संसिद्धिमास्थिता जनकादयः ।\
 > लोकसंग्रहमेवापि सम्पश्यन्कर्तुमर्हसि ॥२०॥
 
-> karmaṇaiva hi saṁsiddhim
-> āsthitā janakādayaḥ
-> loka-saṅgraham evāpi
+> karmaṇaiva hi saṁsiddhim\
+> āsthitā janakādayaḥ\
+> loka-saṅgraham evāpi\
 > sampaśyan kartum arhasi
 
 *karmaṇā*—by work; *eva*—even; *hi*—certainly; *saṁsiddhim*—perfection; *āsthitāḥ*—situated; *janaka-ādayaḥ*—kings like Janaka and others; *loka-saṅgraham*—educating the people in general; *eva*—also; *api*—for the sake of; *sampaśyan*—by considering; *kartum*—to act; *arhasi*—deserve.

@@ -1,9 +1,9 @@
 ### CC Antya 7.152
 
-> তুমি যে আমার ঠাঞি কর আগমন ।
+> তুমি যে আমার ঠাঞি কর আগমন ।\
 > তাহাতেই প্রভু মোরে দেহ ওলাহন ।।” ॥ ১৫২ ॥
 
-> tumi ye āmāra ṭhāñi kara āgamana
+> tumi ye āmāra ṭhāñi kara āgamana\
 > tāhātei prabhu more dena olāhana"
 
 *tumi*—tú; *ye*—que; *āmāra ṭhāñi*—a mí; *kara āgamana*—vienes; *tāhātei*—por eso; *prabhu*—Śrī Caitanya Mahāprabhu; *more*—a mí; *dena*—da; *olāhana*—castigo de palabra.

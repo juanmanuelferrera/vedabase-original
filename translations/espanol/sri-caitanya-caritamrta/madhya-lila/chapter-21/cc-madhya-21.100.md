@@ -1,11 +1,11 @@
 ### CC Madhya 21.100
 
-> যন্মর্ত্যলীলৌপয়িকং স্বযোগমায়াবলং দর্শয়তা গৃহীতম্ ।
+> যন্মর্ত্যলীলৌপয়িকং স্বযোগমায়াবলং দর্শয়তা গৃহীতম্ ।\
 > বিস্মাপনং স্বস্য চ সৌভগর্ধেঃ পরং পদং ভূষণভূষণাঙ্গম্ ॥১০০॥
 
-> yan martya-līlaupayikaṁ svayoga-
-> māyā-balaṁ darśayatā gṛhītam
-> vismāpanaṁ svasya ca saubhagardheḥ
+> yan martya-līlaupayikaṁ svayoga-\
+> māyā-balaṁ darśayatā gṛhītam\
+> vismāpanaṁ svasya ca saubhagardheḥ\
 > paraṁ padaṁ bhūṣaṇa-bhūṣaṇāṅgam
 
 *yat*—aquello que; *martya-līlā*—pasatiempos en el mundo material; *aupayikam*—idóneo; *sva*—Su propia; *yoga-māyā*—de la potencia espiritual; *balam*—la fuerza; *darśayatā*—mostrando; *gṛhītam*—aceptado; *vismāpanam*—que produce asombro incluso; *svasya*—para Él mismo; *ca*—también; *saubhaga-ṛdheḥ*—de abundante buena fortuna; *param*—suprema; *padam*—morada; *bhūṣaṇa*—de los ornamentos; *bhūṣaṇa-aṅgam*—los miembros de los cuales eran los ornamentos.

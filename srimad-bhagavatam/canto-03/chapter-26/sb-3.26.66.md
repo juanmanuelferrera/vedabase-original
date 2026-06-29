@@ -1,11 +1,11 @@
 ### SB 3.26.66
 
-> गुदं मृत्युरपानेन नोदतिष्ठत्तदा विराट् ।
+> गुदं मृत्युरपानेन नोदतिष्ठत्तदा विराट् ।\
 > हस्ताविन्द्रो बलेनैव नोदतिष्ठत्तदा विराट् ॥६६॥
 
-> gudaṁ mṛtyur apānena
-> nodatiṣṭhat tadā virāṭ
-> hastāv indro balenaiva
+> gudaṁ mṛtyur apānena\
+> nodatiṣṭhat tadā virāṭ\
+> hastāv indro balenaiva\
 > nodatiṣṭhat tadā virāṭ
 
 *gudam*—His anus; *mṛtyuḥ*—the god of death; *apānena*—with the organ of defecation; *na*—not; *udatiṣṭhat*—did arise; *tadā*—even then; *virāṭ*—the *virāṭ-puruṣa*; *hastau*—the two hands; *indraḥ*—Lord Indra; *balena*—with their power to grasp and drop things; *eva*—indeed; *na*—not; *udatiṣṭhat*—did arise; *tadā*—even then; *virāṭ*—the *virāṭ-puruṣa.*

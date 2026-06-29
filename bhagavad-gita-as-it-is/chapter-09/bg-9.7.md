@@ -1,11 +1,11 @@
 ### Bg 9.7
 
-> सर्वभूतानि कौन्तेय प्रकृतिं यान्ति मामिकाम् ।
+> सर्वभूतानि कौन्तेय प्रकृतिं यान्ति मामिकाम् ।\
 > कल्पक्षये पुनस्तानि कल्पादौ विसृजाम्यहम् ॥७॥
 
-> sarva-bhūtāni kaunteya
-> prakṛtiṁ yānti māmikām
-> kalpa-kṣaye punas tāni
+> sarva-bhūtāni kaunteya\
+> prakṛtiṁ yānti māmikām\
+> kalpa-kṣaye punas tāni\
 > kalpādau visṛjāmy aham
 
 *sarva-bhūtāni*—all created entities; *kaunteya*—O son of Kuntī; *prakṛtim*—nature; *yānti*—enter; *māmikām*—unto Me; *kalpa-kṣaye*—at the end of the millennium; *punaḥ*—again; *tāni*—all those; *kalpa-ādau*—in the beginning of the millennium; *visṛjāmi*—I create; *aham*—I.

@@ -1,11 +1,11 @@
 ### SB 6.5.26
 
-> तदुपस्पर्शनादेव विनिर्धूतमलाशयाः
+> तदुपस्पर्शनादेव विनिर्धूतमलाशयाः\
 > जपन्तो ब्रह्म परमं तेपुस्तत्र महत्तपः ॥२६॥
 
-> tad-upasparśanād eva
-> vinirdhūta-malāśayāḥ
-> japanto brahma paramaṁ
+> tad-upasparśanād eva\
+> vinirdhūta-malāśayāḥ\
+> japanto brahma paramaṁ\
 > tepus tatra mahat tapaḥ
 
 *tat*—de ese sagrado lugar; *upasparśanāt*—por bañarse regularmente en el agua; *eva*—en verdad; *vinirdhūta*—completamente purificados; *mala-āśayāḥ*—de toda la suciedad del corazón; *japantaḥ*—cantar o murmurar; *brahma*—*mantras* que comienzan con *oṁ* (como *oṁ tad viṣṇoḥ paramaṁ padaṁ sadā paśyanti ṣurayaḥ*); *paramam*—el objetivo supremo; *tepuḥ*—ejecutaron; *tatra*—allí; *mahat*—grandes; *tapaḥ*—penitencias.

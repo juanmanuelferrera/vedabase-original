@@ -1,18 +1,18 @@
 ### SB 9.6.15-16
 
-> स सन्नद्धो धनुर्दिव्यमादाय विशिखान्छितान
-> स्तूयमानस्तमारुह्य युयुत्सुः ककुदि स्थितः ॥१५॥
-> तेजसाप्यायितो विष्णोः पुरुषस्य महात्मनः
+> स सन्नद्धो धनुर्दिव्यमादाय विशिखान्छितान\
+> स्तूयमानस्तमारुह्य युयुत्सुः ककुदि स्थितः ॥१५॥\
+> तेजसाप्यायितो विष्णोः पुरुषस्य महात्मनः\
 > प्रतीच्यां दिशि दैत्यानां न्यरुणत्त्रिदशैः पुरम ॥१६॥
 
-> sa sannaddho dhanur divyam
-> ādāya viśikhāñ chitān
-> stūyamānas tam āruhya
+> sa sannaddho dhanur divyam\
+> ādāya viśikhāñ chitān\
+> stūyamānas tam āruhya\
 > yuyutsuḥ kakudi sthitaḥ
 
-> tejasāpyāyito viṣṇoḥ
-> puruṣasya mahātmanaḥ
-> pratīcyāṁ diśi daityānāṁ
+> tejasāpyāyito viṣṇoḥ\
+> puruṣasya mahātmanaḥ\
+> pratīcyāṁ diśi daityānāṁ\
 > nyaruṇat tridaśaiḥ puram
 
 *saḥ*—he, Purañjaya; *sannaddhaḥ*—being well equipped; *dhanuḥ divyam*—a first-class or transcendental bow; *ādāya*—taking; *viśikhān*—arrows; *śitān*—very sharp; *stūyamānaḥ*—being praised very much; *tam*—him (the bull); *āruhya*—getting on; *yuyutsuḥ*—prepared to fight; *kakudi*—on the hump of the bull; *sthitaḥ*—being situated; *tejasā*—by the power; *āpyāyitaḥ*—being favored; *viṣṇoḥ*—of Lord Viṣṇu; *puruṣasya*—the Supreme Person; *mahā-ātmanaḥ*—the Supersoul; *pratīcyām*—on the western; *diśi*—direction; *daityānām*—of the demons; *nyaruṇat*—captured; *tridaśaiḥ*—surrounded by the demigods; *puram*—the residence.

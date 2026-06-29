@@ -1,9 +1,9 @@
 ### CC Madhya 16.95
 
-> জগন্নাথের প্রসাদ প্রভু যত পাঞাছিল ।
+> জগন্নাথের প্রসাদ প্রভু যত পাঞাছিল ।\
 > কড়ার, চন্দন, ডোর, সব সঙ্গে লৈল ॥৯৫॥
 
-> jagannāthera prasāda prabhu yata pāñāchila
+> jagannāthera prasāda prabhu yata pāñāchila\
 > kaḍāra, candana, ḍora, saba saṅge laila
 
 *jagannāthera*—del Señor Jagannātha; *prasāda*—los remanentes de alimentos; *prabhu*—Śrī Caitanya Mahāprabhu; *yata*—todos los; *pāñāchila*—había obtenido; *kaḍāra*—un tipo de tilaka; *candana*—sándalo; *ḍora*—cuerdas; *saba*—todo; *saṅge laila*—llevó consigo.

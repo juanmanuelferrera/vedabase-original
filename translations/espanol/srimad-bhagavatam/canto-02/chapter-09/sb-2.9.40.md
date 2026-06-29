@@ -1,11 +1,11 @@
 ### SB 2.9.40
 
-> प्रजापतिर्धर्मपतिरेकदा नियमान्यमान् ।
+> प्रजापतिर्धर्मपतिरेकदा नियमान्यमान् ।\
 > भद्रं प्रजानामन्विच्छन्नातिष्ठत्स्वार्थकाम्यया ॥४०॥
 
-> prajāpatir dharma-patir
-> ekadā niyamān yamān
-> bhadraṁ prajānām anvicchann
+> prajāpatir dharma-patir\
+> ekadā niyamān yamān\
+> bhadraṁ prajānām anvicchann\
 > ātiṣṭhat svārtha-kāmyayā
 
 *prajā-patiḥ*—el antepasado de todas las entidades vivientes; *dharma-patiḥ*—el padre de la vida religiosa; *ekadā*—una vez; *niyamān*—reglas y regulaciones; *yamān*—principios de control; *bhadram*—bienestar; *prajānām*—de los seres vivientes; *anvicchan*—deseando; *ātiṣṭhat*—situó; *sva-artha*—propio interés; *kāmyayā*—deseando así.

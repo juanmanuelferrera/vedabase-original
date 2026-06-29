@@ -1,9 +1,9 @@
 ### CC Adi 15.16
 
-> একদিন নৈবেদ্য-তাম্বূল খাইয়া ।
+> একদিন নৈবেদ্য-তাম্বূল খাইয়া ।\
 > ভূমিতে পড়িলা প্রভু অচেতন হঞা ॥১৬॥
 
-> eka-dina naivedya-tāmbūla khāiyā
+> eka-dina naivedya-tāmbūla khāiyā\
 > bhūmite paḍilā prabhu acetana hañā
 
 *eka-dina*—one day; *naivedya*—food offered to the Deity; *tāmbūla*—betel nut; *khāiyā*—after eating; *bhūmite*—on the ground; *padilā*—fell; *prabhu*—the Lord; *acetana*—unconscious; *hañā*—becoming.

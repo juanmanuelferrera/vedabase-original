@@ -1,9 +1,9 @@
 ### CC Adi 3.8
 
-> একাত্তর চতুর্যুগে এক মন্বন্তর ।
+> একাত্তর চতুর্যুগে এক মন্বন্তর ।\
 > চৌদ্দ মন্বন্তর ব্রহ্মার দিবস ভিতর ॥৮॥
 
-> ekāttara catur-yuge eka manv-antara
+> ekāttara catur-yuge eka manv-antara\
 > caudda manv-antara brahmāra divasa bhitara
 
 *ekāttara*—seventy-one; *catuḥ-yuge*—in cycles of four ages; *eka*—one; *manu-antara*—period of a Manu; *caudda*—fourteen; *manu-antara*—periods of Manu; *brahmāra*—of Lord Brahmā; *divasa*—a day; *bhitara*—within.

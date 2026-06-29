@@ -1,11 +1,11 @@
 ### SB 4.19.29
 
-> इत्यामन्त्र्य क्रतुपतिं विदुरास्यर्त्विजो रुषा ।
+> इत्यामन्त्र्य क्रतुपतिं विदुरास्यर्त्विजो रुषा ।\
 > स्रुग्घस्तान्जुह्वतोऽभ्येत्य स्वयम्भूः प्रत्यषेधत ॥२९॥
 
-> ity āmantrya kratu-patiṁ
-> vidurāsyartvijo ruṣā
-> srug-ghastāñ juhvato 'bhyetya
+> ity āmantrya kratu-patiṁ\
+> vidurāsyartvijo ruṣā\
+> srug-ghastāñ juhvato 'bhyetya\
 > svayambhūḥ pratyaṣedhata
 
 *iti*—de este modo; *āmantrya*—después de informar; *kratu-patim*—al rey Pṛthu, el señor del sacrificio; *vidura*—¡oh, Vidura!; *asya*—de Pṛthu; *ṛtvijaḥ*—los sacerdotes; *ruṣā*—con gran ira; *sruk-hastān*—con la cuchara de sacrificio en la mano; *juhvataḥ*—ejecutar el fuego de sacrificio; *abhyetya*—habiendo dado comienzo; *svayambhūḥ*—el Señor Brahmā; *pratyaṣedhata*—les pidió que se detuviesen.

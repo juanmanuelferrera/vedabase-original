@@ -1,11 +1,11 @@
 ### Bg 2.17
 
-> अविनाशि तु तद्विद्धि येन सर्वमिदं ततम् ।
+> अविनाशि तु तद्विद्धि येन सर्वमिदं ततम् ।\
 > विनाशमव्ययस्यास्य न कश्चित्कर्तुमर्हति ॥१७॥
 
-> avināśi tu tad viddhi
-> yena sarvam idaṁ tatam
-> vināśam avyayasyāsya
+> avināśi tu tad viddhi\
+> yena sarvam idaṁ tatam\
+> vināśam avyayasyāsya\
 > na kaścit kartum arhati
 
 *avināśi*—imperecedero; *tu*—pero; *tat*—eso; *viddhi*—has de saber; *yena*—por quien; *sarvam*—todo el cuerpo; *idam*—este; *tatam*—expandido ampliamente; *vināśam*—destrucción; *avyayasya*—del imperecedero; *asya*—de Él; *na kaścit*—nadie; *kartum*—hacer; *arhati*—capaz.

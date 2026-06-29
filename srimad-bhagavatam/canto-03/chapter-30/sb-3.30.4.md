@@ -1,11 +1,11 @@
 ### SB 3.30.4
 
-> जन्तुर्वै भव एतस्मिन्यां यां योनिमनुव्रजेत् ।
+> जन्तुर्वै भव एतस्मिन्यां यां योनिमनुव्रजेत् ।\
 > तस्यां तस्यां स लभते निर्वृतिं न विरज्यते ॥४॥
 
-> jantur vai bhava etasmin
-> yāṁ yāṁ yonim anuvrajet
-> tasyāṁ tasyāṁ sa labhate
+> jantur vai bhava etasmin\
+> yāṁ yāṁ yonim anuvrajet\
+> tasyāṁ tasyāṁ sa labhate\
 > nirvṛtiṁ na virajyate
 
 *jantuḥ*—the living entity; *vai*—certainly; *bhave*—in worldly existence; *etasmin*—this; *yām yām*—whatever; *yonim*—species; *anuvrajet*—he may obtain; *tasyām tasyām*—in that; *saḥ*—he; *labhate*—achieves; *nirvṛtim*—satisfaction; *na*—not; *virajyate*—is averse.

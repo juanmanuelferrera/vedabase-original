@@ -1,13 +1,13 @@
 ### SB 4.8.54
 
-> ओं नमो भगवते वासुदेवाय
-> मन्त्रेणानेन देवस्य कुर्याद्द्रव्यमयीं बुधः ।
+> ओं नमो भगवते वासुदेवाय\
+> मन्त्रेणानेन देवस्य कुर्याद्द्रव्यमयीं बुधः ।\
 > सपर्यां विविधैर्द्रव्यैर्देशकालविभागवित् ॥५४॥
 
-> oṁ namo bhagavate vāsudevāya
-> mantreṇānena devasya
-> kuryād dravyamayīṁ budhaḥ
-> saparyāṁ vividhair dravyair
+> oṁ namo bhagavate vāsudevāya\
+> mantreṇānena devasya\
+> kuryād dravyamayīṁ budhaḥ\
+> saparyāṁ vividhair dravyair\
 > deśa-kāla-vibhāgavit
 
 *oṁ*—O my Lord; *namaḥ*—I offer my respectful obeisances; *bhagavate*—unto the Supreme Personality of Godhead; *vāsudevāya*—unto the Supreme Lord, Vāsudeva; *mantreṇa*—by this hymn, or *mantra*; *anena*—this; *devasya*—of the Lord; *kuryāt*—one should do; *dravyamayīm*—physical; *budhaḥ*—one who is learned; *saparyām*—worship by the prescribed method; *vividhaiḥ*—with varieties; *dravyaiḥ*—paraphernalia; *deśa*—according to country; *kāla*—time; *vibhāga-vit*—one who knows the divisions.

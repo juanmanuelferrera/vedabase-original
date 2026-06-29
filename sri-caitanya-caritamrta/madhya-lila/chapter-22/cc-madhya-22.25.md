@@ -1,9 +1,9 @@
 ### CC Madhya 22.25
 
-> তাতে কৃষ্ণ ভজে, করে গুরুর সেবন ।
+> তাতে কৃষ্ণ ভজে, করে গুরুর সেবন ।\
 > মায়াজাল ছুটে, পায় কৃষ্ণের চরণ ॥২৫॥
 
-> tāte kṛṣṇa bhaje, kare gurura sevana
+> tāte kṛṣṇa bhaje, kare gurura sevana\
 > māyā-jāla chuṭe, pāya kṛṣṇera caraṇa
 
 *tāte*—therefore; *kṛṣṇa bhaje*—if one worships Lord Kṛṣṇa; *kare*—performs; *gurura sevana*—service to his spiritual master; *māyā-jāla chuṭe*—gets free from the binding net of *māyā*; *pāya*—gets; *kṛṣṇera caraṇa*—shelter at the lotus feet of Kṛṣṇa.

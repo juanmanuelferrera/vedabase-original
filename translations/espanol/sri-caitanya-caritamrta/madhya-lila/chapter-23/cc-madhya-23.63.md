@@ -1,9 +1,9 @@
 ### CC Madhya 23.63
 
-> ‘বিপ্রলম্ভ’ চতুর্বিধ — পূর্বরাগ, মান ।
+> ‘বিপ্রলম্ভ’ চতুর্বিধ — পূর্বরাগ, মান ।\
 > প্রবাসাখ্য, আর প্রেমবৈচিত্ত্য-আখ্যান ॥৬৩॥
 
-> 'vipralambha' catur-vidha--pūrva-rāga, māna
+> 'vipralambha' catur-vidha--pūrva-rāga, māna\
 > pravāsākhya, āra prema-vaicittya-ākhyāna
 
 *vipralambha*—separación; *catuḥ-vidha*—cuatro divisiones; *pūrva-rāga*—pūrva-rāga; *māna*—māna; *pravāsākhya*—conocido como pravāsa; *āra*—y; *prema-vaicittya*—prema-vaicittya; *ākhyāna*—denominación.

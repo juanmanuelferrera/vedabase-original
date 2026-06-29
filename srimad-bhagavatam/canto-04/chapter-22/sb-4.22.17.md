@@ -1,13 +1,13 @@
 ### SB 4.22.17
 
-> मैत्रेय उवाच
-> पृथोस्तत्सूक्तमाकर्ण्य सारं सुष्ठु मितं मधु ।
+> मैत्रेय उवाच\
+> पृथोस्तत्सूक्तमाकर्ण्य सारं सुष्ठु मितं मधु ।\
 > स्मयमान इव प्रीत्या कुमारः प्रत्युवाच ह ॥१७॥
 
-> maitreya uvāca
-> pṛthos tat sūktam ākarṇya
-> sāraṁ suṣṭhu mitaṁ madhu
-> smayamāna iva prītyā
+> maitreya uvāca\
+> pṛthos tat sūktam ākarṇya\
+> sāraṁ suṣṭhu mitaṁ madhu\
+> smayamāna iva prītyā\
 > kumāraḥ pratyuvāca ha
 
 *maitreyaḥ uvāca*—the great sage Maitreya continued to speak; *pṛthoḥ*—of King Pṛthu; *tat*—that; *sūktam*—Vedic conclusion; *ākarṇya*—hearing; *sāram*—very substantial; *suṣṭhu*—appropriate; *mitam*—minimized; *madhu*—sweet to hear; *smayamānaḥ*—smiling; *iva*—like; *prītyā*—out of great satisfaction; *kumāraḥ*—celibate; *pratyuvāca*—replied; *ha*—thus.

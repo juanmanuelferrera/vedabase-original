@@ -1,11 +1,11 @@
 ### SB 3.15.15
 
-> यत्र चाद्यः पुमानास्ते भगवान्शब्दगोचरः ।
+> यत्र चाद्यः पुमानास्ते भगवान्शब्दगोचरः ।\
 > सत्त्वं विष्टभ्य विरजं स्वानां नो मृडयन्वृषः ॥१५॥
 
-> yatra cādyaḥ pumān āste
-> bhagavān śabda-gocaraḥ
-> sattvaṁ viṣṭabhya virajaṁ
+> yatra cādyaḥ pumān āste\
+> bhagavān śabda-gocaraḥ\
+> sattvaṁ viṣṭabhya virajaṁ\
 > svānāṁ no mṛḍayan vṛṣaḥ
 
 *yatra*—en los planetas Vaikuṇṭhas; *ca*—y; *ādyaḥ*—original; *pumān*—persona; *āste*—está ahí; *bhagavān*—la Suprema Personalidad de Dios; *śabda-gocaraḥ*—comprendida por medio de las Escrituras védicas; *sattvam*—la modalidad de la bondad; *viṣṭabhya*—aceptando; *virajam*—no contaminada; *svānām*—de Sus propios compañeros; *naḥ*—a nosotros; *mṛḍayan*—felicidad en aumento; *vṛṣaḥ*—la personificación de los principios religiosos.

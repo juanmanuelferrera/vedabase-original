@@ -1,13 +1,13 @@
 ### SB 7.9.33
 
-> तस्यैव ते वपुरिदं निजकालशक्त्या
-> सञ्चोदितप्रकृतिधर्मण आत्मगूढम
-> अम्भस्यनन्तशयनाद्विरमत्समाधेर
+> तस्यैव ते वपुरिदं निजकालशक्त्या\
+> सञ्चोदितप्रकृतिधर्मण आत्मगूढम\
+> अम्भस्यनन्तशयनाद्विरमत्समाधेर\
 > नाभेरभूत्स्वकणिकावटवन्महाब्जम ॥३३॥
 
-> tasyaiva te vapur idaṁ nija-kāla-śaktyā
-> sañcodita-prakṛti-dharmaṇa ātma-gūḍham
-> ambhasy ananta-śayanād viramat-samādher
+> tasyaiva te vapur idaṁ nija-kāla-śaktyā\
+> sañcodita-prakṛti-dharmaṇa ātma-gūḍham\
+> ambhasy ananta-śayanād viramat-samādher\
 > nābher abhūt sva-kaṇikā-vaṭavan-mahābjam
 
 *tasya*—of that Supreme Personality of Godhead; *eva*—certainly; *te*—of You; *vapuḥ*—the cosmic body; *idam*—this (universe); *nija-kāla-śaktyā*—by the potent time factor; *sañcodita*—agitated; *prakṛti-dharmaṇaḥ*—of Him, by whom the three *guṇas,* or qualities of material nature; *ātma-gūḍham*—dormant in Yourself; *ambhasi*—in the water known as the Causal Ocean; *ananta-śayanāt*—from the bed known as Ananta (another feature of Yourself); *viramat-samādheḥ*—having awakened from the *samādhi* (yogic trance); *nābheḥ*—from the navel; *abhūt*—appeared; *sva-kaṇikā*—from the seed; *vaṭa-vat*—like the great banyan tree; *mahā-abjam*—the great lotus of the worlds (has similarly grown).

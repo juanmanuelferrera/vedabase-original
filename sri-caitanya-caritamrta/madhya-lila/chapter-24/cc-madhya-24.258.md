@@ -1,9 +1,9 @@
 ### CC Madhya 24.258
 
-> ধনুক ভাঙ্গি’ ব্যাধ তাঁর চরণে পড়িল ।
+> ধনুক ভাঙ্গি’ ব্যাধ তাঁর চরণে পড়িল ।\
 > তারে উঠাঞা নারদ উপদেশ কৈল ॥২৫৮॥
 
-> dhanuka bhāṅgi' vyādha tāṅra caraṇe paḍila
+> dhanuka bhāṅgi' vyādha tāṅra caraṇe paḍila\
 > tāre uṭhāñā nārada upadeśa kaila
 
 *dhanuka bhāṅgi'*—breaking the bow; *vyādha*—the hunter; *tāṅra*—his (Nārada Muni's); *caraṇe*—at the lotus feet; *paḍila*—surrendered; *tāre*—him; *uṭhāñā*—raising; *nārada*—the great saint Nārada Muni; *upadeśa kaila*—gave instruction.

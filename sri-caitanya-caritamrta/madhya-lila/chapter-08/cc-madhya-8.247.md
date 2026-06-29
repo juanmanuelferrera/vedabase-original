@@ -1,9 +1,9 @@
 ### CC Madhya 8.247
 
-> ‘সম্পত্তির মধ্যে জীবের কোন্ সম্পত্তি গণি?’
+> ‘সম্পত্তির মধ্যে জীবের কোন্ সম্পত্তি গণি?’\
 > ‘রাধাকৃষ্ণে প্রেম যাঁর, সেই বড় ধনী ।।’ ॥২৪৭॥
 
-> 'sampattira madhye jīvera kon sampatti gaṇi?'
+> 'sampattira madhye jīvera kon sampatti gaṇi?'\
 > 'rādhā-kṛṣṇe prema yāṅra, sei baḍa dhanī'
 
 *sampattira*—riches; *madhye*—among; *jīvera*—of the living entities; *kon*—what; *sampatti*—the wealth; *gaṇi*—we accept; *rādhā-kṛṣṇe*—to Śrīmatī Rādhārāṇī and Kṛṣṇa; *prema*—loving service; *yāṅra*—whose; *sei*—he; *baḍa*—very great; *dhanī*—capitalist.

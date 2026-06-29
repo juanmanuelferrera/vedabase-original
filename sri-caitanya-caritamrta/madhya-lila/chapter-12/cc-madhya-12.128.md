@@ -1,9 +1,9 @@
 ### CC Madhya 12.128
 
-> তবে স্বরূপ গোসাঞি তার ঘাড়ে হাত দিয়া ।
+> তবে স্বরূপ গোসাঞি তার ঘাড়ে হাত দিয়া ।\
 > ঢেকা মারি’ পুরীর বাহির রাখিলেন লঞা ॥১২৮॥
 
-> tabe svarūpa gosāñi tāra ghāḍe hāta diyā
+> tabe svarūpa gosāñi tāra ghāḍe hāta diyā\
 > ḍhekā māri' purīra bāhira rākhilena lañā
 
 *tabe*—thereafter; *svarūpa gosāñi*—Svarūpa Dāmodara Gosāñi; *tāra*—of him; *ghāḍe*—on the neck; *hāta diyā*—touching with the hand; *ḍhekā māri'*—pushing a little; *purīra bāhira*—out of the temple of Guṇḍicā Purī; *rākhilena*—kept; *lañā*—taking.

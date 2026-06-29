@@ -1,9 +1,9 @@
 ### CC Madhya 15.40
 
-> সবারে কহিল প্রভু — প্রত্যব্দ আসিয়া ।
+> সবারে কহিল প্রভু — প্রত্যব্দ আসিয়া ।\
 > গুণ্ডিচা দেখিয়া যাবে আমারে মিলিয়া ॥৪০॥
 
-> sabāre kahila prabhu—pratyabda āsiyā
+> sabāre kahila prabhu—pratyabda āsiyā\
 > guṇḍicā dekhiyā yābe āmāre miliyā
 
 *sabāre*—to all of them; *kahila*—said; *prabhu*—Śrī Caitanya Mahāprabhu; *prati-abda*—every year; *āsiyā*—coming; *guṇḍicā*—the function at the Guṇḍicā temple; *dekhiyā*—seeing; *yābe*—you should go; *āmāre miliyā*—after meeting Me.

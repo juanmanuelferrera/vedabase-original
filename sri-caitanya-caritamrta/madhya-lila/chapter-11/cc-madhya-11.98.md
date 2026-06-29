@@ -1,9 +1,9 @@
 ### CC Madhya 11.98
 
-> অবতরি’ চৈতন্য কৈল ধর্মপ্রচারণ ।
+> অবতরি’ চৈতন্য কৈল ধর্মপ্রচারণ ।\
 > কলিকালে ধর্ম — কৃষ্ণনাম-সংকীর্তন ॥৯৮॥
 
-> avatari' caitanya kaila dharma-pracāraṇa
+> avatari' caitanya kaila dharma-pracāraṇa\
 > kali-kāle dharma-kṛṣṇa-nāma-saṅkīrtana
 
 *avatari'*—descending; *caitanya*—Śrī Caitanya Mahāprabhu; *kaila*—did; *dharma-pracāraṇa*—preaching of real religion; *kali-kāle*—in this Age of Kali; *dharma*—religious principle; *kṛṣṇa-nāma*—of the holy name of Lord Kṛṣṇa; *saṅkīrtana*—chanting.

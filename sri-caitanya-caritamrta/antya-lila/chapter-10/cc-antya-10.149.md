@@ -1,9 +1,9 @@
 ### CC Antya 10.149
 
-> দধি, লেম্বু, আদা, আর ফুলবড়া, লবণ ।
+> দধি, লেম্বু, আদা, আর ফুলবড়া, লবণ ।\
 > সামগ্রী দেখিয়া প্রভুর প্রসন্ন হৈল মন ॥১৪৯॥
 
-> dadhi, lembu, ādā, āra phula-baḍā, lavaṇa
+> dadhi, lembu, ādā, āra phula-baḍā, lavaṇa\
 > sāmagrī dekhiyā prabhura prasanna haila mana
 
 *dadhi*—yogurt; *lembu*—lime; *ādā*—ginger; *āra*—and; *phula-baḍā*—soft cake made of *dhal*; *lavaṇa*—salt; *sāmagrī dekhiyā*—seeing these ingredients; *prabhura*—of Śrī Caitanya Mahāprabhu; *prasanna*—satisfied; *haila*—became; *mana*—the mind.

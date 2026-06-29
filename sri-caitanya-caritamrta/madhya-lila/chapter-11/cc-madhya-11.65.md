@@ -1,9 +1,9 @@
 ### CC Madhya 11.65
 
-> সার্বভৌম নীলাচলে আইলা প্রভু লঞা ।
+> সার্বভৌম নীলাচলে আইলা প্রভু লঞা ।\
 > প্রভু আইলা, — রাজা-ঠাঞি কহিলেন গিয়া ॥৬৫॥
 
-> sārvabhauma nīlācale āilā prabhu lañā
+> sārvabhauma nīlācale āilā prabhu lañā\
 > prabhu āilā,-rājā-ṭhāñi kahilena giyā
 
 *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *nīlācale*—to Jagannātha Purī; *āilā*—came; *prabhu*—Śrī Caitanya Mahāprabhu; *lañā*—taking; *prabhu*—Śrī Caitanya Mahāprabhu; *āilā*—arrived; *rājā-ṭhāñi*—to the King; *kahilena*—said; *giyā*—after going.

@@ -1,11 +1,11 @@
 ### SB 4.28.31
 
-> एकैकस्याभवत्तेषां राजन्नर्बुदमर्बुदम् ।
+> एकैकस्याभवत्तेषां राजन्नर्बुदमर्बुदम् ।\
 > भोक्ष्यते यद्वंशधरैर्मही मन्वन्तरं परम् ॥३१॥
 
-> ekaikasyābhavat teṣāṁ
-> rājann arbudam arbudam
-> bhokṣyate yad-vaṁśa-dharair
+> ekaikasyābhavat teṣāṁ\
+> rājann arbudam arbudam\
+> bhokṣyate yad-vaṁśa-dharair\
 > mahī manvantaraṁ param
 
 *eka-ekasya*—de cada uno; *abhavat*—allí fueron; *teṣām*—de ellos; *rājan*—¡oh, rey!; *arbudam*—diez millones; *arbudam*—diez millones; *bhokṣyate*—se gobernó; *yat*—cuyos; *vaṁśa-dharaiḥ*—por descendientes; *mahī*—el mundo entero; *manu-antaram*—hasta el final de un *manu*; *param*—y después.

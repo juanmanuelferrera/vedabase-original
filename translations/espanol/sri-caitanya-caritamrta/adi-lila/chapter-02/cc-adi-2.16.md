@@ -1,9 +1,9 @@
 ### CC Adi 2.16
 
-> সেই গোবিন্দ ভজি আমি, তেহোঁ মোর পতি ।
+> সেই গোবিন্দ ভজি আমি, তেহোঁ মোর পতি ।\
 > তাঁহার প্রসাদে মোর হয় সৃষ্টিশক্তি ॥১৬॥
 
-> sei govinda bhaji āmi, tehoṅ mora pati
+> sei govinda bhaji āmi, tehoṅ mora pati\
 > tāṅhāra prasāde mora haya sṛṣṭi-śakti
 
 *sei*—ese; *govinda*—el Señor Govinda; *bhaji*—adoro; *āmi*—yo; *tehoṅ*—Él; *mora*—mi; *pati*—Señor; *tāṅhāra*—Su; *prasāde*—por la misericordia; *mora*—mi; *haya*—se convierte en; *sṛṣṭi*—de creación; *śakti*—poder.

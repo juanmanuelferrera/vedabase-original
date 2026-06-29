@@ -1,11 +1,11 @@
 ### SB 6.17.30
 
-> अविवेककृतः पुंसो ह्यर्थभेद इवात्मनि
+> अविवेककृतः पुंसो ह्यर्थभेद इवात्मनि\
 > गुणदोषविकल्पश्च भिदेव स्रजिवत्कृतः ॥३०॥
 
-> aviveka-kṛtaḥ puṁso
-> hy artha-bheda ivātmani
-> guṇa-doṣa-vikalpaś ca
+> aviveka-kṛtaḥ puṁso\
+> hy artha-bheda ivātmani\
+> guṇa-doṣa-vikalpaś ca\
 > bhid eva srajivat kṛtaḥ
 
 *aviveka-kṛtaḥ*—done in ignorance, without mature consideration; *puṁsaḥ*—of the living entity; *hi*—indeed; *artha-bhedaḥ*—differentiation of value; *iva*—like; *ātmani*—in himself; *guṇa-doṣa*—of quality and fault; *vikalpaḥ*—imagination; *ca*—and; *bhit*—difference; *eva*—certainly; *sraji*—in a garland; *vat*—like; *kṛtaḥ*—male.

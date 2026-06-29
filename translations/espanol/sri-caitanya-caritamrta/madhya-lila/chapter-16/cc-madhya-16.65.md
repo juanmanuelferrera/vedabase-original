@@ -1,9 +1,9 @@
 ### CC Madhya 16.65
 
-> তাহাঁ সিদ্ধি করে — হেন অন্যে না দেখিয়ে ।
+> তাহাঁ সিদ্ধি করে — হেন অন্যে না দেখিয়ে ।\
 > আমার ‘দুষ্কর’ কর্ম, তোমা হৈতে হয়ে ॥৬৫॥
 
-> tāhāṅ siddhi kare--hena anye nā dekhiye
+> tāhāṅ siddhi kare--hena anye nā dekhiye\
 > āmāra 'duṣkara' karma, tomā haite haye
 
 *tāhāṅ*—allí; *siddhi*—éxito; *kare*—alcanza; *hena*—tal; *anye*—otra persona; *nā*—no; *dekhiye*—veo; *āmāra*—Mi; *duṣkara*—difícil de ejecutar; *karma*—trabajo; *tomā*—Tú; *haite*—de; *haye*—se hace posible.

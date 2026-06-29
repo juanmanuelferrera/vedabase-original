@@ -1,13 +1,13 @@
 ### SB 9.10.4
 
-> गुर्वर्थे त्यक्तराज्यो व्यचरदनुवनं पद्मपद्भ्यां प्रियायाः
-> पाणिस्पर्शाक्षमाभ्यां मृजितपथरुजो यो हरीन्द्रानुजाभ्याम
-> वैरूप्याच्छूर्पणख्याः प्रियविरहरुषारोपितभ्रूविजृम्भ
+> गुर्वर्थे त्यक्तराज्यो व्यचरदनुवनं पद्मपद्भ्यां प्रियायाः\
+> पाणिस्पर्शाक्षमाभ्यां मृजितपथरुजो यो हरीन्द्रानुजाभ्याम\
+> वैरूप्याच्छूर्पणख्याः प्रियविरहरुषारोपितभ्रूविजृम्भ\
 > त्रस्ताब्धिर्बद्धसेतुः खलदवदहनः कोसलेन्द्रोऽवतान्नः ॥४॥
 
-> gurv-arthe tyakta-rājyo vyacarad anuvanaṁ padma-padbhyāṁ priyāyāḥ
-> pāṇi-sparśākṣamābhyāṁ mṛjita-patha-rujo yo harīndrānujābhyām
-> vairūpyāc chūrpaṇakhyāḥ priya-viraha-ruṣāropita-bhrū-vijṛmbha-
+> gurv-arthe tyakta-rājyo vyacarad anuvanaṁ padma-padbhyāṁ priyāyāḥ\
+> pāṇi-sparśākṣamābhyāṁ mṛjita-patha-rujo yo harīndrānujābhyām\
+> vairūpyāc chūrpaṇakhyāḥ priya-viraha-ruṣāropita-bhrū-vijṛmbha-\
 > trastābdhir baddha-setuḥ khala-dava-dahanaḥ kosalendro 'vatān naḥ
 
 *guru-arthe*—para cumplir la promesa de Su padre; *tyakta-rājyaḥ*—abandonando la posición de rey; *vyacarat*—vagó; *anuvanam*—de bosque en bosque; *padma-padbhyām*—con Sus pies de loto; *priyāyāḥ*—con Su muy querida esposa, madre Sītā; *pāṇi-sparśa-akṣamābhyām*—tan delicados que hasta el contacto de las manos de Sītā les era áspero e intolerable; *mṛjita-patha-rujaḥ*—cuya fatiga de caminar por el bosque se vio disminuida; *yaḥ*—el Señor que; *harīndra-anujābhyām*—acompañado por el rey de los monos, Hanumān, y por Su hermano menor Lakṣmaṇa; *vairūpyāt*—por ser desfigurada; *śūrpaṇakhyāḥ*—de la *rākṣasī* (demonio) Śūrpaṇakhā; *priya-viraha*—afligido por verse separado de Su muy querida esposa; *ruṣā āropita-bhrū-vijṛmbha*—con un gesto de Sus cejas levantadas por la ira; *trasta*—temiendo; *abdhiḥ*—el océano; *baddha-setuḥ*—el que construyó un puente sobre el océano; *khala-dava-dahanaḥ*—que mató a personas envidiosas como Rāvaṇa, como un fuego que devora un bosque; *kosala-indraḥ*—el rey de Ayodhyā; *avatāt*—Se complazca en proteger; *naḥ*—a nosotros.

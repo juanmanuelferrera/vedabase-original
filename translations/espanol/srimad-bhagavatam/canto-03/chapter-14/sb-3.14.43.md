@@ -1,11 +1,11 @@
 ### SB 3.14.43
 
-> न ब्रह्मदण्डदग्धस्य न भूतभयदस्य च ।
+> न ब्रह्मदण्डदग्धस्य न भूतभयदस्य च ।\
 > नारकाश्चानुगृह्णन्ति यां यां योनिमसौ गतः ॥४३॥
 
-> na brahma-daṇḍa-dagdhasya
-> na bhūta-bhayadasya ca
-> nārakāś cānugṛhṇanti
+> na brahma-daṇḍa-dagdhasya\
+> na bhūta-bhayadasya ca\
+> nārakāś cānugṛhṇanti\
 > yāṁ yāṁ yonim asau gataḥ
 
 *na*—nunca; *brahma-daṇḍa*—castigo que da un *brāhmaṇa*; *dagdhasya*—de alguien así castigado; *na*—ni; *bhūta-bhaya-dasya*—de alguien que siempre causa el temor de los seres vivos; *ca*—también; *nārakāḥ*—los condenados al infierno; *ca*—también; *anugṛhṇanti*—hacen algún favor; *yām yām*—cualquiera que; *yonim*—especie de vida; *asau*—el ofensor; *gataḥ*—va.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.207
 
-> বত্তিশা-আঠিয়া কলার আঙ্গটিয়া পাতে ।
+> বত্তিশা-আঠিয়া কলার আঙ্গটিয়া পাতে ।\
 > তিন-মান তণ্ডুলের উভারিল ভাতে ॥২০৭॥
 
-> battiśā-āṭhiyā kalāra āṅgaṭiyā pāte
+> battiśā-āṭhiyā kalāra āṅgaṭiyā pāte\
 > tina-māna taṇḍulera ubhārila bhāte
 
 *battiśā-āṭhiyā*—named *battiśā-āṭhiyā*; *kalāra*—of the banana tree; *āṅgaṭiyā*—without being divided; *pāte*—on a leaf; *tina*—three; *māna*—*mānas* (a certain weight); *taṇḍulera*—of rice; *ubhārila*—poured; *bhāte*—cooked rice.

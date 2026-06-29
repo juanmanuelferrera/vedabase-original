@@ -1,11 +1,11 @@
 ### SB 1.6.28
 
-> प्रयुज्यमाने मयि तां शुद्धां भागवतीं तनुम् ।
+> प्रयुज्यमाने मयि तां शुद्धां भागवतीं तनुम् ।\
 > आरब्धकर्मनिर्वाणो न्यपतत्पाञ्चभौतिकः ॥२८॥
 
-> prayujyamāne mayi tāṁ
-> śuddhāṁ bhāgavatīṁ tanum
-> ārabdha-karma-nirvāṇo
+> prayujyamāne mayi tāṁ\
+> śuddhāṁ bhāgavatīṁ tanum\
+> ārabdha-karma-nirvāṇo\
 > nyapatat pāñca-bhautikaḥ
 
 *prayujyamāne*—having been awarded; *mayi*—on me; *tām*—that; *śuddhām*—transcendental; *bhāgavatīm*—fit for associating with the Personality of Godhead; *tanum*—body; *ārabdha*—acquired; *karma*—fruitive work; *nirvāṇaḥ*—prohibitive; *nyapatat*—quit; *pāñca-bhautikaḥ*—body made of five material elements.

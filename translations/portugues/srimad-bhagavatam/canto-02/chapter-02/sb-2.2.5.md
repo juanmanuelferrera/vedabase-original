@@ -1,8 +1,8 @@
 ### SB 2.2.5
 
-> cīrāṇi kiṁ pathi na santi diśanti bhikṣāṁ
-> naivāṅghripāḥ para-bhṛtaḥ sarito 'py aśuṣyan
-> ruddhā guhāḥ kim ajito 'vati nopasannān
+> cīrāṇi kiṁ pathi na santi diśanti bhikṣāṁ\
+> naivāṅghripāḥ para-bhṛtaḥ sarito 'py aśuṣyan\
+> ruddhā guhāḥ kim ajito 'vati nopasannān\
 > kasmād bhajanti kavayo dhana-durmadāndhān
 
 *cīrāṇi*—roupas rasgadas; *kim*—acaso; *pathi*—na estrada; *na*—não; *santi*—há; *diśanti*—dão em caridade; *bhikṣām*—esmolas; *na*—não; *eva*—também; *aṅghripāḥ*—as árvores; *para-bhṛtaḥ*—aquele que mantém os outros; *saritaḥ*—os rios; *api*—também; *aśuṣyan*—secaram; *ruddhāḥ*—fechadas; *guhāḥ*—cavernas; *kim*—acaso; *ajitaḥ*—o Senhor Todo-Poderoso; *avati*—dá proteção; *na*—não; *upasannān*—a alma rendida; *kasmāt*—por que, então; *bhajanti*—lisonjeiam; *kavayaḥ*—os eruditos; *dhana*—riqueza; *durmada-andhān*—demasiado embriagados por.

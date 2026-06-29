@@ -1,11 +1,11 @@
 ### SB 3.25.23
 
-> मदाश्रयाः कथा मृष्टाः शृण्वन्ति कथयन्ति च ।
+> मदाश्रयाः कथा मृष्टाः शृण्वन्ति कथयन्ति च ।\
 > तपन्ति विविधास्तापा नैतान्मद्गतचेतसः ॥२३॥
 
-> mad-āśrayāḥ kathā mṛṣṭāḥ
-> śṛṇvanti kathayanti ca
-> tapanti vividhās tāpā
+> mad-āśrayāḥ kathā mṛṣṭāḥ\
+> śṛṇvanti kathayanti ca\
+> tapanti vividhās tāpā\
 > naitān mad-gata-cetasaḥ
 
 *mat-āśrayāḥ*—about Me; *kathāḥ*—stories; *mṛṣṭāḥ*—delightful; *śṛṇvanti*—they hear; *kathayanti*—they chant; *ca*—and; *tapanti*—inflict suffering; *vividhāḥ*—various; *tāpāḥ*—the material miseries; *na*—do not; *etān*—unto them; *mat-gata*—fixed on Me; *cetasaḥ*—their thoughts.

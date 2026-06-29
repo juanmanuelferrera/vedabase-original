@@ -1,11 +1,11 @@
 ### SB 6.14.40
 
-> धिगप्रजां स्त्रियं पापां पत्युश्चागृहसम्मताम
+> धिगप्रजां स्त्रियं पापां पत्युश्चागृहसम्मताम\
 > सुप्रजाभिः सपत्नीभिर्दासीमिव तिरस्कृताम ॥४०॥
 
-> dhig aprajāṁ striyaṁ pāpāṁ
-> patyuś cāgṛha-sammatām
-> suprajābhiḥ sapatnībhir
+> dhig aprajāṁ striyaṁ pāpāṁ\
+> patyuś cāgṛha-sammatām\
+> suprajābhiḥ sapatnībhir\
 > dāsīm iva tiraskṛtām
 
 *dhik*—toda condena; *aprajām*—sin hijos varones; *striyam*—sobre una mujer; *pāpām*—llena de actividades pecaminosas; *patyuḥ*—por el esposo; *ca*—también; *a-gṛha-sammatām*—que no es honrada en el hogar; *su-prajābhiḥ*—que tienen hijos; *sapatnībhiḥ*—por coesposas; *dāsīm*—una sirvienta; *iva*—igual que; *tiraskṛtām*—deshonrada.

@@ -1,9 +1,9 @@
 ### CC Adi 17.111
 
-> গোপগৃহে জন্ম ছিল, গাভীর রাখাল ।
+> গোপগৃহে জন্ম ছিল, গাভীর রাখাল ।\
 > সেই পুণ্যে হৈলাঙ এবে ব্রাহ্মণ-ছাওয়াল ॥১১১॥
 
-> gopa-gṛhe janma chila, gābhīra rākhāla
+> gopa-gṛhe janma chila, gābhīra rākhāla\
 > sei puṇye hailāṅ ebe brāhmaṇa-chāoyāla
 
 *gopa-gṛhe*—en la casa de un vaquero; *janma*—nacimiento; *chila*—hubo; *gābhīra*—de las vacas; *rākhāla*—protector; *sei puṇye*—por esas actividades piadosas; *hailāṅ*—Me convertí; *ebe*—ahora; *brāhmaṇa*—de un *brāhmaṇa*; *chāoyāla*—hijo.

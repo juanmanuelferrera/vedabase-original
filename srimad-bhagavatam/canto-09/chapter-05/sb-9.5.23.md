@@ -1,11 +1,11 @@
 ### SB 9.5.23
 
-> संवत्सरोऽत्यगात्तावद्यावता नागतो गतः
+> संवत्सरोऽत्यगात्तावद्यावता नागतो गतः\
 > मुनिस्तद्दर्शनाकाङ्क्षो राजाब्भक्षो बभूव ह ॥२३॥
 
-> saṁvatsaro 'tyagāt tāvad
-> yāvatā nāgato gataḥ
-> munis tad-darśanākāṅkṣo
+> saṁvatsaro 'tyagāt tāvad\
+> yāvatā nāgato gataḥ\
+> munis tad-darśanākāṅkṣo\
 > rājāb-bhakṣo babhūva ha
 
 *saṁvatsaraḥ*—one complete year; *atyagāt*—passed; *tāvat*—as long as; *yāvatā*—so long; *na*—not; *āgataḥ*—returned; *gataḥ*—Durvāsā Muni, who had left that place; *muniḥ*—the great sage; *tat-darśana-ākāṅkṣaḥ*—desiring to see him again; *rājā*—the King; *ap-bhakṣaḥ*—taking only water; *babhūva*—remained; *ha*—indeed.

@@ -1,11 +1,11 @@
 ### SB 7.8.24
 
-> एवं ब्रुवंस्त्वभ्यपतद्गदायुधो नदन्नृसिंहं प्रति दैत्यकुञ्जरः
+> एवं ब्रुवंस्त्वभ्यपतद्गदायुधो नदन्नृसिंहं प्रति दैत्यकुञ्जरः\
 > अलक्षितोऽग्नौ पतितः पतङ्गमो यथा नृसिंहौजसि सोऽसुरस्तदा ॥२४॥
 
-> alakṣito 'gnau patitaḥ pataṅgamo
-> yathā nṛsiṁhaujasi so 'suras tadā
-> na tad vicitraṁ khalu sattva-dhāmani
+> alakṣito 'gnau patitaḥ pataṅgamo\
+> yathā nṛsiṁhaujasi so 'suras tadā\
+> na tad vicitraṁ khalu sattva-dhāmani\
 > sva-tejasā yo nu purāpibat tamaḥ
 
 *alakṣitaḥ*—invisible; *agnau*—in the fire; *patitaḥ*—fallen; *pataṅgamaḥ*—an insect; *yathā*—just as; *nṛsiṁha*—of Lord Nṛsiṁhadeva; *ojasi*—in the effulgence; *saḥ*—he; *asuraḥ*—Hiraṇyakaśipu; *tadā*—at that time; *na*—not; *tat*—that; *vicitram*—wonderful; *khalu*—indeed; *sattva-dhāmani*—in the Supreme Personality of Godhead, who is situated in pure goodness; *sva-tejasā*—by His own effulgence; *yaḥ*—He who (the Lord); *nu*—indeed; *purā*—formerly; *apibat*—swallowed up; *tamaḥ*—the darkness within the material creation.

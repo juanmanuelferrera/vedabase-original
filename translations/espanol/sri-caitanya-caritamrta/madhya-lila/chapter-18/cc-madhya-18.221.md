@@ -1,9 +1,9 @@
 ### CC Madhya 18.221
 
-> দক্ষিণ যাইতে যৈছে শক্তি প্রকাশিলা ।
+> দক্ষিণ যাইতে যৈছে শক্তি প্রকাশিলা ।\
 > সেইমত পশ্চিম দেশ, প্রেমে ভাসাইলা ॥২২১॥
 
-> dakṣiṇa yāite yaiche śakti prakāśilā
+> dakṣiṇa yāite yaiche śakti prakāśilā\
 > sei-mata paścima deśa, preme bhāsāilā
 
 *dakṣiṇa yāite*—mientras recorría la parte sur de la India; *yaiche*—así como; *śakti prakāśilā*—manifestó Su energía espiritual; *sei-mata*—del mismo modo; *paścima deśa*—la parte occidental de la India; *preme bhāsāilā*—inundó de amor por Kṛṣṇa.

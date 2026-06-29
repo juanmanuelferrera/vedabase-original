@@ -1,9 +1,9 @@
 ### CC Madhya 25.61
 
-> পথে সেই বিপ্র সব বৃত্তান্ত কহিল ।
+> পথে সেই বিপ্র সব বৃত্তান্ত কহিল ।\
 > শুনি’ মহাপ্রভু সুখে ঈষত্ হাসিল ॥৬১॥
 
-> pathe sei vipra saba vṛttānta kahila
+> pathe sei vipra saba vṛttānta kahila\
 > śuni' mahāprabhu sukhe īṣat hāsila
 
 *pathe*—on the way; *sei vipra*—that *brāhmaṇa*; *saba vṛttānta kahila*—explained the whole incident; *śuni'*—hearing; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *sukhe*—in happiness; *īṣat*—mildly; *hāsila*—smiled.

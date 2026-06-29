@@ -1,9 +1,9 @@
 ### CC Madhya 8.83
 
-> কিন্তু যাঁর যেই রস, সেই সর্বোত্তম ।
+> কিন্তু যাঁর যেই রস, সেই সর্বোত্তম ।\
 > তটস্থ হঞা বিচারিলে, আছে তর-তম ॥৮৩॥
 
-> kintu yāṅra yei rasa, sei sarvottama
+> kintu yāṅra yei rasa, sei sarvottama\
 > taṭa-stha hañā vicārile, āche tara-tama
 
 *kintu*—nevertheless; *yāṅra*—of some devotees; *yei rasa*—whatever the mellow of exchanges of love; *sei*—that; *sarva-uttama*—the best; *taṭa-stha*—neutral; *hañā*—being; *vicārile*—if considering; *āche*—there is; *tara-tama*—lower and higher levels.

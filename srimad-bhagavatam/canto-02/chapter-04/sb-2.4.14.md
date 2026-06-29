@@ -1,11 +1,11 @@
 ### SB 2.4.14
 
-> नमो नमस्तेऽस्त्वृषभाय सात्वतां विदूरकाष्ठाय मुहुः कुयोगिनाम् ।
+> नमो नमस्तेऽस्त्वृषभाय सात्वतां विदूरकाष्ठाय मुहुः कुयोगिनाम् ।\
 > निरस्तसाम्यातिशयेन राधसा स्वधामनि ब्रह्मणि रंस्यते नमः ॥१४॥
 
-> namo namas te 'stv ṛṣabhāya sātvatāṁ
-> vidūra-kāṣṭhāya muhuḥ kuyoginām
-> nirasta-sāmyātiśayena rādhasā
+> namo namas te 'stv ṛṣabhāya sātvatāṁ\
+> vidūra-kāṣṭhāya muhuḥ kuyoginām\
+> nirasta-sāmyātiśayena rādhasā\
 > sva-dhāmani brahmaṇi raṁsyate namaḥ
 
 *namaḥ namaḥ te*—let me offer my obeisances unto You; *astu*—are; *ṛṣabhāya*—unto the great associate; *sātvatām*—of the members of the Yadu dynasty; *vidūra-kāṣṭhāya*—one who is far from mundane wranglers; *muhuḥ*—always; *ku-yoginām*—of the nondevotees; *nirasta*—vanquished; *sāmya*—equal status; *atiśayena*—by greatness; *rādhasā*—by opulence; *sva-dhāmani*—in His own abode; *brahmaṇi*—in the spiritual sky; *raṁsyate*—enjoys; *namaḥ*—I do bow down.

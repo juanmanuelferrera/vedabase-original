@@ -1,11 +1,11 @@
 ### SB 4.15.26
 
-> वयं त्वविदिता लोके सूताद्यापि वरीमभिः ।
+> वयं त्वविदिता लोके सूताद्यापि वरीमभिः ।\
 > कर्मभिः कथमात्मानं गापयिष्याम बालवत् ॥२६॥
 
-> vayaṁ tv aviditā loke
-> sūtādyāpi varīmabhiḥ
-> karmabhiḥ katham ātmānaṁ
+> vayaṁ tv aviditā loke\
+> sūtādyāpi varīmabhiḥ\
+> karmabhiḥ katham ātmānaṁ\
 > gāpayiṣyāma bālavat
 
 *vayam*—nosotros; *tu*—entonces; *aviditāḥ*—no famosos; *loke*—en el mundo; *sūta-ādya*—¡oh, personas encabezadas por el *sūta*!; *api*—ahora mismo; *varīmabhiḥ*—grande, digno de elogio; *karmabhiḥ*—con acciones; *katham*—cómo; *ātmānam*—a mí mismo; *gāpayiṣyāma*—los ocuparé en ofrecer; *bālavat*—como niños.

@@ -1,9 +1,9 @@
 ### CC Adi 4.233
 
-> হৃদয়ে ধরয়ে যে চৈতন্য-নিত্যানন্দ ।
+> হৃদয়ে ধরয়ে যে চৈতন্য-নিত্যানন্দ ।\
 > এসব সিদ্ধান্তে সেই পাইবে আনন্দ ॥২৩৩॥
 
-> hṛdaye dharaye ye caitanya-nityānanda
+> hṛdaye dharaye ye caitanya-nityānanda\
 > e-saba siddhānte sei pāibe ānanda
 
 *hṛdaye*—in the heart; *dharaye*—captures; *ye*—anyone who; *caitanya*—Śrī Caitanya Mahāprabhu; *nityānanda*—and Lord Nityānanda; *e-saba*—all these; *siddhānte*—by transcendental conclusions; *sei*—that man; *pāibe*—will get; *ānanda*—bliss.

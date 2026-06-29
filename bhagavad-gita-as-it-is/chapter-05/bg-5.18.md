@@ -1,11 +1,11 @@
 ### Bg 5.18
 
-> विद्याविनयसम्पन्ने ब्राह्मणे गवि हस्तिनि ।
+> विद्याविनयसम्पन्ने ब्राह्मणे गवि हस्तिनि ।\
 > शुनि चैव श्वपाके च पण्डिताः समदर्शिनः ॥१८॥
 
-> vidyā-vinaya-sampanne
-> brāhmaṇe gavi hastini
-> śuni caiva śva-pāke ca
+> vidyā-vinaya-sampanne\
+> brāhmaṇe gavi hastini\
+> śuni caiva śva-pāke ca\
 > paṇḍitāḥ sama-darśinaḥ
 
 *vidyā*—education; *vinaya*—gentleness; *sampanne*—fully equipped; *brāhmaṇe*—in the *brāhmaṇa*; *gavi*—in the cow; *hastini*—in the elephant; *śuni*—in the dog; *ca*—and; *eva*—certainly; *śvapāke*—in the dog-eater (the outcaste); *ca*—respectively; *paṇḍitāḥ*—those who are so wise; *sama-darśinaḥ*—do see with equal vision.

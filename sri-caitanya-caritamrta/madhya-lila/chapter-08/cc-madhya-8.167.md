@@ -1,9 +1,9 @@
 ### CC Madhya 8.167
 
-> কারুণ্যামৃত-ধারায় স্নান প্রথম ।
+> কারুণ্যামৃত-ধারায় স্নান প্রথম ।\
 > তারুণ্যামৃত-ধারায় স্নান মধ্যম ॥১৬৭॥
 
-> kāruṇyāmṛta-dhārāya snāna prathama
+> kāruṇyāmṛta-dhārāya snāna prathama\
 > tāruṇyāmṛta-dhārāya snāna madhyama
 
 *kāruṇya-amṛta*—of the nectar of mercy; *dhārāya*—in the shower; *snāna*—bath; *prathama*—first; *tāruṇya-amṛta*—of the nectar of youth; *dhārāya*—in the shower; *snāna*—bath; *madhyama*—in the middle.

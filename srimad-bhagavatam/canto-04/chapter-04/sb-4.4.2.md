@@ -1,11 +1,11 @@
 ### SB 4.4.2
 
-> सुहृद्दिदृक्षाप्रतिघातदुर्मनाः स्नेहाद्रुदत्यश्रुकलातिविह्वला ।
+> सुहृद्दिदृक्षाप्रतिघातदुर्मनाः स्नेहाद्रुदत्यश्रुकलातिविह्वला ।\
 > भवं भवान्यप्रतिपूरुषं रुषा प्रधक्ष्यतीवैक्षत जातवेपथुः ॥२॥
 
-> suhṛd-didṛkṣā-pratighāta-durmanāḥ
-> snehād rudaty aśru-kalātivihvalā
-> bhavaṁ bhavāny apratipūruṣaṁ ruṣā
+> suhṛd-didṛkṣā-pratighāta-durmanāḥ\
+> snehād rudaty aśru-kalātivihvalā\
+> bhavaṁ bhavāny apratipūruṣaṁ ruṣā\
 > pradhakṣyatīvaikṣata jāta-vepathuḥ
 
 *suhṛt-didṛkṣā*—of the desire to see her relatives; *pratighāta*—the prevention; *durmanāḥ*—feeling sorry; *snehāt*—from affection; *rudatī*—crying; *aśru-kalā*—by drops of tears; *ativihvalā*—very much afflicted; *bhavam*—Lord Śiva; *bhavānī*—Satī; *aprati-pūruṣam*—without an equal or rival; *ruṣā*—with anger; *pradhakṣyatī*—to blast; *iva*—as if; *aikṣata*—looked at; *jāta-vepathuḥ*—shaking.

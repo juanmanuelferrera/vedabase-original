@@ -1,9 +1,9 @@
 ### CC Madhya 25.198
 
-> প্রভু কহে, — ইহাঁ হৈতে যাহ’ বৃন্দাবন ।
+> প্রভু কহে, — ইহাঁ হৈতে যাহ’ বৃন্দাবন ।\
 > নিরন্তর কর কৃষ্ণনামসংকীর্তন ॥১৯৮॥
 
-> prabhu kahe,-ihāṅ haite yāha' vṛndāvana
+> prabhu kahe,-ihāṅ haite yāha' vṛndāvana\
 > nirantara kara kṛṣṇa-nāma-saṅkīrtana
 
 *prabhu kahe*—the Lord advised; *ihāṅ haite*—from this place; *yāha' vṛndāvana*—go to Vṛndāvana; *nirantara*—incessantly; *kara*—perform; *kṛṣṇa-nāma-saṅkīrtana*—chanting of the holy name of Kṛṣṇa.

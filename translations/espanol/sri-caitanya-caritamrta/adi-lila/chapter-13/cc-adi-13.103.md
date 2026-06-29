@@ -1,13 +1,13 @@
 ### CC Adi 13.103
 
-> এই মত ভক্তততি, যাঁর যেই দেশে স্থিতি,
-> তাহাঁ তাহাঁ পাঞা মনোবলে ।
-> নাচে, করে সংকীর্তন, আনন্দে বিহ্বল মন,
+> এই মত ভক্তততি, যাঁর যেই দেশে স্থিতি,\
+> তাহাঁ তাহাঁ পাঞা মনোবলে ।\
+> নাচে, করে সংকীর্তন, আনন্দে বিহ্বল মন,\
 > দান করে গ্রহণের ছলে ॥১০৩॥
 
-> ei mata bhakta-tati, yāṅra yei deśe sthiti,
-> tāhāṅ tāhāṅ pāñā mano-bale
-> nāce, kare saṅkīrtana, ānande vihvala mana,
+> ei mata bhakta-tati, yāṅra yei deśe sthiti,\
+> tāhāṅ tāhāṅ pāñā mano-bale\
+> nāce, kare saṅkīrtana, ānande vihvala mana,\
 > dāna kare grahaṇera chale
 
 *ei mata*—de este modo; *bhakta-tati*—todos los devotos de allí; *yāṅra*—de quienes; *yei*—cualquier; *deśe*—en el país; *sthiti*—residentes; *tāhāṅ tāhāṅ*—aquí y allá; *pāñā*—tomando ventaja; *manaḥ-bale*—con la fuerza de la mente; *nāce*—danzan; *kare saṅkīrtana*—ejecutan saṅkīrtana; *ānande*—de gozo; *vihvala*—abrumados; *mana*—la mente; *dāna*—en caridad; *kare*—dan; *grahaṇera*—del eclipse lunar; *chale*—con el pretexto.

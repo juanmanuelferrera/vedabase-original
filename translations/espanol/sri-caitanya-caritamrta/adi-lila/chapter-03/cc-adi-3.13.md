@@ -1,9 +1,9 @@
 ### CC Adi 3.13
 
-> যথেষ্ট বিহরি’ কৃষ্ণ করে অন্তর্ধান ।
+> যথেষ্ট বিহরি’ কৃষ্ণ করে অন্তর্ধান ।\
 > অন্তর্ধান করি’ মনে করে অনুমান ॥১৩॥
 
-> yatheṣṭa vihari' kṛṣṇa kare antardhāna
+> yatheṣṭa vihari' kṛṣṇa kare antardhāna\
 > antardhāna kari' mane kare anumāna
 
 *yathā-iṣṭa*—tanto como desea; *vihari'*—disfrutando; *kṛṣṇa*—el Señor Kṛṣṇa; *kare*—hace; *antardhāna*—desaparición; *antardhāna kari'*—desapareciendo; *mane*—en la mente; *kare*—hace; *anumāna*—consideración.

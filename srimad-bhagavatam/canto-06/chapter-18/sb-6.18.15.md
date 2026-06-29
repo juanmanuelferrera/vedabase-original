@@ -1,11 +1,11 @@
 ### SB 6.18.15
 
-> ह्रादस्य धमनिर्भार्या सूत वातापिमिल्वलम
+> ह्रादस्य धमनिर्भार्या सूत वातापिमिल्वलम\
 > योऽगस्त्याय त्वतिथये पेचे वातापिमिल्वलः ॥१५॥
 
-> hrādasya dhamanir bhāryā-
-> sūta vātāpim ilvalam
-> yo 'gastyāya tv atithaye
+> hrādasya dhamanir bhāryā-\
+> sūta vātāpim ilvalam\
+> yo 'gastyāya tv atithaye\
 > pece vātāpim ilvalaḥ
 
 *hrādasya*—of Hlāda; *dhamaniḥ*—Dhamani; *bhāryā*—the wife; *asūta*—gave birth to; *vātāpim*—Vātāpi; *ilvalam*—Ilvala; *yaḥ*—he who; *agastyāya*—to Agastya; *tu*—but; *atithaye*—his guest; *pece*—cooked; *vātāpim*—Vātāpi; *ilvalaḥ*—Ilvala.

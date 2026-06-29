@@ -1,11 +1,11 @@
 ### Bg 8.15
 
-> मामुपेत्य पुनर्जन्म दुःखालयमशाश्वतम् ।
+> मामुपेत्य पुनर्जन्म दुःखालयमशाश्वतम् ।\
 > नाप्नुवन्ति महात्मानः संसिद्धिं परमां गताः ॥१५॥
 
-> mām upetya punar janma
-> duḥkhālayam aśāśvatam
-> nāpnuvanti mahātmānaḥ
+> mām upetya punar janma\
+> duḥkhālayam aśāśvatam\
+> nāpnuvanti mahātmānaḥ\
 > saṁsiddhiṁ paramāṁ gatāḥ
 
 *mām*—unto Me; *upetya*—achieving; *punaḥ*—again; *janma*—birth; *duḥkha-ālayam*—place of miseries; *aśāśvatam*—temporary; *na*—never; *āpnuvanti*—attain; *mahātmānaḥ*—the great souls; *saṁsiddhim*—perfection; *paramām*—ultimate; *gatāḥ*—achieved.

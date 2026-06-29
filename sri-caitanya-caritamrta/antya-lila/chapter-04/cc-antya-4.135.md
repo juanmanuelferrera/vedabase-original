@@ -1,9 +1,9 @@
 ### CC Antya 4.135
 
-> এইমতে সেবক-প্রভু দুঁহে ঘর গেলা ।
+> এইমতে সেবক-প্রভু দুঁহে ঘর গেলা ।\
 > আর দিন জগদানন্দ সনাতনেরে মিলিলা ॥১৩৫॥
 
-> ei-mate sevaka-prabhu duṅhe ghara gelā
+> ei-mate sevaka-prabhu duṅhe ghara gelā\
 > āra dina jagadānanda sanātanere mililā
 
 *ei-mate*—in this way; *sevaka-prabhu*—the servant and the master; *duṅhe*—both of them; *ghara gelā*—returned to their respective places; *āra dina*—the next day; *jagadānanda*—Jagadānanda; *sanātanere mililā*—met Sanātana Gosvāmī.

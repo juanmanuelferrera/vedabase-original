@@ -1,9 +1,9 @@
 ### CC Madhya 10.62
 
-> ভট্টাচার্য সব লোকে বিদায় করাইল ।
+> ভট্টাচার্য সব লোকে বিদায় করাইল ।\
 > তবে প্রভু কালা-কৃষ্ণদাসে বোলাইল ॥৬২॥
 
-> bhaṭṭācārya saba loke vidāya karāila
+> bhaṭṭācārya saba loke vidāya karāila\
 > tabe prabhu kālā-kṛṣṇadāse bolāila
 
 *bhaṭṭācārya*—Sārvabhauma Bhaṭṭācārya; *saba loke*—all persons; *vidāya karāila*—asked to leave; *tabe*—at that time; *prabhu*—Śrī Caitanya Mahāprabhu; *kālā-kṛṣṇadāse*—Kālā Kṛṣṇadāsa; *bolāila*—called for.

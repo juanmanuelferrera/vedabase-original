@@ -1,9 +1,9 @@
 ### CC Madhya 21.148
 
-> কৃষ্ণের মাধুরী আর মহাপ্রভুর মুখে ।
+> কৃষ্ণের মাধুরী আর মহাপ্রভুর মুখে ।\
 > ইহা যেই শুনে, সেই ভাসে প্রেমসুখে ॥১৪৮॥
 
-> kṛṣṇera mādhurī āra mahāprabhura mukhe
+> kṛṣṇera mādhurī āra mahāprabhura mukhe\
 > ihā yei śune, sei bhāse prema-sukhe
 
 *kṛṣṇera*—of Lord Kṛṣṇa; *mādhurī*—the sweetness; *āra*—and; *mahāprabhura mukhe*—in the mouth of Śrī Caitanya Mahāprabhu; *ihā*—this statement; *yei*—anyone who; *śune*—hears; *sei*—that person; *bhāse*—floats; *prema-sukhe*—in the transcendental bliss of love of Godhead.

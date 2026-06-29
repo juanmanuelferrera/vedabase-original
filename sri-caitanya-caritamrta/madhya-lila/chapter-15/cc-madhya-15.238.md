@@ -1,9 +1,9 @@
 ### CC Madhya 15.238
 
-> তথাপি এতেক অন্ন খাওন না যায় ।
+> তথাপি এতেক অন্ন খাওন না যায় ।\
 > ভট্ট কহে, — জানি, খাও যতেক যুয়ায় ॥২৩৮॥
 
-> tathāpi eteka anna khāona nā yāya
+> tathāpi eteka anna khāona nā yāya\
 > bhaṭṭa kahe,—jāni, khāo yateka yuyāya
 
 *tathāpi*—still; *eteka*—so much; *anna*—food; *khāona*—eating; *nā yāya*—is not possible; *bhaṭṭa kahe*—Bhaṭṭācārya said; *jāni*—I know; *khāo*—You can eat; *yateka*—how much; *yuyāya*—is possible.

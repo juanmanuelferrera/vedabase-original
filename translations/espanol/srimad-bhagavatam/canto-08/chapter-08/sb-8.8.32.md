@@ -1,11 +1,11 @@
 ### SB 8.8.32
 
-> अथोदधेर्मथ्यमानात्काश्यपैरमृतार्थिभिः
+> अथोदधेर्मथ्यमानात्काश्यपैरमृतार्थिभिः\
 > उदतिष्ठन्महाराज पुरुषः परमाद्भुतः ॥३२॥
 
-> dīrgha-pīvara-dor-daṇḍaḥ
-> kambu-grīvo 'ruṇekṣaṇaḥ
-> śyāmalas taruṇaḥ sragvī
+> dīrgha-pīvara-dor-daṇḍaḥ\
+> kambu-grīvo 'ruṇekṣaṇaḥ\
+> śyāmalas taruṇaḥ sragvī\
 > sarvābharaṇa-bhūṣitaḥ
 
 *dīrgha*—largos; *pīvara*—fuertes y robustos; *doḥ-daṇḍaḥ*—los brazos; *kambu*—como una caracola; *grīvaḥ*—el cuello; *aruṇa-īkṣaṇaḥ*—ojos rojizos; *śyāmalaḥ*—color negruzco; *taruṇaḥ*—muy joven; *sragvī*—con un collar de flores; *sarva*—todo; *ābharaṇa*—con alhajas; *bhūṣitaḥ*—adornado.

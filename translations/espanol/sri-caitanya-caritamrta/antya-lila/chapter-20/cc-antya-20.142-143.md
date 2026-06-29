@@ -1,14 +1,14 @@
 ### CC Antya 20.142-143
 
-> শ্রীরাধা-সহ ‘শ্রীমদনমোহন’ ।
-> শ্রীরাধা-সহ ‘শ্রীগোবিন্দ’-চরণ ॥১৪২॥
-> শ্রীরাধা-সহ শ্রীল ‘শ্রীগোপীনাথ’ ।
+> শ্রীরাধা-সহ ‘শ্রীমদনমোহন’ ।\
+> শ্রীরাধা-সহ ‘শ্রীগোবিন্দ’-চরণ ॥১৪২॥\
+> শ্রীরাধা-সহ শ্রীল ‘শ্রীগোপীনাথ’ ।\
 > এই তিন ঠাকুর হয় ‘গৌড়িয়ার নাথ’ ॥১৪৩॥
 
-> śrī-rādhā-saha 'śrī-madana-mohana'
+> śrī-rādhā-saha 'śrī-madana-mohana'\
 > śrī-rādhā-saha 'śrī-govinda'-caraṇa
 
-> śrī-rādhā-saha śrīla 'śrī-gopīnātha'
+> śrī-rādhā-saha śrīla 'śrī-gopīnātha'\
 > ei tina ṭhākura haya 'gauḍiyāra nātha'
 
 *śrī-rādhā-saha*—con Śrīmatī Rādhārāṇī; *śrī-madana-mohana*—la Deidad Madana-mohanajī; *śrī-rādhā-saha*—con Śrīmatī Rādhārāṇī; *śrī-govinda-caraṇa*—los pies de loto de Śrī Govindajī; *śrī-rādhā-saha*—con Śrīmatī Rādhārāṇī; *śrīla śrī-gopīnātha*—el plenamente hermoso y opulento Gopīnāthajī; *ei tina*—esas tres; *ṭhākura*—Deidades; *haya*—son; *gauḍiyāra nātha*—adorables para todos los *gauḍīya-vaiṣṇavas*.

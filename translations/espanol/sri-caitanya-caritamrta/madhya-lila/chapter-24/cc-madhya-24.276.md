@@ -1,9 +1,9 @@
 ### CC Madhya 24.276
 
-> কম্প-পুলকাশ্রু হৈল কৃষ্ণনাম গাঞা ।
+> কম্প-পুলকাশ্রু হৈল কৃষ্ণনাম গাঞা ।\
 > ঊর্ধ্ববাহু নৃত্য করে বস্ত্র উড়াঞা ॥২৭৬॥
 
-> kampa-pulakāśru haila kṛṣṇa-nāma gāñā
+> kampa-pulakāśru haila kṛṣṇa-nāma gāñā\
 > ūrdhva bāhu nṛtya kare vastra uḍāñā
 
 *kampa*—temblor; *pulaka-aśru*—lágrimas y júbilo; *haila*—hubo; *kṛṣṇa-nāma gāñā*—cantando el mantra Hare Kṛṣṇa; *ūrdhva bāhu*—levantando los brazos; *nṛtya kare*—comenzó a danzar; *vastra uḍāñā*—agitando sus vestimentas arriba y abajo.

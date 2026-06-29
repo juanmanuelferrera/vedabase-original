@@ -1,9 +1,9 @@
 ### CC Adi 2.24
 
-> বেদ, ভাগবত, উপনিষৎ, আগম ।
+> বেদ, ভাগবত, উপনিষৎ, আগম ।\
 > ‘পূর্ণতত্ত্ব’ যাঁরে কহে, নাহি যাঁর সম ॥২৪॥
 
-> veda, bhāgavata, upaniṣat, āgama
+> veda, bhāgavata, upaniṣat, āgama\
 > 'pūrṇa-tattva' yāṅre kahe, nāhi yāṅra sama
 
 *veda*—los *Vedas*; *bhāgavata*—el *Śrīmad-Bhāgavatam*; *upaniṣat*—los *Upaniṣads*; *āgama*—otras literaturas trascendentales; *pūrṇa-tattva*—la verdad plena; *yāṅre*—a quien; *kahe*—dicen; *nāhi*—no hay; *yāṅra*—cuyo; *sama*—igual.

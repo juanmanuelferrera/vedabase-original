@@ -1,11 +1,11 @@
 ### SB 9.24.62
 
-> यस्मिन्सत्कर्णपीयुषे यशस्तीर्थवरे सकृत
+> यस्मिन्सत्कर्णपीयुषे यशस्तीर्थवरे सकृत\
 > श्रोत्राञ्जलिरुपस्पृश्य धुनुते कर्मवासनाम ॥६२॥
 
-> yasmin sat-karṇa-pīyuṣe
-> yaśas-tīrtha-vare sakṛt
-> śrotrāñjalir upaspṛśya
+> yasmin sat-karṇa-pīyuṣe\
+> yaśas-tīrtha-vare sakṛt\
+> śrotrāñjalir upaspṛśya\
 > dhunute karma-vāsanām
 
 *yasmin*—en la historia de las actividades trascendentales de Kṛṣṇa sobre la superficie de la Tierra; *sat-karṇa-pīyuṣe*—que complace las exigencias de los oídos purificados y trascendentales; *yaśaḥ-tīrtha-vare*—mantenerse en los lugares más sagrados por escuchar las actividades trascendentales del Señor; *sakṛt*—una sola vez, inmediatamente; *śrotra-añjaliḥ*—en forma de la escucha del mensaje trascendental; *upaspṛśya*—tocar (del mismo modo que el agua del Ganges); *dhunute*—destruye; *karma-vāsanām*—el fuerte deseo de realizar actividades fruitivas.

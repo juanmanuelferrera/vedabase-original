@@ -1,11 +1,11 @@
 ### SB 8.17.28
 
-> त्वं वै प्रजानां स्थिरजङ्गमानां प्रजापतीनामसि सम्भविष्णुः
+> त्वं वै प्रजानां स्थिरजङ्गमानां प्रजापतीनामसि सम्भविष्णुः\
 > दिवौकसां देव दिवश्च्युतानां परायणं नौरिव मज्जतोऽप्सु ॥२८॥
 
-> tvaṁ vai prajānāṁ sthira-jaṅgamānāṁ
-> prajāpatīnām asi sambhaviṣṇuḥ
-> divaukasāṁ deva divaś cyutānāṁ
+> tvaṁ vai prajānāṁ sthira-jaṅgamānāṁ\
+> prajāpatīnām asi sambhaviṣṇuḥ\
+> divaukasāṁ deva divaś cyutānāṁ\
 > parāyaṇaṁ naur iva majjato 'psu
 
 *tvam*—Your Lordship; *vai*—indeed; *prajānām*—of all living entities; *sthira-jaṅgamānām*—either stationary or moving; *prajāpatīnām*—of all the Prajāpatis; *asi*—You are; *sambhaviṣṇuḥ*—the generator of everyone; *diva-okasām*—of the inhabitants of the upper planetary system; *deva*—O Supreme Lord; *divaḥ cyutānām*—of the demigods, who have now fallen from their residential quarters; *parāyaṇam*—the supreme shelter; *nauḥ*—boat; *iva*—like; *majjataḥ*—of one drowning; *apsu*—in the water.

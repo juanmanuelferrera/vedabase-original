@@ -1,9 +1,9 @@
 ### CC Madhya 18.52
 
-> ‘গোবিন্দ’ ভক্ত, আর বাণী-কৃষ্ণদাস ৷
+> ‘গোবিন্দ’ ভক্ত, আর বাণী-কৃষ্ণদাস ৷\
 > পুণ্ডরীকাক্ষ, ঈশান, আর লঘু-হরিদাস ॥৫২॥
 
-> 'govinda' bhakta, āra vāṇī-kṛṣṇadāsa
+> 'govinda' bhakta, āra vāṇī-kṛṣṇadāsa\
 > puṇḍarīkākṣa, īśāna, āra laghu-haridāsa
 
 *govinda*—Govinda; *bhakta*—un gran devoto; *āra*—y; *vāṇī-kṛṣṇadāsa*—Vāṇī Kṛṣṇadāsa; *puṇḍarīkākṣa*—Puṇḍarīkākṣa; *īśāna*—Īśāna; *āra*—y; *laghu-haridāsa*—Laghu Haridāsa.

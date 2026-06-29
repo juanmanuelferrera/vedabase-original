@@ -1,13 +1,13 @@
 ### SB 4.3.8
 
-> सत्युवाच
-> प्रजापतेस्ते श्वशुरस्य साम्प्रतं निर्यापितो यज्ञमहोत्सवः किल ।
+> सत्युवाच\
+> प्रजापतेस्ते श्वशुरस्य साम्प्रतं निर्यापितो यज्ञमहोत्सवः किल ।\
 > वयं च तत्राभिसराम वाम ते यद्यर्थितामी विबुधा व्रजन्ति हि ॥८॥
 
-> saty uvāca
-> prajāpates te śvaśurasya sāmprataṁ
-> niryāpito yajña-mahotsavaḥ kila
-> vayaṁ ca tatrābhisarāma vāma te
+> saty uvāca\
+> prajāpates te śvaśurasya sāmprataṁ\
+> niryāpito yajña-mahotsavaḥ kila\
+> vayaṁ ca tatrābhisarāma vāma te\
 > yady arthitāmī vibudhā vrajanti hi
 
 *satī uvāca*—Sati said; *prajāpateḥ*—of Dakṣa; *te*—your; *śvaśurasya*—of your father-in-law; *sāmpratam*—nowadays; *niryāpitaḥ*—has been started; *yajña-mahā-utsavaḥ*—a great sacrifice; *kila*—certainly; *vayam*—we; *ca*—and; *tatra*—there; *abhisarāma*—may go; *vāma*—O my dear Lord Śiva; *te*—your; *yadi*—if; *arthitā*—desire; *amī*—these; *vibudhāḥ*—demigods; *vrajanti*—are going; *hi*—because.

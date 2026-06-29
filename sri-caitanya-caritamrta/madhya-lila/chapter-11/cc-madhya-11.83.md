@@ -1,9 +1,9 @@
 ### CC Madhya 11.83
 
-> আচার্য কহে, — ইঁহার নাম অদ্বৈত আচার্য ।
+> আচার্য কহে, — ইঁহার নাম অদ্বৈত আচার্য ।\
 > মহাপ্রভুর মান্যপাত্র, সর্ব-শিরোধার্য ॥৮৩॥
 
-> ācārya kahe,-iṅhāra nāma advaita ācārya
+> ācārya kahe,-iṅhāra nāma advaita ācārya\
 > mahāprabhura mānya-pātra, sarva-śirodhārya
 
 *ācārya kahe*—Gopīnātha Ācārya said; *iṅhāra nāma*—His name; *advaita ācārya*—Advaita Ācārya; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *mānya-pātra*—honorable; *sarva-śirodhārya*—the topmost devotee.

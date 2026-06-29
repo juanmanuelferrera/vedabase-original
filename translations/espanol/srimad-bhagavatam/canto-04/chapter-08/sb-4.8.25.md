@@ -1,11 +1,11 @@
 ### SB 4.8.25
 
-> नारदस्तदुपाकर्ण्य ज्ञात्वा तस्य चिकीर्षितम् ।
+> नारदस्तदुपाकर्ण्य ज्ञात्वा तस्य चिकीर्षितम् ।\
 > स्पृष्ट्वा मूर्धन्यघघ्नेन पाणिना प्राह विस्मितः ॥२५॥
 
-> nāradas tad upākarṇya
-> jñātvā tasya cikīrṣitam
-> spṛṣṭvā mūrdhany agha-ghnena
+> nāradas tad upākarṇya\
+> jñātvā tasya cikīrṣitam\
+> spṛṣṭvā mūrdhany agha-ghnena\
 > pāṇinā prāha vismitaḥ
 
 *nāradaḥ*—el gran sabio Nārada; *tat*—eso; *upākarṇya*—llegando a oídos; *jñātvā*—y sabiendo; *tasya*—sus (de Dhruva Mahārāja); *cikīrṣitam*—actividades; *spṛṣṭvā*—tocar; *mūrdhani*—en la cabeza; *agha-ghnena*—que puede alejar todas las actividades pecaminosas; *pāṇinā*—con la mano; *prāha*—dijo; *vismitaḥ*—sorprendido.

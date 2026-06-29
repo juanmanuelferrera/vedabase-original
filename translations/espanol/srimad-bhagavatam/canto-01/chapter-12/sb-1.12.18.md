@@ -1,13 +1,13 @@
 ### SB 1.12.18
 
-> श्रीराजोवाच
-> अप्येष वंश्यान्राजर्षीन्पुण्यश्लोकान्महात्मनः ।
+> श्रीराजोवाच\
+> अप्येष वंश्यान्राजर्षीन्पुण्यश्लोकान्महात्मनः ।\
 > अनुवर्तिता स्विद्यशसा साधुवादेन सत्तमाः ॥१८॥
 
-> śrī-rājovāca
-> apy eṣa vaṁśyān rājarṣīn
-> puṇya-ślokān mahātmanaḥ
-> anuvartitā svid yaśasā
+> śrī-rājovāca\
+> apy eṣa vaṁśyān rājarṣīn\
+> puṇya-ślokān mahātmanaḥ\
+> anuvartitā svid yaśasā\
 > sādhu-vādena sattamāḥ
 
 *śrī-rājā*—el muy buen rey (Mahārāja Yudhiṣṭhira); *uvāca*—dijo; *api*—si; *eṣaḥ*—esta; *vaṁśyān*—familia; *rāja-ṛṣīn*—de reyes santos; *puṇya-ślokān*—piadosos por su mismo nombre; *mahā-ātmanaḥ*—siendo todos grandes almas; *anuvartitā*—seguidor; *svit*—será; *yaśasā*—por los logros; *sādhu-vādena*—por la glorificación; *sat-tamāḥ*—¡oh, grandes almas!.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.116
 
-> ফিরি’ ফিরি’ কভু প্রভুর ধরেন চরণ ।
+> ফিরি’ ফিরি’ কভু প্রভুর ধরেন চরণ ।\
 > চরণে ধরিয়া প্ৰভুরে বলেন বচন ॥১১৬॥
 
-> phiri' phiri' kabhu prabhura dharena caraṇa
+> phiri' phiri' kabhu prabhura dharena caraṇa\
 > caraṇe dhariyā prabhure balena vacana
 
 *phiri' phiri'*—dando vueltas y vueltas; *kabhu*—a veces; *prabhura*—del Señor; *dharena*—toma; *caraṇa*—los pies de loto; *caraṇe dhariyā*—tomando los pies de loto; *prabhure*—al Señor; *balena*—dice; *vacana*—palabras.

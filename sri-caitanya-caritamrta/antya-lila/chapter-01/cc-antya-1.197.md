@@ -1,9 +1,9 @@
 ### CC Antya 1.197
 
-> প্রভু কহে, — “প্রয়াগে ইহার হইল মিলন ।
+> প্রভু কহে, — “প্রয়াগে ইহার হইল মিলন ।\
 > ইহার গুণে ইহাতে আমার তুষ্ট হৈল মন ॥১৯৭॥
 
-> prabhu kahe,—"prayāge ihāra ha-ila milana
+> prabhu kahe,—"prayāge ihāra ha-ila milana\
 > ihāra guṇe ihāte āmāra tuṣṭa haila mana
 
 *prabhu kahe*—Lord Śrī Caitanya Mahāprabhu says; *pra yāge*—at Prayāga; *ihāra*—of him; *ha-ila*—there was; *milana*—meeting; *ihāra guṇe*—by his transcendental qualities; *ihāte*—in him; *āmāra*—of Me; *tuṣṭa*—satisfied; *haila*—became; *mana*—the mind.

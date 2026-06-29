@@ -1,13 +1,13 @@
 ### SB 9.10.12
 
-> दग्ध्वात्मकृत्यहतकृत्यमहन्कबन्धं
-> सख्यं विधाय कपिभिर्दयितागतिं तैः
-> बुद्ध्वाथ वालिनि हते प्लवगेन्द्रसैन्यैर
+> दग्ध्वात्मकृत्यहतकृत्यमहन्कबन्धं\
+> सख्यं विधाय कपिभिर्दयितागतिं तैः\
+> बुद्ध्वाथ वालिनि हते प्लवगेन्द्रसैन्यैर\
 > वेलामगात्स मनुजोऽजभवार्चिताङ्घ्रिः ॥१२॥
 
-> dagdhvātma-kṛtya-hata-kṛtyam ahan kabandhaṁ
-> sakhyaṁ vidhāya kapibhir dayitā-gatiṁ taiḥ
-> buddhvātha vālini hate plavagendra-sainyair
+> dagdhvātma-kṛtya-hata-kṛtyam ahan kabandhaṁ\
+> sakhyaṁ vidhāya kapibhir dayitā-gatiṁ taiḥ\
+> buddhvātha vālini hate plavagendra-sainyair\
 > velām agāt sa manujo 'ja-bhavārcitāṅghriḥ
 
 *dagdhvā*—quemando; *ātma-kṛtya-hata-kṛtyam*—después de celebrar los rituales religiosos necesarios tras las muerte de Jaṭāyu, que murió por servir la causa del Señor; *ahan*—mató; *kabandham*—al demonio Kabandha; *sakhyam*—amistad; *vidhāya*—después de crear; *kapibhiḥ*—con los jefes de los monos; *dayitā-gatim*—los preparativos para liberar a Sītā; *taiḥ*—por ellos; *buddhvā*—saber; *atha*—a continuación; *vālini hate*—cuando fue matado Vāli; *plavaga-indra-sainyaiḥ*—con ayuda de los ejércitos de los monos; *velām*—a la playa del océano; *agāt*—fueron; *saḥ*—Él, el Señor Rāmacandra; *manu-jaḥ*—con el aspecto de un ser humano; *aja*—por el Señor Brahmā; *bhava*—por el Señor Śiva; *arcita-aṅghriḥ*—cuyos pies de loto son adorados.

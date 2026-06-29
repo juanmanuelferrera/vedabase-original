@@ -1,11 +1,11 @@
 ### SB 9.7.4
 
-> त्रसद्दस्युः पौरुकुत्सो योऽनरण्यस्य देहकृत
+> त्रसद्दस्युः पौरुकुत्सो योऽनरण्यस्य देहकृत\
 > हर्यश्वस्तत्सुतस्तस्मात्प्रारुणोऽथ त्रिबन्धनः ॥४॥
 
-> trasaddasyuḥ paurukutso
-> yo 'naraṇyasya deha-kṛt
-> haryaśvas tat-sutas tasmāt
+> trasaddasyuḥ paurukutso\
+> yo 'naraṇyasya deha-kṛt\
+> haryaśvas tat-sutas tasmāt\
 > prāruṇo 'tha tribandhanaḥ
 
 *trasaddasyuḥ*—by the name Trasaddasyu; *paurukutsaḥ*—the son of Purukutsa; *yaḥ*—who; *anaraṇyasya*—of Anaraṇya; *deha-kṛt*—the father; *haryaśvaḥ*—by the name Haryaśva; *tat-sutaḥ*—the son of Anaraṇya; *tasmāt*—from him (Haryaśva); *prāruṇaḥ*—by the name Prāruṇa; *atha*—then, from Prāruṇa; *tribandhanaḥ*—his son, Tribandhana.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.128
 
-> ‘তুমি কেনে দুঃখী, তোমার আছে পিতৃধন ।
+> ‘তুমি কেনে দুঃখী, তোমার আছে পিতৃধন ।\
 > তোমারে না কহিল, অন্যত্র ছাড়িল জীবন ।।” ॥১২৮॥
 
-> 'tumi kene duḥkhī, tomāra āche pitṛ-dhana
+> 'tumi kene duḥkhī, tomāra āche pitṛ-dhana\
 > tomāre nā kahila, anyatra chāḍila jīvana"
 
 *tumi*—you; *kene*—why; *duḥkhī*—distressed; *tomāra*—your; *āche*—there is; *pitṛ-dhana*—the riches of your father; *tomāre*—unto you; *nā kahila*—he did not disclose; *anyatra*—somewhere else; *chāḍila*—gave up; *jīvana*—his life.

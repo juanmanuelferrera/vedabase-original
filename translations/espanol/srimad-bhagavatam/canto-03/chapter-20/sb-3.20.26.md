@@ -1,11 +1,11 @@
 ### SB 3.20.26
 
-> पाहि मां परमात्मंस्ते प्रेषणेनासृजं प्रजाः ।
+> पाहि मां परमात्मंस्ते प्रेषणेनासृजं प्रजाः ।\
 > ता इमा यभितुं पापा उपाक्रामन्ति मां प्रभो ॥२६॥
 
-> pāhi māṁ paramātmaṁs te
-> preṣaṇenāsṛjaṁ prajāḥ
-> tā imā yabhituṁ pāpā
+> pāhi māṁ paramātmaṁs te\
+> preṣaṇenāsṛjaṁ prajāḥ\
+> tā imā yabhituṁ pāpā\
 > upākrāmanti māṁ prabho
 
 *pāhi*—protege; *mām*—a mí; *parama-ātman*—¡oh, Señor Supremo!; *te*—Tuya; *preṣaṇena*—por la orden; *asṛjam*—yo creé; *prajāḥ*—seres vivos; *tāḥ imāḥ*—esas mismas personas; *yabhitum*—para tener relación sexual; *pāpāḥ*—seres pecaminosos; *upākrāmanti*—se acercan; *mām*—a mí; *prabho*—¡oh, Señor!.

@@ -1,9 +1,9 @@
 ### CC Antya 16.7
 
-> কৌতুকেতে তেঁহো যদি পাশক খেলায় ।
+> কৌতুকেতে তেঁহো যদি পাশক খেলায় ।\
 > ‘হরে কৃষ্ণ’ ‘কৃষ্ণ’ করি’ পাশক চালায় ॥৭॥
 
-> kautukete teṅho yadi pāśaka khelāya
+> kautukete teṅho yadi pāśaka khelāya\
 > 'hare kṛṣṇa' 'kṛṣṇa' kari' pāśaka cālāya
 
 *kautukete*—in jest; *teṅho*—he; *yadi*—when; *pāśaka khelāya*—plays with dice; *hare kṛṣṇa*—the holy name of the Lord; *kṛṣṇa*—Kṛṣṇa; *kari'*—chanting; *pāśaka cālāya*—throws the dice.

@@ -1,25 +1,25 @@
 ### SB 4.3.5-7
 
-> तदुपश्रुत्य नभसि खेचराणां प्रजल्पताम् ।
-> सती दाक्षायणी देवी पितृयज्ञमहोत्सवम् ॥५॥
-> व्रजन्तीः सर्वतो दिग्भ्य उपदेववरस्त्रियः ।
-> विमानयानाः सप्रेष्ठा निष्ककण्ठीः सुवाससः ॥६॥
-> दृष्ट्वा स्वनिलयाभ्याशे लोलाक्षीर्मृष्टकुण्डलाः ।
+> तदुपश्रुत्य नभसि खेचराणां प्रजल्पताम् ।\
+> सती दाक्षायणी देवी पितृयज्ञमहोत्सवम् ॥५॥\
+> व्रजन्तीः सर्वतो दिग्भ्य उपदेववरस्त्रियः ।\
+> विमानयानाः सप्रेष्ठा निष्ककण्ठीः सुवाससः ॥६॥\
+> दृष्ट्वा स्वनिलयाभ्याशे लोलाक्षीर्मृष्टकुण्डलाः ।\
 > पतिं भूतपतिं देवमौत्सुक्यादभ्यभाषत ॥७॥
 
-> tad upaśrutya nabhasi
-> khe-carāṇāṁ prajalpatām
-> satī dākṣāyaṇī devī
+> tad upaśrutya nabhasi\
+> khe-carāṇāṁ prajalpatām\
+> satī dākṣāyaṇī devī\
 > pitṛ-yajña-mahotsavam
 
-> vrajantīḥ sarvato digbhya
-> upadeva-vara-striyaḥ
-> vimāna-yānāḥ sa-preṣṭhā
+> vrajantīḥ sarvato digbhya\
+> upadeva-vara-striyaḥ\
+> vimāna-yānāḥ sa-preṣṭhā\
 > niṣka-kaṇṭhīḥ suvāsasaḥ
 
-> dṛṣṭvā sva-nilayābhyāśe
-> lolākṣīr mṛṣṭa-kuṇḍalāḥ
-> patiṁ bhūta-patiṁ devam
+> dṛṣṭvā sva-nilayābhyāśe\
+> lolākṣīr mṛṣṭa-kuṇḍalāḥ\
+> patiṁ bhūta-patiṁ devam\
 > autsukyād abhyabhāṣata
 
 *tat*—then; *upaśrutya*—hearing; *nabhasi*—in the sky; *khe-carāṇām*—of those who were flying in the air (the Gandharvas); *prajalpatām*—the conversation; *satī*—Sati; *dākṣāyaṇī*—the daughter of Dakṣa; *devī*—the wife of Śiva; *pitṛ-yajña-mahā-utsavam*—the great festival of sacrifice performed by her father; *vrajantīḥ*—were going; *sarvataḥ*—from all; *digbhyaḥ*—directions; *upadeva-vara-striyaḥ*—the beautiful wives of the demigods; *vimāna-yānāḥ*—flying in their airplanes; *sa-preṣṭhāḥ*—along with their husbands; *niṣka-kaṇṭhīḥ*—having nice necklaces with lockets; *su-vāsasaḥ*—dressed in fine clothing; *dṛṣṭvā*—seeing; *sva-nilaya-abhyāśe*—near her residence; *lola-akṣīḥ*—having beautiful glittering eyes; *mṛṣṭa-kuṇḍalāḥ*—nice earrings; *patim*—her husband; *bhūta-patim*—the master of the *bhūtas*; *devam*—the demigod; *autsukyāt*—from great anxiety; *abhyabhāṣata*—she spoke.

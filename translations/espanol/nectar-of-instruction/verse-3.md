@@ -1,11 +1,11 @@
 ### 3
 
-> उत्साहान्निश्चयाद्ढैर्यात्तत्तत्कर्मप्रवर्तनात् ।
+> उत्साहान्निश्चयाद्ढैर्यात्तत्तत्कर्मप्रवर्तनात् ।\
 > सङ्गत्यगात् सतो वृत्तेः षड्भिर्भक्तिः प्रसिध्यति ॥३॥
 
-> utsāhān niścayād dhairyāt
-> tat-tat-karma-pravartanāt
-> saṅga-tyāgāt sato vṛtteḥ
+> utsāhān niścayād dhairyāt\
+> tat-tat-karma-pravartanāt\
+> saṅga-tyāgāt sato vṛtteḥ\
 > ṣaḍbhir bhaktiḥ prasidhyati
 
 *utsāhāt*—con entusiasmo; *niścayāt*—con confianza; *dhairyāt*—con paciencia; *tat-tat-karma*—diversas actividades favorables para el servicio devocional; *pravartanāt*—ejecutando; *saṅga-tyāgāt*—abandonando la asociación de los no devotos; *sataḥ*—de los grandes ācāryas anteriores; *vṛtteḥ*—siguiendo los pasos; *ṣaḍbhiḥ*—por estos seis; *bhaktiḥ*—servicio devocional; *prasidhyati*—progresa o tiene éxito.

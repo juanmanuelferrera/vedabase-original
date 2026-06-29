@@ -1,11 +1,11 @@
 ### CC Madhya 19.121
 
-> প্রিয়স্বরূপে দয়িতস্বরূপে প্রেমস্বরূপে সহজাভিরূপে ।
+> প্রিয়স্বরূপে দয়িতস্বরূপে প্রেমস্বরূপে সহজাভিরূপে ।\
 > নিজানুরূপে প্রভুরেকরূপে ততান রূপে স্ববিলাসরূপে ॥১২১॥
 
-> priya-svarūpe dayita-svarūpe
-> prema-svarūpe sahajābhirūpe
-> nijānurūpe prabhur eka-rūpe
+> priya-svarūpe dayita-svarūpe\
+> prema-svarūpe sahajābhirūpe\
+> nijānurūpe prabhur eka-rūpe\
 > tatāna rūpe svavilāsa-rūpe
 
 *priya-svarūpe*—a la persona cuyo querido amigo era Śrīla Svarūpa Dāmodara Gosvāmī; *dayita-svarūpe*—que era muy querido para Él (Śrī Caitanya Mahāprabhu); *prema-svarūpe*—a la réplica de Su amor extático personal; *sahaja-abhirūpe*—que era naturalmente muy hermoso; *nija-anurūpe*—que seguía exactamente los principios de Śrī Caitanya Mahāprabhu; *prabhuḥ*—Śrī Caitanya Mahāprabhu; *eka-rūpe*—al único; *tatāna*—explicó; *rūpe*—a Rūpa Gosvāmī; *sva-vilāsa-rūpe*—que describe los pasatiempos del Señor Kṛṣṇa.

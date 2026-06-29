@@ -1,9 +1,9 @@
 ### CC Adi 4.62
 
-> আনন্দাংশে হ্লাদিনী, সদংশে সন্ধিনী ।
+> আনন্দাংশে হ্লাদিনী, সদংশে সন্ধিনী ।\
 > চিদংশে সম্বিৎ — যারে জ্ঞান করি’ মানি ॥৬২॥
 
-> ānandāṁśe hlādinī, sad-aṁśe sandhinī
+> ānandāṁśe hlādinī, sad-aṁśe sandhinī\
 > cid-aṁśe samvit—yāre jñāna kari' māni
 
 *ānanda-aṁśe*—in the bliss portion; *hlādinī*—the pleasure energy; *sat-aṁśe*—in the eternal portion; *sandhinī*—the existence-expanding energy; *cit-aṁśe*—in the cognizant portion; *samvit*—the full energy of knowledge; *yāre*—which; *jñāna kari'*—as knowledge; *māni*—I accept.

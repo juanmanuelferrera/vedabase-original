@@ -1,11 +1,11 @@
 ### Bg 8.2
 
-> अधियज्ञः कथं कोऽत्र देहेऽस्मिन्मधुसूदन ।
+> अधियज्ञः कथं कोऽत्र देहेऽस्मिन्मधुसूदन ।\
 > प्रयाणकाले च कथं ज्ञेयोऽसि नियतात्मभिः ॥२॥
 
-> adhiyajñaḥ kathaṁ ko 'tra
-> dehe 'smin madhusūdana
-> prayāṇa-kāle ca kathaṁ
+> adhiyajñaḥ kathaṁ ko 'tra\
+> dehe 'smin madhusūdana\
+> prayāṇa-kāle ca kathaṁ\
 > jñeyo 'si niyatātmabhiḥ
 
 *adhiyajñaḥ*—the Lord of sacrifice; *katham*—how; *kaḥ*—who; *atra*—here; *dehe*—in the body; *asmin*—in this; *madhusūdana*—O Madhusūdana; *prayāṇa-kāle*—at the time of death; *ca*—and; *katham*—how; *jñeyaḥ*—be known; *asi*—You can; *niyata-ātmabhiḥ*—by the self-controlled.

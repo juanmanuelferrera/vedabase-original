@@ -1,9 +1,9 @@
 ### CC Adi 7.113
 
-> চিদানন্দ — তেঁহো, তাঁর স্থান, পরিবার ।
+> চিদানন্দ — তেঁহো, তাঁর স্থান, পরিবার ।\
 > তাঁরে কহে — প্রাকৃত-সত্ত্বের বিকার ॥১১৩॥
 
-> cid-ānanda—teṅho, tāṅra sthāna, parivāra
+> cid-ānanda—teṅho, tāṅra sthāna, parivāra\
 > tāṅre kahe—prākṛta-sattvera vikāra
 
 *cit-ānanda*—spiritual bliss; *teṅho*—He is personally; *tāṅra*—His; *sthāna*—abode; *parivāra*—entourage; *tāṅre*—unto Him; *kahe*—someone says; *prākṛta*—material; *sattvera*—goodness; *vikāra*—transformation.

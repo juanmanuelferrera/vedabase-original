@@ -1,13 +1,13 @@
 ### SB 3.28.36
 
-> सोऽप्येतया चरमया मनसो निवृत्त्या
-> तस्मिन्महिम्न्यवसितः सुखदुःखबाह्ये ।
-> हेतुत्वमप्यसति कर्तरि दुःखयोर्यत्
+> सोऽप्येतया चरमया मनसो निवृत्त्या\
+> तस्मिन्महिम्न्यवसितः सुखदुःखबाह्ये ।\
+> हेतुत्वमप्यसति कर्तरि दुःखयोर्यत्\
 > स्वात्मन्विधत्त उपलब्धपरात्मकाष्ठः ॥३६॥
 
-> so 'py etayā caramayā manaso nivṛttyā
-> tasmin mahimny avasitaḥ sukha-duḥkha-bāhye
-> hetutvam apy asati kartari duḥkhayor yat
+> so 'py etayā caramayā manaso nivṛttyā\
+> tasmin mahimny avasitaḥ sukha-duḥkha-bāhye\
+> hetutvam apy asati kartari duḥkhayor yat\
 > svātman vidhatta upalabdha-parātma-kāṣṭhaḥ
 
 *saḥ*—the *yogī*; *api*—moreover; *etayā*—by this; *caramayā*—ultimate; *manasaḥ*—of the mind; *nivṛttyā*—by cessation of material reaction; *tasmin*—in his; *mahimni*—ultimate glory; *avasitaḥ*—situated; *sukha-duḥkha-bāhye*—outside of happiness and distress; *hetutvam*—the cause; *api*—indeed; *asati*—a product of ignorance; *kartari*—in the false ego; *duḥkhayoḥ*—of pleasure and pain; *yat*—which; *sva-ātman*—to his own self; *vidhatte*—he attributes; *upalabdha*—realized; *para-ātma*—of the Personality of Godhead; *kāṣṭhaḥ*—the highest truth.

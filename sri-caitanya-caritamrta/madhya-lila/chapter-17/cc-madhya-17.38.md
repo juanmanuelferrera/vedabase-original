@@ -1,9 +1,9 @@
 ### CC Madhya 17.38
 
-> দেখি’ মহাপ্রভুর ‘বৃন্দাবন’-স্মৃতি হৈল ।
+> দেখি’ মহাপ্রভুর ‘বৃন্দাবন’-স্মৃতি হৈল ।\
 > বৃন্দাবন-গুণ-বর্ণন শ্লোক পড়িল ॥৩৮॥
 
-> dekhi' mahāprabhura 'vṛndāvana'-smṛti haila
+> dekhi' mahāprabhura 'vṛndāvana'-smṛti haila\
 > vṛndāvana-guṇa-varṇana śloka paḍila
 
 *dekhi'*—seeing; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *vṛndāvana*—of the holy land of Vṛndāvana; *smṛti haila*—there was remembrance; *vṛndāvana*—of Śrī Vṛndāvana; *guṇa*—of the qualities; *varṇana*—description; *śloka*—verse; *paḍila*—recited.

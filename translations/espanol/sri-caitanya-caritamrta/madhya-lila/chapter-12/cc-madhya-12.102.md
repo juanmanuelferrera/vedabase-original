@@ -1,9 +1,9 @@
 ### CC Madhya 12.102
 
-> কেহ লুকাঞা করে সেই জল পান ।
+> কেহ লুকাঞা করে সেই জল পান ।\
 > কেহ মাগি’ লয়, কেহ অন্যে করে দান ॥১০২॥
 
-> keha lukāñā kare sei jala pāna
+> keha lukāñā kare sei jala pāna\
 > keha māgi' laya, keha anye kare dāna
 
 *keha*—alguien; *lukāñā*—ocultándose; *kare*—hace; *sei jala*—de esa agua; *pāna*—beber; *keha*—alguien; *māgi' laya*—pidiendo, toma; *keha*—otro; *anye*—a otro; *kare*—hace; *dāna*—caridad.

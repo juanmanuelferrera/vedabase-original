@@ -1,11 +1,11 @@
 ### SB 4.3.11
 
-> त्वय्येतदाश्चर्यमजात्ममायया विनिर्मितं भाति गुणत्रयात्मकम् ।
+> त्वय्येतदाश्चर्यमजात्ममायया विनिर्मितं भाति गुणत्रयात्मकम् ।\
 > तथाप्यहं योषिदतत्त्वविच्च ते दीना दिदृक्षे भव मे भवक्षितिम् ॥११॥
 
-> tvayy etad āścaryam ajātma-māyayā
-> vinirmitaṁ bhāti guṇa-trayātmakam
-> tathāpy ahaṁ yoṣid atattva-vic ca te
+> tvayy etad āścaryam ajātma-māyayā\
+> vinirmitaṁ bhāti guṇa-trayātmakam\
+> tathāpy ahaṁ yoṣid atattva-vic ca te\
 > dīnā didṛkṣe bhava me bhava-kṣitim
 
 *tvayi*—in you; *etat*—this; *āścaryam*—wonderful; *aja*—O Lord Śiva; *ātma-māyayā*—by the external energy of the Supreme Lord; *vinirmitam*—created; *bhāti*—appears; *guṇa-traya-ātmakam*—being an interaction of the three modes of material nature; *tathā api*—even so; *aham*—I; *yoṣit*—woman; *atattva-vit*—not conversant with the truth; *ca*—and; *te*—your; *dīnā*—poor; *didṛkṣe*—I wish to see; *bhava*—O Lord Śiva; *me*—my; *bhava-kṣitim*—place of birth.

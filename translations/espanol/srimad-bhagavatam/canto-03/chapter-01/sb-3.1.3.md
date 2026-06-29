@@ -1,13 +1,13 @@
 ### SB 3.1.3
 
-> राजोवाच
-> कुत्र क्षत्तुर्भगवता मैत्रेयेणास सङ्गमः ।
+> राजोवाच\
+> कुत्र क्षत्तुर्भगवता मैत्रेयेणास सङ्गमः ।\
 > कदा वा सहसंवाद एतद्वर्णय नः प्रभो ॥३॥
 
-> rājovāca
-> kutra kṣattur bhagavatā
-> maitreyeṇāsa saṅgamaḥ
-> kadā vā saha-saṁvāda
+> rājovāca\
+> kutra kṣattur bhagavatā\
+> maitreyeṇāsa saṅgamaḥ\
+> kadā vā saha-saṁvāda\
 > etad varṇaya naḥ prabho
 
 *rājā uvāca*—el rey dijo; *kutra*—dónde; *kṣattuḥ*—con Vidura; *bhagavatā*—y con Su Gracia; *maitreyeṇa*—con Maitreya; *āsa*—hubo; *saṅgamaḥ*—encuentro; *kadā*—cuándo; *vā*—también; *saha*—con; *saṁvādaḥ*—conversación; *etat*—eso; *varṇaya*—describe; *naḥ*—a mí; *prabho*—¡oh, mi señor!.

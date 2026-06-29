@@ -1,11 +1,11 @@
 ### SB 7.13.6
 
-> नाभिनन्देद्ध्रुवं मृत्युमध्रुवं वास्य जीवितम
+> नाभिनन्देद्ध्रुवं मृत्युमध्रुवं वास्य जीवितम\
 > कालं परं प्रतीक्षेत भूतानां प्रभवाप्ययम ॥६॥
 
-> nābhinanded dhruvaṁ mṛtyum
-> adhruvaṁ vāsya jīvitam
-> kālaṁ paraṁ pratīkṣeta
+> nābhinanded dhruvaṁ mṛtyum\
+> adhruvaṁ vāsya jīvitam\
+> kālaṁ paraṁ pratīkṣeta\
 > bhūtānāṁ prabhavāpyayam
 
 *na*—no; *abhinandet*—se debe alabar; *dhruvam*—segura; *mṛtyum*—muerte; *adhruvam*—no segura; *vā*—o; *asya*—de este cuerpo; *jīvitam*—la duración de la vida; *kālam*—el tiempo eterno; *param*—supremo; *pratīkṣeta*—se debe observar; *bhūtānām*—de las entidades vivientes; *prabhava*—la manifestación; *apyayam*—la desaparición.

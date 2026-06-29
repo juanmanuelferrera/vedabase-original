@@ -1,9 +1,9 @@
 ### CC Madhya 3.27
 
-> অহো ভাগ্য, যমুনারে পাইলুঁ দরশন ।
+> অহো ভাগ্য, যমুনারে পাইলুঁ দরশন ।\
 > এত বলি’ যমুনার করেন স্তবন ॥২৭॥
 
-> aho bhāgya, yamunāre pāiluṅ daraśana
+> aho bhāgya, yamunāre pāiluṅ daraśana\
 > eta bali' yamunāra karena stavana
 
 *aho bhāgya*—oh, Mi gran fortuna; *yamunāre*—del río Yamunā; *pāiluṅ*—he obtenido; *daraśana*—visión; *eta bali'*—tras decir esto; *yamunāra*—del río Yamunā; *karena*—hace; *stavana*—orar.

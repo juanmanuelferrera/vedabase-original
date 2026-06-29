@@ -1,9 +1,9 @@
 ### CC Adi 7.149
 
-> সেই হৈতে সন্ন্যাসীর ফিরি গেল মন ।
+> সেই হৈতে সন্ন্যাসীর ফিরি গেল মন ।\
 > ‘কৃষ্ণ’ ‘কৃষ্ণ’ নাম সদা করয়ে গ্রহণ ॥১৪৯॥
 
-> sei haite sannyāsīra phiri gela mana
+> sei haite sannyāsīra phiri gela mana\
 > 'kṛṣṇa' 'kṛṣṇa' nāma sadā karaye grahaṇa
 
 *sei haite*—from that time; *sannyāsīra*—all the Māyāvādī *sannyāsīs*; *phiri*—turn; *gela*—became; *mana*—mind; *kṛṣṇa kṛṣṇa*—the holy name of the Supreme Personality of Godhead, Kṛṣṇa; *nāma*—name; *sadā*—always; *karaye*—do; *grahaṇa*—accept.

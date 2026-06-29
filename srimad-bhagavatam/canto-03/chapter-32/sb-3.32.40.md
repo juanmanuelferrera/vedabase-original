@@ -1,11 +1,11 @@
 ### SB 3.32.40
 
-> न लोलुपायोपदिशेन्न गृहारूढचेतसे ।
+> न लोलुपायोपदिशेन्न गृहारूढचेतसे ।\
 > नाभक्ताय च मे जातु न मद्भक्तद्विषामपि ॥४०॥
 
-> na lolupāyopadiśen
-> na gṛhārūḍha-cetase
-> nābhaktāya ca me jātu
+> na lolupāyopadiśen\
+> na gṛhārūḍha-cetase\
+> nābhaktāya ca me jātu\
 > na mad-bhakta-dviṣām api
 
 *na*—not; *lolupāya*—to the greedy; *upadiśet*—one should instruct; *na*—not; *gṛha-ārūḍha-cetase*—to one who is too attached to family life; *na*—not; *abhaktāya*—to the nondevotee; *ca*—and; *me*—of Me; *jātu*—ever; *na*—not; *mat*—My; *bhakta*—devotees; *dviṣām*—to those who are envious of; *api*—also.

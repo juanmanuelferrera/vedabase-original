@@ -1,9 +1,9 @@
 ### CC Antya 13.35
 
-> কেবল গৌড়িয়া পাইলে ‘বাটপাড়’ করি’ বান্ধে ।
+> কেবল গৌড়িয়া পাইলে ‘বাটপাড়’ করি’ বান্ধে ।\
 > সব লুটি’ বাঁধি’ রাখে, যাইতে বিরোধে ॥৩৫॥
 
-> kevala gauḍiyā pāile 'bāṭapāḍa' kari' bāndhe
+> kevala gauḍiyā pāile 'bāṭapāḍa' kari' bāndhe\
 > saba luṭi' bāṅdhi' rākhe, yāite virodhe
 
 *kevala*—solo; *gauḍiyā*—bengalí; *pāile*—si encuentran; *bāṭapāḍa*—saqueo; *kari'*—haciendo; *bāndhe*—arrestan; *saba*—todo; *luṭi'*—quitando; *bāṅdhi'*—arrestando; *rākhe*—retienen; *yāite virodhe*—no lo dejan ir.

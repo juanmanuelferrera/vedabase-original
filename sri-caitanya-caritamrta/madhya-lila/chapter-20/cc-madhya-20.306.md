@@ -1,13 +1,13 @@
 ### CC Madhya 20.306
 
-> যস্যাঙ্ঘ্রিপঙ্কজরজোঽখিললোকপালৈ-
-> র্মৌল্যুত্তমৈর্ধৃতমুপাসিত-তীর্থতীর্থম্ ।
-> ব্রহ্মা ভবোঽহমপি যস্য কলাঃ কলায়াঃ
+> যস্যাঙ্ঘ্রিপঙ্কজরজোঽখিললোকপালৈ-\
+> র্মৌল্যুত্তমৈর্ধৃতমুপাসিত-তীর্থতীর্থম্ ।\
+> ব্রহ্মা ভবোঽহমপি যস্য কলাঃ কলায়াঃ\
 > শ্রীশ্চোদ্বহেম চিরমস্য নৃপাসনং ক্ব ॥৩০৬॥
 
-> yasyāṅghri-paṅkaja-rajo 'khila-loka-pālair
-> mauly-uttamair dhṛtam upāsita-tīrtha-tīrtham
-> brahmā bhavo 'ham api yasya kalāḥ kalāyāḥ
+> yasyāṅghri-paṅkaja-rajo 'khila-loka-pālair\
+> mauly-uttamair dhṛtam upāsita-tīrtha-tīrtham\
+> brahmā bhavo 'ham api yasya kalāḥ kalāyāḥ\
 > śrīś codvahema ciram asya nṛpāsanaṁ kva
 
 *yasya*—whose; *aṅghri-paṅkaja*—lotuslike feet; *rajaḥ*—the dust; *akhila-loka*—of the universal planetary systems; *pālaiḥ*—by the masters; *mauli-uttamaiḥ*—with valuable turbans on their heads; *dhṛtam*—accepted; *upāsita*—worshiped; *tīrtha-tīrtham*—the sanctifier of the holy places; *brahmā*—Lord Brahmā; *bhavaḥ*—Lord Śiva; *aham api*—even I; *yasya*—of whom; *kalāḥ*—portions; *kalāyāḥ*—of a plenary portion; *śrīḥ*—the goddess of fortune; *ca*—and; *udvahema*—we carry; *ciram*—eternally; *asya*—of Him; *nṛpa-āsanam*—the throne of a king; *kva*—where.

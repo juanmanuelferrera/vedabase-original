@@ -1,9 +1,9 @@
 ### CC Madhya 3.207
 
-> ঘরে গিয়া কর সবে কৃষ্ণসংকীর্তন ।
+> ঘরে গিয়া কর সবে কৃষ্ণসংকীর্তন ।\
 > পুনরপি আমা-সঙ্গে হইবে মিলন ॥২০৭॥
 
-> ghare giyā kara sabe kṛṣṇa-saṅkīrtana
+> ghare giyā kara sabe kṛṣṇa-saṅkīrtana\
 > punarapi āmā-saṅge ha-ibe milana
 
 *ghare giyā*—returning home; *kara*—do; *sabe*—all; *kṛṣṇa-saṅkīrtana*—congregational chanting of the *mahā-mantra*; *punarapi*—again; *āmā-saṅge*—with Me; *ha-ibe*—there will be; *milana*—meeting.

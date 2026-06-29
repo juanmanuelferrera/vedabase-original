@@ -1,11 +1,11 @@
 ### SB 4.30.2
 
-> किं बार्हस्पत्येह परत्र वाथ कैवल्यनाथप्रियपार्श्ववर्तिनः ।
+> किं बार्हस्पत्येह परत्र वाथ कैवल्यनाथप्रियपार्श्ववर्तिनः ।\
 > आसाद्य देवं गिरिशं यदृच्छया प्रापुः परं नूनमथ प्रचेतसः ॥२॥
 
-> kiṁ bārhaspatyeha paratra vātha
-> kaivalya-nātha-priya-pārśva-vartinaḥ
-> āsādya devaṁ giriśaṁ yadṛcchayā
+> kiṁ bārhaspatyeha paratra vātha\
+> kaivalya-nātha-priya-pārśva-vartinaḥ\
+> āsādya devaṁ giriśaṁ yadṛcchayā\
 > prāpuḥ paraṁ nūnam atha pracetasaḥ
 
 *kim*—qué; *bārhaspatya*—¡oh, discípulo de Bṛhaspati!; *iha*—aquí; *paratra*—en otros planetas; *vā*—o; *atha*—como tal; *kaivalya-nātha*—al que otorga la liberación; *priya*—querido; *pārśva-vartinaḥ*—en relación con; *āsādya*—después de su encuentro; *devam*—el gran semidiós; *giri-śam*—el Señor de la montaña Kailāsa; *yadṛcchayā*—por la providencia; *prāpuḥ*—alcanzaron; *param*—al Supremo; *nūnam*—ciertamente; *atha*—por lo tanto; *pracetasaḥ*—los hijos de Barhiṣat.

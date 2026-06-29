@@ -1,9 +1,9 @@
 ### CC Madhya 19.231
 
-> মধুর-রসে — কৃষ্ণনিষ্ঠা, সেবা অতিশয়  ।
+> মধুর-রসে — কৃষ্ণনিষ্ঠা, সেবা অতিশয়  ।\
 > সখ্যের অসঙ্কোচ, লালন-মমতাধিক্য হয় ॥২৩১॥
 
-> madhura-rase—kṛṣṇa-niṣṭhā, sevā atiśaya
+> madhura-rase—kṛṣṇa-niṣṭhā, sevā atiśaya\
 > sakhyera asaṅkoca, lālana-mamatādhikya haya
 
 *madhura-rase*—on the platform of conjugal love; *kṛṣṇa-niṣṭhā*—attachment for Kṛṣṇa; *sevā atiśaya*—an improved rendering service; *sakhyera*—of the platform of fraternity; *asaṅkoca*—relaxation; *lālana*—maintenance; *mamatā-adhikya*—increase of intimacy; *haya*—there is.

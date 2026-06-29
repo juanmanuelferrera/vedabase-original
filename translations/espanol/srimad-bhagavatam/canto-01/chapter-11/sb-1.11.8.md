@@ -1,11 +1,11 @@
 ### SB 1.11.8
 
-> अहो सनाथा भवता स्म यद्वयं त्रैविष्टपानामपि दूरदर्शनम् ।
+> अहो सनाथा भवता स्म यद्वयं त्रैविष्टपानामपि दूरदर्शनम् ।\
 > प्रेमस्मितस्निग्धनिरीक्षणाननं पश्येम रूपं तव सर्वसौभगम् ॥८॥
 
-> aho sanāthā bhavatā sma yad vayaṁ
-> traiviṣṭapānām api dūra-darśanam
-> prema-smita-snigdha-nirīkṣaṇānanaṁ
+> aho sanāthā bhavatā sma yad vayaṁ\
+> traiviṣṭapānām api dūra-darśanam\
+> prema-smita-snigdha-nirīkṣaṇānanaṁ\
 > paśyema rūpaṁ tava sarva-saubhagam
 
 *aho*—¡oh, es nuestra buena suerte!; *sa-nāthāḥ*—estar bajo la protección del amo; *bhavatā*—por Tu buena persona; *sma*—como nos hemos vuelto; *yat vayam*—como somos; *traiviṣṭa-pānām*—de los semidioses; *api*—también; *dūra-darśanam*—visto muy rara vez; *prema-smita*—sonriendo con amor; *snigdha*—afectuoso; *nirīkṣaṇa-ānanam*—cara que luce de esa manera; *paśyema*—miremos; *rūpam*—belleza; *tava*—Tuya; *sarva*—todo; *saubhagam*—lo auspicioso.

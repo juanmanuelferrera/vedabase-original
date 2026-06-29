@@ -1,11 +1,11 @@
 ### SB 6.5.23
 
-> नाशं निशम्य पुत्राणां नारदाच्छीलशालिनाम
+> नाशं निशम्य पुत्राणां नारदाच्छीलशालिनाम\
 > अन्वतप्यत कः शोचन्सुप्रजस्त्वं शुचां पदम ॥२३॥
 
-> nāśaṁ niśamya putrāṇāṁ
-> nāradāc chīla-śālinām
-> anvatapyata kaḥ śocan
+> nāśaṁ niśamya putrāṇāṁ\
+> nāradāc chīla-śālinām\
+> anvatapyata kaḥ śocan\
 > suprajastvaṁ śucāṁ padam
 
 *nāśam*—la pérdida; *niśamya*—escuchar acerca de; *putrāṇām*—de sus hijos; *nāradāt*—de Nārada; *śīla-śālinām*—que eran los mejores entre las personas de buena conducta; *anvatapyata*—sufrió; *kaḥ*—Prajāpati Dakṣa; *śocan*—lamentando; *su-prajastvam*—tener diez mil hijos muy bien educados; *śucām*—de lamentación; *padam*—posición.

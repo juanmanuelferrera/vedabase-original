@@ -1,11 +1,11 @@
 ### SB 4.14.46
 
-> तस्य वंश्यास्तु नैषादा गिरिकाननगोचराः ।
+> तस्य वंश्यास्तु नैषादा गिरिकाननगोचराः ।\
 > येनाहरज्जायमानो वेनकल्मषमुल्बणम् ॥४६॥
 
-> tasya vaṁśyās tu naiṣādā
-> giri-kānana-gocarāḥ
-> yenāharaj jāyamāno
+> tasya vaṁśyās tu naiṣādā\
+> giri-kānana-gocarāḥ\
+> yenāharaj jāyamāno\
 > vena-kalmaṣam ulbaṇam
 
 *tasya*—sus (de Niṣāda); *vaṁśyāḥ*—descendientes; *tu*—entonces; *naiṣādāḥ*—llamados *naiṣādas*; *giri-kānana*—en las montañas y los bosques; *gocarāḥ*—habitar; *yena*—porque; *aharat*—asumió sobre sí; *jāyamānaḥ*—habiendo nacido; *vena*—del rey Vena; *kalmaṣam*—toda clase de pecados; *ulbaṇam*—muy terribles.

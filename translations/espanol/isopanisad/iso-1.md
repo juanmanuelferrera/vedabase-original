@@ -1,11 +1,11 @@
 ### Īśo 1
 
-> ॐ ईशावास्यमिदँ सर्वं यत्किञ्च जगत्यां जगत्।
+> ॐ ईशावास्यमिदँ सर्वं यत्किञ्च जगत्यां जगत्।\
 > तेन त्यक्तेन भुञ्जीथा मा गृधः कस्यस्विद्धनम्॥१॥
 
-> īśāvāsyam idam sarvaṁ
-> yat kiñca jagatyāṁ jagat
-> tena tyaktena bhuñjīthā
+> īśāvāsyam idam sarvaṁ\
+> yat kiñca jagatyāṁ jagat\
+> tena tyaktena bhuñjīthā\
 > mā gṛdhaḥ kasya svid dhanam
 
 *īśa*—por el Señor; *āvāsyam*—controlado; *idam*—esto; *sarvam*—todo; *yat kiñca*—lo que sea; *jagatyām*—dentro del universo; *jagat*—todo lo que es animado o inanimado; *tena*—por Él; *tyaktena*—la cuota establecida; *bhuñjīthāḥ*—deberías aceptar; *mā*—no; *gṛdhaḥ*—te esfuerces por obtener; *kasya svit*—de nadie más; *dhanam*—la riqueza.

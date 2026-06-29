@@ -1,13 +1,13 @@
 ### SB 7.9.43
 
-> नैवोद्विजे पर दुरत्ययवैतरण्यास
-> त्वद्वीर्यगायनमहामृतमग्नचित्तः
-> शोचे ततो विमुखचेतस इन्द्रियार्थ
+> नैवोद्विजे पर दुरत्ययवैतरण्यास\
+> त्वद्वीर्यगायनमहामृतमग्नचित्तः\
+> शोचे ततो विमुखचेतस इन्द्रियार्थ\
 > मायासुखाय भरमुद्वहतो विमूढान ॥४३॥
 
-> naivodvije para duratyaya-vaitaraṇyās
-> tvad-vīrya-gāyana-mahāmṛta-magna-cittaḥ
-> śoce tato vimukha-cetasa indriyārtha-
+> naivodvije para duratyaya-vaitaraṇyās\
+> tvad-vīrya-gāyana-mahāmṛta-magna-cittaḥ\
+> śoce tato vimukha-cetasa indriyārtha-\
 > māyā-sukhāya bharam udvahato vimūḍhān
 
 *na*—no; *eva*—ciertamente; *udvije*—estoy perturbado o temeroso; *para*—¡oh, Supremo!; *duratyaya*—insuperable o muy difícil de atravesar; *vaitaraṇyāḥ*—del Vaitaraṇī, el río del mundo material; *tvat-vīrya*—de las glorias y actividades de Tu Señoría; *gāyana*—de cantar o distribuir; *mahā-amṛta*—en el gran océano de la nectárea bienaventuranza espiritual; *magna-cittaḥ*—cuya conciencia está absorta; *śoce*—simplemente me lamento; *tataḥ*—de eso; *vimukha-cetasaḥ*—los necios y sinvergüenzas que carecen de conciencia de Kṛṣṇa; *indriya-artha*—en complacencia de los sentidos; *māyā-sukhāya*—por una felicidad temporal e ilusoria; *bharam*—la falsa carga de la responsabilidad (de mantener a la familia, la sociedad y la nación, y organizar proyectos con ese fin); *udvahataḥ*—que están levantando (elaborando grandes planes con ese objeto); *vimuḍhān*—aunque todos ellos son solamente necios y sinvergüenzas (yo pienso en ellos también).

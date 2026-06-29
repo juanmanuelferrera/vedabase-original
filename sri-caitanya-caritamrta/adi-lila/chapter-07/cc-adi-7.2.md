@@ -1,9 +1,9 @@
 ### CC Adi 7.2
 
-> জয় জয় মহাপ্রভু শ্রীকৃষ্ণচৈতন্য ।
+> জয় জয় মহাপ্রভু শ্রীকৃষ্ণচৈতন্য ।\
 > তাঁহার চরণাশ্রিত, সেই বড় ধন্য ॥২॥
 
-> jaya jaya mahāprabhu śrī-kṛṣṇa-caitanya
+> jaya jaya mahāprabhu śrī-kṛṣṇa-caitanya\
 > tāṅhāra caraṇāśrita, sei baḍa dhanya
 
 *jaya*—all glories; *jaya*—all glories; *mahāprabhu*—unto the Supreme Lord; *śrī-kṛṣṇa-caitanya*—of the name Śrī Kṛṣṇa Caitanya; *tāṅhāra*—of His; *caraṇa-āśrita*—one who has taken shelter of the lotus feet; *sei*—he; *baḍa*—is very much; *dhanya*—glorified.

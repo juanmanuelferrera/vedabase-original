@@ -1,11 +1,11 @@
 ### SB 9.4.2
 
-> भ्रातरोऽभाङ्क्त किं मह्यं भजाम पितरं तव
+> भ्रातरोऽभाङ्क्त किं मह्यं भजाम पितरं तव\
 > त्वां ममार्यास्तताभाङ्क्षुर्मा पुत्रक तदादृथाः ॥२॥
 
-> bhrātaro 'bhāṅkta kiṁ mahyaṁ
-> bhajāma pitaraṁ tava
-> tvāṁ mamāryās tatābhāṅkṣur
+> bhrātaro 'bhāṅkta kiṁ mahyaṁ\
+> bhajāma pitaraṁ tava\
+> tvāṁ mamāryās tatābhāṅkṣur\
 > mā putraka tad ādṛthāḥ
 
 *bhrātaraḥ*—¡oh, hermanos míos!; *abhāṅkta*—han dado como parte de la propiedad de nuestro padre; *kim*—qué; *mahyam*—a mí; *bhajāma*—asignamos; *pitaram*—al padre mismo; *tava*—como tu parte; *tvām*—tú; *mama*—a mí; *āryāḥ*—mis hermanos mayores; *tata*—¡oh, padre mío!; *abhāṅkṣuḥ*—han dado la parte; *mā*—no; *putraka*—¡oh, mi querido hijo!; *tat*—a esa afirmación; *ādṛthāḥ*—des ninguna importancia.

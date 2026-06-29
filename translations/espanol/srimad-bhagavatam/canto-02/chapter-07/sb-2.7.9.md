@@ -1,13 +1,13 @@
 ### SB 2.7.9
 
-> यद्वेनमुत्पथगतं द्विजवाक्यवज्र
-> निष्प्लुष्टपौरुषभगं निरये पतन्तम् ।
-> त्रात्वार्थितो जगति पुत्रपदं च लेभे
+> यद्वेनमुत्पथगतं द्विजवाक्यवज्र\
+> निष्प्लुष्टपौरुषभगं निरये पतन्तम् ।\
+> त्रात्वार्थितो जगति पुत्रपदं च लेभे\
 > दुग्धा वसूनि वसुधा सकलानि येन ॥९॥
 
-> yad venam utpatha-gataṁ dvija-vākya-vajra-
-> niṣpluṣṭa-pauruṣa-bhagaṁ niraye patantam
-> trātvārthito jagati putra-padaṁ ca lebhe
+> yad venam utpatha-gataṁ dvija-vākya-vajra-\
+> niṣpluṣṭa-pauruṣa-bhagaṁ niraye patantam\
+> trātvārthito jagati putra-padaṁ ca lebhe\
 > dugdhā vasūni vasudhā sakalāni yena
 
 *yat*—cuando; *venam*—al rey Vena; *utpatha-gatam*—desviándose del sendero de la virtud; *dvija*—de los *brāhmaṇas*; *vākya*—palabras de maldición; *vajra*—relámpago; *niṣpluṣṭa*—siendo quemado por; *pauruṣa*—grandes acciones; *bhagam*—opulencia; *niraye*—al infierno; *patantam*—descendiendo; *trātvā*—liberando; *arthitaḥ*—habiéndosele orado así; *jagati*—en el mundo; *putra-padam*—la posición del hijo; *ca*—así como; *lebhe*—logrado; *dugdhā*—explotó; *vasūni*—productos agrícolas; *vasudhā*—la Tierra; *sakalāni*—toda clase de; *yena*—por quien.

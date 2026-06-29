@@ -1,9 +1,9 @@
 ### CC Antya 8.30
 
-> তুষ্ট হঞা পুরী তাঁরে কৈলা আলিঙ্গন ।
+> তুষ্ট হঞা পুরী তাঁরে কৈলা আলিঙ্গন ।\
 > বর দিলা — ‘কৃষ্ণে তোমার হউক প্রেমধন’ ॥৩০॥
 
-> tuṣṭa hañā purī tāṅre kailā āliṅgana
+> tuṣṭa hañā purī tāṅre kailā āliṅgana\
 > vara dilā--'kṛṣṇe tomāra ha-uka prema-dhana'
 
 *tuṣṭa hañā*—complacido; *purī*—Mādhavendra Purī; *tāṅre*—a él; *kailā āliṅgana*—abrazó; *vara dilā*—dio la bendición; *kṛṣṇe*—hacia Kṛṣṇa; *tomāra*—tuya; *ha-uka*—que haya; *prema-dhana*—la riqueza del amor.

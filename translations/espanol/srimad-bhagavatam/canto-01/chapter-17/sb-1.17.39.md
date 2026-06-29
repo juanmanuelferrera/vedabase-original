@@ -1,11 +1,11 @@
 ### SB 1.17.39
 
-> पुनश्च याचमानाय जातरूपमदात्प्रभुः ।
+> पुनश्च याचमानाय जातरूपमदात्प्रभुः ।\
 > ततोऽनृतं मदं कामं रजो वैरं च पञ्चमम् ॥३९॥
 
-> punaś ca yācamānāya
-> jāta-rūpam adāt prabhuḥ
-> tato 'nṛtaṁ madaṁ kāmaṁ
+> punaś ca yācamānāya\
+> jāta-rūpam adāt prabhuḥ\
+> tato 'nṛtaṁ madaṁ kāmaṁ\
 > rajo vairaṁ ca pañcamam
 
 *punaḥ*—de nuevo; *ca*—también; *yācamānāya*—al mendigo; *jāta-rūpam*—oro; *adāt*—dio; *prabhuḥ*—el rey; *tataḥ*—por lo cual; *anṛtam*—falsedad; *madam*—embriaguez; *kāmam*—lujuria; *rajaḥ*—debido a una actitud apasionada; *vairam*—enemistad; *ca*—también; *pañcamam*—el quinto.

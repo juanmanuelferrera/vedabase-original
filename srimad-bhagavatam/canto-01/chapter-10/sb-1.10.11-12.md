@@ -1,18 +1,18 @@
 ### SB 1.10.11-12
 
-> सत्सङ्गान्मुक्तदुःसङ्गो हातुं नोत्सहते बुधः ।
-> कीर्त्यमानं यशो यस्य सकृदाकर्ण्य रोचनम् ॥११॥
-> तस्मिन्न्यस्तधियः पार्थाः सहेरन्विरहं कथम् ।
+> सत्सङ्गान्मुक्तदुःसङ्गो हातुं नोत्सहते बुधः ।\
+> कीर्त्यमानं यशो यस्य सकृदाकर्ण्य रोचनम् ॥११॥\
+> तस्मिन्न्यस्तधियः पार्थाः सहेरन्विरहं कथम् ।\
 > दर्शनस्पर्शसंलाप शयनासनभोजनैः ॥१२॥
 
-> sat-saṅgān mukta-duḥsaṅgo
-> hātuṁ notsahate budhaḥ
-> kīrtyamānaṁ yaśo yasya
+> sat-saṅgān mukta-duḥsaṅgo\
+> hātuṁ notsahate budhaḥ\
+> kīrtyamānaṁ yaśo yasya\
 > sakṛd ākarṇya rocanam
 
-> tasmin nyasta-dhiyaḥ pārthāḥ
-> saheran virahaṁ katham
-> darśana-sparśa-saṁlāpa-
+> tasmin nyasta-dhiyaḥ pārthāḥ\
+> saheran virahaṁ katham\
+> darśana-sparśa-saṁlāpa-\
 > śayanāsana-bhojanaiḥ
 
 *sat-saṅgāt*—by the association of pure devotees; *mukta-duḥsaṅgaḥ*—freed from bad materialistic association; *hātum*—to give up; *na utsahate*—never attempts; *budhaḥ*—one who has understood the Lord; *kīrtyamānam*—glorifying; *yaśaḥ*—fame; *yasya*—whose; *sakṛt*—once only; *ākarṇya*—hearing only; *rocanam*—pleasing; *tasmin*—unto Him; *nyasta-dhiyaḥ*—one who has given his mind unto Him; *pārthāḥ*—the sons of Pṛthā; *saheran*—can tolerate; *viraham*—separation; *katham*—how; *darśana*—seeing face to face; *sparśa*—touching; *saṁlāpa*—conversing; *śayana*—sleeping; *āsana*—sitting; *bhojanaiḥ*—dining together.

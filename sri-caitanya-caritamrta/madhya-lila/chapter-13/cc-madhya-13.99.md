@@ -1,9 +1,9 @@
 ### CC Madhya 13.99
 
-> রথ স্থির কৈল, আগে না করে গমন ।
+> রথ স্থির কৈল, আগে না করে গমন ।\
 > অনিমিষ-নেত্রে করে নৃত্য দরশন ॥৯৯॥
 
-> ratha sthira kaila, āge nā kare gamana
+> ratha sthira kaila, āge nā kare gamana\
 > animiṣa-netre kare nṛtya daraśana
 
 *ratha*—the car; *sthira kaila*—stopped; *āge*—forward; *nā*—not; *kare*—does; *gamana*—moving; *animiṣa*—unblinking; *netre*—with eyes; *kare*—does; *nṛtya*—of the dancing; *daraśana*—seeing.

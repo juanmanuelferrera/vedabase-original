@@ -1,11 +1,11 @@
 ### SB 3.13.26
 
-> तेषां सतां वेदवितानमूर्तिर्ब्रह्मावधार्यात्मगुणानुवादम् ।
+> तेषां सतां वेदवितानमूर्तिर्ब्रह्मावधार्यात्मगुणानुवादम् ।\
 > विनद्य भूयो विबुधोदयाय गजेन्द्रलीलो जलमाविवेश ॥२६॥
 
-> teṣāṁ satāṁ veda-vitāna-mūrtir
-> brahmāvadhāryātma-guṇānuvādam
-> vinadya bhūyo vibudhodayāya
+> teṣāṁ satāṁ veda-vitāna-mūrtir\
+> brahmāvadhāryātma-guṇānuvādam\
+> vinadya bhūyo vibudhodayāya\
 > gajendra-līlo jalam āviveśa
 
 *teṣām*—de ellos; *satām*—de los grandes devotos; *veda*—todo conocimiento; *vitāna-mūrtiḥ*—la forma de expansión; *brahma*—sonido védico; *avadhārya*—sabiéndolo bien; *ātma*—de Él mismo; *guṇa-anuvādam*—glorificación trascendental; *vinadya*—resonante; *bhūyaḥ*—de nuevo; *vibudha*—de los trascendentalmente eruditos; *udayāya*—para la elevación o beneficio; *gajendra-līlaḥ*—jugando como un elefante; *jalam*—en el agua; *āviveśa*—entró.

@@ -1,9 +1,9 @@
 ### CC Madhya 17.156
 
-> মথুরা আসিয়া কৈলা ‘বিশ্রান্তি-তীর্থে’ স্নান ।
+> মথুরা আসিয়া কৈলা ‘বিশ্রান্তি-তীর্থে’ স্নান ।\
 > ‘জন্মস্থানে’ ‘কেশব’ দেখি’ করিলা প্রণাম ॥১৫৬॥
 
-> mathurā āsiyā kailā 'viśrānti-tīrthe' snāna
+> mathurā āsiyā kailā 'viśrānti-tīrthe' snāna\
 > 'janma-sthāne' 'keśava' dekhi' karilā praṇāma
 
 *mathurā āsiyā*—coming in to Mathurā; *kailā*—performed; *viśrānti-tīrthe*—at the bathing place known as Viśrāma-ghāṭa; *snāna*—bathing; *janma-sthāne*—at the place of Lord Kṛṣṇa's birth; *keśava*—the Deity named Keśava; *dekhi'*—seeing; *karilā praṇāma*—offered His respectful obeisances.

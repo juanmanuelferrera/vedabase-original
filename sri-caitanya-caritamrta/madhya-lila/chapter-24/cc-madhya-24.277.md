@@ -1,9 +1,9 @@
 ### CC Madhya 24.277
 
-> দেখিয়া ব্যাধের প্রেম পর্বত-মহামুনি ।
+> দেখিয়া ব্যাধের প্রেম পর্বত-মহামুনি ।\
 > নারদেরে কহে, — তুমি হও স্পর্শমণি ॥২৭৭॥
 
-> dekhiyā vyādhera prema parvata-mahāmuni
+> dekhiyā vyādhera prema parvata-mahāmuni\
 > nāradere kahe,—tumi hao sparśa-maṇi
 
 *dekhiyā*—seeing; *vyādhera*—of the hunter; *prema*—the ecstatic love; *parvata-mahā-muni*—the great sage Parvata Muni; *nāradere kahe*—spoke to Nārada Muni; *tumi hao sparśa-maṇi*—you are certainly a touchstone.

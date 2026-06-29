@@ -1,11 +1,11 @@
 ### SB 6.8.20
 
-> मां केशवो गदया प्रातरव्याद्गोविन्द आसङ्गवमात्तवेणुः
+> मां केशवो गदया प्रातरव्याद्गोविन्द आसङ्गवमात्तवेणुः\
 > नारायणः प्राह्ण उदात्तशक्तिर्मध्यन्दिने विष्णुररीन्द्रपाणिः ॥२०॥
 
-> māṁ keśavo gadayā prātar avyād
-> govinda āsaṅgavam ātta-veṇuḥ
-> nārāyaṇaḥ prāhṇa udātta-śaktir
+> māṁ keśavo gadayā prātar avyād\
+> govinda āsaṅgavam ātta-veṇuḥ\
+> nārāyaṇaḥ prāhṇa udātta-śaktir\
 > madhyan-dine viṣṇur arīndra-pāṇiḥ
 
 *mām*—a mí; *keśavaḥ*—el Señor Keśava; *gadayā*—con Su maza; *prātaḥ*—en las horas de la mañana; *avyāt*—que Él proteja; *govindaḥ*—el Señor Govinda; *āsaṅgavam*—durante la segunda parte del día; *ātta-veṇuḥ*—que sostiene Su flauta; *nārāyaṇaḥ*—el Señor Nārāyaṇa, de cuatro brazos; *prāhṇaḥ*—durante la tercera parte del día; *udātta-śaktiḥ*—que domina distintas clases de potencias; *madhyam-dine*—durante la cuarta parte del día; *viṣṇuḥ*—el Señor Viṣṇu; *arīndra-pāṇiḥ*—que lleva el disco en la mano para matar a los enemigos.

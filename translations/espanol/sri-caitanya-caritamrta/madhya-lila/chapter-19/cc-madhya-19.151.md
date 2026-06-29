@@ -1,9 +1,9 @@
 ### CC Madhya 19.151
 
-> ব্রহ্মাণ্ড ভ্রমিতে কোন ভাগ্যবান্ জীব ।
+> ব্রহ্মাণ্ড ভ্রমিতে কোন ভাগ্যবান্ জীব ।\
 > গুরু-কৃষ্ণ-প্রসাদে পায় ভক্তিলতা-বীজ ॥১৫১॥
 
-> brahmāṇḍa bhramite kona bhāgyavān jīva
+> brahmāṇḍa bhramite kona bhāgyavān jīva\
 > guru-kṛṣṇa-prasāde pāya bhakti-latā-bīja
 
 *brahmāṇḍa bhramite*—vagando por este universo; *kona*—alguna; *bhāgyavān*—muy afortunada; *jīva*—entidad viviente; *guru*—del maestro espiritual; *kṛṣṇa*—de Kṛṣṇa; *prasāde*—por la misericordia; *pāya*—obtiene; *bhakti-latā*—de la enredadera del servicio devocional; *bīja*—la semilla.

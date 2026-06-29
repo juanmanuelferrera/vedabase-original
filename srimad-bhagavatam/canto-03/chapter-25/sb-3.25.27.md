@@ -1,11 +1,11 @@
 ### SB 3.25.27
 
-> असेवयायं प्रकृतेर्गुणानां ज्ञानेन वैराग्यविजृम्भितेन ।
+> असेवयायं प्रकृतेर्गुणानां ज्ञानेन वैराग्यविजृम्भितेन ।\
 > योगेन मय्यर्पितया च भक्त्या मां प्रत्यगात्मानमिहावरुन्धे ॥२७॥
 
-> asevayāyaṁ prakṛter guṇānāṁ
-> jñānena vairāgya-vijṛmbhitena
-> yogena mayy arpitayā ca bhaktyā
+> asevayāyaṁ prakṛter guṇānāṁ\
+> jñānena vairāgya-vijṛmbhitena\
+> yogena mayy arpitayā ca bhaktyā\
 > māṁ pratyag-ātmānam ihāvarundhe
 
 *asevayā*—by not engaging in the service; *ayam*—this person; *prakṛteḥ guṇānām*—of the modes of material nature; *jñānena*—by Knowledge; *vairāgya*—with renunciation; *vijṛmbhitena*—developed; *yogena*—by practicing *yoga*; *mayi*—unto Me; *arpitayā*—fixed; *ca*—and; *bhaktyā*—with devotion; *mām*—unto Me; *pratyak-ātmānam*—the Absolute Truth; *iha*—in this very life; *avarundhe*—one attains.

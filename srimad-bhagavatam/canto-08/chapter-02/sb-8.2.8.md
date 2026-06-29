@@ -1,11 +1,11 @@
 ### SB 8.2.8
 
-> सरित्सरोभिरच्छोदैः पुलिनैर्मणिवालुकैः
+> सरित्सरोभिरच्छोदैः पुलिनैर्मणिवालुकैः\
 > देवस्त्रीमज्जनामोद सौरभाम्ब्वनिलैर्युतः ॥८॥
 
-> sarit-sarobhir acchodaiḥ
-> pulinair maṇi-vālukaiḥ
-> deva-strī-majjanāmoda-
+> sarit-sarobhir acchodaiḥ\
+> pulinair maṇi-vālukaiḥ\
+> deva-strī-majjanāmoda-\
 > saurabhāmbv-anilair yutaḥ
 
 *sarit*—with rivers; *sarobhiḥ*—and lakes; *acchodaiḥ*—filled with crystal-clear water; *pulinaiḥ*—beaches; *maṇi*—with small gems; *vālukaiḥ*—resembling grains of sand; *deva-strī*—of the damsels of the demigods; *majjana*—by bathing (in that water); *āmoda*—bodily fragrance; *saurabha*—very fragrant; *ambu*—with the water; *anilaiḥ*—and the air; *yutaḥ*—enriched (the atmosphere of Trikūṭa Mountain).

@@ -1,11 +1,11 @@
 ### SB 3.3.10
 
-> कालमागधशाल्वादीननीकै रुन्धतः पुरम् ।
+> कालमागधशाल्वादीननीकै रुन्धतः पुरम् ।\
 > अजीघनत्स्वयं दिव्यं स्वपुंसां तेज आदिशत् ॥१०॥
 
-> kāla-māgadha-śālvādīn
-> anīkai rundhataḥ puram
-> ajīghanat svayaṁ divyaṁ
+> kāla-māgadha-śālvādīn\
+> anīkai rundhataḥ puram\
+> ajīghanat svayaṁ divyaṁ\
 > sva-puṁsāṁ teja ādiśat
 
 *kāla*—Kālayavana; *māgadha*—el rey de Magadha (Jarāsandha); *śālva*—el rey Śālva; *ādīn*—y otros; *anīkaiḥ*—por los soldados; *rundhataḥ*—estando rodeada; *puram*—la ciudad de Mathurā; *ajīghanat*—mató; *svayam*—personalmente; *divyam*—trascendental; *sva-puṁsām*—de Sus propios hombres; *tejaḥ*—habilidad y valentía; *ādiśat*—exhibió.

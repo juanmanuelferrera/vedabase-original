@@ -1,9 +1,9 @@
 ### CC Madhya 23.51
 
-> ‘অনুভাব’ — স্মিত, নৃত্য, গীতাদি উদ্ভাস্বর ।
+> ‘অনুভাব’ — স্মিত, নৃত্য, গীতাদি উদ্ভাস্বর ।\
 > স্তম্ভাদি — ‘সাত্ত্বিক’ অনুভাবের ভিতর ॥৫১॥
 
-> 'anubhāva'--smita, nṛtya, gītādi udbhāsvara
+> 'anubhāva'--smita, nṛtya, gītādi udbhāsvara\
 > stambhādi--'sāttvika' anubhāvera bhitara
 
 *anubhāva*—éxtasis subordinado; *smita*—sonrisa; *nṛtya*—danza; *gīta-ādi*—canciones y demás; *udbhāsvara*—síntomas de manifestación corporal; *stambha-ādi*—quedarse atónito y otros; *sāttvika*—naturales; *anubhāvera bhitara*—dentro de la categoría de los éxtasis subordinados.

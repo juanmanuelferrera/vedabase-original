@@ -1,11 +1,11 @@
 ### Bg 4.22
 
-> यदृच्छालाभसन्तुष्टो द्वन्द्वातीतो विमत्सरः ।
+> यदृच्छालाभसन्तुष्टो द्वन्द्वातीतो विमत्सरः ।\
 > समः सिद्धावसिद्धौ च कृत्वापि न निबध्यते ॥२२॥
 
-> yadṛcchā-lābha-santuṣṭo
-> dvandvātīto vimatsaraḥ
-> samaḥ siddhāv asiddhau ca
+> yadṛcchā-lābha-santuṣṭo\
+> dvandvātīto vimatsaraḥ\
+> samaḥ siddhāv asiddhau ca\
 > kṛtvāpi na nibadhyate
 
 *yadṛcchā*—out of its own accord; *lābha*—gain; *santuṣṭaḥ*—satisfied; *dvandva*—duality; *atītaḥ*—surpassed; *vimatsaraḥ*—free from envy; *samaḥ*—steady; *siddhau*—in success; *asiddhau*—failure; *ca*—also; *kṛtvā*—doing; *api*—although; *na*—never; *nibadhyate*—is affected.

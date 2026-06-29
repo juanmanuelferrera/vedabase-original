@@ -1,9 +1,9 @@
 ### CC Madhya 8.201
 
-> রাধাকৃষ্ণের লীলা এই অতি গূঢ়তর ৷
+> রাধাকৃষ্ণের লীলা এই অতি গূঢ়তর ৷\
 > দাস্য-বাৎসল্যাদি-ভাবে না হয় গোচর ৷৷ ২০১ ৷৷ ॥২০১॥
 
-> rādhā-kṛṣṇera līlā ei ati gūḍhatara
+> rādhā-kṛṣṇera līlā ei ati gūḍhatara\
 > dāsya-vātsalyādi-bhāve nā haya gocara
 
 *rādhā-kṛṣṇera līlā*—los pasatiempos de Rādhā y Kṛṣṇa; *ei*—esto es; *ati*—muy; *gūḍhatara*—más confidencial; *dāsya*—de servidumbre; *vātsalya-ādi*—y de amor paternal, etc.; *bhāve*—en los ánimos; *nā haya*—no es; *gocara*—apreciado.

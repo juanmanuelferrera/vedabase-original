@@ -1,9 +1,9 @@
 ### CC Adi 8.31
 
-> চৈতন্য-নিত্যানন্দে নাহি এসব বিচার ।
+> চৈতন্য-নিত্যানন্দে নাহি এসব বিচার ।\
 > নাম লৈতে প্রেম দেন, বহে অশ্রুধার ॥৩১॥
 
-> caitanya-nityānande nāhi esaba vicāra
+> caitanya-nityānande nāhi esaba vicāra\
 > nāma laite prema dena, vahe aśrudhāra
 
 *caitanya-nityānande*—when chanting the holy names of Lord Caitanya and Nityānanda; *nāhi*—there are not; *esaba*—all these; *vicara*—considerations; *nāma*—the holy name; *laite*—simply by chanting; *prema*—love of Godhead; *dena*—they give; *vahe*—there is a flow; *aśru-dhāra*—tears in the eyes.

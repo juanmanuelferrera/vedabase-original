@@ -1,9 +1,9 @@
 ### CC Madhya 6.13
 
-> ‘অধিরূঢ় ভাব’ যাঁর, তাঁর এ বিকার ।
+> ‘অধিরূঢ় ভাব’ যাঁর, তাঁর এ বিকার ।\
 > মনুষ্যের দেহে দেখি, — বড় চমৎকার ॥১৩॥
 
-> 'adhirūḍha bhāva' yāṅra, tāṅra e vikāra
+> 'adhirūḍha bhāva' yāṅra, tāṅra e vikāra\
 > manuṣyera dehe dekhi,—baḍa camatkāra
 
 *adhirūḍha bhāva*—an ecstasy technically known as *adhirūḍha*; *yāṅra*—of whom; *tāṅra*—of Him; *e*—this; *vikāra*—transformation; *manuṣyera*—of a human being; *dehe*—in the body; *dekhi*—I see; *baḍa camatkāra*—very wonderful.

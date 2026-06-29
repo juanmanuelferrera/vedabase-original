@@ -1,11 +1,11 @@
 ### SB 6.4.17
 
-> तेभ्यस्तस्यां समभवद्दक्षः प्राचेतसः किल
+> तेभ्यस्तस्यां समभवद्दक्षः प्राचेतसः किल\
 > यस्य प्रजाविसर्गेण लोका आपूरितास्त्रयः ॥१७॥
 
-> tebhyas tasyāṁ samabhavad
-> dakṣaḥ prācetasaḥ kila
-> yasya prajā-visargeṇa
+> tebhyas tasyāṁ samabhavad\
+> dakṣaḥ prācetasaḥ kila\
+> yasya prajā-visargeṇa\
 > lokā āpūritās trayaḥ
 
 *tebhyaḥ*—from all the Pracetās; *tasyām*—in her; *samabhavat*—was generated; *dakṣaḥ*—Dakṣa, the expert in begetting children; *prācetasaḥ*—the son of the Pracetās; *kila*—indeed; *yasya*—of whom; *prajā-visargeṇa*—by the generation of living entities; *lokāḥ*—the worlds; *āpūritāḥ*—filled; *trayaḥ*—three.

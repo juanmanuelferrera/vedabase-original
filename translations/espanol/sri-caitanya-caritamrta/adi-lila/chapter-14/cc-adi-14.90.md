@@ -1,9 +1,9 @@
 ### CC Adi 14.90
 
-> এইমতে দুঁহে করেন ধর্মের বিচার ।
+> এইমতে দুঁহে করেন ধর্মের বিচার ।\
 > বিশুদ্ধবাৎসল্য মিশ্রের, নাহি জানে আর ॥৯০॥
 
-> ei-mate duṅhe karena dharmera vicāra
+> ei-mate duṅhe karena dharmera vicāra\
 > viśuddha-vātsalya miśrera, nāhi jāne āra
 
 *ei-mate*—de este modo; *duṅhe*—ambos; *karena*—hacen; *dharmera*—de la religión; *vicāra*—deliberación; *viśuddha*—inmaculado; *vātsalya*—afecto paternal; *miśrera*—de Jagannātha Miśra; *nāhi*—no; *jāne*—conocía; *āra*—nada más.

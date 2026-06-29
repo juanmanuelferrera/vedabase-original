@@ -1,9 +1,9 @@
 ### CC Adi 16.56
 
-> ‘গঙ্গার মহত্ত্ব’ — শ্লোকে মূল ‘বিধেয়’ ।
+> ‘গঙ্গার মহত্ত্ব’ — শ্লোকে মূল ‘বিধেয়’ ।\
 > ইদং শব্দে ‘অনুবাদ’ — পাছে অবিধেয় ॥৫৬॥
 
-> 'gaṅgāra mahattva'—śloke mūla 'vidheya'
+> 'gaṅgāra mahattva'—śloke mūla 'vidheya'\
 > idaṁ śabde 'anuvāda'—pāche avidheya
 
 *gaṅgāra mahattva*—glorification of mother Ganges; *śloke*—in the verse; *mūla*—chief; *vidheya*—unknown; *idam*—this; *śabde*—by the word; *anuvāda*—the known; *pāche*—at the end; *avidheya*—improper.

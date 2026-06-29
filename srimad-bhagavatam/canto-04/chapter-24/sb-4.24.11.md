@@ -1,14 +1,14 @@
 ### SB 4.24.11
 
-> सामुद्रीं देवदेवोक्तामुपयेमे शतद्रुतिम् ।
-> यां वीक्ष्य चारुसर्वाङ्गीं किशोरीं सुष्ठ्वलङ्कृताम् ।
+> सामुद्रीं देवदेवोक्तामुपयेमे शतद्रुतिम् ।\
+> यां वीक्ष्य चारुसर्वाङ्गीं किशोरीं सुष्ठ्वलङ्कृताम् ।\
 > परिक्रमन्तीमुद्वाहे चकमेऽग्निः शुकीमिव ॥११॥
 
-> sāmudrīṁ devadevoktām
-> upayeme śatadrutim
-> yāṁ vīkṣya cāru-sarvāṅgīṁ
-> kiśorīṁ suṣṭhv-alaṅkṛtām
-> parikramantīm udvāhe
+> sāmudrīṁ devadevoktām\
+> upayeme śatadrutim\
+> yāṁ vīkṣya cāru-sarvāṅgīṁ\
+> kiśorīṁ suṣṭhv-alaṅkṛtām\
+> parikramantīm udvāhe\
 > cakame 'gniḥ śukīm iva
 
 *sāmudrīm*—unto the daughter of the ocean; *deva-deva-uktām*—being advised by the supreme demigod, Lord Brahmā; *upayeme*—married; *śatadrutim*—of the name Śatadruti; *yām*—whom; *vīkṣya*—seeing; *cāru*—very attractive; *sarva-aṅgīm*—all the features of the body; *kiśorīm*—youthful; *suṣṭhu*—sufficiently; *alaṅkṛtām*—decorated with ornaments; *parikramantīm*—circumambulating; *udvāhe*—in the marriage ceremony; *cakame*—being attracted; *agniḥ*—the fire-god; *śukīm*—unto Śukī; *iva*—like.

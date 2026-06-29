@@ -1,9 +1,9 @@
 ### CC Madhya 3.80
 
-> আজি উপবাস হৈল আচার্য-নিমন্ত্রণে ।
+> আজি উপবাস হৈল আচার্য-নিমন্ত্রণে ।\
 > অর্ধপেট না ভরিবে এই গ্ৰাসেক অন্নে ॥৮০॥
 
-> āji upavāsa haila ācārya-nimantraṇe
+> āji upavāsa haila ācārya-nimantraṇe\
 > ardha-peṭa nā bharibe ei grāseka anne
 
 *āji*—today also; *upavāsa*—fasting; *haila*—there was; *ācārya-nimantraṇe*—by the invitation of Advaita Ācārya; *ardha-peṭa*—half My belly; *nā*—not; *bharibe*—will fill; *ei*—this; *grāseka anne*—one morsel of food.

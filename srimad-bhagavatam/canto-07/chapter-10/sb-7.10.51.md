@@ -1,11 +1,11 @@
 ### SB 7.10.51
 
-> स एष भगवान्राजन्व्यतनोद्विहतं यशः
+> स एष भगवान्राजन्व्यतनोद्विहतं यशः\
 > पुरा रुद्रस्य देवस्य मयेनानन्तमायिना ॥५१॥
 
-> sa eṣa bhagavān rājan
-> vyatanod vihataṁ yaśaḥ
-> purā rudrasya devasya
+> sa eṣa bhagavān rājan\
+> vyatanod vihataṁ yaśaḥ\
+> purā rudrasya devasya\
 > mayenānanta-māyinā
 
 *saḥ eṣaḥ bhagavān*—the same Personality of Godhead, Kṛṣṇa, who is Parabrahman; *rājan*—my dear King; *vyatanot*—expanded; *vihatam*—lost; *yaśaḥ*—reputation; *purā*—formerly in history; *rudrasya*—of Lord Śiva (the most powerful among the demigods); *devasya*—the demigod; *mayena*—by a demon named Maya; *ananta*—unlimited; *māyinā*—possessing technical knowledge.

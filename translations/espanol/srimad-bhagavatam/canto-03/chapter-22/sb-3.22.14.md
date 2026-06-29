@@ -1,11 +1,11 @@
 ### SB 3.22.14
 
-> अहं त्वाशृणवं विद्वन्विवाहार्थं समुद्यतम् ।
+> अहं त्वाशृणवं विद्वन्विवाहार्थं समुद्यतम् ।\
 > अतस्त्वमुपकुर्वाणः प्रत्तां प्रतिगृहाण मे ॥१४॥
 
-> ahaṁ tvāśṛṇavaṁ vidvan
-> vivāhārthaṁ samudyatam
-> atas tvam upakurvāṇaḥ
+> ahaṁ tvāśṛṇavaṁ vidvan\
+> vivāhārthaṁ samudyatam\
+> atas tvam upakurvāṇaḥ\
 > prattāṁ pratigṛhāṇa me
 
 *aham*—yo; *tvā*—tú; *aśṛṇavam*—he escuchado; *vidvan*—¡oh, hombre sabio!; *vivāha-artham*—en cuanto al matrimonio; *samudyatam*—decidido; *ataḥ*—por eso; *tvam*—tú; *upakurvāṇaḥ*—sin haber hecho voto de celibato perpetuo; *prattām*—ofrecida; *pratigṛhāṇa*—acepta, por favor; *me*—de mí.

@@ -1,13 +1,13 @@
 ### Bg 2.70
 
-> आपूर्यमाणमचलप्रतिष्ठं
-> समुद्रमापः प्रविशन्ति यद्वत् ।
-> तद्वत्कामा यं प्रविशन्ति सर्वे
+> आपूर्यमाणमचलप्रतिष्ठं\
+> समुद्रमापः प्रविशन्ति यद्वत् ।\
+> तद्वत्कामा यं प्रविशन्ति सर्वे\
 > स शान्तिमाप्नोति न कामकामी ॥७०॥
 
-> āpūryamāṇam acala-pratiṣṭhaṁ
-> samudram āpaḥ praviśanti yadvat
-> tadvat kāmā yaṁ praviśanti sarve
+> āpūryamāṇam acala-pratiṣṭhaṁ\
+> samudram āpaḥ praviśanti yadvat\
+> tadvat kāmā yaṁ praviśanti sarve\
 > sa śāntim āpnoti na kāma-kāmī
 
 *āpūryamāṇam*—siempre lleno; *acala-pratiṣṭham*—situado firmemente; *samudram*—el océano; *āpaḥ*—agua; *praviśanti*—entran; *yadvat*—como; *tadvat*—así; *kāmāḥ*—deseos; *yam*—hacia aquel; *praviśanti*—entran; *sarve*—todos; *saḥ*—esa persona; *śāntim*—paz; *āpnoti*—alcanza; *na*—no; *kāma-kāmī*—aquel que desea satisfacer sus deseos.

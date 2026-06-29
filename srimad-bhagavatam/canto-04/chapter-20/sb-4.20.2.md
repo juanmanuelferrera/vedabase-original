@@ -1,13 +1,13 @@
 ### SB 4.20.2
 
-> श्रीभगवानुवाच
-> एष तेऽकार्षीद्भङ्गं हयमेधशतस्य ह ।
+> श्रीभगवानुवाच\
+> एष तेऽकार्षीद्भङ्गं हयमेधशतस्य ह ।\
 > क्षमापयत आत्मानममुष्य क्षन्तुमर्हसि ॥२॥
 
-> śrī-bhagavān uvāca
-> eṣa te 'kārṣīd bhaṅgaṁ
-> haya-medha-śatasya ha
-> kṣamāpayata ātmānam
+> śrī-bhagavān uvāca\
+> eṣa te 'kārṣīd bhaṅgaṁ\
+> haya-medha-śatasya ha\
+> kṣamāpayata ātmānam\
 > amuṣya kṣantum arhasi
 
 *śrī-bhagavān uvāca*—the Supreme Personality of Godhead, Lord Viṣṇu, spoke; *eṣaḥ*—this Lord Indra; *te*—your; *akārṣīt*—performed; *bhaṅgam*—disturbance; *haya*—horse; *medha*—sacrifice; *śatasya*—of the one-hundredth; *ha*—indeed; *kṣamāpayataḥ*—who is asking pardon; *ātmānam*—unto yourself; *amuṣya*—him; *kṣantum*—to forgive; *arhasi*—you ought.

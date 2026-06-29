@@ -1,10 +1,10 @@
 ### SB 5.9.1-2
 
-> श्रीशुक उवाच
-> अथ कस्यचिद्द्विजवरस्याङ्गिरःप्रवरस्य शमदमतपःस्वाध्यायाध्ययनत्यागसन्तोषतितिक्षाप्रश्रयविद्यानसूयात्मज्ञआनानन्दयुक्तस्यात्मसदृशश्रुतशीलाचाररूपौदार्यगुणा नव सोदर्याअङ्गजा बभूवुर्मिथुनं च यवीयस्यां भार्यायाम्यस्तु तत्र पुमांस्तं परमभागवतं राजर्षिप्रवरं भरतमुत्सृष्टमृगशरीरं चरमशरीरेण विप्रत्वं गतमाहुः ॥१॥
+> श्रीशुक उवाच\
+> अथ कस्यचिद्द्विजवरस्याङ्गिरःप्रवरस्य शमदमतपःस्वाध्यायाध्ययनत्यागसन्तोषतितिक्षाप्रश्रयविद्यानसूयात्मज्ञआनानन्दयुक्तस्यात्मसदृशश्रुतशीलाचाररूपौदार्यगुणा नव सोदर्याअङ्गजा बभूवुर्मिथुनं च यवीयस्यां भार्यायाम्यस्तु तत्र पुमांस्तं परमभागवतं राजर्षिप्रवरं भरतमुत्सृष्टमृगशरीरं चरमशरीरेण विप्रत्वं गतमाहुः ॥१॥\
 > तत्रापि स्वजनसङ्गाच्च भृशमुद्विजमानो भगवतः कर्मबन्धविध्वंसनश्रवणस्मरणगुणविवरणचरणारविन्दयुगलं मनसा विदधदात्मनः प्रतिघातमाशङ्कमानो भगवदअनुग्रहेणानुस्मृतस्वपूर्वजन्मावलिरात्मानमुन्मत्तजडान्धबधिरस्वरूपेण दर्शयामासलोकस्य ॥२॥
 
-> śrī-śuka uvāca
+> śrī-śuka uvāca\
 > atha kasyacid dvija-varasyāṅgiraḥ-pravarasya śama-dama-tapaḥ-svādhyāyādhyayana-tyāga-santoṣa-titikṣā-praśraya-vidyānasūyātma-jñānānanda-yuktasyātma-sadṛśa-śruta-śīlācāra-rūpaudārya-guṇā nava sodaryā aṅgajā babhūvur mithunaṁ ca yavīyasyāṁ bhāryāyām yas tu tatra pumāṁs taṁ parama-bhāgavataṁ rājarṣi-pravaraṁ bharatam utsṛṣṭa-mṛga-śarīraṁ carama-śarīreṇa vipratvaṁ gatam āhuḥ.
 
 *śrī-śukaḥ uvāca*—Śukadeva Gosvāmī continuó hablando; *atha*—a continuación; *kasyacit*—de cierto; *dvija-varasya*—*brāhmaṇa*; *aṅgiraḥ-pravarasya*—que pertenecía a la dinastía del gran santo Aṅgirā; *śama*—control de la mente; *dama*—control de los sentidos; *tapaḥ*—práctica de austeridades y penitencias; *svādhyāya*—recitación de las Escrituras védicas; *adhyayana*—estudio; *tyāga*—renunciación; *santoṣa*—satisfacción; *titikṣā*—tolerancia; *praśraya*—muy amable; *vidyā*—conocimiento; *anasūya*—libre de envidia; *ātma-jñāna-ānanda*—satisfecho en la autorrealización; *yuktasya*—poseía las cualidades de; *ātma-sadṛśa*—y exactamente como él mismo; *śruta*—en educación; *śīla*—en personalidad; *ācāra*—en conducta; *rūpa*—en belleza; *audārya*—en magnanimidad; *guṇāḥ*—poseyendo todas esas cualidades; *nava sa-udaryāḥ*—nueve hermanos nacidos del mismo vientre; *aṅga-jāḥ*—hijos; *babhūvuḥ*—nacieron; *mithunam*—un varón y una niña gemelos; *ca*—y; *yavīyasyām*—en la más joven; *bhāryāyām*—esposa; *yaḥ*—quien; *tu*—pero; *tatra*—allí; *pumān*—el niño varón; *tam*—a él; *parama-bhāgavatam*—el devoto más glorioso; *rāja-ṛṣi*—de los reyes santos; *pravaram*—el más honrado; *bharatam*—Bharata Mahārāja; *utsṛṣṭa*—habiendo abandonado; *mṛga-śarīram*—el cuerpo de ciervo; *carama-śarīreṇa*—con el último cuerpo; *vipratvam*—siendo un *brāhmaṇa*; *gatam*—obtuvo; *āhuḥ*—decían.

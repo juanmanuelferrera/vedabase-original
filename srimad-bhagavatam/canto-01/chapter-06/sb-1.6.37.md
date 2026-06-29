@@ -1,13 +1,13 @@
 ### SB 1.6.37
 
-> सूत उवाच
-> एवं सम्भाष्य भगवान्नारदो वासवीसुतम् ।
+> सूत उवाच\
+> एवं सम्भाष्य भगवान्नारदो वासवीसुतम् ।\
 > आमन्त्र्य वीणां रणयन्ययौ यादृच्छिको मुनिः ॥३७॥
 
-> sūta uvāca
-> evaṁ sambhāṣya bhagavān
-> nārado vāsavī-sutam
-> āmantrya vīṇāṁ raṇayan
+> sūta uvāca\
+> evaṁ sambhāṣya bhagavān\
+> nārado vāsavī-sutam\
+> āmantrya vīṇāṁ raṇayan\
 > yayau yādṛcchiko muniḥ
 
 *sūtaḥ*—Sūta Gosvāmī; *uvāca*—said; *evam*—thus; *sambhāṣya*—addressing; *bhagavān*—transcendentally powerful; *nāradaḥ*—Nārada Muni; *vāsavī*—named Vāsavī (Satyavatī); *sutam*—son; *āmantrya*—inviting; *vīṇām*—instrument; *raṇayan*—vibrating; *yayau*—went; *yādṛcchikaḥ*—wherever willing; *muniḥ*—the sage.

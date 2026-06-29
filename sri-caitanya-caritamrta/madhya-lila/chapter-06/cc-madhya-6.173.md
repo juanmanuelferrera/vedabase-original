@@ -1,9 +1,9 @@
 ### CC Madhya 6.173
 
-> জীবের দেহে আত্মবুদ্ধি — সেই মিথ্যা হয় ।
+> জীবের দেহে আত্মবুদ্ধি — সেই মিথ্যা হয় ।\
 > জগৎ যে মিথ্যা নহে, নশ্বরমাত্র হয় ॥১৭৩॥
 
-> jīvera dehe ātma-buddhi—sei mithyā haya
+> jīvera dehe ātma-buddhi—sei mithyā haya\
 > jagat ye mithyā nahe, naśvara-mātra haya
 
 *jīvera*—of the living entities; *dehe*—in the body; *ātma-buddhi*—considering as the self; *sei*—that; *mithyā*—untruth; *haya*—is; *jagat*—the cosmic manifestation; *ye*—that; *mithyā*—untruth; *nahe*—not; *naśvara-mātra*—only temporary; *haya*—is.

@@ -1,11 +1,11 @@
 ### SB 3.25.16
 
-> अहं ममाभिमानोत्थैः कामलोभादिभिर्मलैः ।
+> अहं ममाभिमानोत्थैः कामलोभादिभिर्मलैः ।\
 > वीतं यदा मनः शुद्धमदुःखमसुखं समम् ॥१६॥
 
-> ahaṁ mamābhimānotthaiḥ
-> kāma-lobhādibhir malaiḥ
-> vītaṁ yadā manaḥ śuddham
+> ahaṁ mamābhimānotthaiḥ\
+> kāma-lobhādibhir malaiḥ\
+> vītaṁ yadā manaḥ śuddham\
 > aduḥkham asukhaṁ samam
 
 *aham*—I; *mama*—mine; *abhimāna*—from the misconception; *utthaiḥ*—produced; *kāma*—lust; *lobha*—greed; *ādibhiḥ*—and so on; *malaiḥ*—from the impurities; *vītam*—freed; *yadā*—when; *manaḥ*—the mind; *śuddham*—pure; *aduḥkham*—without distress; *asukham*—without happiness; *samam*—equipoised.

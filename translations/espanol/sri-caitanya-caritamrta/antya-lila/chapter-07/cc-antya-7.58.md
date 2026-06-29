@@ -1,9 +1,9 @@
 ### CC Antya 7.58
 
-> প্রভু কহে, — “কেহ গৌড়ে, কেহ দেশান্তরে ।
+> প্রভু কহে, — “কেহ গৌড়ে, কেহ দেশান্তরে ।\
 > সব আসিয়াছে রথযাত্রা দেখিবারে ॥৫৮॥
 
-> prabhu kahe,--"keha gauḍe, keha deśāntare
+> prabhu kahe,--"keha gauḍe, keha deśāntare\
 > saba āsiyāche ratha-yātrā dekhibāre
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu respondió; *keha gauḍe*—algunos en Bengala; *keha*—algunos; *deśa-antare*—en otros estados; *saba*—todos; *āsiyāche*—han venido; *ratha-yātrā dekhibāre*—a ver el festival de la carroza del Señor Jagannātha.

@@ -1,11 +1,11 @@
 ### CC Madhya 24.135
 
-> নিরোধোঽস্যানুশয়নমাত্মনঃ সহ শক্তিভিঃ ।
+> নিরোধোঽস্যানুশয়নমাত্মনঃ সহ শক্তিভিঃ ।\
 > মুক্তির্হিত্বান্যথারূপং স্বরূপেণ ব্যবস্থিতিঃ ॥১৩৫॥
 
-> nirodho 'syānu śayanam
-> ātmanaḥ saha śaktibhiḥ
-> muktir hitvānyathā-rūpaṁ
+> nirodho 'syānu śayanam\
+> ātmanaḥ saha śaktibhiḥ\
+> muktir hitvānyathā-rūpaṁ\
 > svarūpeṇa vyavasthitiḥ
 
 *nirodhaḥ*—disolución; *asya*—de esta; *anu*—después; *śayanam*—reposo; *ātmanaḥ*—del Señor Supremo; *saha*—con; *śaktibhiḥ*—las energías (marginal y externa); *muktiḥ*—liberación; *hitvā*—abandonando; *anyathā*—otra; *rūpam*—forma; *svarūpeṇa*—con la propia forma eterna; *vyavasthitiḥ*—permanencia.

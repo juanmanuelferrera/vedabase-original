@@ -1,11 +1,11 @@
 ### SB 9.3.13
 
-> बाढमित्यूचतुर्विप्रमभिनन्द्य भिषक्तमौ
+> बाढमित्यूचतुर्विप्रमभिनन्द्य भिषक्तमौ\
 > निमज्जतां भवानस्मिन्ह्रदे सिद्धविनिर्मिते ॥१३॥
 
-> bāḍham ity ūcatur vipram
-> abhinandya bhiṣaktamau
-> nimajjatāṁ bhavān asmin
+> bāḍham ity ūcatur vipram\
+> abhinandya bhiṣaktamau\
+> nimajjatāṁ bhavān asmin\
 > hrade siddha-vinirmite
 
 *bāḍham*—sí, haremos; *iti*—así; *ūcatuḥ*—ambos contestaron, asintiendo a la propuesta de Cyavana; *vipram*—al *brāhmaṇa* (a Cyavana); *abhinandya*—felicitándole; *bhiṣak-tamau*—los dos grandes médicos, los Aśvinī-kumāras; *nimajjatām*—sumérgete; *bhavān*—tú mismo; *asmin*—en este; *hrade*—lago; *siddha-vinirmite*—especialmente hecho para todo tipo de perfección.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.214
 
-> অন্যোন্যে বিশুদ্ধ প্রেমে করে রস পুষ্ট ৷
+> অন্যোন্যে বিশুদ্ধ প্রেমে করে রস পুষ্ট ৷\
 > তাঁ-সবার প্রেম দেখি’ কৃষ্ণ হয় তুষ্ট ৷৷ ২১৪ ৷৷ ॥২১৪॥
 
-> anyonye viśuddha preme kare rasa puṣṭa
+> anyonye viśuddha preme kare rasa puṣṭa\
 > tāṅ-sabāra prema dekhi' kṛṣṇa haya tuṣṭa
 
 *anyonye*—unas por otras; *viśuddha*—trascendental; *preme*—en amor por Dios; *kare*—hace; *rasa*—la melosidad; *puṣṭa*—nutrida; *tāṅ-sabāra*—de todas ellas; *prema*—el amor por Dios; *dekhi'*—al ver; *kṛṣṇa*—el Señor Kṛṣṇa; *haya*—se vuelve; *tuṣṭa*—satisfecho.

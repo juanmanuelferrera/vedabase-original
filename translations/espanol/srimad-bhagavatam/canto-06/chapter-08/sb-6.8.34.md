@@ -1,11 +1,11 @@
 ### SB 6.8.34
 
-> विदिक्षु दिक्षूर्ध्वमधः समन्तादन्तर्बहिर्भगवान्नारसिंहः
+> विदिक्षु दिक्षूर्ध्वमधः समन्तादन्तर्बहिर्भगवान्नारसिंहः\
 > प्रहापय लोकभयं स्वनेन स्वतेजसा ग्रस्तसमस्ततेजाः ॥३४॥
 
-> vidikṣu dikṣūrdhvam adhaḥ samantād
-> antar bahir bhagavān nārasiṁhaḥ
-> prahāpayaḹ loka-bhayaṁ svanena
+> vidikṣu dikṣūrdhvam adhaḥ samantād\
+> antar bahir bhagavān nārasiṁhaḥ\
+> prahāpayaḹ loka-bhayaṁ svanena\
 > sva-tejasā grasta-samasta-tejāḥ
 
 *vidikṣu*—en todos los rincones; *dikṣu*—en todas direcciones (este, oeste, norte y sur); *ūrdhvam*—por encima; *adhaḥ*—por debajo; *samantāt*—en todas direcciones; *antaḥ*—internamente; *bahiḥ*—externamente; *bhagavān*—la Suprema Personalidad de Dios; *nārasiṁhaḥ*—en la forma de Nṛsiṁhadeva (mitad león y mitad hombre); *prahāpayan*—destruir por completo; *loka-bhayam*—el temor creado por los animales, el veneno, las armas, el agua, el aire, el fuego, etc.; *svanena*—con Su rugido o con Su nombre pronunciado por Su devoto Prahlāda Mahārāja; *sva-tejasā*—con Su refulgencia personal; *grasta*—cubiertas; *samasta*—todas las demás; *tejāḥ*—influencias.

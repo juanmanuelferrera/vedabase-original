@@ -1,9 +1,9 @@
 ### CC Madhya 1.225
 
-> যদ্যপি বস্তুতঃ প্রভুর কিছু নাহি ভয় ।
+> যদ্যপি বস্তুতঃ প্রভুর কিছু নাহি ভয় ।\
 > তথাপি লৌকিকলীলা, লোক-চেষ্টাময় ॥২২৫॥
 
-> yadyapi vastutaḥ prabhura kichu nāhi bhaya
+> yadyapi vastutaḥ prabhura kichu nāhi bhaya\
 > tathāpi laukika-līlā, loka-ceṣṭā-maya
 
 *yadyapi*—although; *vastutaḥ*—in fact; *prabhura*—of the Lord; *kichu*—any; *nāhi*—there is not; *bhaya*—fear; *tathāpi*—still; *laukika-līlā*—general pastimes; *loka-ceṣṭā-maya*—consisting of popular behavior.

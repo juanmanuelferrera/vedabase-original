@@ -1,11 +1,11 @@
 ### SB 4.27.5
 
-> तयैवं रममाणस्य कामकश्मलचेतसः ।
+> तयैवं रममाणस्य कामकश्मलचेतसः ।\
 > क्षणार्धमिव राजेन्द्र व्यतिक्रान्तं नवं वयः ॥५॥
 
-> tayaivaṁ ramamāṇasya
-> kāma-kaśmala-cetasaḥ
-> kṣaṇārdham iva rājendra
+> tayaivaṁ ramamāṇasya\
+> kāma-kaśmala-cetasaḥ\
+> kṣaṇārdham iva rājendra\
 > vyatikrāntaṁ navaṁ vayaḥ
 
 *tayā*—with her; *evam*—in this way; *ramamāṇasya*—enjoying; *kāma*—full of lust; *kaśmala*—sinful; *cetasaḥ*—his heart; *kṣaṇa-ardham*—in half a moment; *iva*—like; *rāja-indra*—O King; *vyatikrāntam*—expired; *navam*—new; *vayaḥ*—life.

@@ -1,11 +1,11 @@
 ### SB 8.5.36
 
-> यच्चक्षुरासीत्तरणिर्देवयानं त्रयीमयो ब्रह्मण एष धिष्ण्यम
+> यच्चक्षुरासीत्तरणिर्देवयानं त्रयीमयो ब्रह्मण एष धिष्ण्यम\
 > द्वारं च मुक्तेरमृतं च मृत्युः प्रसीदतां नः स महाविभूतिः ॥३६॥
 
-> yac-cakṣur āsīt taraṇir deva-yānaṁ
-> trayīmayo brahmaṇa eṣa dhiṣṇyam
-> dvāraṁ ca mukter amṛtaṁ ca mṛtyuḥ
+> yac-cakṣur āsīt taraṇir deva-yānaṁ\
+> trayīmayo brahmaṇa eṣa dhiṣṇyam\
+> dvāraṁ ca mukter amṛtaṁ ca mṛtyuḥ\
 > prasīdatāṁ naḥ sa mahā-vibhūtiḥ
 
 *yat*—lo cual; *cakṣuḥ*—el ojo; *āsīt*—se volvió; *taraṇiḥ*—el dios del Sol; *deva-yānam*—la deidad regente de la senda de la liberación para los semidioses; *trayī-mayaḥ*—para servir de guía en el conocimiento védico *karma-kāṇḍa*; *brahmaṇaḥ*—de la Verdad Suprema; *eṣaḥ*—este; *dhiṣṇyam*—el lugar para la comprensión cabal; *dvāram ca*—así como la puerta; *mukteḥ*—para la liberación; *amṛtam*—la senda de la vida eterna; *ca*—así como; *mṛtyuḥ*—la causa de la muerte; *prasīdatām*—que Él Se complazca; *naḥ*—con nosotros; *saḥ*—esa Suprema Personalidad de Dios; *mahā-vibhūtiḥ*—el todopoderoso.

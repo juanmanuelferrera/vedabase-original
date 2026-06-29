@@ -1,9 +1,9 @@
 ### CC Antya 12.23
 
-> তেঁহো কহে, — “বাউলি, কেনে মরিস্ কান্দিয়া ?
+> তেঁহো কহে, — “বাউলি, কেনে মরিস্ কান্দিয়া ?\
 > মরুক আমার তিন পুত্র তাঁর বালাই লঞা ।।” ॥ ২৩ ॥
 
-> teṅho kahe,--"bāuli, kene maris kāndiyā?
+> teṅho kahe,--"bāuli, kene maris kāndiyā?\
 > maruka āmāra tina putra tāṅra bālāi lañā"
 
 *teṅho kahe*—él dijo; *bāuli*—mujer loca; *kene*—por qué; *maris*—te mueres; *kāndiyā*—llorando; *maruka*—que mueran; *āmāra*—mis; *tina*—tres; *putra*—hijos; *tāṅra*—Sus; *bālāi*—molestias; *lañā*—tomando.

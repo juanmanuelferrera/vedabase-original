@@ -1,11 +1,11 @@
 ### SB 4.25.19
 
-> नानारण्यमृगव्रातैरनाबाधे मुनिव्रतैः ।
+> नानारण्यमृगव्रातैरनाबाधे मुनिव्रतैः ।\
 > आहूतं मन्यते पान्थो यत्र कोकिलकूजितैः ॥१९॥
 
-> nānāraṇya-mṛga-vrātair
-> anābādhe muni-vrataiḥ
-> āhūtaṁ manyate pāntho
+> nānāraṇya-mṛga-vrātair\
+> anābādhe muni-vrataiḥ\
+> āhūtaṁ manyate pāntho\
 > yatra kokila-kūjitaiḥ
 
 *nānā*—various; *araṇya*—forest; *mṛga*—animals; *vrātaiḥ*—with groups; *anābādhe*—in the matter of nonviolence; *muni-vrataiḥ*—like the great sages; *āhūtam*—as if invited; *manyate*—thinks; *pānthaḥ*—passenger; *yatra*—where; *kokila*—of cuckoos; *kūjitaiḥ*—by the cooing.

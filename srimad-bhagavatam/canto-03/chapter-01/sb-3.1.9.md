@@ -1,11 +1,11 @@
 ### SB 3.1.9
 
-> यदा च पार्थप्रहितः सभायां जगद्गुरुर्यानि जगाद कृष्णः ।
+> यदा च पार्थप्रहितः सभायां जगद्गुरुर्यानि जगाद कृष्णः ।\
 > न तानि पुंसाममृतायनानि राजोरु मेने क्षतपुण्यलेशः ॥९॥
 
-> yadā ca pārtha-prahitaḥ sabhāyāṁ
-> jagad-gurur yāni jagāda kṛṣṇaḥ
-> na tāni puṁsām amṛtāyanāni
+> yadā ca pārtha-prahitaḥ sabhāyāṁ\
+> jagad-gurur yāni jagāda kṛṣṇaḥ\
+> na tāni puṁsām amṛtāyanāni\
 > rājoru mene kṣata-puṇya-leśaḥ
 
 *yadā*—when; *ca*—also; *pārtha-prahitaḥ*—being advised by Arjuna; *sabhāyām*—in the assembly; *jagat-guruḥ*—teacher of the world; *yāni*—those; *jagāda*—went; *kṛṣṇaḥ*—Lord Kṛṣṇa; *na*—never; *tāni*—such words; *puṁsām*—of all men of sense; *amṛta-ayanāni*—as good as nectar; *rājā*—the King (Dhṛtarāṣṭra or Duryodhana); *uru*—very important; *mene*—did consider; *kṣata*—dwindling; *puṇya-leśaḥ*—fragment of pious acts.

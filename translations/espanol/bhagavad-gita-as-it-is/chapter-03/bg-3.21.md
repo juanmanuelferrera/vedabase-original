@@ -1,11 +1,11 @@
 ### Bg 3.21
 
-> यद्यदाचरति श्रेष्ठस्तत्तदेवेतरो जनः ।
+> यद्यदाचरति श्रेष्ठस्तत्तदेवेतरो जनः ।\
 > स यत्प्रमाणं कुरुते लोकस्तदनुवर्तते ॥२१॥
 
-> yad yad ācarati śreṣṭhas
-> tat tad evetaro janaḥ
-> sa yat pramāṇaṁ kurute
+> yad yad ācarati śreṣṭhas\
+> tat tad evetaro janaḥ\
+> sa yat pramāṇaṁ kurute\
 > lokas tad anuvartate
 
 *yat*—lo que sea; *yat*—cualquiera que sea; *ācarati*—él actua; *śreṣṭhaḥ*—un líder respetable; *tat*—eso; *tat*—y solo eso; *eva*—ciertamente; *itaraḥ*—común; *janaḥ*—persona; *saḥ*—él; *yat*—cualquiera; *pramāṇam*—evidencia; *kurute*—realiza; *lokaḥ*—todo el mundo; *tat*—eso; *anuvartate*—sigue los pasos.

@@ -1,13 +1,13 @@
 ### SB 1.7.55
 
-> सूत उवाच
-> अर्जुनः सहसाज्ञाय हरेर्हार्दमथासिना ।
+> सूत उवाच\
+> अर्जुनः सहसाज्ञाय हरेर्हार्दमथासिना ।\
 > मणिं जहार मूर्धन्यं द्विजस्य सहमूर्धजम् ॥५५॥
 
-> sūta uvāca
-> arjunaḥ sahasājñāya
-> harer hārdam athāsinā
-> maṇiṁ jahāra mūrdhanyaṁ
+> sūta uvāca\
+> arjunaḥ sahasājñāya\
+> harer hārdam athāsinā\
+> maṇiṁ jahāra mūrdhanyaṁ\
 > dvijasya saha-mūrdhajam
 
 *sūtaḥ*—Sūta Gosvāmī; *uvāca*—said; *arjunaḥ*—Arjuna; *sahasā*—just at that time; *ājñāya*—knowing it; *hareḥ*—of the Lord; *hārdam*—motive; *atha*—thus; *asinā*—by the sword; *maṇim*—the jewel; *jahāra*—separated; *mūrdhanyam*—on the head; *dvijasya*—of the twice-born; *saha*—with; *mūrdhajam*—hairs.

@@ -1,9 +1,9 @@
 ### CC Adi 7.57
 
-> সে বিপ্র জানেন প্রভু না যা’ন কা’র ঘরে ।
+> সে বিপ্র জানেন প্রভু না যা’ন কা’র ঘরে ।\
 > তাঁহার প্রেরণায় তাঁরে অত্যাগ্রহ করে ॥৫৭॥
 
-> se vipra jānena prabhu nā yā'na kā'ra ghare
+> se vipra jānena prabhu nā yā'na kā'ra ghare\
 > tāṅhāra preraṇāya tāṅre atyāgraha kare
 
 *se*—aquel; *vipra*—*brāhmaṇa*; *jānena*—sabía; *prabhu*—el Señor Caitanya Mahāprabhu; *nā*—nunca; *yā'na*—va; *kā'ra*—de nadie; *ghare*—a la casa; *tāṅhāra*—de Él; *preraṇāya*—por inspiración; *tāṅre*—a Él; *atyāgraha kare*—insistía encarecidamente en que aceptara la invitación.

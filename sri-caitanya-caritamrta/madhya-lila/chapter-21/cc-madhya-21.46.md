@@ -1,9 +1,9 @@
 ### CC Madhya 21.46
 
-> তার তলে পরব্যোম — ‘বিষ্ণুলোক’-নাম ।
+> তার তলে পরব্যোম — ‘বিষ্ণুলোক’-নাম ।\
 > নারায়ণ-আদি অনন্ত স্বরূপের ধাম ॥৪৬॥
 
-> tāra tale paravyoma—'viṣṇuloka'-nāma
+> tāra tale paravyoma—'viṣṇuloka'-nāma\
 > nārāyaṇa-ādi ananta svarūpera dhāma
 
 *tāra tale*—below Vṛndāvana-dhāma; *para-vyoma*—the spiritual sky; *viṣṇu-loka-nāma*—known as Viṣṇuloka; *nārāyaṇa-ādi*—Nārāyaṇa and others; *ananta*—unlimited; *sva-rūpera*—of personal expansions; *dhāma*—the place.

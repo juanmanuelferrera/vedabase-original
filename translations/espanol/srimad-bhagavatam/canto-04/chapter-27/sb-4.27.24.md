@@ -1,11 +1,11 @@
 ### SB 4.27.24
 
-> ऋषभं यवनानां त्वां वृणे वीरेप्सितं पतिम् ।
+> ऋषभं यवनानां त्वां वृणे वीरेप्सितं पतिम् ।\
 > सङ्कल्पस्त्वयि भूतानां कृतः किल न रिष्यति ॥२४॥
 
-> ṛṣabhaṁ yavanānāṁ tvāṁ
-> vṛṇe vīrepsitaṁ patim
-> saṅkalpas tvayi bhūtānāṁ
+> ṛṣabhaṁ yavanānāṁ tvāṁ\
+> vṛṇe vīrepsitaṁ patim\
+> saṅkalpas tvayi bhūtānāṁ\
 > kṛtaḥ kila na riṣyati
 
 *ṛṣabham*—el mejor; *yavanānām*—de los intocables; *tvām*—tú; *vṛṇe*—yo acepto; *vīra*—¡oh, gran héroe!; *īpsitam*—deseado; *patim*—esposo; *saṅkalpaḥ*—la determinación; *tvayi*—a ti; *bhūtānām*—de todas las entidades vivientes; *kṛtaḥ*—cuando se hace; *kila*—ciertamente; *na*—nunca; *riṣyati*—se desengaña.

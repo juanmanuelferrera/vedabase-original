@@ -1,13 +1,13 @@
 ### CC Adi 3.63
 
-> স্মিতালোকঃ শোকং হরতি জগতাং যস্য পরিতো
-> গিরান্তু প্রারম্ভঃ কুশলপটলীং পল্লবয়তি ।
-> পদালম্ভঃ কং বা প্রণয়তি ন হি প্রেমনিবহং
+> স্মিতালোকঃ শোকং হরতি জগতাং যস্য পরিতো\
+> গিরান্তু প্রারম্ভঃ কুশলপটলীং পল্লবয়তি ।\
+> পদালম্ভঃ কং বা প্রণয়তি ন হি প্রেমনিবহং\
 > স দেবশ্চৈতন্যাকৃতিরতিতরাং নঃ কৃপয়তু ॥৬৩॥
 
-> smitālokaḥ śokaṁ harati jagatāṁ yasya parito
-> girāṁ tu prārambhaḥ kuśala-paṭalīṁ pallavayati
-> padālambhaḥ kaṁ vā praṇayati na hi prema-nivahaṁ
+> smitālokaḥ śokaṁ harati jagatāṁ yasya parito\
+> girāṁ tu prārambhaḥ kuśala-paṭalīṁ pallavayati\
+> padālambhaḥ kaṁ vā praṇayati na hi prema-nivahaṁ\
 > sa devaś caitanyākṛtir atitarāṁ naḥ kṛpayatu
 
 *smita*—sonriente; *ālokaḥ*—mirada; *śokam*—la aflicción; *harati*—quita; *jagatām*—del mundo; *yasya*—cuya; *paritaḥ*—por todas partes; *girām*—del habla; *tu*—también; *prārambhaḥ*—el comienzo; *kuśala*—de lo auspicioso; *paṭalīm*—la masa; *pallavayati*—hace florecer; *pada-ālambhaḥ*—el asirse de los pies de loto; *kam vā*—¿qué acaso?; *praṇayati*—conduce a; *na*—no; *hi*—ciertamente; *prema-nivaham*—cantidad de amor por Dios; *saḥ*—Él; *devaḥ*—la Suprema Personalidad de Dios; *caitanya-ākṛtiḥ*—que tiene la forma del Señor Caitanya Mahāprabhu; *atitarām*—en exceso; *naḥ*—a nosotros; *kṛpayatu*—que nos muestre Su misericordia.

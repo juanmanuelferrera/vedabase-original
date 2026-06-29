@@ -1,11 +1,11 @@
 ### SB 3.16.17
 
-> ब्रह्मण्यस्य परं दैवं ब्राह्मणाः किल ते प्रभो ।
+> ब्रह्मण्यस्य परं दैवं ब्राह्मणाः किल ते प्रभो ।\
 > विप्राणां देवदेवानां भगवानात्मदैवतम् ॥१७॥
 
-> brahmaṇyasya paraṁ daivaṁ
-> brāhmaṇāḥ kila te prabho
-> viprāṇāṁ deva-devānāṁ
+> brahmaṇyasya paraṁ daivaṁ\
+> brāhmaṇāḥ kila te prabho\
+> viprāṇāṁ deva-devānāṁ\
 > bhagavān ātma-daivatam
 
 *brahmaṇyasya*—of the supreme director of the brahminical culture; *param*—the highest; *daivam*—position; *brāhmaṇāḥ*—the *brāhmaṇas*; *kila*—for the teaching of others; *te*—Your; *prabho*—O Lord; *viprāṇām*—of the *brāhmaṇas*; *deva-devānām*—to be worshiped by the demigods; *bhagavān*—the Supreme Personality of Godhead; *ātma*—the self; *daivatam*—worshipable Deity.

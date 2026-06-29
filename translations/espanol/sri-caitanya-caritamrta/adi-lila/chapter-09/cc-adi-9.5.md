@@ -1,9 +1,9 @@
 ### CC Adi 9.5
 
-> এসব-প্রসাদে লিখি চৈতন্য-লীলাগুণ ।
+> এসব-প্রসাদে লিখি চৈতন্য-লীলাগুণ ।\
 > জানি বা না জানি, করি আপন-শোধন ॥৫॥
 
-> esaba-prasāde likhi caitanya-līlā-guṇa
+> esaba-prasāde likhi caitanya-līlā-guṇa\
 > jāni vā nā jāni, kari āpana-śodhana
 
 *esaba*—de todos estos; *prasāde*—por la misericordia; *likhi*—escribo; *caitanya*—del Señor Caitanya; *līlā-guṇa*—pasatiempos y cualidades; *jāni*—sé; *vā*—o; *nā*—no; *jāni*—sé; *kari*—hago; *āpana*—propia; *śodhana*—purificación.

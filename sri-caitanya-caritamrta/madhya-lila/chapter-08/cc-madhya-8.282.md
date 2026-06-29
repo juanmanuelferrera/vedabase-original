@@ -1,9 +1,9 @@
 ### CC Madhya 8.282
 
-> তবে হাসি’ তাঁরে প্রভু দেখাইল স্বরূপ ।
+> তবে হাসি’ তাঁরে প্রভু দেখাইল স্বরূপ ।\
 > ‘রসরাজ’, ‘মহাভাব’ — দুই এক রূপ ॥২৮২॥
 
-> tabe hāsi' tāṅre prabhu dekhāila svarūpa
+> tabe hāsi' tāṅre prabhu dekhāila svarūpa\
 > 'rasa-rāja' 'mahābhāva'—dui eka rūpa
 
 *tabe*—therefore; *hāsi'*—smiling; *tāṅre*—unto him (Rāmānanda Rāya); *prabhu*—the Lord; *dekhāila*—showed; *svarūpa*—His personal form; *rasa-rāja*—the king of all transcendental humors; *mahā-bhāva*—the condition of ecstatic love; *dui*—two; *eka*—one; *rūpa*—form.

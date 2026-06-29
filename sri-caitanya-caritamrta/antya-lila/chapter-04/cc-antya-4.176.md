@@ -1,9 +1,9 @@
 ### CC Antya 4.176
 
-> ‘দ্বৈতে’ ভদ্রাভদ্র-জ্ঞান, সব — ‘মনোধর্ম’ ।
+> ‘দ্বৈতে’ ভদ্রাভদ্র-জ্ঞান, সব — ‘মনোধর্ম’ ।\
 > ‘এই ভাল, এই মন্দ’, — এই সব ‘ভ্রম’ ॥১৭৬॥
 
-> 'dvaite' bhadrābhadra-jñāna, saba—'manodharma'
+> 'dvaite' bhadrābhadra-jñāna, saba—'manodharma'\
 > 'ei bhāla, ei manda',—ei saba 'bhrama'
 
 *dvaite*—in the material world; *bhadra-abhadra-jñāna*—understanding of good and bad; *saba*—all; *manaḥ-dharma*—speculative mental creations; *ei bhāla*—this is good; *ei manda*—this is bad; *ei*—this; *saba*—all; *bhrama*—mistake.

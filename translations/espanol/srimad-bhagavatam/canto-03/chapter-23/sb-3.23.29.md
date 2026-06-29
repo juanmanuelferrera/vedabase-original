@@ -1,11 +1,11 @@
 ### SB 3.23.29
 
-> भूषणानि परार्ध्यानि वरीयांसि द्युमन्ति च ।
+> भूषणानि परार्ध्यानि वरीयांसि द्युमन्ति च ।\
 > अन्नं सर्वगुणोपेतं पानं चैवामृतासवम् ॥२९॥
 
-> bhūṣaṇāni parārdhyāni
-> varīyāṁsi dyumanti ca
-> annaṁ sarva-guṇopetaṁ
+> bhūṣaṇāni parārdhyāni\
+> varīyāṁsi dyumanti ca\
+> annaṁ sarva-guṇopetaṁ\
 > pānaṁ caivāmṛtāsavam
 
 *bhūṣaṇāni*—ornamentos; *para-ardhyāni*—muy valiosos; *varīyāṁsi*—muy excelentes; *dyumanti*—espléndidos; *ca*—y; *annam*—alimento; *sarva-guṇa*—todas las buenas cualidades; *upetam*—conteniendo; *pānam*—bebidas; *ca*—y; *eva*—también; *amṛta*—dulce; *āsavam*—embriagante.

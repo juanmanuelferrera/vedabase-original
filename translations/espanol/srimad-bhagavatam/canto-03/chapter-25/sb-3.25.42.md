@@ -1,11 +1,11 @@
 ### SB 3.25.42
 
-> मद्भयाद्वाति वातोऽयं सूर्यस्तपति मद्भयात् ।
+> मद्भयाद्वाति वातोऽयं सूर्यस्तपति मद्भयात् ।\
 > वर्षतीन्द्रो दहत्यग्निर्मृत्युश्चरति मद्भयात् ॥४२॥
 
-> mad-bhayād vāti vāto 'yaṁ
-> sūryas tapati mad-bhayāt
-> varṣatīndro dahaty agnir
+> mad-bhayād vāti vāto 'yaṁ\
+> sūryas tapati mad-bhayāt\
+> varṣatīndro dahaty agnir\
 > mṛtyuś carati mad-bhayāt
 
 *mat-bhayāt*—por temor a Mí; *vāti*—sopla; *vātaḥ*—el viento; *ayam*—esto; *sūryaḥ*—el Sol; *tapati*—brilla; *mat-bhayāt*—por temor a Mí; *varṣati*—derrama lluvias; *indraḥ*—Indra; *dahati*—arde; *agniḥ*—el fuego; *mṛtyuḥ*—la muerte; *carati*—va; *mat-bhayāt*—por temor a Mí.

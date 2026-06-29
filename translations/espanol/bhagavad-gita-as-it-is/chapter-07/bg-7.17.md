@@ -1,11 +1,11 @@
 ### Bg 7.17
 
-> तेषां ज्ञानी नित्ययुक्त एकभक्तिर्विशिष्यते ।
+> तेषां ज्ञानी नित्ययुक्त एकभक्तिर्विशिष्यते ।\
 > प्रियो हि ज्ञानिनोऽत्यर्थमहं स च मम प्रियः ॥१७॥
 
-> teṣāṁ jñānī nitya-yukta
-> eka-bhaktir viśiṣyate
-> priyo hi jñānino'tyartham
+> teṣāṁ jñānī nitya-yukta\
+> eka-bhaktir viśiṣyate\
+> priyo hi jñānino'tyartham\
 > ahaṁ sa ca mama priyaḥ
 
 *teṣām*—de estos; *jñānī*—aquel que tiene pleno conocimiento; *nitya-yuktaḥ*—siempre ocupado; *eka*—solo uno; *bhaktiḥ*—servicio devocional; *viśiṣyate*—especialmente; *priyaḥ*—muy querido; *hi*—ciertamente; *jñāninaḥ*—la persona con conocimiento; *atyartham*—sumamente; *aham*—Yo soy; *saḥ*—él; *ca*—también; *mama*—Mío; *priyaḥ*—querido.

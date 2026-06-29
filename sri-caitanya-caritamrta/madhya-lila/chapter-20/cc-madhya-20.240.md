@@ -1,9 +1,9 @@
 ### CC Madhya 20.240
 
-> ‘স্বয়ং ভগবান্’, আর ‘লীলা-পুরুষোত্তম’ ।
+> ‘স্বয়ং ভগবান্’, আর ‘লীলা-পুরুষোত্তম’ ।\
 > এই দুই নাম ধরে ব্রজেন্দ্রনন্দন ॥২৪০॥
 
-> 'svayaṁ bhagavān' āra 'līlā-puruṣottama'
+> 'svayaṁ bhagavān' āra 'līlā-puruṣottama'\
 > ei dui nāma dhare vrajendra-nandana
 
 *svayam bhagavān*—the Supreme Personality of Godhead; *āra*—and; *līlā-puruṣottama*—the Lord Puruṣottama of pastimes; *ei dui*—these two; *nāma*—names; *dhare*—takes; *vrajendra-nandana*—Kṛṣṇa, the son of Nanda Mahārāja.

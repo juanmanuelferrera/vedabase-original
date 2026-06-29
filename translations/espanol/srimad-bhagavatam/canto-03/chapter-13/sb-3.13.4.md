@@ -1,11 +1,11 @@
 ### SB 3.13.4
 
-> श्रुतस्य पुंसां सुचिरश्रमस्य नन्वञ्जसा सूरिभिरीडितोऽर्थः ।
+> श्रुतस्य पुंसां सुचिरश्रमस्य नन्वञ्जसा सूरिभिरीडितोऽर्थः ।\
 > तत्तद्गुणानुश्रवणं मुकुन्द पादारविन्दं हृदयेषु येषाम् ॥४॥
 
-> śrutasya puṁsāṁ sucira-śramasya
-> nanv añjasā sūribhir īḍito 'rthaḥ
-> tat-tad-guṇānuśravaṇaṁ mukunda-
+> śrutasya puṁsāṁ sucira-śramasya\
+> nanv añjasā sūribhir īḍito 'rthaḥ\
+> tat-tad-guṇānuśravaṇaṁ mukunda-\
 > pādāravindaṁ hṛdayeṣu yeṣām
 
 *śrutasya*—de personas que se encuentran en el proceso de escuchar; *puṁsām*—de tales personas; *sucira*—durante largo tiempo; *śramasya*—esforzándose mucho; *nanu*—sin duda; *añjasā*—elaboradamente; *sūribhiḥ*—por devotos puros; *īḍitaḥ*—explicadas por; *arthaḥ*—afirmaciones; *tat*—aquella; *tat*—aquella; *guṇa*—cualidades trascendentales; *anuśravaṇam*—pensando; *mukunda*—la Personalidad de Dios, que ofrece la liberación; *pāda-aravindam*—los pies de loto; *hṛdayeṣu*—dentro del corazón; *yeṣām*—de ellos.

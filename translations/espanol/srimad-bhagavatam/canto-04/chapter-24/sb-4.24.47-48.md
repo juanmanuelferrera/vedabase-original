@@ -1,18 +1,18 @@
 ### SB 4.24.47-48
 
-> प्रीतिप्रहसितापाङ्गमलकै रूपशोभितम् ।
-> लसत्पङ्कजकिञ्जल्क दुकूलं मृष्टकुण्डलम् ॥४७॥
-> स्फुरत्किरीटवलय हारनूपुरमेखलम् ।
+> प्रीतिप्रहसितापाङ्गमलकै रूपशोभितम् ।\
+> लसत्पङ्कजकिञ्जल्क दुकूलं मृष्टकुण्डलम् ॥४७॥\
+> स्फुरत्किरीटवलय हारनूपुरमेखलम् ।\
 > शङ्खचक्रगदापद्म मालामण्युत्तमर्द्धिमत् ॥४८॥
 
-> prīti-prahasitāpāṅgam
-> alakai rūpa-śobhitam
-> lasat-paṅkaja-kiñjalka-
+> prīti-prahasitāpāṅgam\
+> alakai rūpa-śobhitam\
+> lasat-paṅkaja-kiñjalka-\
 > dukūlaṁ mṛṣṭa-kuṇḍalam
 
-> sphurat-kirīṭa-valaya-
-> hāra-nūpura-mekhalam
-> śaṅkha-cakra-gadā-padma-
+> sphurat-kirīṭa-valaya-\
+> hāra-nūpura-mekhalam\
+> śaṅkha-cakra-gadā-padma-\
 > mālā-maṇy-uttamarddhimat
 
 *prīti*—misericordioso; *prahasita*—sonreír; *apāṅgam*—mirada de soslayo; *alakaiḥ*—con pelo ondulado; *rūpa*—belleza; *śobhitam*—aumentada; *lasat*—resplandeciente; *paṅkaja*—del loto; *kiñjalka*—azafrán; *dukūlam*—vestido; *mṛṣṭa*—esplendorosos; *kuṇḍalam*—pendientes; *sphurat*—brillante; *kirīṭa*—almete; *valaya*—ajorcas; *hāra*—collar; *nūpura*—campanitas tobilleras; *mekhalam*—cinturón; *śaṅkha*—caracola; *cakra*—rueda; *gadā*—maza; *padma*—flor de loto; *mālā*—collar de flores; *maṇi*—perlas; *uttama*—del mejor tipo; *ṛddhi-mat*—aún más bellas con respecto a esto.

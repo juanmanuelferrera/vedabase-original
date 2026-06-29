@@ -1,14 +1,14 @@
 ### CC Adi 5.218-219
 
-> বৃন্দাবনে যোগপীঠে কল্পতরু-বনে ।
-> রত্নমণ্ডপ, তাহে রত্নসিংহাসনে ॥২১৮॥
-> শ্রীগোবিন্দ বসিয়াছেন ব্রজেন্দ্রনন্দন ।
+> বৃন্দাবনে যোগপীঠে কল্পতরু-বনে ।\
+> রত্নমণ্ডপ, তাহে রত্নসিংহাসনে ॥২১৮॥\
+> শ্রীগোবিন্দ বসিয়াছেন ব্রজেন্দ্রনন্দন ।\
 > মাধুর্য প্রকাশি’ করেন জগৎ মোহন ॥২১৯॥
 
-> vṛndāvane yoga-pīṭhe kalpa-taru-vane
+> vṛndāvane yoga-pīṭhe kalpa-taru-vane\
 > ratna-maṇḍapa, tāhe ratna-siṁhāsane
 
-> śrī-govinda vasiyāchena vrajendra-nandana
+> śrī-govinda vasiyāchena vrajendra-nandana\
 > mādhurya prakāśi' karena jagat mohana
 
 *vṛndāvane*—en Vṛndāvana; *yoga-pīṭhe*—en el templo principal; *kalpa-taru-vane*—en el bosque de árboles de deseos; *ratna-maṇḍapa*—un altar hecho de gemas; *tāhe*—sobre; *ratna-siṁha-āsane*—en el trono de gemas; *śrī-govinda*—Śrī Govinda; *vasiyāchena*—estaba sentado; *vrajendra-nandana*—el hijo de Nanda Mahārāja; *mādhurya prakāśi’*—manifestando Su dulzura; *karena*—hace; *jagat mohana*—fascinación del mundo entero.

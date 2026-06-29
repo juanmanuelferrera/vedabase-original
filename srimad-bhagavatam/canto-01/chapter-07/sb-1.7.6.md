@@ -1,11 +1,11 @@
 ### SB 1.7.6
 
-> अनर्थोपशमं साक्षाद्भक्तियोगमधोक्षजे ।
+> अनर्थोपशमं साक्षाद्भक्तियोगमधोक्षजे ।\
 > लोकस्याजानतो विद्वांश्चक्रे सात्वतसंहिताम् ॥६॥
 
-> anarthopaśamaṁ sākṣād
-> bhakti-yogam adhokṣaje
-> lokasyājānato vidvāṁś
+> anarthopaśamaṁ sākṣād\
+> bhakti-yogam adhokṣaje\
+> lokasyājānato vidvāṁś\
 > cakre sātvata-saṁhitām
 
 *anartha*—things which are superfluous; *upaśamam*—mitigation; *sākṣāt*—directly; *bhakti-yogam*—the linking process of devotional service; *adhokṣaje*—unto the Transcendence; *lokasya*—of the general mass of men; *ajānataḥ*—those who are unaware of; *vidvān*—the supremely learned; *cakre*—compiled; *sātvata*—in relation with the Supreme Truth; *saṁhitām*—Vedic literature.

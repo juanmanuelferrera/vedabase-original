@@ -1,9 +1,9 @@
 ### CC Madhya 6.178
 
-> ভগবান্ — ‘সম্বন্ধ’, ভক্তি — ‘অভিধেয়’ হয় ।
+> ভগবান্ — ‘সম্বন্ধ’, ভক্তি — ‘অভিধেয়’ হয় ।\
 > প্রেমা — ‘প্রয়োজন’, বেদে তিনবস্তু কয় ॥১৭৮॥
 
-> bhagavān—'sambandha', bhakti—'abhidheya' haya
+> bhagavān—'sambandha', bhakti—'abhidheya' haya\
 > premā—'prayojana', vede tina-vastu kaya
 
 *bhagavān*—the Supreme Personality of Godhead; *sambandha*—relationship; *bhakti*—devotional service; *abhidheya*—transcendental activities; *haya*—is; *premā*—love of Godhead; *prayojana*—the ultimate goal of life; *vede*—the *Vedas*; *tina-vastu*—three subject matters; *kaya*—describe.

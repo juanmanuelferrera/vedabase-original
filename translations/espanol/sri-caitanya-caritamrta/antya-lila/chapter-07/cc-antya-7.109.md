@@ -1,9 +1,9 @@
 ### CC Antya 7.109
 
-> শুনিয়া বল্লভ-ভট্ট হৈল নির্বচন  ।
+> শুনিয়া বল্লভ-ভট্ট হৈল নির্বচন  ।\
 > ঘরে যাই’ মনে দুঃখে করেন চিন্তন ॥১০৯॥
 
-> śuniyā vallabha-bhaṭṭa haila nirvacana
+> śuniyā vallabha-bhaṭṭa haila nirvacana\
 > ghare yāi' mane duḥkhe karena cintana
 
 *śuniyā*—al oír; *vallabha-bhaṭṭa*—Vallabha Bhaṭṭa; *haila*—quedó; *nirvacana*—sin habla; *ghare yāi'*—al regresar a casa; *mane*—en la mente; *duḥkhe*—infeliz; *karena cintana*—se puso a considerar.

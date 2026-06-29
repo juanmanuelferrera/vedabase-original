@@ -1,9 +1,9 @@
 ### CC Madhya 3.201
 
-> দিনে কৃষ্ণ-কথা-রস ভক্তগণ-সঙ্গে ।
+> দিনে কৃষ্ণ-কথা-রস ভক্তগণ-সঙ্গে ।\
 > রাত্রে মহা-মহোৎসব সংকীর্তন-রঙ্গে ॥২০১॥
 
-> dine kṛṣṇa-kathā-rasa bhakta-gaṇa-saṅge
+> dine kṛṣṇa-kathā-rasa bhakta-gaṇa-saṅge\
 > rātre mahā-mahotsava saṅkīrtana-raṅge
 
 *dine*—durante el día; *kṛṣṇa-kathā-rasa*—conversaciones acerca de Kṛṣṇa; *bhakta-gaṇa-saṅge*—con los devotos; *rātre*—por la noche; *mahā-mahā-utsava*—un gran festival; *saṅkīrtana-raṅge*—de canto congregacional.

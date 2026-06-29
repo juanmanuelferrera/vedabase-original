@@ -1,11 +1,11 @@
 ### SB 8.16.5
 
-> अपि वाकुशलं किञ्चिद्गृहेषु गृहमेधिनि
+> अपि वाकुशलं किञ्चिद्गृहेषु गृहमेधिनि\
 > धर्मस्यार्थस्य कामस्य यत्र योगो ह्ययोगिनाम ॥५॥
 
-> api vākuśalaṁ kiñcid
-> gṛheṣu gṛha-medhini
-> dharmasyārthasya kāmasya
+> api vākuśalaṁ kiñcid\
+> gṛheṣu gṛha-medhini\
+> dharmasyārthasya kāmasya\
 > yatra yogo hy ayoginām
 
 *api*—I am wondering; *vā*—either; *akuśalam*—inauspiciousness; *kiñcit*—some; *gṛheṣu*—at home; *gṛha-medhini*—O my wife, who are attached to household life; *dharmasya*—of the principles of religion; *arthasya*—of the economic condition; *kāmasya*—of satisfaction of desires; *yatra*—at home; *yogaḥ*—the result of meditation; *hi*—indeed; *ayoginām*—even of those who are not transcendentalists.

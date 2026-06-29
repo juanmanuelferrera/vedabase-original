@@ -1,11 +1,11 @@
 ### SB 4.8.13
 
-> तपसाराध्य पुरुषं तस्यैवानुग्रहेण मे ।
+> तपसाराध्य पुरुषं तस्यैवानुग्रहेण मे ।\
 > गर्भे त्वं साधयात्मानं यदीच्छसि नृपासनम् ॥१३॥
 
-> tapasārādhya puruṣaṁ
-> tasyaivānugraheṇa me
-> garbhe tvaṁ sādhayātmānaṁ
+> tapasārādhya puruṣaṁ\
+> tasyaivānugraheṇa me\
+> garbhe tvaṁ sādhayātmānaṁ\
 > yadīcchasi nṛpāsanam
 
 *tapasā*—con austeridades; *ārādhya*—habiendo satisfecho; *puruṣam*—a la Suprema Personalidad de Dios; *tasya*—por Su; *eva*—solo; *anugraheṇa*—por la misericordia de; *me*—mi; *garbhe*—en el vientre; *tvam*—tú; *sādhaya*—lugar; *ātmānam*—tú mismo; *yadi*—si; *icchasi*—deseas; *nṛpa-āsanam*—en el trono del rey.

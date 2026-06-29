@@ -1,9 +1,9 @@
 ### CC Madhya 6.76
 
-> কহেন যদি, পুনরপি যোগ-পট্ট দিয়া ।
+> কহেন যদি, পুনরপি যোগ-পট্ট দিয়া ।\
 > সংস্কার করিয়ে উত্তম-সম্প্রদায়ে আনিয়া ।।’ ॥ ৭৬ ॥
 
-> kahena yadi, punarapi yoga-paṭṭa diyā
+> kahena yadi, punarapi yoga-paṭṭa diyā\
 > saṁskāra kariye uttama-sampradāye āniyā'
 
 *kahena*—says; *yadi*—if; *punarapi*—again; *yoga-paṭṭa diyā*—offering Him saffron cloth; *saṁskāra*—reformatory process; *kariye*—I perform; *uttama*—first-class; *sampradāye*—to the community; *āniyā*—bringing.

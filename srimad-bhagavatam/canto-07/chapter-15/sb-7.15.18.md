@@ -1,11 +1,11 @@
 ### SB 7.15.18
 
-> सन्तुष्टः केन वा राजन्न वर्तेतापि वारिणा
+> सन्तुष्टः केन वा राजन्न वर्तेतापि वारिणा\
 > औपस्थ्यजैह्व्यकार्पण्याद्गृहपालायते जनः ॥१८॥
 
-> santuṣṭaḥ kena vā rājan
-> na vartetāpi vāriṇā
-> aupasthya-jaihvya-kārpaṇyād
+> santuṣṭaḥ kena vā rājan\
+> na vartetāpi vāriṇā\
+> aupasthya-jaihvya-kārpaṇyād\
 > gṛha-pālāyate janaḥ
 
 *santuṣṭaḥ*—a person who is always self-satisfied; *kena*—why; *vā*—or; *rājan*—O King; *na*—not; *varteta*—should live (happily); *api*—even; *vāriṇā*—by drinking water; *aupasthya*—due to the genitals; *jaihvya*—and the tongue; *kārpaṇyāt*—because of a wretched or miserly condition; *gṛha-pālāyate*—he becomes exactly like a household dog; *janaḥ*—such a person.

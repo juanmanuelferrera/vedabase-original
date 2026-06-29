@@ -1,9 +1,9 @@
 ### CC Madhya 1.33
 
-> নানা শাস্ত্র আনি’ কৈলা ভক্তিগ্রন্থ সার ।
+> নানা শাস্ত্র আনি’ কৈলা ভক্তিগ্রন্থ সার ।\
 > মূঢ় অধমজনেরে তেঁহো করিলা নিস্তার ॥৩৩॥
 
-> nānā śāstra āni' kailā bhakti-grantha sāra
+> nānā śāstra āni' kailā bhakti-grantha sāra\
 > mūḍha adhama-janere teṅho karilā nistāra
 
 *nānā śāstra*—diferentes tipos de escrituras; *āni'*—recopilando; *kailā*—compilaron; *bhakti-grantha*—de libros sobre servicio devocional; *sāra*—la esencia; *mūḍha*—bribones; *adhama-janere*—y almas caídas; *teṅho*—ellos; *karilā nistāra*—liberaron.

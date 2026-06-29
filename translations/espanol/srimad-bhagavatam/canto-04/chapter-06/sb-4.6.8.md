@@ -1,11 +1,11 @@
 ### SB 4.6.8
 
-> स इत्थमादिश्य सुरानजस्तु तैः समन्वितः पितृभिः सप्रजेशैः ।
+> स इत्थमादिश्य सुरानजस्तु तैः समन्वितः पितृभिः सप्रजेशैः ।\
 > ययौ स्वधिष्ण्यान्निलयं पुरद्विषः कैलासमद्रिप्रवरं प्रियं प्रभोः ॥८॥
 
-> sa ittham ādiśya surān ajas tu taiḥ
-> samanvitaḥ pitṛbhiḥ sa-prajeśaiḥ
-> yayau sva-dhiṣṇyān nilayaṁ pura-dviṣaḥ
+> sa ittham ādiśya surān ajas tu taiḥ\
+> samanvitaḥ pitṛbhiḥ sa-prajeśaiḥ\
+> yayau sva-dhiṣṇyān nilayaṁ pura-dviṣaḥ\
 > kailāsam adri-pravaraṁ priyaṁ prabhoḥ
 
 *saḥ*—él (Brahmā); *ittham*—de este modo; *ādiśya*—después de instruir; *surān*—a los semidioses; *ajaḥ*—el Señor Brahmā; *tu*—entonces; *taiḥ*—aquellos; *samanvitaḥ*—seguido; *pitṛbhiḥ*—por los *pitās*; *sa-prajeśaiḥ*—junto con los señores de las entidades vivientes; *yayau*—fueron; *sva-dhiṣṇyāt*—de su propio lugar; *nilayam*—la morada; *pura-dviṣaḥ*—del Señor Śiva; *kailāsam*—Kailāsa; *adri-pravaram*—la mejor de las montañas; *priyam*—querida; *prabhoḥ*—del señor (Śiva).

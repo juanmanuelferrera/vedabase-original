@@ -1,11 +1,11 @@
 ### SB 3.19.37
 
-> यो वै हिरण्याक्षवधं महाद्भुतं विक्रीडितं कारणसूकरात्मनः ।
+> यो वै हिरण्याक्षवधं महाद्भुतं विक्रीडितं कारणसूकरात्मनः ।\
 > शृणोति गायत्यनुमोदतेऽञ्जसा विमुच्यते ब्रह्मवधादपि द्विजाः ॥३७॥
 
-> yo vai hiraṇyākṣa-vadhaṁ mahādbhutaṁ
-> vikrīḍitaṁ kāraṇa-sūkarātmanaḥ
-> śṛṇoti gāyaty anumodate 'ñjasā
+> yo vai hiraṇyākṣa-vadhaṁ mahādbhutaṁ\
+> vikrīḍitaṁ kāraṇa-sūkarātmanaḥ\
+> śṛṇoti gāyaty anumodate 'ñjasā\
 > vimucyate brahma-vadhād api dvijāḥ
 
 *yaḥ*—he who; *vai*—indeed; *hiraṇyākṣa-vadham*—of the killing of Hiraṇyākṣa; *mahā-adbhutam*—most wonderful; *vikrīḍitam*—pastime; *kāraṇa*—for reasons like raising the earth from the ocean; *sūkara*—appearing in the form of a boar; *ātmanaḥ*—of the Supreme Personality of Godhead; *śṛṇoti*—hears; *gāyati*—chants; *anumodate*—takes pleasure; *añjasā*—at once; *vimucyate*—becomes freed; *brahma-vadhāt*—from the sin of killing a *brāhmaṇa*; *api*—even; *dvijāḥ*—O *brāhmaṇas.*

@@ -1,11 +1,11 @@
 ### SB 1.9.17
 
-> तस्मादिदं दैवतन्त्रं व्यवस्य भरतर्षभ ।
+> तस्मादिदं दैवतन्त्रं व्यवस्य भरतर्षभ ।\
 > तस्यानुविहितोऽनाथा नाथ पाहि प्रजाः प्रभो ॥१७॥
 
-> tasmād idaṁ daiva-tantraṁ
-> vyavasya bharatarṣabha
-> tasyānuvihito 'nāthā
+> tasmād idaṁ daiva-tantraṁ\
+> vyavasya bharatarṣabha\
+> tasyānuvihito 'nāthā\
 > nātha pāhi prajāḥ prabho
 
 *tasmāt*—therefore; *idam*—this; *daiva-tantram*—enchantment of providence only; *vyavasya*—ascertaining; *bharata-ṛṣabha*—O best among the descendants of Bharata; *tasya*—by Him; *anuvihitaḥ*—as desired; *anāthāḥ*—helpless; *nātha*—O master; *pāhi*—just take care of; *prajāḥ*—of the subjects; *prabho*—O Lord.

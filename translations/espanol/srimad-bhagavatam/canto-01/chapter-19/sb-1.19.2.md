@@ -1,11 +1,11 @@
 ### SB 1.19.2
 
-> ध्रुवं ततो मे कृतदेवहेलनाद्दुरत्ययं व्यसनं नातिदीर्घात् ।
+> ध्रुवं ततो मे कृतदेवहेलनाद्दुरत्ययं व्यसनं नातिदीर्घात् ।\
 > तदस्तु कामं ह्यघनिष्कृताय मे यथा न कुर्यां पुनरेवमद्धा ॥२॥
 
-> dhruvaṁ tato me kṛta-deva-helanād
-> duratyayaṁ vyasanaṁ nāti-dīrghāt
-> tad astu kāmaṁ hy agha-niṣkṛtāya me
+> dhruvaṁ tato me kṛta-deva-helanād\
+> duratyayaṁ vyasanaṁ nāti-dīrghāt\
+> tad astu kāmaṁ hy agha-niṣkṛtāya me\
 > yathā na kuryāṁ punar evam addhā
 
 *dhruvam*—con toda seguridad; *tataḥ*—por lo tanto; *me*—mi; *kṛta-deva-helanāt*—por desobedecer las órdenes del Señor; *duratyayam*—muy difícil; *vyasanam*—calamidad; *na*—no; *ati*—muy; *dīrghāt*—lejos; *tat*—eso; *astu*—que ocurra; *kāmam*—deseo sin reservas; *hi*—ciertamente; *agha*—pecados; *niṣkṛtāya*—para liberarse; *me*—mi; *yathā*—de modo que; *na*—nunca; *kuryām*—lo haré; *punaḥ*—de nuevo; *evam*—como lo he hecho; *addhā*—directamente.

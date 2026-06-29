@@ -1,11 +1,11 @@
 ### Bg 4.2
 
-> एवं परम्पराप्राप्तमिमं राजर्षयो विदुः ।
+> एवं परम्पराप्राप्तमिमं राजर्षयो विदुः ।\
 > स कालेनेह महता योगो नष्टः परन्तप ॥२॥
 
-> evaṁ paramparā-prāptam
-> imaṁ rājarṣayo viduḥ
-> sa kāleneha mahatā
+> evaṁ paramparā-prāptam\
+> imaṁ rājarṣayo viduḥ\
+> sa kāleneha mahatā\
 > yogo naṣṭaḥ parantapa
 
 *evam*—así pues; *paramparā*—sucesión discipular; *prāptam*—recibida; *imam*—esta ciencia; *rājarṣayaḥ*—los reyes santos; *viduḥ*—entendieron; *saḥ*—ese conocimiento; *kālena*—en el transcurso del tiempo; *iha*—en este mundo; *mahatā*—por grandes; *yogaḥ*—la ciencia de la relación de uno con el Supremo; *naṣṭaḥ*—disperso; *parantapa*—¡oh, Arjuna, subyugador de los enemigos!

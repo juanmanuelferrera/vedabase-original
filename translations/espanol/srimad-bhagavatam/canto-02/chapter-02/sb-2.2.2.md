@@ -1,11 +1,11 @@
 ### SB 2.2.2
 
-> शाब्दस्य हि ब्रह्मण एष पन्था यन्नामभिर्ध्यायति धीरपार्थैः ।
+> शाब्दस्य हि ब्रह्मण एष पन्था यन्नामभिर्ध्यायति धीरपार्थैः ।\
 > परिभ्रमंस्तत्र न विन्दतेऽर्थान्मायामये वासनया शयानः ॥२॥
 
-> śābdasya hi brahmaṇa eṣa panthā
-> yan nāmabhir dhyāyati dhīr apārthaiḥ
-> paribhramaṁs tatra na vindate 'rthān
+> śābdasya hi brahmaṇa eṣa panthā\
+> yan nāmabhir dhyāyati dhīr apārthaiḥ\
+> paribhramaṁs tatra na vindate 'rthān\
 > māyāmaye vāsanayā śayānaḥ
 
 *śābdasya*—del sonido védico; *hi*—ciertamente; *brahmaṇaḥ*—de los *Vedas*; *eṣaḥ*—estos; *panthāḥ*—el camino; *yat*—que es; *nāmabhiḥ*—mediante diferentes nombres; *dhyāyati*—cavila; *dhīḥ*—inteligencia; *apārthaiḥ*—mediante ideas sin sentido; *paribhraman*—deambulando; *tatra*—ahí; *na*—jamás; *vindate*—disfruta; *arthān*—realidades; *māyā-maye*—en cosas ilusorias; *vāsanayā*—mediante diferentes deseos; *śayānaḥ*—como si soñara mientras duerme.

@@ -1,11 +1,11 @@
 ### SB 1.3.11
 
-> षष्ठमत्रेरपत्यत्वं वृतः प्राप्तोऽनसूयया ।
+> षष्ठमत्रेरपत्यत्वं वृतः प्राप्तोऽनसूयया ।\
 > आन्वीक्षिकीमलर्काय प्रह्लादादिभ्य ऊचिवान् ॥११॥
 
-> ṣaṣṭham atrer apatyatvaṁ
-> vṛtaḥ prāpto 'nasūyayā
-> ānvīkṣikīm alarkāya
+> ṣaṣṭham atrer apatyatvaṁ\
+> vṛtaḥ prāpto 'nasūyayā\
+> ānvīkṣikīm alarkāya\
 > prahlādādibhya ūcivān
 
 *ṣaṣṭham*—the sixth one; *atreḥ*—of Atri; *apatyatvam*—sonship; *vṛtaḥ*—being prayed for; *prāptaḥ*—obtained; *anasūyayā*—by Anasūyā; *ānvīkṣikīm*—on the subject of transcendence; *alarkāya*—unto Alarka; *prahlāda-ādibhyaḥ*—unto Prahlāda and others; *ūcivān*—spoke.

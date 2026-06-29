@@ -1,9 +1,9 @@
 ### CC Madhya 12.168
 
-> সর্বজ্ঞ প্রভু জানেন যাঁরে যেই ভায় ।
+> সর্বজ্ঞ প্রভু জানেন যাঁরে যেই ভায় ।\
 > তাঁরে তাঁরে সেই দেওয়ায় স্বরূপ-দ্বারায় ॥১৬৮॥
 
-> sarvajña prabhu jānena yāṅre yei bhāya
+> sarvajña prabhu jānena yāṅre yei bhāya\
 > tāṅre tāṅre sei deoyāya svarūpa-dvārāya
 
 *sarva-jña prabhu*—el omnisciente Señor Śrī Caitanya Mahāprabhu; *jānena*—conoce; *yāṅre*—a quién; *yei*—lo que; *bhāya*—le agrada; *tāṅre tāṅre*—a cada persona; *sei*—eso; *deoyāya*—ordena servir; *svarūpa-dvārāya*—por medio de Svarūpa Dāmodara.

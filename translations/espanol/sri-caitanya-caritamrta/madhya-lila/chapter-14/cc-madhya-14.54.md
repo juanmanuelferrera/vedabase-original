@@ -1,9 +1,9 @@
 ### CC Madhya 14.54
 
-> তবে মহাপ্রভু সব হস্তী ঘুচাইল  ।
+> তবে মহাপ্রভু সব হস্তী ঘুচাইল  ।\
 > নিজগণে রথ-কাছি টানিবারে দিল ॥৫৪॥
 
-> tabe mahāprabhu saba hastī ghucāila
+> tabe mahāprabhu saba hastī ghucāila\
 > nija-gaṇe ratha-kāchi ṭānibāre dila
 
 *tabe*—en ese momento; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *saba*—todos; *hastī*—los elefantes; *ghucāila*—los soltó; *nija-gaṇe*—a Sus propios hombres; *ratha-kāchi*—la soga del carro; *ṭānibāre dila*—les dio para tirar.

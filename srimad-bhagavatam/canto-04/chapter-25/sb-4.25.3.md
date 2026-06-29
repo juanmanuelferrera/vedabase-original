@@ -1,11 +1,11 @@
 ### SB 4.25.3
 
-> प्राचीनबर्हिषं क्षत्तः कर्मस्वासक्तमानसम् ।
+> प्राचीनबर्हिषं क्षत्तः कर्मस्वासक्तमानसम् ।\
 > नारदोऽध्यात्मतत्त्वज्ञः कृपालुः प्रत्यबोधयत् ॥३॥
 
-> prācīnabarhiṣaṁ kṣattaḥ
-> karmasv āsakta-mānasam
-> nārado 'dhyātma-tattva-jñaḥ
+> prācīnabarhiṣaṁ kṣattaḥ\
+> karmasv āsakta-mānasam\
+> nārado 'dhyātma-tattva-jñaḥ\
 > kṛpāluḥ pratyabodhayat
 
 *prācīnabarhiṣam*—unto King Prācīnabarhiṣat; *kṣattaḥ*—O Vidura; *karmasu*—in fruitive activities; *āsakta*—attached; *mānasam*—with this mentality; *nāradaḥ*—the great sage Nārada; *adhyātma*—spiritualism; *tattva-jñaḥ*—one who knows the truth; *kṛpāluḥ*—being compassionate; *pratyabodhayat*—gave instructions.

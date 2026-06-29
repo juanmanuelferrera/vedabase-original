@@ -1,11 +1,11 @@
 ### Bg 2.51
 
-> कर्मजं बुद्धियुक्ता हि फलं त्यक्त्वा मनीषिणः ।
+> कर्मजं बुद्धियुक्ता हि फलं त्यक्त्वा मनीषिणः ।\
 > जन्मबन्धविनिर्मुक्ताः पदं गच्छन्त्यनामयम् ॥५१॥
 
-> karma-jaṁ buddhi-yuktā hi
-> phalaṁ tyaktvā manīṣiṇaḥ
-> janma-bandha-vinirmuktāḥ
+> karma-jaṁ buddhi-yuktā hi\
+> phalaṁ tyaktvā manīṣiṇaḥ\
+> janma-bandha-vinirmuktāḥ\
 > padaṁ gacchanty anāmayam
 
 *karma-jam*—debido a las actividades fruitivas; *buddhi-yuktāḥ*—realizándose en el servicio devocional; *hi*—ciertamente; *phalam*—resultados; *tyaktvā*—abandonando; *manīṣiṇaḥ*—devotos que son grandes sabios; *janma-bandha*—del cautiverio del nacimiento y la muerte; *vinirmuktāḥ*—almas liberadas; *padam*—posición; *gacchanti*—alcanzan; *anāmayam*—sin miserias.

@@ -1,11 +1,11 @@
 ### SB 4.29.65
 
-> तेनास्य तादृशं राज लिङ्गिनो देहसम्भवम् ।
+> तेनास्य तादृशं राज लिङ्गिनो देहसम्भवम् ।\
 > श्रद्धत्स्वाननुभूतोऽर्थो न मनः स्प्रष्टुमर्हति ॥६५॥
 
-> tenāsya tādṛśaṁ rājaḹ
-> liṅgino deha-sambhavam
-> śraddhatsvānanubhūto 'rtho
+> tenāsya tādṛśaṁ rājaḹ\
+> liṅgino deha-sambhavam\
+> śraddhatsvānanubhūto 'rtho\
 > na manaḥ spraṣṭum arhati
 
 *tena*—por lo tanto; *asya*—de la entidad viviente; *tādṛśam*—como eso; *rājan*—¡oh, rey!; *liṅginaḥ*—que tiene una cubierta mental sutil; *deha-sambhavam*—producida en un cuerpo anterior; *śraddhatsva*—acéptalo como un hecho; *ananubhūtaḥ*—no percibida; *arthaḥ*—una cosa; *na*—nunca; *manaḥ*—en la mente; *spraṣṭum*—manifestar; *arhati*—puede.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.41
 
-> লঘুভাগবতামৃতাদি কে করু গণন ।
+> লঘুভাগবতামৃতাদি কে করু গণন ।\
 > সর্বত্র করিল ব্রজবিলাস বর্ণন ॥৪১॥
 
-> laghu-bhāgavatāmṛtādi ke karu gaṇana
+> laghu-bhāgavatāmṛtādi ke karu gaṇana\
 > sarvatra karila vraja-vilāsa varṇana
 
 *laghu-bhāgavatāmṛta-ādi*—another list, containing *Laghu-bhāgavatāmṛta*; *ke*—who; *karu gaṇana*—can count; *sarvatra*—everywhere; *karila*—did; *vraja-vilāsa*—of the pastimes of Vṛndāvana; *varṇana*—description.

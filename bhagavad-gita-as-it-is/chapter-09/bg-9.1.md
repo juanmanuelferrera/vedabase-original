@@ -1,13 +1,13 @@
 ### Bg 9.1
 
-> श्रीभगवानुवाच ।
-> इदं तु ते गुह्यतमं प्रवक्ष्याम्यनसूयवे ।
+> श्रीभगवानुवाच ।\
+> इदं तु ते गुह्यतमं प्रवक्ष्याम्यनसूयवे ।\
 > ज्ञानं विज्ञानसहितं यज्ज्ञात्वा मोक्ष्यसेऽशुभात् ॥१॥
 
-> śrī-bhagavān uvāca
-> idaṁ tu te guhyatamaṁ
-> pravakṣyāmy anasūyave
-> jñānaṁ vijñāna-sahitaṁ
+> śrī-bhagavān uvāca\
+> idaṁ tu te guhyatamaṁ\
+> pravakṣyāmy anasūyave\
+> jñānaṁ vijñāna-sahitaṁ\
 > yaj jñātvā mokṣyase 'śubhāt
 
 *śrī bhagavan uvāca*—the Supreme Personality of Godhead said; *idam*—this; *tu*—but; *te*—unto you; *guhyatamam*—most confidential; *pravakṣyāmi*—I am speaking; *anasūyave*—to the nonenvious; *jñānam*—knowledge; *vijñāna*—realized knowledge; *sahitam*—with; *yat*—which; *jñātvā*—knowing; *mokṣyase*—be released; *aśubhāt*—from this miserable material existence.

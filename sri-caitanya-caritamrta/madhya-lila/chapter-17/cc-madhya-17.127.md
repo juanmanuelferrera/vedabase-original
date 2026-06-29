@@ -1,9 +1,9 @@
 ### CC Madhya 17.127
 
-> তিনবারে ‘কৃষ্ণনাম’ না আইল তার মুখে ।
+> তিনবারে ‘কৃষ্ণনাম’ না আইল তার মুখে ।\
 > ‘অবজ্ঞা’তে নাম লয়, শুনি’ পাই দুঃখে ॥১২৭॥
 
-> tina-bāre 'kṛṣṇa-nāma' nā āila tāra mukhe
+> tina-bāre 'kṛṣṇa-nāma' nā āila tāra mukhe\
 > 'avajñā'te nāma laya, śuni' pāi duḥkhe
 
 *tina-bāre*—three times; *kṛṣṇa-nāma*—the holy name of Kṛṣṇa; *nā āila*—did not come; *tāra mukhe*—in his mouth; *avajñā'te*—in contempt; *nāma laya*—takes Your name; *śuni'*—hearing; *pāi duḥkhe*—I was very much aggrieved.

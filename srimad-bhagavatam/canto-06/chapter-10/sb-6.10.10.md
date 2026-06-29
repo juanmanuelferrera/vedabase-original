@@ -1,11 +1,11 @@
 ### SB 6.10.10
 
-> अहो दैन्यमहो कष्टं पारक्यैः क्षणभङ्गुरैः
+> अहो दैन्यमहो कष्टं पारक्यैः क्षणभङ्गुरैः\
 > यन्नोपकुर्यादस्वार्थैर्मर्त्यः स्वज्ञआतिविग्रहैः ॥१०॥
 
-> aho dainyam aho kaṣṭaṁ
-> pārakyaiḥ kṣaṇa-bhaṅguraiḥ
-> yan nopakuryād asvārthair
+> aho dainyam aho kaṣṭaṁ\
+> pārakyaiḥ kṣaṇa-bhaṅguraiḥ\
+> yan nopakuryād asvārthair\
 > martyaḥ sva-jñāti-vigrahaiḥ
 
 *aho*—alas; *dainyam*—a miserable condition; *aho*—alas; *kaṣṭam*—simply tribulation; *pārakyaiḥ*—which after death are eatable by dogs and jackals; *kṣaṇa-bhaṅguraiḥ*—perishable at any moment; *yat*—because; *na*—not; *upakuryāt*—would help; *a-sva-arthaiḥ*—not meant for self-interest; *martyaḥ*—a living entity destined to die; *sva*—with his wealth; *jñāti*—relatives and friends; *vigrahaiḥ*—and his body.

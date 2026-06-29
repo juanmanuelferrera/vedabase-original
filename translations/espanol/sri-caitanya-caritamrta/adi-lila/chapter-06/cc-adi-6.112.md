@@ -1,9 +1,9 @@
 ### CC Adi 6.112
 
-> মূল ভক্ত-অবতার শ্রীসঙ্কর্ষণ ।
+> মূল ভক্ত-অবতার শ্রীসঙ্কর্ষণ ।\
 > ভক্ত-অবতার তঁহি অদ্বৈতে গণন ॥১১২॥
 
-> mūla bhakta-avatāra śrī-saṅkarṣaṇa
+> mūla bhakta-avatāra śrī-saṅkarṣaṇa\
 > bhakta-avatāra taṅhi advaite gaṇana
 
 *mūla*—original; *bhakta*—de devoto; *avatāra*—encarnación; *śrī-saṅkarṣaṇa*—el Señor Śrī Saṅkarṣaṇa; *bhakta-avatāra*—la encarnación de devoto; *taṅhi*—como tal; *advaite*—a Advaita Ācārya; *gaṇana*—contando.

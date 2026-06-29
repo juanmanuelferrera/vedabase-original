@@ -1,11 +1,11 @@
 ### SB 6.2.32
 
-> अथापि मे दुर्भगस्य विबुधोत्तमदर्शने
+> अथापि मे दुर्भगस्य विबुधोत्तमदर्शने\
 > भवितव्यं मङ्गलेन येनात्मा मे प्रसीदति ॥३२॥
 
-> athāpi me durbhagasya
-> vibudhottama-darśane
-> bhavitavyaṁ maṅgalena
+> athāpi me durbhagasya\
+> vibudhottama-darśane\
+> bhavitavyaṁ maṅgalena\
 > yenātmā me prasīdati
 
 *atha*—por lo tanto; *api*—aunque; *me*—de mí; *durbhagasya*—tan desgraciado; *vibudha-uttama*—devotos excelsos; *darśane*—por haber visto; *bhavitavyam*—debe de haber; *maṅgalena*—actividades auspiciosas; *yena*—por las cuales; *ātmā*—ser; *me*—mío; *prasīdati*—se vuelve realmente feliz.

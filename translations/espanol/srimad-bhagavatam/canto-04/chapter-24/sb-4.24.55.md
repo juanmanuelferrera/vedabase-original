@@ -1,11 +1,11 @@
 ### SB 4.24.55
 
-> तं दुराराध्यमाराध्य सतामपि दुरापया ।
+> तं दुराराध्यमाराध्य सतामपि दुरापया ।\
 > एकान्तभक्त्या को वाञ्छेत्पादमूलं विना बहिः ॥५५॥
 
-> taṁ durārādhyam ārādhya
-> satām api durāpayā
-> ekānta-bhaktyā ko vāñchet
+> taṁ durārādhyam ārādhya\
+> satām api durāpayā\
+> ekānta-bhaktyā ko vāñchet\
 > pāda-mūlaṁ vinā bahiḥ
 
 *tam*—a Ti; *durārādhyam*—muy difícil de adorar; *ārādhya*—habiendo adorado; *satām api*—incluso para las personas más excelsas; *durāpayā*—muy difícil de alcanzar; *ekānta*—puro; *bhaktyā*—por servicio devocional; *kaḥ*—qué hombre es ese; *vāñchet*—debe desear; *pāda-mūlam*—pies de loto; *vinā*—sin; *bahiḥ*—intrusos.

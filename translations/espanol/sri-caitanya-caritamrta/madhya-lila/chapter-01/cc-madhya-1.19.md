@@ -1,9 +1,9 @@
 ### CC Madhya 1.19
 
-> তার মধ্যে ছয় বৎসর — গমনাগমন ।
+> তার মধ্যে ছয় বৎসর — গমনাগমন ।\
 > নীলাচল-গৌড়-সেতুবন্ধ-বৃন্দাবন ॥১৯॥
 
-> tāra madhye chaya vatsara--gamanāgamana
+> tāra madhye chaya vatsara--gamanāgamana\
 > nīlācala-gauḍa-setubandha-vṛndāvana
 
 *tāra madhye*—dentro de ese periodo; *chaya vatsara*—durante seis años; *gamana-āgamana*—ir y venir; *nīlācala*—desde Jagannātha Purī; *gauḍa*—a Bengala; *setubandha*—y desde Cabo Comorín; *vṛndāvana*—a Vṛndāvana-dhāma.

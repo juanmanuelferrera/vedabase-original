@@ -1,9 +1,9 @@
 ### CC Madhya 5.147
 
-> চলিতে চলিতে প্রভু আইলা ‘আঠারনালা’ ।
+> চলিতে চলিতে প্রভু আইলা ‘আঠারনালা’ ।\
 > তাহাঁ আসি’ প্রভু কিছু বাহ্য প্রকাশিলা ॥১৪৭॥
 
-> calite calite prabhu āilā 'āṭhāranālā'
+> calite calite prabhu āilā 'āṭhāranālā'\
 > tāhāṅ āsi' prabhu kichu bāhya prakāśilā
 
 *calite calite*—caminando de esta manera; *prabhu*—el Señor; *āilā*—llegó; *āṭhāranālā*—a un lugar conocido como Āṭhāranālā; *tāhāṅ*—allí; *āsi'*—llegando; *prabhu*—el Señor; *kichu*—algo de; *bāhya*—conciencia externa; *prakāśilā*—manifestó.

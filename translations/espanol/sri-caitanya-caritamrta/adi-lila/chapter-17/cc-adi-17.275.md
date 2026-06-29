@@ -1,9 +1,9 @@
 ### CC Adi 17.275
 
-> যশোদানন্দন হৈলা শচীর নন্দন ।
+> যশোদানন্দন হৈলা শচীর নন্দন ।\
 > চতুর্বিধ ভক্ত-ভাব করে আস্বাদন ॥২৭৫॥
 
-> yaśodā-nandana hailā śacīra nandana
+> yaśodā-nandana hailā śacīra nandana\
 > catur-vidha bhakta-bhāva kare āsvādana
 
 *yaśodā-nandana*—el hijo de madre Yaśodā; *hailā*—Se convirtió en; *śacīra*—de madre Śacī; *nandana*—el hijo; *catuḥ-vidha*—cuatro clases de; *bhakta-bhāva*—sentimientos devocionales; *kare*—lleva a cabo; *āsvādana*—saboreo.

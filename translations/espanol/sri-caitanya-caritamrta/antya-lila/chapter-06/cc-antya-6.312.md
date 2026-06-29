@@ -1,9 +1,9 @@
 ### CC Antya 6.312
 
-> ছিণ্ডা কানি কাঁথা বিনা না পরে বসন ।
+> ছিণ্ডা কানি কাঁথা বিনা না পরে বসন ।\
 > সাবধানে প্রভুর কৈলা আজ্ঞার পালন ॥৩১২॥
 
-> chiṇḍā kāni kāṅthā vinā nā pare vasana
+> chiṇḍā kāni kāṅthā vinā nā pare vasana\
 > sāvadhāne prabhura kailā ājñāra pālana
 
 *chiṇḍā kāni*—un pequeño trapo rasgado; *kāṅthā*—un envoltorio de algodón remendado; *vinā*—excepto; *nā pare*—no se pone; *vasana*—ropa; *sāvadhāne*—con gran cuidado; *prabhura*—de Śrī Caitanya Mahāprabhu; *kailā*—llevó a cabo; *ājñāra pālana*—el cumplimiento de la orden.

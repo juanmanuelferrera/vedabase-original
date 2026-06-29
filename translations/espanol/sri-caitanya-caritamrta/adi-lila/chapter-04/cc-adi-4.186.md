@@ -1,9 +1,9 @@
 ### CC Adi 4.186
 
-> গোপীগণ করে যবে কৃষ্ণ-দরশন ।
+> গোপীগণ করে যবে কৃষ্ণ-দরশন ।\
 > সুখবাঞ্ছা নাহি, সুখ হয় কোটিগুণ ॥১৮৬॥
 
-> gopī-gaṇa kare yabe kṛṣṇa-daraśana
+> gopī-gaṇa kare yabe kṛṣṇa-daraśana\
 > sukha-vāñchā nāhi, sukha haya koṭi-guṇa
 
 *gopī-gaṇa*—las gopīs; *kare*—hacen; *yabe*—cuando; *kṛṣṇa-daraśana*—ver al Señor Kṛṣṇa; *sukha-vāñchā*—deseo de felicidad; *nāhi*—no hay; *sukha*—la felicidad; *haya*—es; *koṭi-guṇa*—diez millones de veces.

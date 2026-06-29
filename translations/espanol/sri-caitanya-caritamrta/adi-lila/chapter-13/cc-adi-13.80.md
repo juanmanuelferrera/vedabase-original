@@ -1,9 +1,9 @@
 ### CC Adi 13.80
 
-> চৌদ্দশত ছয় শকে শেষ মাঘ মাসে ।
+> চৌদ্দশত ছয় শকে শেষ মাঘ মাসে ।\
 > জগন্নাথ-শচীর দেহে কৃষ্ণের প্রবেশে ॥৮০॥
 
-> caudda-śata chaya śake śeṣa māgha māse
+> caudda-śata chaya śake śeṣa māgha māse\
 > jagannātha-śacīra dehe kṛṣṇera praveśe
 
 *caudda-śata*—1400; *chaya*—6; *śake*—en el año de la era Śaka; *śeṣa*—último; *māgha*—Māgha; *māse*—en el mes; *jagannātha*—de Jagannātha Miśra; *śacīra*—y de Śacīdevī; *dehe*—en los cuerpos; *kṛṣṇera*—del Señor Kṛṣṇa; *praveśe*—por la entrada.

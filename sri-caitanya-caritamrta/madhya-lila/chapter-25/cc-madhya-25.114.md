@@ -1,9 +1,9 @@
 ### CC Madhya 25.114
 
-> “অহমেব”-শ্লোকে ‘অহম্’ — তিনবার ।
+> “অহমেব”-শ্লোকে ‘অহম্’ — তিনবার ।\
 > পূর্ণৈশ্বর্য শ্রীবিগ্রহ-স্থিতির নির্ধার ॥১১৪॥
 
-> "aham eva"-śloke 'aham'-tina-bāra
+> "aham eva"-śloke 'aham'-tina-bāra\
 > pūrṇaiśvarya śrī-vigraha-sthitira nirdhāra
 
 *aham eva*—I only; *śloke*—in this verse; *aham*—the word *aham*; *tina-bāra*—three times; *pūrṇa-aiśvarya*—full of all opulences; *śrī-vigraha*—of the transcendental form of the Lord; *sthitira*—of the existence; *nirdhāra*—confirmation.

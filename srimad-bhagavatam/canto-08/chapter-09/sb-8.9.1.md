@@ -1,13 +1,13 @@
 ### SB 8.9.1
 
-> श्रीशुक उवाच
-> तेऽन्योन्यतोऽसुराः पात्रं हरन्तस्त्यक्तसौहृदाः
+> श्रीशुक उवाच\
+> तेऽन्योन्यतोऽसुराः पात्रं हरन्तस्त्यक्तसौहृदाः\
 > क्षिपन्तो दस्युधर्माण आयान्तीं ददृशुः स्त्रियम ॥१॥
 
-> śrī-śuka uvāca
-> te 'nyonyato 'surāḥ pātraṁ
-> harantas tyakta-sauhṛdāḥ
-> kṣipanto dasyu-dharmāṇa
+> śrī-śuka uvāca\
+> te 'nyonyato 'surāḥ pātraṁ\
+> harantas tyakta-sauhṛdāḥ\
+> kṣipanto dasyu-dharmāṇa\
 > āyāntīṁ dadṛśuḥ striyam
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *te*—the demons; *anyonyataḥ*—among themselves; *asurāḥ*—the demons; *pātram*—the container of nectar; *harantaḥ*—snatching from one another; *tyakta-sauhṛdāḥ*—became inimical toward one another; *kṣipantaḥ*—sometimes throwing; *dasyu-dharmāṇaḥ*—sometimes snatching like robbers; *āyāntīm*—coming forward; *dadṛśuḥ*—saw; *striyam*—a very beautiful and attractive woman.

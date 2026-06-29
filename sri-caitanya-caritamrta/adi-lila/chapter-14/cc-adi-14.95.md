@@ -1,9 +1,9 @@
 ### CC Adi 14.95
 
-> বাল্যলীলা-সূত্র এই কৈল অনুক্রম ।
+> বাল্যলীলা-সূত্র এই কৈল অনুক্রম ।\
 > ইহা বিস্তারিয়াছেন দাস-বৃন্দাবন ॥৯৫॥
 
-> bālyalīlā-sūtra ei kaila anukrama
+> bālyalīlā-sūtra ei kaila anukrama\
 > ihā vistāriyāchena dāsa-vṛndāvana
 
 *bālya-līlā-sūtra*—synopsis of the pastimes of childhood; *ei*—this; *kaila*—did; *anukrama*—in chronological order; *ihā*—this; *vistāriyāchena*—has elaborately explained; *dāsa-vṛndāvana*—Vṛndāvana dāsa Ṭhākura.

@@ -1,11 +1,11 @@
 ### SB 3.13.32
 
-> जघान रुन्धानमसह्यविक्रमं स लीलयेभं मृगराडिवाम्भसि ।
+> जघान रुन्धानमसह्यविक्रमं स लीलयेभं मृगराडिवाम्भसि ।\
 > तद्रक्तपङ्काङ्कितगण्डतुण्डो यथा गजेन्द्रो जगतीं विभिन्दन् ॥३२॥
 
-> jaghāna rundhānam asahya-vikramaṁ
-> sa līlayebhaṁ mṛgarāḍ ivāmbhasi
-> tad-rakta-paṅkāṅkita-gaṇḍa-tuṇḍo
+> jaghāna rundhānam asahya-vikramaṁ\
+> sa līlayebhaṁ mṛgarāḍ ivāmbhasi\
+> tad-rakta-paṅkāṅkita-gaṇḍa-tuṇḍo\
 > yathā gajendro jagatīṁ vibhindan
 
 *jaghāna*—killed; *rundhānam*—the obstructive enemy; *asahya*—unbearable; *vikramam*—prowess; *saḥ*—He; *līlayā*—easily; *ibham*—the elephant; *mṛga-rāṭ*—the lion; *iva*—like; *ambhasi*—in the water; *tat-rakta*—of his blood; *paṅka-aṅkita*—smeared by the pool; *gaṇḍa*—cheeks; *tuṇḍaḥ*—tongue; *yathā*—as if; *gajendraḥ*—the elephant; *jagatīm*—earth; *vibhindan*—digging.

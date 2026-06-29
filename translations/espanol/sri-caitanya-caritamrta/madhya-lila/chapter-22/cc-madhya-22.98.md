@@ -1,13 +1,13 @@
 ### CC Madhya 22.98
 
-> অহো বকী যং স্তনকালকূটং
-> জিঘাংসয়াপায়য়দপ্যসাধ্বী ।
-> লেভে গতিং ধাত্র্যুচিতাং ততোঽন্যং
+> অহো বকী যং স্তনকালকূটং\
+> জিঘাংসয়াপায়য়দপ্যসাধ্বী ।\
+> লেভে গতিং ধাত্র্যুচিতাং ততোঽন্যং\
 > কং বা দয়ালুং শরণং ব্রজেম ॥৯৮॥
 
-> aho bakī yaṁ stana-kāla-kūṭaṁ
-> jighāṁsayāpāyayad apy asādhvī
-> lebhe gatiṁ dhātry-ucitāṁ tato 'nyaṁ
+> aho bakī yaṁ stana-kāla-kūṭaṁ\
+> jighāṁsayāpāyayad apy asādhvī\
+> lebhe gatiṁ dhātry-ucitāṁ tato 'nyaṁ\
 > kaṁ vā dayāluṁ śaraṇaṁ vrajema
 
 *aho*—qué asombroso; *bakī*—Pūtanā, la hermana de Bakāsura; *yam*—a quien; *stana*—en los dos pechos; *kāla-kūṭam*—el veneno mortal; *jighāṁsayā*—con el deseo de matar; *apāyayat*—obligó a beber; *api*—aunque; *asādhvī*—peligrosamente hostil a Kṛṣṇa; *lebhe*—alcanzó; *gatim*—el destino; *dhātrī*—para una nodriza; *ucitām*—adecuado; *tataḥ*—que Él; *anyam*—otro; *kam*—a quién; *vā*—o; *dayālum*—el más misericordioso; *śaraṇam*—refugio; *vrajema*—tomaremos.

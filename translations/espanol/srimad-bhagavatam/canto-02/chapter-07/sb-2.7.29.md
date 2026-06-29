@@ -1,13 +1,13 @@
 ### SB 2.7.29
 
-> तत्कर्म दिव्यमिव यन्निशि निःशयानं
-> दावाग्निना शुचिवने परिदह्यमाने ।
-> उन्नेष्यति व्रजमतोऽवसितान्तकालं
+> तत्कर्म दिव्यमिव यन्निशि निःशयानं\
+> दावाग्निना शुचिवने परिदह्यमाने ।\
+> उन्नेष्यति व्रजमतोऽवसितान्तकालं\
 > नेत्रे पिधाप्य सबलोऽनधिगम्यवीर्यः ॥२९॥
 
-> tat karma divyam iva yan niśi niḥśayānaṁ
-> dāvāgninā śuci-vane paridahyamāne
-> unneṣyati vrajam ato 'vasitānta-kālaṁ
+> tat karma divyam iva yan niśi niḥśayānaṁ\
+> dāvāgninā śuci-vane paridahyamāne\
+> unneṣyati vrajam ato 'vasitānta-kālaṁ\
 > netre pidhāpya sabalo 'nadhigamya-vīryaḥ
 
 *tat*—esa; *karma*—actividad; *divyam*—sobrehumana; *iva*—como; *yat*—la cual; *niśi*—de noche; *niḥśayānam*—durmiendo despreocupadamente; *dāva-agninā*—debido al fulgor del fuego del bosque; *śuci-vane*—en el árido bosque; *paridahyamāne*—habiendo sido encendido; *unneṣyati*—habría de salvar; *vrajam*—todos los habitantes de Vraja; *ataḥ*—de aquí a; *avasita*—con toda seguridad; *anta-kālam*—últimos momentos de vida; *netre*—sobre los ojos; *pidhāpya*—por simplemente cerrar; *sa-balaḥ*—juntamente con Baladeva; *anadhigamya*—insondable; *vīryaḥ*—poder.

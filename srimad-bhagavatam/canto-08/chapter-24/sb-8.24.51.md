@@ -1,11 +1,11 @@
 ### SB 8.24.51
 
-> जनो जनस्यादिशतेऽसतीं गतिं यया प्रपद्येत दुरत्ययं तमः
+> जनो जनस्यादिशतेऽसतीं गतिं यया प्रपद्येत दुरत्ययं तमः\
 > त्वं त्वव्ययं ज्ञआनममोघमञ्जसा प्रपद्यते येन जनो निजं पदम ॥५१॥
 
-> jano janasyādiśate 'satīṁ gatiṁ
-> yayā prapadyeta duratyayaṁ tamaḥ
-> tvaṁ tv avyayaṁ jñānam amogham añjasā
+> jano janasyādiśate 'satīṁ gatiṁ\
+> yayā prapadyeta duratyayaṁ tamaḥ\
+> tvaṁ tv avyayaṁ jñānam amogham añjasā\
 > prapadyate yena jano nijaṁ padam
 
 *janaḥ*—a person who is not a bona fide *guru* (an ordinary person); *janasya*—of an ordinary person who does not know the goal of life; *ādiśate*—instructs; *asatīm*—impermanent, material; *gatim*—the goal of life; *yayā*—by such knowledge; *prapadyeta*—he surrenders; *duratyayam*—insurmountable; *tamaḥ*—to ignorance; *tvam*—Your Lordship; *tu*—but; *avyayam*—indestructible; *jñānam*—knowledge; *amogham*—without material contamination; *añjasā*—very soon; *prapadyate*—achieves; *yena*—by such knowledge; *janaḥ*—a person; *nijam*—his own; *padam*—original position.

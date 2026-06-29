@@ -1,13 +1,13 @@
 ### SB 7.9.47
 
-> रूपे इमे सदसती तव वेदसृष्टे
-> बीजाङ्कुराविव न चान्यदरूपकस्य
-> युक्ताः समक्षमुभयत्र विचक्षन्ते त्वां
+> रूपे इमे सदसती तव वेदसृष्टे\
+> बीजाङ्कुराविव न चान्यदरूपकस्य\
+> युक्ताः समक्षमुभयत्र विचक्षन्ते त्वां\
 > योगेन वह्निमिव दारुषु नान्यतः स्यात ॥४७॥
 
-> rūpe ime sad-asatī tava veda-sṛṣṭe
-> bījāṅkurāv iva na cānyad arūpakasya
-> yuktāḥ samakṣam ubhayatra vicakṣante tvāṁ
+> rūpe ime sad-asatī tava veda-sṛṣṭe\
+> bījāṅkurāv iva na cānyad arūpakasya\
+> yuktāḥ samakṣam ubhayatra vicakṣante tvāṁ\
 > yogena vahnim iva dāruṣu nānyataḥ syāt
 
 *rūpe*—in the forms; *ime*—these two; *sat-asatī*—the cause and the effect; *tava*—Your; *veda-sṛṣṭe*—explained in the *Vedas*; *bīja-aṅkurau*—the seed and the sprout; *iva*—like; *na*—never; *ca*—also; *anyat*—any other; *arūpakasya*—of You, who possess no material form; *yuktāḥ*—those engaged in Your devotional service; *samakṣam*—before the very eyes; *ubhayatra*—in both ways (spiritually and materially); *vicakṣante*—can actually see; *tvām*—You; *yogena*—simply by the method of devotional service; *vahnim*—fire; *iva*—like; *dāruṣu*—in wood; *na*—not; *anyataḥ*—from any other means; *syāt*—it is possible.

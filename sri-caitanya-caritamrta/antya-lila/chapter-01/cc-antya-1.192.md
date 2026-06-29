@@ -1,9 +1,9 @@
 ### CC Antya 1.192
 
-> এত শুনি’ রায় কহে প্রভুর চরণে  ।
+> এত শুনি’ রায় কহে প্রভুর চরণে  ।\
 > রূপের কবিত্ব প্রশংসি’ সহস্র-বদনে ॥১৯২॥
 
-> eta śuni' rāya kahe prabhura caraṇe
+> eta śuni' rāya kahe prabhura caraṇe\
 > rūpera kavitva praśaṁsi' sahasra-vadane
 
 *eta śuni'*—hearing this; *rāya*—Rāmānanda Rāya; *kahe*—says; *prabhura caraṇe*—at the lotus feet of Śrī Caitanya Mahāprabhu; *rūpera*—of Rūpa Gosvāmī; *kavitva*—poetic art; *praśaṁsi'*—glorifying; *sahasra-vadane*—as if with a thousand mouths.

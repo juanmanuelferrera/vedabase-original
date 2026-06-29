@@ -1,11 +1,11 @@
 ### SB 1.2.8
 
-> धर्मः स्वनुष्ठितः पुंसां विष्वक्सेनकथासु यः ।
+> धर्मः स्वनुष्ठितः पुंसां विष्वक्सेनकथासु यः ।\
 > नोत्पादयेद्यदि रतिं श्रम एव हि केवलम् ॥८॥
 
-> dharmaḥ svanuṣṭhitaḥ puṁsāṁ
-> viṣvaksena-kathāsu yaḥ
-> notpādayed yadi ratiṁ
+> dharmaḥ svanuṣṭhitaḥ puṁsāṁ\
+> viṣvaksena-kathāsu yaḥ\
+> notpādayed yadi ratiṁ\
 > śrama eva hi kevalam
 
 *dharmaḥ*—occupation; *svanuṣṭhitaḥ*—executed in terms of one's own position; *puṁsām*—of humankind; *viṣvaksena*—the Personality of Godhead (plenary portion); *kathāsu*—in the message of; *yaḥ*—what is; *na*—not; *utpādayet*—does produce; *yadi*—if; *ratim*—attraction; *śramaḥ*—useless labor; *eva*—only; *hi*—certainly; *kevalam*—entirely.

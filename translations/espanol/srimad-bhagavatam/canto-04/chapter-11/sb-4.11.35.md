@@ -1,11 +1,11 @@
 ### SB 4.11.35
 
-> एवं स्वायम्भुवः पौत्रमनुशास्य मनुर्ध्रुवम् ।
+> एवं स्वायम्भुवः पौत्रमनुशास्य मनुर्ध्रुवम् ।\
 > तेनाभिवन्दितः साकमृषिभिः स्वपुरं ययौ ॥३५॥
 
-> evaṁ svāyambhuvaḥ pautram
-> anuśāsya manur dhruvam
-> tenābhivanditaḥ sākam
+> evaṁ svāyambhuvaḥ pautram\
+> anuśāsya manur dhruvam\
+> tenābhivanditaḥ sākam\
 > ṛṣibhiḥ sva-puraṁ yayau
 
 *evam*—de este modo; *svāyambhuvaḥ*—el Señor Svāyambhuva Manu; *pautram*—a su nieto; *anuśāsya*—después de impartir instrucción; *manuḥ*—el Señor Manu; *dhruvam*—a Dhruva Mahārāja; *tena*—por él; *abhivanditaḥ*—le fueron ofrecidas reverencias; *sākam*—juntos; *ṛṣibhiḥ*—con los sabios; *sva-puram*—a su propia morada; *yayau*—partieron.

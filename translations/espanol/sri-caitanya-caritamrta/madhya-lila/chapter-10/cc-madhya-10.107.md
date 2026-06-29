@@ -1,9 +1,9 @@
 ### CC Madhya 10.107
 
-> 'niścinte kṛṣṇa bhajiba' ei ta' kāraṇe
+> 'niścinte kṛṣṇa bhajiba' ei ta' kāraṇe\
 > unmāde karila teṅha sannyāsa grahaṇe
 
-> 'niścinte kṛṣṇa bhajiba' ei ta' kāraṇe
+> 'niścinte kṛṣṇa bhajiba' ei ta' kāraṇe\
 > unmāde karila teṅha sannyāsa grahaṇe
 
 *niścinte*—sin perturbación; *kṛṣṇa*—al Señor Kṛṣṇa; *bhajiba*—adoraré; *ei*—por esta; *ta'*—ciertamente; *kāraṇe*—razón; *unmāde*—extático; *karila*—hizo; *teṅha*—él; *sannyāsa*—la orden de vida de renuncia; *grahaṇe*—tomando.

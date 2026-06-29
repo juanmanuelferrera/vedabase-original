@@ -1,9 +1,9 @@
 ### CC Madhya 19.221
 
-> শান্তের গুণ দাস্যে আছে, অধিক — ‘সেবন’ ।
+> শান্তের গুণ দাস্যে আছে, অধিক — ‘সেবন’ ।\
 > অতএব দাস্যরসের এই ‘দুই’ গুণ ॥২২১॥
 
-> śāntera guṇa dāsye āche, adhika--'sevana'
+> śāntera guṇa dāsye āche, adhika--'sevana'\
 > ataeva dāsya-rasera ei 'dui' guṇa
 
 *śāntera*—de la plataforma del śānta-rasa; *guṇa*—las cualidades; *dāsye*—en la plataforma de la servidumbre; *āche*—están; *adhika*—adicional; *sevana*—servir; *ataeva*—por lo tanto; *dāsya-rasera*—de la plataforma del dāsya-rasa; *ei dui guṇa*—estas dos cualidades (a saber, śānta y dāsya).

@@ -1,14 +1,14 @@
 ### CC Adi 11.14-15
 
-> নিত্যানন্দে আজ্ঞা দিল যবে গৌড়ে যাইতে ।
-> মহাপ্রভু এই দুই দিলা তাঁর সাথে ॥১৪॥
-> অতএব দুইগণে দুঁহার গণন ।
+> নিত্যানন্দে আজ্ঞা দিল যবে গৌড়ে যাইতে ।\
+> মহাপ্রভু এই দুই দিলা তাঁর সাথে ॥১৪॥\
+> অতএব দুইগণে দুঁহার গণন ।\
 > মাধব-বাসুদেব ঘোষেরও এই বিবরণ ॥১৫॥
 
-> nityānande ājñā dila yabe gauḍe yāite
+> nityānande ājñā dila yabe gauḍe yāite\
 > mahāprabhu ei dui dilā tāṅra sāthe
 
-> ataeva dui-gaṇe duṅhāra gaṇana
+> ataeva dui-gaṇe duṅhāra gaṇana\
 > mādhava-vāsudeva ghoṣerao ei vivaraṇa
 
 *nityānande*—al Señor Nityānanda; *ājñā*—orden; *dila*—dio; *yabe*—cuando; *gauḍe*—a Bengala; *yāite*—ir; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *ei dui*—esos dos; *dilā*—dio; *tāṅra sāthe*—con Él; *ataeva*—por lo tanto; *dui-gaṇe*—en ambos grupos; *duṅhāra*—ambos; *gaṇana*—se cuentan; *mādhava*—Mādhava; *vāsudeva*—Vāsudeva; *ghoṣerao*—de apellido Ghoṣa; *ei*—esta; *vivaraṇa*—descripción.

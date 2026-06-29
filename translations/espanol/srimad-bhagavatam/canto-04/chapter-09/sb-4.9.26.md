@@ -1,13 +1,13 @@
 ### SB 4.9.26
 
-> मैत्रेय उवाच
-> इत्यर्चितः स भगवानतिदिश्यात्मनः पदम् ।
+> मैत्रेय उवाच\
+> इत्यर्चितः स भगवानतिदिश्यात्मनः पदम् ।\
 > बालस्य पश्यतो धाम स्वमगाद्गरुडध्वजः ॥२६॥
 
-> maitreya uvāca
-> ity arcitaḥ sa bhagavān
-> atidiśyātmanaḥ padam
-> bālasya paśyato dhāma
+> maitreya uvāca\
+> ity arcitaḥ sa bhagavān\
+> atidiśyātmanaḥ padam\
+> bālasya paśyato dhāma\
 > svam agād garuḍa-dhvajaḥ
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya continuó hablando; *iti*—de este modo; *arcitaḥ*—siendo honrado y adorado; *saḥ*—el Señor Supremo; *bhagavān*—la Personalidad de Dios; *atidiśya*—después de ofrecer; *ātmanaḥ*—Su personal; *padam*—residencia; *bālasya*—mientras el niño; *paśyataḥ*—estaba mirando; *dhāma*—a Su residencia; *svam*—propia; *agāt*—regresó; *garuḍa-dhvajaḥ*—el Señor Viṣṇu, cuya bandera lleva el emblema de Garuḍa.

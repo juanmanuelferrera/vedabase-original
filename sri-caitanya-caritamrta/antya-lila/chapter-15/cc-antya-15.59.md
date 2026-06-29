@@ -1,9 +1,9 @@
 ### CC Antya 15.59
 
-> পূর্ববৎ সবে মিলি’ করাইলা চেতন ।
+> পূর্ববৎ সবে মিলি’ করাইলা চেতন ।\
 > উঠিয়া চৌদিকে প্রভু করেন দর্শন ॥৫৯॥
 
-> pūrvavat sabe mili' karāilā cetana
+> pūrvavat sabe mili' karāilā cetana\
 > uṭhiyā caudike prabhu karena darśana
 
 *pūrva-vat*—as before; *sabe*—all; *mili'*—coming together; *karāilā cetana*—brought to consciousness; *uṭhiyā*—standing up; *cau-dike*—all around; *prabhu*—Śrī Caitanya Mahāprabhu; *karena darśana*—was looking.

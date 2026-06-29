@@ -1,9 +1,9 @@
 ### CC Madhya 25.199
 
-> এক ‘নামাভাসে’ তোমার পাপ-দোষ যাবে ।
+> এক ‘নামাভাসে’ তোমার পাপ-দোষ যাবে ।\
 > আর ‘নাম’ লইতে কৃষ্ণচরণ পাইবে ॥১৯৯॥
 
-> eka 'nāmābhāse' tomāra pāpa-doṣa yābe
+> eka 'nāmābhāse' tomāra pāpa-doṣa yābe\
 > āra 'nāma' la-ite kṛṣṇa-caraṇa pāibe
 
 *eka*—un; *nāma-ābhāse*—por un reflejo del canto puro del *mahā-mantra* Hare Kṛṣṇa; *tomāra*—tus; *pāpa-doṣa yābe*—todas las reacciones pecaminosas desaparecerán; *āra*—entonces; *nāma la-ite*—después de cantar puramente el nombre del Señor; *kṛṣṇa-caraṇa pāibe*—obtendrás refugio a los pies de loto de Kṛṣṇa.

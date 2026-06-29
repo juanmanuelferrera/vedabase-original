@@ -1,9 +1,9 @@
 ### CC Adi 11.60
 
-> সংক্ষেপে কহিলাঙ এই নিত্যানন্দগণ ।
+> সংক্ষেপে কহিলাঙ এই নিত্যানন্দগণ ।\
 > যাঁহার অবধি না পায় ‘সহস্র-বদন’ ॥৬০॥
 
-> saṅkṣepe kahilāṅ ei nityānanda-gaṇa
+> saṅkṣepe kahilāṅ ei nityānanda-gaṇa\
 > yāṅhāra avadhi nā pāya 'sahasra-vadana'
 
 *saṅkṣepe*—brevemente; *kahilāṅ*—he descrito; *ei*—estos; *nityānanda-gaṇa*—devotos del Señor Nityānanda; *yāṅhāra*—de quienes; *avadhi*—el límite; *nā*—no; *pāya*—alcanza; *sahasra-vadana*—Śeṣa Nāga de mil bocas, sobre quien yace el Señor Viṣṇu.

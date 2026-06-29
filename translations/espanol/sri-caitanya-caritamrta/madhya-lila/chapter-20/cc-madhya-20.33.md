@@ -1,9 +1,9 @@
 ### CC Madhya 20.33
 
-> তবে ভূঞা গোসাঞির সঙ্গে চারি পাইক দিল ।
+> তবে ভূঞা গোসাঞির সঙ্গে চারি পাইক দিল ।\
 > রাত্র্যে রাত্র্যে বনপথে পর্বত পার কৈল ॥৩৩॥
 
-> tabe bhūñā gosāñira saṅge cāri pāika dila
+> tabe bhūñā gosāñira saṅge cāri pāika dila\
 > rātrye rātrye vana-pathe parvata pāra kaila
 
 *tabe*—acto seguido; *bhūñā*—el terrateniente; *gosāñira saṅge*—con Sanātana Gosvāmī; *cāri pāika*—cuatro vigilantes; *dila*—proporcionó; *rātrye rātrye*—durante toda la noche; *vana-pathe*—por el sendero del bosque; *parvata*—la zona montañosa; *pāra kaila*—le hizo cruzar.

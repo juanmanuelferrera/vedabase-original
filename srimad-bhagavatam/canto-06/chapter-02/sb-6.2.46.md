@@ -1,11 +1,11 @@
 ### SB 6.2.46
 
-> नातः परं कर्मनिबन्धकृन्तनं मुमुक्षतां तीर्थपदानुकीर्तनात
+> नातः परं कर्मनिबन्धकृन्तनं मुमुक्षतां तीर्थपदानुकीर्तनात\
 > न यत्पुनः कर्मसु सज्जते मनो रजस्तमोभ्यां कलिलं ततोऽन्यथा ॥४६॥
 
-> nātaḥ paraṁ karma-nibandha-kṛntanaṁ
-> mumukṣatāṁ tīrtha-padānukīrtanāt
-> na yat punaḥ karmasu sajjate mano
+> nātaḥ paraṁ karma-nibandha-kṛntanaṁ\
+> mumukṣatāṁ tīrtha-padānukīrtanāt\
+> na yat punaḥ karmasu sajjate mano\
 > rajas-tamobhyāṁ kalilaṁ tato 'nyathā
 
 *na*—not; *ataḥ*—therefore; *param*—better means; *karma-nibandha*—the obligation to suffer or undergo tribulations as a result of fruitive activities; *kṛntanam*—that which can completely cut off; *mumukṣatām*—of persons desiring to get out of the clutches of material bondage; *tīrtha-pada*—about the Supreme Personality of Godhead, at whose feet all the holy places stand; *anukīrtanāt*—than constantly chanting under the direction of the bona fide spiritual master; *na*—not; *yat*—because; *punaḥ*—again; *karmasu*—in fruitive activities; *sajjate*—becomes attached; *manaḥ*—the mind; *rajaḥ-tamobhyām*—by the modes of passion and ignorance; *kalilam*—contaminated; *tataḥ*—thereafter; *anyathā*—by any other means.

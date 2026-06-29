@@ -1,11 +1,11 @@
 ### SB 7.15.3
 
-> द्वौ दैवे पितृकार्ये त्रीनेकैकमुभयत्र वा
+> द्वौ दैवे पितृकार्ये त्रीनेकैकमुभयत्र वा\
 > भोजयेत्सुसमृद्धोऽपि श्राद्धे कुर्यान्न विस्तरम ॥३॥
 
-> dvau daive pitṛ-kārye trīn
-> ekaikam ubhayatra vā
-> bhojayet susamṛddho 'pi
+> dvau daive pitṛ-kārye trīn\
+> ekaikam ubhayatra vā\
+> bhojayet susamṛddho 'pi\
 > śrāddhe kuryān na vistaram
 
 *dvau*—two; *daive*—during the period when oblations are offered to the demigods; *pitṛ-kārye*—in the *śrāddha* ceremony, in which oblations are offered to the forefathers; *trīn*—three; *eka*—one; *ekam*—one; *ubhayatra*—for both occasions; *vā*—either; *bhojayet*—one should feed; *su-samṛddhaḥ api*—even though one is very rich; *śrāddhe*—when offering oblations to the forefathers; *kuryāt*—one should do; *na*—not; *vistaram*—very expensive arrangements.

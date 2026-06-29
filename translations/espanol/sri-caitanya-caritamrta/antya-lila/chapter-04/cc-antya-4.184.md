@@ -1,9 +1,9 @@
 ### CC Antya 4.184
 
-> তোমারে ‘লাল্য’, আপনাকে ‘লালক’ অভিমান ।
+> তোমারে ‘লাল্য’, আপনাকে ‘লালক’ অভিমান ।\
 > লালকের লাল্যে নহে দোষ-পরিজ্ঞান ॥১৮৪॥
 
-> tomāre 'lālya', āpanāke 'lālaka' abhimāna
+> tomāre 'lālya', āpanāke 'lālaka' abhimāna\
 > lālakera lālye nahe doṣa-parijñāna
 
 *tomāre*—a vosotros; *lālya*—mantenidos; *āpanāke*—a Mí; *lālaka*—el que mantiene; *abhimāna*—concepción; *lālakera*—del que mantiene; *lālye*—hacia los mantenidos; *nahe*—no; *doṣa*—falta; *parijñāna*—percepción.

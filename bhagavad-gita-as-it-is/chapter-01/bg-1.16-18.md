@@ -1,25 +1,25 @@
 ### Bg 1.16-18
 
-> अनन्तविजयं राजा कुन्तीपुत्रो युधिष्ठिरः ।
-> नकुलः सहदेवश्च सुघोषमणिपुष्पकौ ॥१६॥
-> काश्यश्च परमेष्वासः शिखण्डी च महारथः ।
-> धृष्टद्युम्नो विराटश्च सात्यकिश्चापराजितः ॥१७॥
-> द्रुपदो द्रौपदेयाश्च सर्वशः पृथिवीपते ।
+> अनन्तविजयं राजा कुन्तीपुत्रो युधिष्ठिरः ।\
+> नकुलः सहदेवश्च सुघोषमणिपुष्पकौ ॥१६॥\
+> काश्यश्च परमेष्वासः शिखण्डी च महारथः ।\
+> धृष्टद्युम्नो विराटश्च सात्यकिश्चापराजितः ॥१७॥\
+> द्रुपदो द्रौपदेयाश्च सर्वशः पृथिवीपते ।\
 > सौभद्रश्च महाबाहुः शङ्खान्दध्मुः पृथक्पृथक् ॥१८॥
 
-> anantavijayaṁ rājā
-> kuntī-putro yudhiṣṭhiraḥ
-> nakulaḥ sahadevaś ca
+> anantavijayaṁ rājā\
+> kuntī-putro yudhiṣṭhiraḥ\
+> nakulaḥ sahadevaś ca\
 > sughoṣa-maṇipuṣpakau
 
-> kāśyaś ca parameṣv-āsaḥ
-> śikhaṇḍī ca mahā-rathaḥ
-> dhṛṣṭadyumno virāṭaś ca
+> kāśyaś ca parameṣv-āsaḥ\
+> śikhaṇḍī ca mahā-rathaḥ\
+> dhṛṣṭadyumno virāṭaś ca\
 > sātyakiś cāparājitaḥ
 
-> drupado draupadeyāś ca
-> sarvaśaḥ pṛthivī-pate
-> saubhadraś ca mahā-bāhuḥ
+> drupado draupadeyāś ca\
+> sarvaśaḥ pṛthivī-pate\
+> saubhadraś ca mahā-bāhuḥ\
 > śaṅkhān dadhmuḥ pṛthak pṛthak
 
 *ananta-vijayam*—the conch named Ananta-vijaya; *rājā*—the king; *kuntī-putraḥ*—the son of Kuntī; *yudhiṣṭhiraḥ*—Yudhiṣṭhira; *nakulaḥ*—Nakula; *sahadevaḥ*—Sahadeva; *ca*—and; *sughoṣa-maṇipuṣpakau*—the conches named Sughoṣa and Maṇipuṣpaka; *kāśyaḥ*—the King of Kāśī (Vārāṇasī); *ca*—and; *parama-iṣu-āsaḥ*—the great archer; *śikhaṇḍī*—Śikhaṇḍī; *ca*—also; *mahā-rathaḥ*—one who can fight alone against thousands; *dhṛṣṭadyumnaḥ*—Dhṛṣṭadyumna (the son of King Drupada); *virāṭaḥ*—Virāṭa (the prince who gave shelter to the Pāṇḍavas while they were in disguise); *ca*—also; *sātyakiḥ*—Sātyaki (the same as Yuyudhāna, the charioteer of Lord Kṛṣṇa); *ca*—and; *aparājitaḥ*—who had never been vanquished; *drupadaḥ*—Drupada, the King of Pāñcāla; *draupadeyāḥ*—the sons of Draupadī; *ca*—also; *sarvaśaḥ*—all; *pṛthivī-pate*—O King; *saubhadraḥ*—Abhimanyu, the son of Subhadrā; *ca*—also; *mahā-bāhuḥ*—mighty-armed; *śaṅkhān*—conchshells; *dadhmuḥ*—blew; *pṛthak pṛthak*—each separately.

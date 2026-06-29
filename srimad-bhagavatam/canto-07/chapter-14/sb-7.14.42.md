@@ -1,11 +1,11 @@
 ### SB 7.14.42
 
-> नन्वस्य ब्राह्मणा राजन्कृष्णस्य जगदात्मनः
+> नन्वस्य ब्राह्मणा राजन्कृष्णस्य जगदात्मनः\
 > पुनन्तः पादरजसा त्रिलोकीं दैवतं महत ॥४२॥
 
-> nanv asya brāhmaṇā rājan
-> kṛṣṇasya jagad-ātmanaḥ
-> punantaḥ pāda-rajasā
+> nanv asya brāhmaṇā rājan\
+> kṛṣṇasya jagad-ātmanaḥ\
+> punantaḥ pāda-rajasā\
 > tri-lokīṁ daivataṁ mahat
 
 *nanu*—but; *asya*—by Him; *brāhmaṇāḥ*—the qualified *brāhmaṇas*; *rājan*—O King; *kṛṣṇasya*—by Lord Kṛṣṇa, the Supreme Personality of Godhead; *jagat-ātmanaḥ*—who is the life and soul of the whole creation; *punantaḥ*—sanctifying; *pāda-rajasā*—by the dust of their lotus feet; *tri-lokīm*—the three worlds; *daivatam*—worshipable; *mahat*—most exalted.

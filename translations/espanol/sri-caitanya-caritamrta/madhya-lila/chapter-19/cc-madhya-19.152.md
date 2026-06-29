@@ -1,9 +1,9 @@
 ### CC Madhya 19.152
 
-> মালী হঞা করে সেই বীজ আরোপণ ।
+> মালী হঞা করে সেই বীজ আরোপণ ।\
 > শ্রবণ-কীর্তন-জলে করয়ে সেচন ॥১৫২॥
 
-> mālī hañā kare sei bīja āropaṇa
+> mālī hañā kare sei bīja āropaṇa\
 > śravaṇa-kīrtana-jale karaye secana
 
 *mālī hañā*—convirtiéndose en jardinero; *kare*—hace; *sei*—esa; *bīja*—semilla del servicio devocional; *āropaṇa*—sembrar; *śravaṇa*—de escuchar; *kīrtana*—de cantar; *jale*—con el agua; *karaye*—hace; *secana*—regar.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.394
 
-> জন্ম, বাল্য, পৌগণ্ড, কৈশোর প্রকাশ ।
+> জন্ম, বাল্য, পৌগণ্ড, কৈশোর প্রকাশ ।\
 > পূতনা-বধাদি করি’ মৌষলান্ত বিলাস ॥৩৯৪॥
 
-> janma, bālya, paugaṇḍa, kaiśora prakāśa
+> janma, bālya, paugaṇḍa, kaiśora prakāśa\
 > pūtanā-vadhādi kari' mauṣalānta vilāsa
 
 *janma*—nacimiento; *bālya*—infancia; *paugaṇḍa*—niñez; *kaiśora*—pre-juventud; *prakāśa*—manifestación; *pūtanā-vadha-ādi*—matanza de los demonios, comenzando por Pūtanā; *kari'*—manifestando; *mauṣalānta*—hasta el final de los pasatiempos mauṣala; *vilāsa*—pasatiempos.

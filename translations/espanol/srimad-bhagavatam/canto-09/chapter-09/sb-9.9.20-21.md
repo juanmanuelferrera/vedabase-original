@@ -1,20 +1,20 @@
 ### SB 9.9.20-21
 
-> श्रीशुक उवाच
-> सौदासो मृगयां किञ्चिच्चरन्रक्षो जघान ह
-> मुमोच भ्रातरं सोऽथ गतः प्रतिचिकीर्षया ॥२०॥
-> सञ्चिन्तयन्नघं राज्ञअः सूदरूपधरो गृहे
+> श्रीशुक उवाच\
+> सौदासो मृगयां किञ्चिच्चरन्रक्षो जघान ह\
+> मुमोच भ्रातरं सोऽथ गतः प्रतिचिकीर्षया ॥२०॥\
+> सञ्चिन्तयन्नघं राज्ञअः सूदरूपधरो गृहे\
 > गुरवे भोक्तुकामाय पक्त्वा निन्ये नरामिषम ॥२१॥
 
-> śrī-śuka uvāca
-> saudāso mṛgayāṁ kiñcic
-> caran rakṣo jaghāna ha
-> mumoca bhrātaraṁ so 'tha
+> śrī-śuka uvāca\
+> saudāso mṛgayāṁ kiñcic\
+> caran rakṣo jaghāna ha\
+> mumoca bhrātaraṁ so 'tha\
 > gataḥ praticikīrṣayā
 
-> sañcintayann aghaṁ rājñaḥ
-> sūda-rūpa-dharo gṛhe
-> gurave bhoktu-kāmāya
+> sañcintayann aghaṁ rājñaḥ\
+> sūda-rūpa-dharo gṛhe\
+> gurave bhoktu-kāmāya\
 > paktvā ninye narāmiṣam
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *saudāsaḥ*—el rey Saudāsa; *mṛgayām*—de caza; *kiñcit*—a veces; *caran*—deambular; *rakṣaḥ*—un *rākṣasa*, un caníbal; *jaghāna*—mató; *ha*—en el pasado; *mumoca*—liberó; *bhrātaram*—al hermano de aquel *rākṣasa*; *saḥ*—ese hermano; *atha*—a continuación; *gataḥ*—fue; *praticikīrṣayā*—para vengarse; *sañcintayan*—pensó; *agham*—hacer daño; *rājñaḥ*—del rey; *sūda-rūpa-dharaḥ*—disfrazado de cocinero; *gṛhe*—en la casa; *gurave*—al maestro espiritual del rey; *bhoktu-kāmāya*—que había ido a cenar; *paktvā*—tras cocinar; *ninye*—le dio; *nara-āmiṣam*—la carne de un ser humano.

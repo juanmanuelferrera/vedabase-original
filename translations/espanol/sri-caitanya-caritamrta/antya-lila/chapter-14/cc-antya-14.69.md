@@ -1,9 +1,9 @@
 ### CC Antya 14.69
 
-> স্বরূপ-গোসাঞি তবে উচ্চ করিয়া ।
+> স্বরূপ-গোসাঞি তবে উচ্চ করিয়া ।\
 > প্রভুর কাণে কৃষ্ণনাম কহে ভক্তগণ লঞা ॥৬৯॥
 
-> svarūpa-gosāñi tabe ucca kariyā
+> svarūpa-gosāñi tabe ucca kariyā\
 > prabhura kāṇe kṛṣṇa-nāma kahe bhakta-gaṇa lañā
 
 *svarūpa-gosāñi*—Svarūpa Dāmodara Gosāñi; *tabe*—en ese momento; *ucca kariyā*—en voz muy alta; *prabhura kāṇe*—en el oído de Śrī Caitanya Mahāprabhu; *kṛṣṇa-nāma*—el santo nombre del Señor Kṛṣṇa; *kahe*—comenzó a cantar; *bhakta-gaṇa lañā*—con todos los demás devotos.

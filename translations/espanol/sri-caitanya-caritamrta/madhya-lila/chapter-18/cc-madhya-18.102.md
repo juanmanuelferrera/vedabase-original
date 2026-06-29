@@ -1,9 +1,9 @@
 ### CC Madhya 18.102
 
-> ‘বাতুল’ না হইও, ঘরে রহত বসিয়া ৷
+> ‘বাতুল’ না হইও, ঘরে রহত বসিয়া ৷\
 > ‘কৃষ্ণ’ দরশন করিহ কালি রাত্র্যে যাঞা ।।” ॥ ১০২ ॥
 
-> 'vātula' nā ha-io, ghare rahata vasiyā
+> 'vātula' nā ha-io, ghare rahata vasiyā\
 > 'kṛṣṇa' daraśana kariha kāli rātrye yāñā"
 
 *vātula*—loco; *nā ha-io*—no te vuelvas; *ghare*—en casa; *rahata*—quédate; *vasiyā*—sentado; *kṛṣṇa*—el Señor Kṛṣṇa; *daraśana*—ver; *kariha*—puedes hacerlo; *kāli*—mañana; *rātrye*—por la noche; *yāñā*—yendo.

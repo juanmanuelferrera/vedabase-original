@@ -1,11 +1,11 @@
 ### Bg 2.67
 
-> इन्द्रियाणां हि चरतां यन्मनोऽनुविधीयते ।
+> इन्द्रियाणां हि चरतां यन्मनोऽनुविधीयते ।\
 > तदस्य हरति प्रज्ञां वायुर्नावमिवाम्भसि ॥६७॥
 
-> indriyāṇāṁ hi caratāṁ
-> yan mano 'nuvidhīyate
-> tad asya harati prajñāṁ
+> indriyāṇāṁ hi caratāṁ\
+> yan mano 'nuvidhīyate\
+> tad asya harati prajñāṁ\
 > vāyur nāvam ivāmbhasi
 
 *indriyāṇām*—of the senses; *hi*—certainly; *caratām*—while herding over; *yat*—that; *manaḥ*—mind; *anuvidhīyate*—becomes constantly engaged; *tat*—that; *asya*—his; *harati*—takes away; *prajñām*—intelligence; *vāyuḥ*—wind; *nāvam*—a boat; *iva*—like; *ambhasi*—on the water.

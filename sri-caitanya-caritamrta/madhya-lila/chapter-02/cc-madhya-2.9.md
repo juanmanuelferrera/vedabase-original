@@ -1,9 +1,9 @@
 ### CC Madhya 2.9
 
-> চটক পর্বত দেখি’ ‘গোবর্ধন’ ভ্রমে ।
+> চটক পর্বত দেখি’ ‘গোবর্ধন’ ভ্রমে ।\
 > ধাঞা চলে আর্তনাদ করিয়া ক্রন্দনে ॥৯॥
 
-> caṭaka parvata dekhi' 'govardhana' bhrame
+> caṭaka parvata dekhi' 'govardhana' bhrame\
 > dhāñā cale ārta-nāda kariyā krandane
 
 *caṭaka parvata*—the sand hills; *dekhi'*—seeing; *govardhana*—Govardhana Hill in Vṛndāvana; *bhrame*—mistakes; *dhāñā*—running; *cale*—goes; *ārta-nāda*—wail; *kariyā*—making; *krandane*—cries.

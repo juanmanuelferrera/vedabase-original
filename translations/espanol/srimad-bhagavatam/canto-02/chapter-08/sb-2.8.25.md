@@ -1,11 +1,11 @@
 ### SB 2.8.25
 
-> अत्र प्रमाणं हि भवान्परमेष्ठी यथात्मभूः ।
+> अत्र प्रमाणं हि भवान्परमेष्ठी यथात्मभूः ।\
 > अपरे चानुतिष्ठन्ति पूर्वेषां पूर्वजैः कृतम् ॥२५॥
 
-> atra pramāṇaṁ hi bhavān
-> parameṣṭhī yathātma-bhūḥ
-> apare cānutiṣṭhanti
+> atra pramāṇaṁ hi bhavān\
+> parameṣṭhī yathātma-bhūḥ\
+> apare cānutiṣṭhanti\
 > pūrveṣāṁ pūrva-jaiḥ kṛtam
 
 *atra*—en este asunto; *pramāṇam*—hechos comprobatorios; *hi*—ciertamente; *bhavān*—tú; *parameṣṭhī*—Brahmā, el creador del universo; *yathā*—como; *ātma-bhūḥ*—nacido directamente del Señor; *apare*—otras personas; *ca*—solo; *anutiṣṭhanti*—tan solo para seguir; *pūrveṣām*—como cuestión de costumbre; *pūrva jaiḥ*—conocimiento propuesto por un filósofo anterior; *kṛtam*—habiendo sido hecho.

@@ -1,13 +1,13 @@
 ### CC Adi 5.224
 
-> স্মেরাং ভঙ্গীত্রয়পরিচিতাং সাচিবিস্তীর্ণদৃষ্টিং
-> বংশীন্যস্তাধরকিশলয়ামুজ্জ্বলাং চন্দ্রকেণ ।
-> গোবিন্দাখ্যাং হরিতনুমিতঃ কেশিতীর্থোপকণ্ঠে
+> স্মেরাং ভঙ্গীত্রয়পরিচিতাং সাচিবিস্তীর্ণদৃষ্টিং\
+> বংশীন্যস্তাধরকিশলয়ামুজ্জ্বলাং চন্দ্রকেণ ।\
+> গোবিন্দাখ্যাং হরিতনুমিতঃ কেশিতীর্থোপকণ্ঠে\
 > মা প্রেক্ষিষ্ঠাস্তব যদি সখে বন্ধুসঙ্গেঽস্তি রঙ্গঃ ॥২২৪॥
 
-> smerāṁ bhaṅgī-traya-paricitāṁ sāci-vistīrṇa-dṛṣṭiṁ
-> vaṁśī-nyastādhara-kiśalayām ujjvalāṁ candrakeṇa
-> govindākhyāṁ hari-tanum itaḥ keśī-tīrthopakaṇṭhe
+> smerāṁ bhaṅgī-traya-paricitāṁ sāci-vistīrṇa-dṛṣṭiṁ\
+> vaṁśī-nyastādhara-kiśalayām ujjvalāṁ candrakeṇa\
+> govindākhyāṁ hari-tanum itaḥ keśī-tīrthopakaṇṭhe\
 > mā prekṣiṣṭhās tava yadi sakhe bandhu-saṅge 'sti raṅgaḥ
 
 *smerām*—smiling; *bhaṅgī-traya-paricitām*—bent in three places, namely the neck, waist and knees; *sāci-vistīrṇa-dṛṣṭim*—with a broad sideways glance; *vaṁśī*—on the flute; *nyasta*—placed; *adhara*—lips; *kiśalayām*—newly blossomed; *ujjvalām*—very bright; *candrakeṇa*—by the moonshine; *govinda-ākhyām*—named Lord Govinda; *hari-tanum*—the transcendental body of the Lord; *itaḥ*—here; *keśī-tīrtha-upakaṇṭhe*—on the bank of the Yamunā in the neighborhood of Keśīghāṭa; *mā*—do not; *prekṣiṣṭhāḥ*—glance over; *tava*—your; *yadi*—if; *sakhe*—O dear friend; *bandhu-saṅge*—to worldly friends; *asti*—there is; *raṅgaḥ*—attachment.

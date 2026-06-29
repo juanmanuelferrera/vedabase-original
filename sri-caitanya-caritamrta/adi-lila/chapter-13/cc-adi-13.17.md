@@ -1,9 +1,9 @@
 ### CC Adi 13.17
 
-> এই দুই জনের সূত্র দেখিয়া শুনিয়া ।
+> এই দুই জনের সূত্র দেখিয়া শুনিয়া ।\
 > বর্ণনা করেন বৈষ্ণব ক্রম যে করিয়া ॥১৭॥
 
-> ei dui janera sūtra dekhiyā śuniyā
+> ei dui janera sūtra dekhiyā śuniyā\
 > varṇanā karena vaiṣṇava krama ye kariyā
 
 *ei*—of these; *dui*—two; *janera*—persons; *sūtra*—notes; *dekhiyā*—after looking at; *śuniyā*—and hearing; *varṇanā*—description; *karena*—does; *vaiṣṇava*—the devotee; *krama*—chronological; *ye*—which; *kariyā*—making.

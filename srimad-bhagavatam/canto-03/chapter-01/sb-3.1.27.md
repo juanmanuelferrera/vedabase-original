@@ -1,11 +1,11 @@
 ### SB 3.1.27
 
-> कच्चित्कुरूणां परमः सुहृन्नो भामः स आस्ते सुखमङ्ग शौरिः ।
+> कच्चित्कुरूणां परमः सुहृन्नो भामः स आस्ते सुखमङ्ग शौरिः ।\
 > यो वै स्वस्णां पितृवद्ददाति वरान्वदान्यो वरतर्पणेन ॥२७॥
 
-> kaccit kurūṇāṁ paramaḥ suhṛn no
-> bhāmaḥ sa āste sukham aṅga śauriḥ
-> yo vai svasṝṇāṁ pitṛvad dadāti
+> kaccit kurūṇāṁ paramaḥ suhṛn no\
+> bhāmaḥ sa āste sukham aṅga śauriḥ\
+> yo vai svasṝṇāṁ pitṛvad dadāti\
 > varān vadānyo vara-tarpaṇena
 
 *kaccit*—whether; *kurūṇām*—of the Kurus; *paramaḥ*—greatest; *suhṛt*—well-wisher; *naḥ*—our; *bhāmaḥ*—brother-in-law; *saḥ*—he; *āste*—is; *sukham*—happy; *aṅga*—O Uddhava; *śauriḥ*—Vasudeva; *yaḥ*—one who; *vai*—certainly; *svasṝṇām*—of the sisters; *pitṛ-vat*—like a father; *dadāti*—gives; *varān*—everything desirable; *vadānyaḥ*—munificent; *vara*—wife; *tarpaṇena*—by pleasing.

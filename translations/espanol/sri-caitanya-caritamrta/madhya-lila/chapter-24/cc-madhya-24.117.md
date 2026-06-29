@@ -1,11 +1,11 @@
 ### CC Madhya 24.117
 
-> হরের্গুণাক্ষিপ্তমতির্ভগবান্ বাদরায়ণিঃ ৷
+> হরের্গুণাক্ষিপ্তমতির্ভগবান্ বাদরায়ণিঃ ৷\
 > অধ্যগান্মহদাখ্যানং নিত্যং বিষ্ণুজনপ্রিয়ঃ ॥১১৭॥
 
-> harer guṇākṣipta-matir
-> bhagavān bādarāyaṇiḥ
-> adhyagān mahad-ākhyānaṁ
+> harer guṇākṣipta-matir\
+> bhagavān bādarāyaṇiḥ\
+> adhyagān mahad-ākhyānaṁ\
 > nityaṁ viṣṇu-jana-priyaḥ
 
 *hareḥ*—del Señor Kṛṣṇa; *guṇa-ākṣipta-matiḥ*—cuya mente fue agitada por las cualidades; *bhagavān*—el trascendentalista más poderoso; *bādarāyaṇiḥ*—Śukadeva, hijo de Vyāsadeva; *adhyagāt*—estudió; *mahat-ākhyānam*—la gran narración épica; *nityam*—eternamente; *viṣṇu-jana-priyaḥ*—que es muy querido por los vaiṣṇavas, devotos del Señor Viṣṇu.

@@ -1,11 +1,11 @@
 ### CC Madhya 20.275
 
-> কালবৃত্ত্যা তু মায়ায়াং গুণময্যামধোক্ষজঃ ।
+> কালবৃত্ত্যা তু মায়ায়াং গুণময্যামধোক্ষজঃ ।\
 > পুরুষেণাত্মভূতেন বীর্যমাধত্ত বীর্যবান্ ॥২৭৫॥
 
-> kāla-vṛttyā tu māyāyāṁ
-> guṇamayyām adhokṣajaḥ
-> puruṣeṇātma-bhūtena
+> kāla-vṛttyā tu māyāyāṁ\
+> guṇamayyām adhokṣajaḥ\
+> puruṣeṇātma-bhūtena\
 > vīryam ādhatta vīryavān
 
 *kāla-vṛttyā*—a su debido tiempo, como causa inmediata de la creación; *tu*—pero; *māyāyām*—dentro de la naturaleza material; *guṇa-mayyām*—llena de las tres modalidades de la naturaleza material (*sattva-guṇa*, *rajo-guṇa* y *tamo-guṇa*); *adhokṣajaḥ*—la Suprema Personalidad de Dios, que está más allá de las concepciones materiales; *puruṣeṇa*—por el disfrutador de la naturaleza material; *ātma-bhūtena*—que es una expansión de Su ser personal; *vīryam*—semilla; *ādhatta*—depositó; *vīryavān*—el omnipotente.

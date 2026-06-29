@@ -1,13 +1,13 @@
 ### SB 9.5.22
 
-> श्रीशुक उवाच
-> एवं सङ्कीर्त्य राजानं दुर्वासाः परितोषितः
+> श्रीशुक उवाच\
+> एवं सङ्कीर्त्य राजानं दुर्वासाः परितोषितः\
 > ययौ विहायसामन्त्र्य ब्रह्मलोकमहैतुकम ॥२२॥
 
-> śrī-śuka uvāca
-> evaṁ saṅkīrtya rājānaṁ
-> durvāsāḥ paritoṣitaḥ
-> yayau vihāyasāmantrya
+> śrī-śuka uvāca\
+> evaṁ saṅkīrtya rājānaṁ\
+> durvāsāḥ paritoṣitaḥ\
+> yayau vihāyasāmantrya\
 > brahmalokam ahaitukam
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—thus; *saṅkīrtya*—glorifying; *rājānam*—the King; *durvāsāḥ*—the great mystic *yogī* Durvāsā Muni; *paritoṣitaḥ*—being satisfied in all respects; *yayau*—left that place; *vihāyasā*—by the spaceways; *āmantrya*—taking permission; *brahmalokam*—to the topmost planet of this universe; *ahaitukam*—where there is no dry philosophical speculation.

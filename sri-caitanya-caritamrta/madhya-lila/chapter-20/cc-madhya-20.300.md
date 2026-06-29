@@ -1,9 +1,9 @@
 ### CC Madhya 20.300
 
-> লীলাবতারের কৈলুঁ দিগ্দরশন ।
+> লীলাবতারের কৈলুঁ দিগ্দরশন ।\
 > গুণাবতারের এবে শুন বিবরণ ॥৩০০॥
 
-> līlāvatārera kailuṅ dig-daraśana
+> līlāvatārera kailuṅ dig-daraśana\
 > guṇāvatārera ebe śuna vivarana
 
 *līlā-avatārera*—of the incarnations of pastimes; *kailuṅ*—I have done; *dik-daraśana*—indicating the direction only; *guṇa-avatārera*—of incarnations of the material qualities; *ebe*—now; *śuna vivaraṇa*—hear the description.

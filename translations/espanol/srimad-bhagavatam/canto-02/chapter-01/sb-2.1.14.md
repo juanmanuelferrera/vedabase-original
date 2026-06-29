@@ -1,11 +1,11 @@
 ### SB 2.1.14
 
-> तवाप्येतर्हि कौरव्य सप्ताहं जीवितावधिः ।
+> तवाप्येतर्हि कौरव्य सप्ताहं जीवितावधिः ।\
 > उपकल्पय तत्सर्वं तावद्यत्साम्परायिकम् ॥१४॥
 
-> tavāpy etarhi kauravya
-> saptāhaṁ jīvitāvadhiḥ
-> upakalpaya tat sarvaṁ
+> tavāpy etarhi kauravya\
+> saptāhaṁ jīvitāvadhiḥ\
+> upakalpaya tat sarvaṁ\
 > tāvad yat sāmparāyikam
 
 *tava*—tu; *api*—también; *etarhi*—por lo tanto; *kauravya*—¡oh, tú que has nacido en la familia de Kuru!; *saptāham*—siete días; *jīvita*—duración de la vida; *avadhiḥ*—hasta el límite de; *upakalpaya*—lograr ejecutar; *tat*—esos; *sarvam*—todos; *tāvat*—mientras; *yat*—que son; *sāmparāyikam*—rituales para la siguiente vida.

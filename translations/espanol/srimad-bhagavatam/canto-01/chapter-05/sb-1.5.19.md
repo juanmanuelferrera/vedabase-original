@@ -1,11 +1,11 @@
 ### SB 1.5.19
 
-> न वै जनो जातु कथञ्चनाव्रजेन्मुकुन्दसेव्यन्यवदङ्ग संसृतिम् ।
+> न वै जनो जातु कथञ्चनाव्रजेन्मुकुन्दसेव्यन्यवदङ्ग संसृतिम् ।\
 > स्मरन्मुकुन्दाङ्घ्र्युपगूहनं पुनर्विहातुमिच्छेन्न रसग्रहो जनः ॥१९॥
 
-> na vai jano jātu kathañcanāvrajen
-> mukunda-sevy anyavad aṅga saṁsṛtim
-> smaran mukundāṅghry-upagūhanaṁ punar
+> na vai jano jātu kathañcanāvrajen\
+> mukunda-sevy anyavad aṅga saṁsṛtim\
+> smaran mukundāṅghry-upagūhanaṁ punar\
 > vihātum icchen na rasa-graho janaḥ
 
 *na*—nunca; *vai*—indudablemente; *janaḥ*—una persona; *jātu*—en cualquier momento; *kathañcana*—de una forma u otra; *āvrajet*—no experimenta; *mukunda-sevī*—el devoto del Señor; *anyavat*—como otros; *aṅga*—¡oh, querido mío!; *saṁsṛtim*—existencia material; *smaran*—recordando; *mukunda-aṅghri*—los pies de loto del Señor; *upagūhanam*—abrazando; *punaḥ*—de nuevo; *vihātum*—dispuesto a dejar; *icchet*—deseo; *na*—nunca; *rasa-grahaḥ*—aquel que ha saboreado la melosidad; *janaḥ*—persona.

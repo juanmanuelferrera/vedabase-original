@@ -1,9 +1,9 @@
 ### CC Madhya 16.221
 
-> মিশ্র-পুরন্দরের পূর্বে কর্যাছেন সেবনে ।
+> মিশ্র-পুরন্দরের পূর্বে কর্যাছেন সেবনে ।\
 > অতএব প্রভু ভাল জানে দুইজনে ॥২২১॥
 
-> miśra-purandarera pūrve karyāchena sevane
+> miśra-purandarera pūrve karyāchena sevane\
 > ataeva prabhu bhāla jāne dui-jane
 
 *miśra-purandarera*—to Purandara Miśra, the father of Śrī Caitanya Mahāprabhu; *pūrve*—previously; *karyāchena sevane*—had rendered service; *ataeva*—therefore; *prabhu*—Śrī Caitanya Mahāprabhu; *bhāla*—very well; *jāne*—knew; *dui-jane*—the two brothers.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.17
 
-> সন্ন্যাস করিয়া চব্বিশ বৎসর অবস্থান ।
+> সন্ন্যাস করিয়া চব্বিশ বৎসর অবস্থান ।\
 > তাহাঁ যেই লীলা, তার ‘শেষলীলা’ নাম ॥১৭॥
 
-> sannyāsa kariyā cabbiśa vatsara avasthāna
+> sannyāsa kariyā cabbiśa vatsara avasthāna\
 > tāhāṅ yei līlā, tāra 'śeṣa-līlā' nāma
 
 *sannyāsa kariyā*—after accepting the order of *sannyāsa*; *cabbiśa vatsara*—the twenty-four years; *avasthāna*—remaining in this material world; *tāhāṅ*—in that portion; *yeilīlā*—whatever pastimes (were performed); *tāra*—of those pastimes; *śeṣa-līlā*—the pastimes at the end; *nāma*—named.

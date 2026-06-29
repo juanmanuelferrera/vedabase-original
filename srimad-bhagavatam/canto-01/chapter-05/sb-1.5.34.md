@@ -1,11 +1,11 @@
 ### SB 1.5.34
 
-> एवं नृणां क्रियायोगाः सर्वे संसृतिहेतवः ।
+> एवं नृणां क्रियायोगाः सर्वे संसृतिहेतवः ।\
 > त एवात्मविनाशाय कल्पन्ते कल्पिताः परे ॥३४॥
 
-> evaṁ nṛṇāṁ kriyā-yogāḥ
-> sarve saṁsṛti-hetavaḥ
-> ta evātma-vināśāya
+> evaṁ nṛṇāṁ kriyā-yogāḥ\
+> sarve saṁsṛti-hetavaḥ\
+> ta evātma-vināśāya\
 > kalpante kalpitāḥ pare
 
 *evam*—thus; *nṛṇām*—of the human being; *kriyā-yogāḥ*—all activities; *sarve*—everything; *saṁsṛti*—material existence; *hetavaḥ*—causes; *te*—that; *eva*—certainly; *ātma*—the tree of work; *vināśāya*—killing; *kalpante*—become competent; *kalpitāḥ*—dedicated; *pare*—unto the Transcendence.

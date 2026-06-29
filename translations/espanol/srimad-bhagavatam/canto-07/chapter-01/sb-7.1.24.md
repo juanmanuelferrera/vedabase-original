@@ -1,12 +1,12 @@
 ### SB 7.1.24
 
-> यन्निबद्धोऽभिमानोऽयं तद्वधात्प्राणिनां वधः
-> तथा न यस्य कैवल्यादभिमानोऽखिलात्मनः
+> यन्निबद्धोऽभिमानोऽयं तद्वधात्प्राणिनां वधः\
+> तथा न यस्य कैवल्यादभिमानोऽखिलात्मनः\
 > परस्य दमकर्तुर्हि हिंसा केनास्य कल्प्यते ॥२४॥
 
-> hiṁsā tad-abhimānena
-> daṇḍa-pāruṣyayor yathā
-> vaiṣamyam iha bhūtānāṁ
+> hiṁsā tad-abhimānena\
+> daṇḍa-pāruṣyayor yathā\
+> vaiṣamyam iha bhūtānāṁ\
 > mamāham iti pārthiva
 
 *hiṁsā*—sufrimiento; *tat*—de su; *abhimānena*—por el concepto falso; *daṇḍa-pāruṣyayoḥ*—cuando hay castigo y reproches; *yathā*—tal como; *vaiṣamyam*—concepto erróneo; *iha*—aquí (en este cuerpo); *bhūtānām*—de las entidades vivientes; *mama-aham*—lo mío y yo; *iti*—así; *pārthiva*—¡oh, señor de la Tierra!.

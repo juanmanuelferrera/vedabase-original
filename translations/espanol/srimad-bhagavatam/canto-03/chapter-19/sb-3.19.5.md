@@ -1,11 +1,11 @@
 ### SB 3.19.5
 
-> गदायामपविद्धायां हाहाकारे विनिर्गते ।
+> गदायामपविद्धायां हाहाकारे विनिर्गते ।\
 > मानयामास तद्धर्मं सुनाभं चास्मरद्विभुः ॥५॥
 
-> gadāyām apaviddhāyāṁ
-> hāhā-kāre vinirgate
-> mānayām āsa tad-dharmaṁ
+> gadāyām apaviddhāyāṁ\
+> hāhā-kāre vinirgate\
+> mānayām āsa tad-dharmaṁ\
 > sunābhaṁ cāsmarad vibhuḥ
 
 *gadāyām*—cuando Su maza; *apaviddhāyām*—cayó; *hāhā-kāre*—un grito de alarma; *vinirgate*—se levantó; *mānayām āsa*—apreció; *tat*—de Hiraṇyākṣa; *dharmam*—la rectitud; *sunābham*—el *cakra* Sudarśana; *ca*—y; *asmarat*—recordó; *vibhuḥ*—la Suprema Personalidad de Dios.

@@ -1,18 +1,18 @@
 ### SB 9.22.27-28
 
-> शापान्मैथुनरुद्धस्य पाण्डोः कुन्त्यां महारथाः
-> जाता धर्मानिलेन्द्रेभ्यो युधिष्ठिरमुखास्त्रयः ॥२७॥
-> नकुलः सहदेवश्च माद्र्यां नासत्यदस्रयोः
+> शापान्मैथुनरुद्धस्य पाण्डोः कुन्त्यां महारथाः\
+> जाता धर्मानिलेन्द्रेभ्यो युधिष्ठिरमुखास्त्रयः ॥२७॥\
+> नकुलः सहदेवश्च माद्र्यां नासत्यदस्रयोः\
 > द्रौपद्यां पञ्च पञ्चभ्यः पुत्रास्ते पितरोऽभवन ॥२८॥
 
-> śāpān maithuna-ruddhasya
-> pāṇḍoḥ kuntyāṁ mahā-rathāḥ
-> jātā dharmānilendrebhyo
+> śāpān maithuna-ruddhasya\
+> pāṇḍoḥ kuntyāṁ mahā-rathāḥ\
+> jātā dharmānilendrebhyo\
 > yudhiṣṭhira-mukhās trayaḥ
 
-> nakulaḥ sahadevaś ca
-> mādryāṁ nāsatya-dasrayoḥ
-> draupadyāṁ pañca pañcabhyaḥ
+> nakulaḥ sahadevaś ca\
+> mādryāṁ nāsatya-dasrayoḥ\
+> draupadyāṁ pañca pañcabhyaḥ\
 > putrās te pitaro 'bhavan
 
 *śāpāt*—due to being cursed; *maithuna-ruddhasya*—who had to restrain sexual life; *pāṇḍoḥ*—of Pāṇḍu; *kuntyām*—in the womb of Kuntī; *mahā-rathāḥ*—great heroes; *jātāḥ*—took birth; *dharma*—by Mahārāja Dharma, or Dharmarāja; *anila*—by the demigod controlling the wind; *indrebhyaḥ*—and by the demigod Indra, the controller of rain; *yudhiṣṭhira*—Yudhiṣṭhira; *mukhāḥ*—headed by; *trayaḥ*—three sons (Yudhiṣṭhira, Bhīma and Arjuna); *nakulaḥ*—Nakula; *sahadevaḥ*—Sahadeva; *ca*—also; *mādryām*—in the womb of Mādrī; *nāsatya-dasrayoḥ*—by Nāsatya and Dasra, the Aśvinī-kumāras; *draupadyām*—in the womb of Draupadī; *pañca*—five; *pañcabhyaḥ*—from the five brothers (Yudhiṣṭhira, Bhīma, Arjuna, Nakula and Sahadeva); *putrāḥ*—sons; *te*—they; *pitaraḥ*—uncles; *abhavan*—became.

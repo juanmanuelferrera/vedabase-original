@@ -1,9 +1,9 @@
 ### CC Adi 17.91
 
-> পড়িতে আইলা স্তবে নৃসিংহের নাম ।
+> পড়িতে আইলা স্তবে নৃসিংহের নাম ।\
 > শুনিয়া আবিষ্ট হৈলা প্রভু গৌরধাম ॥৯১॥
 
-> paḍite āilā stave nṛsiṁhera nāma
+> paḍite āilā stave nṛsiṁhera nāma\
 > śuniyā āviṣṭa hailā prabhu gauradhāma
 
 *paḍite*—while reading; *āilā*—came; *stave*—in the prayer; *nṛsiṁhera*—of Lord Nṛsiṁha; *nāma*—the holy name; *śuniyā*—hearing; *āviṣṭa*—absorbed; *hailā*—became; *prabhu*—Lord; *gaura-dhāma*—Śrī Caitanya Mahāprabhu.

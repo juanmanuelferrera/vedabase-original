@@ -1,9 +1,9 @@
 ### CC Madhya 4.126
 
-> নিজ কৃত্য করি’ পূজারী করিল শয়ন ।
+> নিজ কৃত্য করি’ পূজারী করিল শয়ন ।\
 > স্বপনে ঠাকুর আসি’ বলিলা বচন ॥১২৬॥
 
-> nija kṛtya kari' pūjārī karila śayana
+> nija kṛtya kari' pūjārī karila śayana\
 > svapane ṭhākura āsi' balilā vacana
 
 *nija kṛtya*—su propia tarea; *kari'*—terminando; *pūjārī*—el sacerdote *brāhmaṇa* del templo; *karila*—se fue a; *śayana*—descansar; *svapane*—en un sueño; *ṭhākura*—la Deidad; *āsi'*—viniendo allí; *balilā*—dijo; *vacana*—las palabras.

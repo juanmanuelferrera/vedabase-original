@@ -1,11 +1,11 @@
 ### SB 1.2.23
 
-> सत्त्वं रजस्तम इति प्रकृतेर्गुणास्तैर्युक्तः परमपुरुष एक इहास्य धत्ते ।
+> सत्त्वं रजस्तम इति प्रकृतेर्गुणास्तैर्युक्तः परमपुरुष एक इहास्य धत्ते ।\
 > स्थित्यादये हरिविरिञ्चिहरेति संज्ञाः श्रेयांसि तत्र खलु सत्त्वतनोर्नृणां स्युः ॥२३॥
 
-> sattvaṁ rajas tama iti prakṛter guṇās tair
-> yuktaḥ paraḥ puruṣa eka ihāsya dhatte
-> sthity-ādaye hari-viriñci-hareti saṁjñāḥ
+> sattvaṁ rajas tama iti prakṛter guṇās tair\
+> yuktaḥ paraḥ puruṣa eka ihāsya dhatte\
+> sthity-ādaye hari-viriñci-hareti saṁjñāḥ\
 > śreyāṁsi tatra khalu sattva-tanor nṛṇāṁ syuḥ
 
 *sattvam*—bondad; *rajaḥ*—pasión; *tamaḥ*—la oscuridad de la ignorancia; *iti*—así pues; *prakṛteḥ*—de la naturaleza material; *guṇāḥ*—cualidades; *taiḥ*—mediante ellas; *yuktaḥ*—asociado con; *paraḥ*—trascendental; *puruṣaḥ*—la personalidad; *ekaḥ*—uno; *iha asya*—de este mundo material; *dhatte*—acepta; *sthiti-ādaye*—para el asunto de la creación, conservación y destrucción; *hari*—Viṣṇu, la Personalidad de Dios; *viriñci*—Brahmā; *hara*—el Señor Śiva; *iti*—así pues; *saṁjñāḥ*—diferentes aspectos; *śreyāṁsi*—beneficio máximo; *tatra*—ahí; *khalu*—por supuesto; *sattva*—bondad; *tanoḥ*—forma; *nṛṇām*—del ser humano; *syuḥ*—obtenido.

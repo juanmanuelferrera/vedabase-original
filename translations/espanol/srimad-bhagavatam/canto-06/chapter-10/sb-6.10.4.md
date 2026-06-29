@@ -1,11 +1,11 @@
 ### SB 6.10.4
 
-> जिजीविषूणां जीवानामात्मा प्रेष्ठ इहेप्सितः
+> जिजीविषूणां जीवानामात्मा प्रेष्ठ इहेप्सितः\
 > क उत्सहेत तं दातुं भिक्षमाणाय विष्णवे ॥४॥
 
-> jijīviṣūṇāṁ jīvānām
-> ātmā preṣṭha ihepsitaḥ
-> ka utsaheta taṁ dātuṁ
+> jijīviṣūṇāṁ jīvānām\
+> ātmā preṣṭha ihepsitaḥ\
+> ka utsaheta taṁ dātuṁ\
 > bhikṣamāṇāya viṣṇave
 
 *jijīviṣūṇām*—aspirando a seguir con vida; *jīvānām*—de todas las entidades vivientes; *ātmā*—el cuerpo; *preṣṭhaḥ*—muy querido; *iha*—aquí; *īpsitaḥ*—deseado; *kaḥ*—quién; *utsaheta*—puede soportar; *tam*—ese cuerpo; *dātum*—para entregar; *bhikṣamāṇāya*—pedir; *viṣṇave*—incluso al Señor Viṣṇu.

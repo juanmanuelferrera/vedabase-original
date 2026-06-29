@@ -1,9 +1,9 @@
 ### CC Antya 16.4
 
-> বর্ষান্তরে আইলা সব গৌড়ের ভক্তগণ ।
+> বর্ষান্তরে আইলা সব গৌড়ের ভক্তগণ ।\
 > পূর্ববৎ আসি’ কৈল প্রভুর মিলন ॥৪॥
 
-> varṣāntare āilā saba gauḍera bhakta-gaṇa
+> varṣāntare āilā saba gauḍera bhakta-gaṇa\
 > pūrvavat āsi' kaila prabhura milana
 
 *varṣa-antare*—al año siguiente; *āilā*—vinieron; *saba*—todos; *gauḍera*—de Bengala; *bhakta-gaṇa*—los devotos; *pūrva-vat*—como antes; *āsi'*—viniendo; *kaila*—hicieron; *prabhura milana*—encuentro con Śrī Caitanya Mahāprabhu.

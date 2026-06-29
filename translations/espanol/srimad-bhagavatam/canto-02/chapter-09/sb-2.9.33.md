@@ -1,11 +1,11 @@
 ### SB 2.9.33
 
-> अहमेवासमेवाग्रे नान्यद्यत्सदसत्परम् ।
+> अहमेवासमेवाग्रे नान्यद्यत्सदसत्परम् ।\
 > पश्चादहं यदेतच्च योऽवशिष्येत सोऽस्म्यहम् ॥३३॥
 
-> aham evāsam evāgre
-> nānyad yat sad-asat param
-> paścād ahaṁ yad etac ca
+> aham evāsam evāgre\
+> nānyad yat sad-asat param\
+> paścād ahaṁ yad etac ca\
 > yo 'vaśiṣyeta so 'smy aham
 
 *aham*—Yo, la Personalidad de Dios; *eva*—ciertamente; *āsam*—existía; *eva*—solo; *agre*—antes de la creación; *na*—nunca; *anyat*—ninguna otra cosa; *yat*—todos esos; *sat*—el efecto; *asat*—la causa; *param*—lo supremo; *paścāt*—al final; *aham*—Yo, la Personalidad de Dios; *yat*—todos estos; *etat*—creación; *ca*—también; *yaḥ*—todo; *avaśiṣyeta*—permanece; *saḥ*—eso; *asmi*—Yo soy; *aham*—Yo, la Personalidad de Dios.

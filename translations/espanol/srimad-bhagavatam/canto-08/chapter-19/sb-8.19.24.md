@@ -1,11 +1,11 @@
 ### SB 8.19.24
 
-> यदृच्छयोपपन्नेन सन्तुष्टो वर्तते सुखम
+> यदृच्छयोपपन्नेन सन्तुष्टो वर्तते सुखम\
 > नासन्तुष्टस्त्रिभिर्लोकैरजितात्मोपसादितैः ॥२४॥
 
-> yadṛcchayopapannena
-> santuṣṭo vartate sukham
-> nāsantuṣṭas tribhir lokair
+> yadṛcchayopapannena\
+> santuṣṭo vartate sukham\
+> nāsantuṣṭas tribhir lokair\
 > ajitātmopasāditaiḥ
 
 *yadṛcchayā*—ofrecido por la autoridad suprema conforme al propio *karma*; *upapannena*—con aquello que se obtenga; *santuṣṭaḥ*—hay que sentirse satisfecho; *vartate*—hay; *sukham*—felicidad; *na*—no; *asantuṣṭaḥ*—el que está insatisfecho; *tribhiḥ lokaiḥ*—aunque posea los tres mundos; *ajita-ātmā*—el que no puede controlar sus sentidos; *upasāditaiḥ*—aunque haya obtenido.

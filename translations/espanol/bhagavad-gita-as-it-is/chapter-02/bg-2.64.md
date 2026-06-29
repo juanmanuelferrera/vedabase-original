@@ -1,11 +1,11 @@
 ### Bg 2.64
 
-> रागद्वेषविमुक्तैस्तु विषयानिन्द्रियैश्चरन् ।
+> रागद्वेषविमुक्तैस्तु विषयानिन्द्रियैश्चरन् ।\
 > आत्मवश्यैर्विधेयात्मा प्रसादमधिगच्छति ॥६४॥
 
-> rāga-dveṣa-vimuktais tu
-> viṣayān indriyaiś caran
-> ātma-vaśyair vidheyātmā
+> rāga-dveṣa-vimuktais tu\
+> viṣayān indriyaiś caran\
+> ātma-vaśyair vidheyātmā\
 > prasādam adhigacchati
 
 *rāga*—apego; *dveṣa*—desapego; *vimuktaiḥ*—por aquel que se ha liberado de dichas cosas; *tu*—pero; *viṣayān*—objetos de los sentidos; *indriyaiḥ*—mediante los sentidos; *caran*—actuando; *ātma-vaśyaiḥ*—uno que tiene control sobre; *vidheyātmā*—aquel que hace uso de la libertad regulada; *prasādam*—la misericordia del Señor; *adhigacchati*—alcanza.

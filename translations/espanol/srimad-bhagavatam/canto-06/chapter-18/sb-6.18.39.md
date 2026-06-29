@@ -1,11 +1,11 @@
 ### SB 6.18.39
 
-> अहो अर्थेन्द्रियारामो योषिन्मय्येह मायया
+> अहो अर्थेन्द्रियारामो योषिन्मय्येह मायया\
 > गृहीतचेताः कृपणः पतिष्ये नरके ध्रुवम ॥३९॥
 
-> aho arthendriyārāmo
-> yoṣin-mayyeha māyayā
-> gṛhīta-cetāḥ kṛpaṇaḥ
+> aho arthendriyārāmo\
+> yoṣin-mayyeha māyayā\
+> gṛhīta-cetāḥ kṛpaṇaḥ\
 > patiṣye narake dhruvam
 
 *aho*—¡ay!; *artha-indriya-ārāmaḥ*—demasiado apegado al disfrute material; *yoṣit-mayyā*—en la forma de una mujer; *iha*—aquí; *māyayā*—por la energía ilusoria; *gṛhīta-cetāḥ*—con mi mente cautivada; *kṛpaṇaḥ*—miserable; *patiṣye*—caeré; *narake*—al infierno; *dhruvam*—con toda seguridad.

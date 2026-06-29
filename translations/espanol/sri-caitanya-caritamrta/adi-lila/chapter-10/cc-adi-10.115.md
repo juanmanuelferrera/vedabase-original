@@ -1,9 +1,9 @@
 ### CC Adi 10.115
 
-> গোবিন্দ, মাধব, বাসুদেব, — তিন ভাই ।
+> গোবিন্দ, মাধব, বাসুদেব, — তিন ভাই ।\
 > যাঁ-সবার কীর্তনে নাচে চৈতন্য-নিতাই ॥১১৫॥
 
-> govinda, mādhava, vāsudeva--tina bhāi
+> govinda, mādhava, vāsudeva--tina bhāi\
 > yāṅ-sabāra kīrtane nāce caitanya-nitāi
 
 *govinda*—de nombre Govinda; *mādhava*—de nombre Mādhava; *vāsudeva*—de nombre Vāsudeva; *tina bhāi*—tres hermanos; *yāṅ-sabāra*—de todos los cuales; *kīrtane*—en la ejecución del saṅkīrtana; *nāce*—bailan; *caitanya-nitāi*—el Señor Caitanya y Nityānanda Prabhu.

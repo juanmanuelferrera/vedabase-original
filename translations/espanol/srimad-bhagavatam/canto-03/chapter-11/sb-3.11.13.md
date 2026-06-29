@@ -1,11 +1,11 @@
 ### SB 3.11.13
 
-> ग्रहर्क्षताराचक्रस्थः परमाण्वादिना जगत् ।
+> ग्रहर्क्षताराचक्रस्थः परमाण्वादिना जगत् ।\
 > संवत्सरावसानेन पर्येत्यनिमिषो विभुः ॥१३॥
 
-> graharkṣa-tārā-cakra-sthaḥ
-> paramāṇv-ādinā jagat
-> saṁvatsarāvasānena
+> graharkṣa-tārā-cakra-sthaḥ\
+> paramāṇv-ādinā jagat\
+> saṁvatsarāvasānena\
 > paryety animiṣo vibhuḥ
 
 *graha*—planetas influyentes, como la Luna; *ṛkṣa*—astros luminosos como Aśvinī; *tārā*—estrellas; *cakra-sthaḥ*—en la órbita; *parama-aṇu-ādinā*—juntamente con los átomos; *jagat*—todo el universo; *saṁvatsara-avasānena*—al final de un año; *paryeti*—completa su órbita; *animiṣaḥ*—el tiempo eterno; *vibhuḥ*—el Todopoderoso.

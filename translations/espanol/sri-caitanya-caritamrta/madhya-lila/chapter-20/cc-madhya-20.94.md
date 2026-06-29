@@ -1,9 +1,9 @@
 ### CC Madhya 20.94
 
-> প্রসন্ন হঞা প্রভু তাঁরে কৃপা কৈল ।
+> প্রসন্ন হঞা প্রভু তাঁরে কৃপা কৈল ।\
 > তাঁর কৃপায় প্রশ্ন করিতে তাঁর শক্তি হৈল ॥৯৪॥
 
-> prasanna hañā prabhu tāṅre kṛpā kaila
+> prasanna hañā prabhu tāṅre kṛpā kaila\
 > tāṅra kṛpāya praśna karite tāṅra śakti haila
 
 *prasanna hañā*—estando muy complacido; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a él; *kṛpā kaila*—le ofreció Su misericordia sin causa; *tāṅra kṛpāya*—por Su misericordia; *praśna karite*—para preguntar; *tāṅra*—su; *śakti haila*—hubo fuerza.

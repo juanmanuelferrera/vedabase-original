@@ -1,9 +1,9 @@
 ### CC Madhya 25.237
 
-> তবে দুঁহে জগন্নাথপ্রসাদ আনিল ।
+> তবে দুঁহে জগন্নাথপ্রসাদ আনিল ।\
 > সবা-সঙ্গে মহাপ্রভু ভোজন করিল ॥২৩৭॥
 
-> tabe duṅhe jagannātha-prasāda ānila
+> tabe duṅhe jagannātha-prasāda ānila\
 > sabā-saṅge mahāprabhu bhojana karila
 
 *tabe*—entonces; *duṅhe*—ambos, Sārvabhauma y Paṇḍita Gosāñi; *jagannātha-prasāda ānila*—trajeron el *mahā-prasādam* de Jagannātha; *sabā-saṅge*—con todos ellos; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *bhojana karila*—comió.

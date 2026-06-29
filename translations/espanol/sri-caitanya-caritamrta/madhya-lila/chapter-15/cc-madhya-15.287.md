@@ -1,9 +1,9 @@
 ### CC Madhya 15.287
 
-> প্রভু কহে, — অমোঘ শিশু, কিবা তার দোষ ।
+> প্রভু কহে, — অমোঘ শিশু, কিবা তার দোষ ।\
 > কেনে উপবাস কর, কেনে কর রোষ ॥২৮৭॥
 
-> prabhu kahe,--amogha śiśu, kibā tāra doṣa
+> prabhu kahe,--amogha śiśu, kibā tāra doṣa\
 > kene upavāsa kara, kene kara roṣa
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *amogha śiśu*—Amogha es un niño; *kibā*—cuál; *tāra doṣa*—su falta; *kene*—por qué; *upavāsa kara*—estás ayunando; *kene*—por qué; *kara roṣa*—estás enfadado.

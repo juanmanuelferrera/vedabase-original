@@ -1,9 +1,9 @@
 ### CC Antya 13.99
 
-> এত বলি’ ঝালি বহেন, করেন সেবনে ।
+> এত বলি’ ঝালি বহেন, করেন সেবনে ।\
 > রঘুনাথের তারকমন্ত্র জপেন রাত্রি-দিনে ॥৯৯॥
 
-> eta bali' jhāli vahena, karena sevane
+> eta bali' jhāli vahena, karena sevane\
 > raghunāthera tāraka-mantra japena rātri-dine
 
 *eta bali'*—diciendo esto; *jhāli vahena*—carga el equipaje; *karena sevane*—sirve; *raghunāthera*—del Señor Rāmacandra; *tāraka*—liberador; *mantra*—canto del santo nombre; *japena*—canta; *rātri-dine*—día y noche.

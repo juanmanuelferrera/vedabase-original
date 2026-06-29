@@ -1,9 +1,9 @@
 ### CC Madhya 15.214
 
-> ভৃষ্ট-মাষ-মুদ্গ-সূপ অমৃত নিন্দয় ৷
+> ভৃষ্ট-মাষ-মুদ্গ-সূপ অমৃত নিন্দয় ৷\
 > মধুরাম্ল, বড়াম্লাদি অম্ল পাঁচ ছয় ॥২১৪॥
 
-> bhṛṣṭa-māṣa-mudga-sūpa amṛta nindaya
+> bhṛṣṭa-māṣa-mudga-sūpa amṛta nindaya\
 > madhurāmla, baḍāmlādi amla pāṅca chaya
 
 *bhṛṣṭa*—frito; *māṣa*—dhal de urad; *mudga*—dhal de mung; *sūpa*—sopa; *amṛta*—néctar; *nindaya*—superando; *madhura-amla*—chutney dulce; *baḍa-amla*—preparación ácida hecha con dhal frito; *ādi*—etcétera; *amla*—ácido; *pāṅca chaya*—cinco o seis clases.

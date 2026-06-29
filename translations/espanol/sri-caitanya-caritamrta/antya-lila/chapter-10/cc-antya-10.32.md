@@ -1,9 +1,9 @@
 ### CC Antya 10.32
 
-> ফুট্কলাই চূর্ণ করি’ ঘৃতে ভাজাইল ।
+> ফুট্কলাই চূর্ণ করি’ ঘৃতে ভাজাইল ।\
 > চিনি-পাকে কর্পূরাদি দিয়া নাড়ু কৈল ॥৩২॥
 
-> phuṭkalāi cūrṇa kari' ghṛte bhājāila
+> phuṭkalāi cūrṇa kari' ghṛte bhājāila\
 > cini-pāke karpūrādi diyā nāḍu kaila
 
 *phuṭkalāi*—guisantes reventados, fritos en ghee y remojados en jugo de azúcar; *cūrṇa kari'*—haciéndolo polvo; *ghṛte bhājāila*—lo frió en ghee; *cini-pāke*—cocinándolo con azúcar; *karpūra-ādi*—alcanfor y otros ingredientes; *diyā*—añadiendo; *nāḍu kaila*—hizo bolas dulces redondas.

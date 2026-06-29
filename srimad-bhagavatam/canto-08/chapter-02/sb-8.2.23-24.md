@@ -1,18 +1,18 @@
 ### SB 8.2.23-24
 
-> स घर्मतप्तः करिभिः करेणुभिर्वृतो मदच्युत्करभैरनुद्रुतः
-> गिरिं गरिम्णा परितः प्रकम्पयन्निषेव्यमाणोऽलिकुलैर्मदाशनैः ॥२३॥
-> सरोऽनिलं पङ्कजरेणुरूषितं जिघ्रन्विदूरान्मदविह्वलेक्षणः
+> स घर्मतप्तः करिभिः करेणुभिर्वृतो मदच्युत्करभैरनुद्रुतः\
+> गिरिं गरिम्णा परितः प्रकम्पयन्निषेव्यमाणोऽलिकुलैर्मदाशनैः ॥२३॥\
+> सरोऽनिलं पङ्कजरेणुरूषितं जिघ्रन्विदूरान्मदविह्वलेक्षणः\
 > वृतः स्वयूथेन तृषार्दितेन तत्सरोवराभ्यासमथागमद्द्रुतम ॥२४॥
 
-> sa gharma-taptaḥ karibhiḥ kareṇubhir
-> vṛto madacyut-karabhair anudrutaḥ
-> giriṁ garimṇā paritaḥ prakampayan
+> sa gharma-taptaḥ karibhiḥ kareṇubhir\
+> vṛto madacyut-karabhair anudrutaḥ\
+> giriṁ garimṇā paritaḥ prakampayan\
 > niṣevyamāṇo 'likulair madāśanaiḥ
 
-> saro 'nilaṁ paṅkaja-reṇu-rūṣitaṁ
-> jighran vidūrān mada-vihvalekṣaṇaḥ
-> vṛtaḥ sva-yūthena tṛṣārditena tat
+> saro 'nilaṁ paṅkaja-reṇu-rūṣitaṁ\
+> jighran vidūrān mada-vihvalekṣaṇaḥ\
+> vṛtaḥ sva-yūthena tṛṣārditena tat\
 > sarovarābhyāsam athāgamad drutam
 
 *saḥ*—he (the leader of the elephants); *gharma-taptaḥ*—perspiring; *karibhiḥ*—by other elephants; *kareṇubhiḥ*—as well as female elephants; *vṛtaḥ*—surrounded; *mada-cyut*—liquor dripping from his mouth; *karabhaiḥ*—by small elephants; *anudrutaḥ*—was followed; *girim*—that mountain; *garimṇā*—by the weight of the body; *paritaḥ*—all around; *prakampayan*—causing to tremble; *niṣevyamāṇaḥ*—being served; *alikulaiḥ*—by the bumblebees; *mada-aśanaiḥ*—who drank honey; *saraḥ*—from the lake; *anilam*—the breeze; *paṅkaja-reṇu-rūṣitam*—carrying the dust from the lotus flowers; *jighran*—smelling; *vidūrāt*—from a distance; *mada-vihvala*—being intoxicated; *īkṣaṇaḥ*—whose vision; *vṛtaḥ*—surrounded; *sva-yūthena*—by his own associates; *tṛṣārditena*—who were afflicted by thirst; *tat*—that; *sarovara-abhyāsam*—to the bank of the lake; *atha*—thus; *agamat*—went; *drutam*—very soon.

@@ -1,9 +1,9 @@
 ### CC Adi 3.12
 
-> দাস-সখা-পিতামাতা-কান্তাগণ লঞা ।
+> দাস-সখা-পিতামাতা-কান্তাগণ লঞা ।\
 > ব্রজে ক্রীড়া করে কৃষ্ণ প্রেমাবিষ্ট হঞা ॥১২॥
 
-> dāsa-sakhā-pitā-mātā-kāntā-gaṇa lañā
+> dāsa-sakhā-pitā-mātā-kāntā-gaṇa lañā\
 > vraje krīḍā kare kṛṣṇa premāviṣṭa hañā
 
 *dāsa*—servants; *sakhā*—friends; *pitā-mātā*—father and mother; *kāntā-gaṇa*—lovers; *lañā*—taking; *vraje*—in Vraja; *krīḍā kare*—plays; *kṛṣṇa*—Lord Kṛṣṇa; *prema-āviṣṭa*—absorbed in love; *hañā*—being.

@@ -1,11 +1,11 @@
 ### SB 1.8.24
 
-> विषान्महाग्नेः पुरुषाददर्शनादसत्सभाया वनवासकृच्छ्रतः ।
+> विषान्महाग्नेः पुरुषाददर्शनादसत्सभाया वनवासकृच्छ्रतः ।\
 > मृधे मृधेऽनेकमहारथास्त्रतो द्रौण्यस्त्रतश्चास्म हरेऽभिरक्षिताः ॥२४॥
 
-> viṣān mahāgneḥ puruṣāda-darśanād
-> asat-sabhāyā vana-vāsa-kṛcchrataḥ
-> mṛdhe mṛdhe 'neka-mahārathāstrato
+> viṣān mahāgneḥ puruṣāda-darśanād\
+> asat-sabhāyā vana-vāsa-kṛcchrataḥ\
+> mṛdhe mṛdhe 'neka-mahārathāstrato\
 > drauṇy-astrataś cāsma hare 'bhirakṣitāḥ
 
 *viṣāt*—from poison; *mahā-agneḥ*—from the great fire; *puruṣa-ada*—the man-eaters; *darśanāt*—by combating; *asat*—vicious; *sabhāyāḥ*—assembly; *vana-vāsa*—exiled to the forest; *kṛcchrataḥ*—sufferings; *mṛdhe mṛdhe*—again and again in battle; *aneka*—many; *mahā-ratha*—great generals; *astrataḥ*—weapons; *drauṇi*—the son of Droṇācārya; *astrataḥ*—from the weapon of; *ca*—and; *āsma*—indicating past tense; *hare*—O my Lord; *abhirakṣitāḥ*—protected completely.

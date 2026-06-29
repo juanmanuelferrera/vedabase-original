@@ -1,11 +1,11 @@
 ### SB 3.26.46
 
-> भावनं ब्रह्मणः स्थानं धारणं सद्विशेषणम् ।
+> भावनं ब्रह्मणः स्थानं धारणं सद्विशेषणम् ।\
 > सर्वसत्त्वगुणोद्भेदः पृथिवीवृत्तिलक्षणम् ॥४६॥
 
-> bhāvanaṁ brahmaṇaḥ sthānaṁ
-> dhāraṇaṁ sad-viśeṣaṇam
-> sarva-sattva-guṇodbhedaḥ
+> bhāvanaṁ brahmaṇaḥ sthānaṁ\
+> dhāraṇaṁ sad-viśeṣaṇam\
+> sarva-sattva-guṇodbhedaḥ\
 > pṛthivī-vṛtti-lakṣaṇam
 
 *bhāvanam*—modeling forms; *brahmaṇaḥ*—of the Supreme Brahman; *sthānam*—constructing places of residence; *dhāraṇam*—containing substances; *sat-viśeṣaṇam*—distinguishing the open space; *sarva*—all; *sattva*—of existence; *guṇa*—qualities; *udbhedaḥ*—the place for manifestation; *pṛthivī*—of earth; *vṛtti*—of the functions; *lakṣaṇam*—the characteristics.

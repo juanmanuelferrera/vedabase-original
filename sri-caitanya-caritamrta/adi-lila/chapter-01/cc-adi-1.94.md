@@ -1,9 +1,9 @@
 ### CC Adi 1.94
 
-> কৃষ্ণভক্তির বাধক — যত শুভাশুভ কর্ম ।
+> কৃষ্ণভক্তির বাধক — যত শুভাশুভ কর্ম ।\
 > সেহ এক জীবের অজ্ঞানতমো-ধর্ম ॥৯৪॥
 
-> kṛṣṇa-bhaktira bādhaka—yata śubhāśubha karma
+> kṛṣṇa-bhaktira bādhaka—yata śubhāśubha karma\
 > seha eka jīvera ajñāna-tamo-dharma
 
 *kṛṣṇa-bhaktira*—of devotional service to Kṛṣṇa; *bādhaka*—hindrance; *yata*—all; *śubha-aśubha*—auspicious or inauspicious; *karma*—activity; *seha*—that; *eka*—one; *jīvera*—of the living entity; *ajñāna-tamaḥ*—of the darkness of ignorance; *dharma*—the character.

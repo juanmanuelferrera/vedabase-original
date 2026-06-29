@@ -1,9 +1,9 @@
 ### CC Madhya 20.130
 
-> সর্বজ্ঞের বাক্যে মূলধন অনুবন্ধ ৷
+> সর্বজ্ঞের বাক্যে মূলধন অনুবন্ধ ৷\
 > সর্বশাস্ত্রে উপদেশে, ‘শ্রীকৃষ্ণ’ — সম্বন্ধ ৷৷ ১৩০ ৷৷ ॥১৩০॥
 
-> sarvajñera vākye mūla-dhana anubandha
+> sarvajñera vākye mūla-dhana anubandha\
 > sarva-śāstre upadeśe, 'śrī-kṛṣṇa'--sambandha
 
 *sarvajñera*—del astrólogo; *vākye*—por la afirmación; *mūla-dhana*—con el tesoro; *anubandha*—conexión; *sarva-śāstre*—todas las literaturas Védicas; *upadeśe*—instruyen; *śrī-kṛṣṇa*—el Señor Śrī Kṛṣṇa, la Suprema Personalidad de Dios; *sambandha*—la conexión central.

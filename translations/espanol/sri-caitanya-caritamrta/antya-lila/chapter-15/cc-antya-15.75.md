@@ -1,13 +1,13 @@
 ### CC Antya 15.75
 
-> সুললিত দীর্ঘার্গল, কৃষ্ণের ভুজযুগল,
-> ভুজ নহে, — কৃষ্ণসর্পকায় ।
-> দুই শৈল-ছিদ্রে পৈশে, নারীর হৃদয়ে দংশে,
+> সুললিত দীর্ঘার্গল, কৃষ্ণের ভুজযুগল,\
+> ভুজ নহে, — কৃষ্ণসর্পকায় ।\
+> দুই শৈল-ছিদ্রে পৈশে, নারীর হৃদয়ে দংশে,\
 > মরে নারী সে বিষজ্বালায় ॥৭৫॥
 
-> sulalita dīrghārgala, kṛṣṇera bhuja-yugala,
-> bhuja nahe,--kṛṣṇa-sarpa-kāya
-> dui śaila-chidre paiśe, nārīra hṛdaye daṁśe,
+> sulalita dīrghārgala, kṛṣṇera bhuja-yugala,\
+> bhuja nahe,--kṛṣṇa-sarpa-kāya\
+> dui śaila-chidre paiśe, nārīra hṛdaye daṁśe,\
 > mare nārī se viṣa-jvālāya
 
 *su-lalita*—muy hermosos; *dīrgha-argala*—largos cerrojos; *kṛṣṇera*—de Kṛṣṇa; *bhuja-yugala*—los dos brazos; *bhuja*—brazos; *nahe*—no; *kṛṣṇa*—negros; *sarpa*—de serpientes; *kāya*—cuerpos; *dui*—dos; *śaila-chidre*—en el espacio entre las colinas; *paiśe*—penetran; *nārīra*—de las mujeres; *hṛdaye*—los corazones; *daṁśe*—muerden; *mare*—mueren; *nārī*—las mujeres; *se*—ese; *viṣa-jvālāya*—por el ardor del veneno.

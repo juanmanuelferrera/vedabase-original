@@ -1,9 +1,9 @@
 ### CC Madhya 15.146
 
-> কেমনে ছাড়িব রঘুনাথের চরণ ।
+> কেমনে ছাড়িব রঘুনাথের চরণ ।\
 > আজি রাত্র্যে প্রভু মোর করাহ মরণ ॥১৪৬॥
 
-> kemane chāḍiba raghunāthera caraṇa
+> kemane chāḍiba raghunāthera caraṇa\
 > āji rātrye prabhu mora karāha maraṇa
 
 *kemane chāḍiba*—¿cómo podré abandonar?; *raghunāthera caraṇa*—los pies de loto del Señor Raghunātha; *āji rātrye*—esta noche; *prabhu*—¡oh, Señor Raghunātha!; *mora*—mi; *karāha maraṇa*—por favor, causa la muerte.

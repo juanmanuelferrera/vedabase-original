@@ -1,9 +1,9 @@
 ### CC Antya 6.60
 
-> চবুতরা-উপরে যত প্রভুর নিজগণে ।
+> চবুতরা-উপরে যত প্রভুর নিজগণে ।\
 > বড় বড় লোক বসিলা মণ্ডলী-রচনে ॥৬০॥
 
-> cabutarā-upare yata prabhura nija-gaṇe
+> cabutarā-upare yata prabhura nija-gaṇe\
 > baḍa baḍa loka vasilā maṇḍalī-racane
 
 *cabutarā-upare*—on the raised platform; *yata*—all; *prabhura nija-gaṇe*—very intimate associates of the Lord; *baḍa baḍa loka*—big, big people; *vasilā*—sat down; *maṇḍalī-racane*—in a circle.

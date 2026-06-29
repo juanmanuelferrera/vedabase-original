@@ -1,9 +1,9 @@
 ### CC Antya 3.105
 
-> বেশ্যাগণে কহে, — “এই বৈরাগী হরিদাস ।
+> বেশ্যাগণে কহে, — “এই বৈরাগী হরিদাস ।\
 > তুমি-সব কর ইহার বৈরাগ্য-ধর্ম নাশ ।।” ॥ ১০৫ ॥
 
-> veśyā-gaṇe kahe,--"ei vairāgī haridāsa
+> veśyā-gaṇe kahe,--"ei vairāgī haridāsa\
 > tumi-saba kara ihāra vairāgya-dharma nāśa"
 
 *veśyā-gaṇe*—a las prostitutas; *kahe*—dijo; *ei*—este; *vairāgī*—mendicante; *haridāsa*—Haridāsa Ṭhākura; *tumi-saba*—todas vosotras; *kara*—causad; *ihāra*—su; *vairāgya-dharma*—de la vida de mendicante; *nāśa*—desviación.

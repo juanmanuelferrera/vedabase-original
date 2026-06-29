@@ -1,9 +1,9 @@
 ### CC Adi 7.59
 
-> সবা নমস্করি’ গেলা পাদ-প্রক্ষালনে ।
+> সবা নমস্করি’ গেলা পাদ-প্রক্ষালনে ।\
 > পাদ প্রক্ষালন করি বসিলা সেই স্থানে ॥৫৯॥
 
-> sabā namaskari' gelā pāda-prakṣālane
+> sabā namaskari' gelā pāda-prakṣālane\
 > pāda prakṣālana kari vasilā sei sthāne
 
 *sabā*—a todos; *namaskari'*—ofreciendo reverencias; *gelā*—fue; *pāda*—pies; *prakṣālane*—a lavar; *pāda*—pies; *prakṣālana*—lavado; *kari*—terminando; *vasilā*—se sentó; *sei*—en aquel; *sthāne*—lugar.

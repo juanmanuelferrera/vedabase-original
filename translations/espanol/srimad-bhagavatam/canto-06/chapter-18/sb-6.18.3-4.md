@@ -1,18 +1,18 @@
 ### SB 6.18.3-4
 
-> धातुः कुहूः सिनीवाली राका चानुमतिस्तथा
-> सायं दर्शमथ प्रातः पूर्णमासमनुक्रमात ॥३॥
-> अग्नीन्पुरीष्यानाधत्त क्रियायां समनन्तरः
+> धातुः कुहूः सिनीवाली राका चानुमतिस्तथा\
+> सायं दर्शमथ प्रातः पूर्णमासमनुक्रमात ॥३॥\
+> अग्नीन्पुरीष्यानाधत्त क्रियायां समनन्तरः\
 > चर्षणी वरुणस्यासीद्यस्यां जातो भृगुः पुनः ॥४॥
 
-> dhātuḥ kuhūḥ sinīvālī
-> rākā cānumatis tathā
-> sāyaṁ darśam atha prātaḥ
+> dhātuḥ kuhūḥ sinīvālī\
+> rākā cānumatis tathā\
+> sāyaṁ darśam atha prātaḥ\
 > pūrṇamāsam anukramāt
 
-> agnīn purīṣyān ādhatta
-> kriyāyāṁ samanantaraḥ
-> carṣaṇī varuṇasyāsīd
+> agnīn purīṣyān ādhatta\
+> kriyāyāṁ samanantaraḥ\
+> carṣaṇī varuṇasyāsīd\
 > yasyāṁ jāto bhṛguḥ punaḥ
 
 *dhātuḥ*—de Dhātā; *kuhūḥ*—Kuhū; *sinīvālī*—Sinīvālī; *rākā*—Rākā; *ca*—y; *anumatiḥ*—Anumati; *tathā*—también; *sāyam*—Sāyam; *darśam*—Darśa; *atha*—también; *prātaḥ*—Prātaḥ; *pūrṇamāsam*—Pūrṇamāsa; *anukramāt*—respectivamente; *agnīn*—dioses del fuego; *purīṣyān*—llamados Purīṣyas; *ādhatta*—engendró; *kriyāyām*—en Kriyā; *samanantaraḥ*—el siguiente hijo, Vidhātā; *carṣaṇī*—Carṣaṇī; *varuṇasya*—de Varuṇa; *āsīt*—era; *yasyām*—en quien; *jātaḥ*—nació; *bhṛguḥ*—Bhṛgu; *punaḥ*—de nuevo.

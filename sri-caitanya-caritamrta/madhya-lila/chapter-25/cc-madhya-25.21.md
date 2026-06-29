@@ -1,9 +1,9 @@
 ### CC Madhya 25.21
 
-> উপদেশ লঞা করে কৃষ্ণ-সংকীর্তন ।
+> উপদেশ লঞা করে কৃষ্ণ-সংকীর্তন ।\
 > সর্বলোক হাসে, গায়, করয়ে নর্তন ॥২১॥
 
-> upadeśa lañā kare kṛṣṇa-saṅkīrtana
+> upadeśa lañā kare kṛṣṇa-saṅkīrtana\
 > sarva-loka hāse, gāya, karaye nartana
 
 *upadeśa lañā*—getting instructions from Śrī Caitanya Mahāprabhu; *kare*—join; *kṛṣṇa-saṅkīrtana*—the *saṅkīrtana* movement; *sarva-loka hāse*—everyone began to laugh in pleasure; *gāya*—chant; *karaye nartana*—and dance.

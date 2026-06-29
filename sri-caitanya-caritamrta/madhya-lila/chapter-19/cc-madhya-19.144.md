@@ -1,9 +1,9 @@
 ### CC Madhya 19.144
 
-> তার মধ্যে ‘স্থাবর’, ‘জঙ্গম’ — দুই ভেদ ।
+> তার মধ্যে ‘স্থাবর’, ‘জঙ্গম’ — দুই ভেদ ।\
 > জঙ্গমে তির্যক্-জল-স্থলচর-বিভেদ ॥১৪৪॥
 
-> tāra madhye 'sthāvara', jaṅgama'—dui bheda
+> tāra madhye 'sthāvara', jaṅgama'—dui bheda\
 > jaṅgame tiryak-jala-sthalacara-vibheda
 
 *tāra madhye*—among the living entities who are conditioned within the material world; *sthāvara*—immovable; *jaṅgama*—movable; *dui bheda*—two divisions; *jaṅgame*—among the living entities who can move; *tiryak*—the living entities who can move in the air (the birds); *jala*—or living entities who can move within the water; *sthala-cara*—living entities who can move on land; *vibheda*—three divisions.

@@ -1,9 +1,9 @@
 ### CC Madhya 18.46
 
-> বৃদ্ধকালে রূপ-গোসাঞি না পারে যাইতে  ।
+> বৃদ্ধকালে রূপ-গোসাঞি না পারে যাইতে  ।\
 > বাঞ্ছা হৈল গোপালের সৌন্দর্য দেখিতে ॥৪৬॥
 
-> vṛddha-kāle rūpa-gosāñi nā pāre yāite
+> vṛddha-kāle rūpa-gosāñi nā pāre yāite\
 > vāñchā haila gopālera saundarya dekhite
 
 *vṛddha-kāle*—in ripe old age; *rūpa-gosāñi*—Rūpa Gosvāmī; *nā pāre*—is not able; *yāite*—to go; *vāñchā haila*—there was a desire; *gopālera*—of Gopāla; *saundarya dekhite*—to see the beauty.

@@ -1,11 +1,11 @@
 ### SB 1.6.24
 
-> मतिर्मयि निबद्धेयं न विपद्येत कर्हिचित् ।
+> मतिर्मयि निबद्धेयं न विपद्येत कर्हिचित् ।\
 > प्रजासर्गनिरोधेऽपि स्मृतिश्च मदनुग्रहात् ॥२४॥
 
-> matir mayi nibaddheyaṁ
-> na vipadyeta karhicit
-> prajā-sarga-nirodhe 'pi
+> matir mayi nibaddheyaṁ\
+> na vipadyeta karhicit\
+> prajā-sarga-nirodhe 'pi\
 > smṛtiś ca mad-anugrahāt
 
 *matiḥ*—inteligencia; *mayi*—consagrada a Mí; *nibaddhā*—ocupada; *iyam*—esta; *na*—nunca; *vipadyeta*—separada; *karhicit*—en ningún momento; *prajā*—seres vivientes; *sarga*—en el momento de la creación; *nirodhe*—también en el momento de la aniquilación; *api*—aun; *smṛtiḥ*—recuerdo; *ca*—y; *mat*—Mía; *anugrahāt*—por la misericordia de.

@@ -1,11 +1,11 @@
 ### SB 4.8.41
 
-> धर्मार्थकाममोक्षाख्यं य इच्छेच्छ्रेय आत्मनः ।
+> धर्मार्थकाममोक्षाख्यं य इच्छेच्छ्रेय आत्मनः ।\
 > एकं ह्येव हरेस्तत्र कारणं पादसेवनम् ॥४१॥
 
-> dharmārtha-kāma-mokṣākhyaṁ
-> ya icchec chreya ātmanaḥ
-> ekaṁ hy eva hares tatra
+> dharmārtha-kāma-mokṣākhyaṁ\
+> ya icchec chreya ātmanaḥ\
+> ekaṁ hy eva hares tatra\
 > kāraṇaṁ pāda-sevanam
 
 *dharma-artha-kāma-mokṣa*—the four principles religiosity, economic development, sense gratification and liberation; *ākhyam*—by the name; *yaḥ*—who; *icchet*—may desire; *śreyaḥ*—the goal of life; *ātmanaḥ*—of the self; *ekam hi eva*—only the one; *hareḥ*—of the Supreme Personality of Godhead; *tatra*—in that; *kāraṇam*—the cause; *pāda-sevanam*—worshiping the lotus feet.

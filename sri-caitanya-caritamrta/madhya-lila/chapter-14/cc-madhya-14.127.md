@@ -1,9 +1,9 @@
 ### CC Madhya 14.127
 
-> স্বরূপ কহে, — প্রেমবতীর এই ত’ স্বভাব ।
+> স্বরূপ কহে, — প্রেমবতীর এই ত’ স্বভাব ।\
 > কান্তের ঔদাস্য-লেশে হয় ক্রোধভাব ॥১২৭॥
 
-> svarūpa kahe,-premavatīra ei ta' svabhāva
+> svarūpa kahe,-premavatīra ei ta' svabhāva\
 > kāntera audāsya-leśe haya krodha-bhāva
 
 *svarūpa kahe*—Svarūpa Dāmodara Gosvāmī replied; *prema-vatīra*—of the girl who is too afflicted by love; *ei*—this; *ta'*—indeed; *sva-bhāva*—the nature; *kāntera*—of the beloved; *audāsya*—of negligence; *leśe*—even by a fractional part; *haya*—there is; *krodha-bhāva*—anger.

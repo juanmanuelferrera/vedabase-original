@@ -1,18 +1,18 @@
 ### SB 4.6.19-20
 
-> कुमुदोत्पलकह्लार शतपत्रवनर्द्धिभिः ।
-> नलिनीषु कलं कूजत् खगवृन्दोपशोभितम् ॥१९॥
-> मृगैः शाखामृगैः क्रोडैर्मृगेन्द्रैरृक्षशल्यकैः ।
+> कुमुदोत्पलकह्लार शतपत्रवनर्द्धिभिः ।\
+> नलिनीषु कलं कूजत् खगवृन्दोपशोभितम् ॥१९॥\
+> मृगैः शाखामृगैः क्रोडैर्मृगेन्द्रैरृक्षशल्यकैः ।\
 > गवयैः शरभैर्व्याघ्रै रुरुभिर्महिषादिभिः ॥२०॥
 
-> kumudotpala-kahlāra-
-> śatapatra-vanarddhibhiḥ
-> nalinīṣu kalaṁ kūjat-
+> kumudotpala-kahlāra-\
+> śatapatra-vanarddhibhiḥ\
+> nalinīṣu kalaṁ kūjat-\
 > khaga-vṛndopaśobhitam
 
-> mṛgaiḥ śākhāmṛgaiḥ kroḍair
-> mṛgendrair ṛkṣa-śalyakaiḥ
-> gavayaiḥ śarabhair vyāghrai
+> mṛgaiḥ śākhāmṛgaiḥ kroḍair\
+> mṛgendrair ṛkṣa-śalyakaiḥ\
+> gavayaiḥ śarabhair vyāghrai\
 > rurubhir mahiṣādibhiḥ
 
 *kumuda*—*kumuda*; *utpala*—*utpala*; *kahlāra*—*kahlāra*; *śatapatra*—lotos; *vana*—bosque; *ṛddhibhiḥ*—cubierto con; *nalinīṣu*—en los lagos; *kalam*—muy dulcemente; *kūjat*—cuchichear; *khaga*—de aves; *vṛnda*—grupos; *upaśobhitam*—adornada con; *mṛgaiḥ*—con ciervos; *śākhā-mṛgaiḥ*—con monos; *kroḍaiḥ*—con jabalíes; *mṛga-indraiḥ*—con leones; *ṛkṣa-śalyakaiḥ*—con *ṛkṣas* y *śalyakas*; *gavayaiḥ*—con vacas salvajes; *śarabhaiḥ*—con asnos salvajes; *vyāghraiḥ*—con tigres; *rurubhiḥ*—con venados; *mahiṣa-ādibhiḥ*—con búfalos, etc.

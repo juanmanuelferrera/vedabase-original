@@ -1,6 +1,6 @@
 ### CC Adi 1.28
 
-> āra dui śloke advaita-tattvākhyāna
+> āra dui śloke advaita-tattvākhyāna\
 > āra eka śloke pañca-tattvera vyākhyāna
 
 *āra*—além disso; *dui śloke*—em dois versos; *advaita*—de Śrī Advaita Prabhu; *tattva*—da verdade; *ākhyāna*—descrição; *āra*—além disso; *eka śloke*—em um verso; *pañca-tattvera*—do Pañca-tattva; *vyākhyāna*—explicação.

@@ -1,11 +1,11 @@
 ### SB 4.2.12
 
-> गृहीत्वा मृगशावाक्ष्याः पाणिं मर्कटलोचनः ।
+> गृहीत्वा मृगशावाक्ष्याः पाणिं मर्कटलोचनः ।\
 > प्रत्युत्थानाभिवादार्हे वाचाप्यकृत नोचितम् ॥१२॥
 
-> gṛhītvā mṛga-śāvākṣyāḥ
-> pāṇiṁ markaṭa-locanaḥ
-> pratyutthānābhivādārhe
+> gṛhītvā mṛga-śāvākṣyāḥ\
+> pāṇiṁ markaṭa-locanaḥ\
+> pratyutthānābhivādārhe\
 > vācāpy akṛta nocitam
 
 *gṛhītvā*—taking; *mṛga-śāva*—like a deer cub; *akṣyāḥ*—of her who has eyes; *pāṇim*—the hand; *markaṭa*—of a monkey; *locanaḥ*—he who has the eyes; *pratyutthāna*—of rising from one's seat; *abhivāda*—the honor; *arhe*—to me, who deserves; *vācā*—with sweet words; *api*—even; *akṛta na*—he did not do; *ucitam*—honor.

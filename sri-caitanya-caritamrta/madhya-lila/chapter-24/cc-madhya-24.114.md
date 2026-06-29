@@ -1,9 +1,9 @@
 ### CC Madhya 24.114
 
-> সনকাদ্যের কৃষ্ণকৃপায় সৌরভে হরে মন ।
+> সনকাদ্যের কৃষ্ণকৃপায় সৌরভে হরে মন ।\
 > গুণাকৃষ্ট হঞা করে নির্মল ভজন ॥১১৪॥
 
-> sanakādyera kṛṣṇa-kṛpāya saurabhe hare mana
+> sanakādyera kṛṣṇa-kṛpāya saurabhe hare mana\
 > guṇākṛṣṭa hañā kare nirmala bhajana
 
 *sanaka-ādyera*—of the four Kumāras, headed by Sanaka; *kṛṣṇa-kṛpāya*—by the mercy of the Lord; *saurabhe*—the fragrance; *hare*—took away; *mana*—the minds; *guṇa-ākṛṣṭa hañā*—thus being attracted by the qualities of Kṛṣṇa; *kare*—perform; *nirmala bhajana*—pure devotional service.

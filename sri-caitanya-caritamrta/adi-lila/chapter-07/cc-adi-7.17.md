@@ -1,9 +1,9 @@
 ### CC Adi 7.17
 
-> গদাধর-পণ্ডিতাদি প্রভুর ‘শক্তি’-অবতার ।
+> গদাধর-পণ্ডিতাদি প্রভুর ‘শক্তি’-অবতার ।\
 > ‘অন্তরঙ্গ-ভক্ত’ করি’ গণন যাঁহার ॥১৭॥
 
-> gadādhara-paṇḍitādi prabhura 'śakti'-avatāra
+> gadādhara-paṇḍitādi prabhura 'śakti'-avatāra\
 > 'antaraṅga-bhakta' kari' gaṇana yāṅhāra
 
 *gadādhara*—of the name Gadādhara; *paṇḍita*—of the learned scholar; *ādi*—headed by; *prabhura*—of the Lord; *śakti*—potency; *avatāra*—incarnation; *antaraṅga*—very confidential; *bhakta*—devotee; *kari'*—accepting; *gaṇana*—counting; *yāṅhāra*—of whom.

@@ -1,9 +1,9 @@
 ### CC Adi 2.112
 
-> অবতারীর দেহে সব অবতারের স্থিতি ।
+> অবতারীর দেহে সব অবতারের স্থিতি ।\
 > কেহো কোনমতে কহে, যেমন যার মতি ॥১১২॥
 
-> avatārīra dehe saba avatārera sthiti
+> avatārīra dehe saba avatārera sthiti\
 > keho kona-mate kahe, yemana yāra mati
 
 *avatārīra*—of the source; *dehe*—in the body; *saba*—all; *avatārera*—of the incarnations; *sthiti*—existence; *keho*—someone; *kona-mate*—in some way; *kahe*—says; *yemana*—as in the manner; *yāra*—of whom; *mati*—the opinion.

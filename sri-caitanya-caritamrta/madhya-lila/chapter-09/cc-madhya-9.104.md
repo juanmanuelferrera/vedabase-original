@@ -1,9 +1,9 @@
 ### CC Madhya 9.104
 
-> তোমা দেখি’ তাহা হৈতে দ্বিগুণ সুখ হয় ।
+> তোমা দেখি’ তাহা হৈতে দ্বিগুণ সুখ হয় ।\
 > সেই কৃষ্ণ তুমি, — হেন মোর মনে লয় ॥১০৪॥
 
-> tomā dekhi' tāhā haite dvi-guṇa sukha haya
+> tomā dekhi' tāhā haite dvi-guṇa sukha haya\
 > sei kṛṣṇa tumi,—hena mora mane laya
 
 *tomā dekhi'*—by seeing You; *tāhā haite*—than the vision of Lord Kṛṣṇa; *dvi-guṇa*—twice as much; *sukha*—happiness; *haya*—there is; *sei kṛṣṇa*—that Lord Kṛṣṇa; *tumi*—You are; *hena*—such; *mora*—my; *mane*—in the mind; *laya*—takes.

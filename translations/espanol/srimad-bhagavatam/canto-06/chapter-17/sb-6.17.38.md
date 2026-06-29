@@ -1,11 +1,11 @@
 ### SB 6.17.38
 
-> जज्ञए त्वष्टुर्दक्षिणाग्नौ दानवीं योनिमाश्रितः
+> जज्ञए त्वष्टुर्दक्षिणाग्नौ दानवीं योनिमाश्रितः\
 > वृत्र इत्यभिविख्यातो ज्ञआनविज्ञआनसंयुतः ॥३८॥
 
-> jajñe tvaṣṭur dakṣiṇāgnau
-> dānavīṁ yonim āśritaḥ
-> vṛtra ity abhivikhyāto
+> jajñe tvaṣṭur dakṣiṇāgnau\
+> dānavīṁ yonim āśritaḥ\
+> vṛtra ity abhivikhyāto\
 > jñāna-vijñāna-saṁyutaḥ
 
 *jajñe*—nació; *tvaṣṭuḥ*—del *brāhmaṇa* llamado Tvaṣṭā; *dakṣiṇa-agnau*—en el sacrificio de fuego *dakṣiṇāgni*; *dānavīm*—demoníaca; *yonim*—especie de vida; *āśritaḥ*—refugiándose en; *vṛtraḥ*—Vṛtra; *iti*—así; *abhivikhyātaḥ*—famoso; *jñāna-vijñāna-saṁyutaḥ*—perfectamente dotado con el conocimiento trascendental y la aplicación práctica de ese conocimiento en la vida.

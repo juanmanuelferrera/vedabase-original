@@ -1,9 +1,9 @@
 ### CC Madhya 9.242
 
-> দিন-দুই পদ্মনাভের কৈল দরশন ।
+> দিন-দুই পদ্মনাভের কৈল দরশন ।\
 > আনন্দে দেখিতে আইলা শ্রীজনার্দন ॥২৪২॥
 
-> dina-dui padmanābhera kaila daraśana
+> dina-dui padmanābhera kaila daraśana\
 > ānande dekhite āilā śrī-janārdana
 
 *dina-dui*—two days; *padmanābhera*—of the Deity known as Padmanābha; *kaila daraśana*—visited the temple; *ānande*—in great ecstasy; *dekhite*—to see; *āilā*—came; *śrī-janārdana*—to the temple of Śrī Janārdana.

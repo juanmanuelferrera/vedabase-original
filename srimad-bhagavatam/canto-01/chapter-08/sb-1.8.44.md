@@ -1,13 +1,13 @@
 ### SB 1.8.44
 
-> सूत उवाच
-> पृथयेत्थं कलपदैः परिणूताखिलोदयः ।
+> सूत उवाच\
+> पृथयेत्थं कलपदैः परिणूताखिलोदयः ।\
 > मन्दं जहास वैकुण्ठो मोहयन्निव मायया ॥४४॥
 
-> sūta uvāca
-> pṛthayetthaṁ kala-padaiḥ
-> pariṇūtākhilodayaḥ
-> mandaṁ jahāsa vaikuṇṭho
+> sūta uvāca\
+> pṛthayetthaṁ kala-padaiḥ\
+> pariṇūtākhilodayaḥ\
+> mandaṁ jahāsa vaikuṇṭho\
 > mohayann iva māyayā
 
 *sūtaḥ uvāca*—Sūta said; *pṛthayā*—by Pṛthā (Kuntī); *ittham*—this; *kala-padaiḥ*—by chosen words; *pariṇūta*—being worshiped; *akhila*—universal; *udayaḥ*—glories; *mandam*—mildly; *jahāsa*—smiled; *vaikuṇṭhaḥ*—the Lord; *mohayan*—captivating; *iva*—like; *māyayā*—His mystic power.

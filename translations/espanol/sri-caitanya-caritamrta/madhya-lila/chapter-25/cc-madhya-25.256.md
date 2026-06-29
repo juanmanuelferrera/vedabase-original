@@ -1,9 +1,9 @@
 ### CC Madhya 25.256
 
-> সপ্তদশে — বনপথে মথুরা-গমন ।
+> সপ্তদশে — বনপথে মথুরা-গমন ।\
 > অষ্টাদশে — বৃন্দাবন-বিহার-বর্ণন ॥২৫৬॥
 
-> saptadaśe-vanapathe mathurā-gamana
+> saptadaśe-vanapathe mathurā-gamana\
 > aṣṭādaśe-vṛndāvana-vihāra-varṇana
 
 *saptadaśe*—en el Decimoséptimo Capítulo; *vana-pathe*—por el sendero del bosque; *mathurā-gamana*—el viaje del Señor Caitanya Mahāprabhu a Mathurā; *aṣṭādaśe*—en el Decimoctavo Capítulo; *vṛndāvana-vihāra-varṇana*—descripción de Su recorrido por el bosque de Vṛndāvana.

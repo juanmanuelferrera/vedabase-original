@@ -1,9 +1,9 @@
 ### CC Antya 13.95
 
-> নানা সেবা করি’ করে পাদ-সম্বাহন ।
+> নানা সেবা করি’ করে পাদ-সম্বাহন ।\
 > তাতে রঘুনাথের হয় সঙ্কুচিত মন ॥৯৫॥
 
-> nānā sevā kari' kare pāda-samvāhana
+> nānā sevā kari' kare pāda-samvāhana\
 > tāte raghunāthera haya saṅkucita mana
 
 *nānā sevā kari'*—serving in various ways; *kare pāda-samvāhana*—massaged his legs; *tāte*—because of this; *raghunāthera*—of Raghunātha Bhaṭṭa; *haya*—there was; *saṅkucita mana*—hesitation in the mind.

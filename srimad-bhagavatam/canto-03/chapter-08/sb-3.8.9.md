@@ -1,11 +1,11 @@
 ### SB 3.8.9
 
-> प्रोवाच मह्यं स दयालुरुक्तो मुनिः पुलस्त्येन पुराणमाद्यम् ।
+> प्रोवाच मह्यं स दयालुरुक्तो मुनिः पुलस्त्येन पुराणमाद्यम् ।\
 > सोऽहं तवैतत्कथयामि वत्स श्रद्धालवे नित्यमनुव्रताय ॥९॥
 
-> provāca mahyaṁ sa dayālur ukto
-> muniḥ pulastyena purāṇam ādyam
-> so 'haṁ tavaitat kathayāmi vatsa
+> provāca mahyaṁ sa dayālur ukto\
+> muniḥ pulastyena purāṇam ādyam\
+> so 'haṁ tavaitat kathayāmi vatsa\
 > śraddhālave nityam anuvratāya
 
 *provāca*—said; *mahyam*—unto me; *saḥ*—he; *dayāluḥ*—kindhearted; *uktaḥ*—aforementioned; *muniḥ*—sage; *pulastyena*—by the sage Pulastya; *purāṇam ādyam*—the foremost of all the *Purāṇas*; *saḥ aham*—that also I; *tava*—unto you; *etat*—this; *kathayāmi*—shall speak; *vatsa*—my dear son; *śraddhālave*—unto one who is faithful; *nityam*—always; *anuvratāya*—unto one who is a follower.

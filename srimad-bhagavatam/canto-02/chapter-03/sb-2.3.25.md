@@ -1,11 +1,11 @@
 ### SB 2.3.25
 
-> अथाभिधेह्यङ्ग मनोऽनुकूलं प्रभाषसे भागवतप्रधानः ।
+> अथाभिधेह्यङ्ग मनोऽनुकूलं प्रभाषसे भागवतप्रधानः ।\
 > यदाह वैयासकिरात्मविद्या विशारदो नृपतिं साधु पृष्टः ॥२५॥
 
-> athābhidhehy aṅga mano-'nukūlaṁ
-> prabhāṣase bhāgavata-pradhānaḥ
-> yad āha vaiyāsakir ātma-vidyā-
+> athābhidhehy aṅga mano-'nukūlaṁ\
+> prabhāṣase bhāgavata-pradhānaḥ\
+> yad āha vaiyāsakir ātma-vidyā-\
 > viśārado nṛpatiṁ sādhu pṛṣṭaḥ
 
 *atha*—therefore; *abhidhehi*—please explain; *aṅga*—O Sūta Gosvāmī; *manaḥ*—mind; *anukūlam*—favorable to our mentality; *prabhāṣase*—you do speak; *bhāgavata*—the great devotee; *pradhānaḥ*—the chief; *yat āha*—what he spoke; *vaiyāsakiḥ*—Śukadeva Gosvāmī; *ātma-vidyā*—transcendental knowledge; *viśāradaḥ*—expert; *nṛpatim*—unto the King; *sādhu*—very good; *pṛṣṭaḥ*—being asked.

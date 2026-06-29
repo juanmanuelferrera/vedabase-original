@@ -1,18 +1,18 @@
 ### SB 7.7.30-31
 
-> गुरुशुश्रूषया भक्त्या सर्वलब्धार्पणेन च
-> सङ्गेन साधुभक्तानामीश्वराराधनेन च ॥३०॥
-> श्रद्धया तत्कथायां च कीर्तनैर्गुणकर्मणाम
+> गुरुशुश्रूषया भक्त्या सर्वलब्धार्पणेन च\
+> सङ्गेन साधुभक्तानामीश्वराराधनेन च ॥३०॥\
+> श्रद्धया तत्कथायां च कीर्तनैर्गुणकर्मणाम\
 > तत्पादाम्बुरुहध्यानात्तल्लिङ्गेक्षार्हणादिभिः ॥३१॥
 
-> guru-śuśrūṣayā bhaktyā
-> sarva-labdhārpaṇena ca
-> saṅgena sādhu-bhaktānām
+> guru-śuśrūṣayā bhaktyā\
+> sarva-labdhārpaṇena ca\
+> saṅgena sādhu-bhaktānām\
 > īśvarārādhanena ca
 
-> śraddhayā tat-kathāyāṁ ca
-> kīrtanair guṇa-karmaṇām
-> tat-pādāmburuha-dhyānāt
+> śraddhayā tat-kathāyāṁ ca\
+> kīrtanair guṇa-karmaṇām\
+> tat-pādāmburuha-dhyānāt\
 > tal-liṅgekṣārhaṇādibhiḥ
 
 *guru-śuśrūṣayā*—por ofrecer servicio al maestro espiritual genuino; *bhaktyā*—con fe y devoción; *sarva*—todas; *labdha*—de ganancias materiales; *arpaṇena*—por ofrecer (al *guru*, o a Kṛṣṇa por intermedio del maestro espiritual); *ca*—y; *saṅgena*—por la compañía; *sādhu-bhaktānām*—de devotos y personas santas; *īśvara*—de la Suprema Personalidad de Dios; *ārādhanena*—por la adoración; *ca*—y; *śraddhayā*—con gran fe; *tat-kathāyām*—en discursos acerca del Señor; *ca*—y; *kīrtanaiḥ*—por glorificaciones; *guṇa-karmaṇām*—de las cualidades y actividades trascendentales del Señor; *tat*—Sus; *pāda-amburuha*—en los pies de loto; *dhyānāt*—por meditación; *tat*—Sus; *liṅga*—formas (Deidades); *īkṣa*—observar; *arhaṇa-ādibhiḥ*—y por adorar.

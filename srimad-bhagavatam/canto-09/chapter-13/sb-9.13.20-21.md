@@ -1,18 +1,18 @@
 ### SB 9.13.20-21
 
-> कृतध्वजात्केशिध्वजः खाण्डिक्यस्तु मितध्वजात
-> कृतध्वजसुतो राजन्नात्मविद्याविशारदः ॥२०॥
-> खाण्डिक्यः कर्मतत्त्वज्ञओ भीतः केशिध्वजाद्द्रुतः
+> कृतध्वजात्केशिध्वजः खाण्डिक्यस्तु मितध्वजात\
+> कृतध्वजसुतो राजन्नात्मविद्याविशारदः ॥२०॥\
+> खाण्डिक्यः कर्मतत्त्वज्ञओ भीतः केशिध्वजाद्द्रुतः\
 > भानुमांस्तस्य पुत्रोऽभूच्छतद्युम्नस्तु तत्सुतः ॥२१॥
 
-> kṛtadhvajāt keśidhvajaḥ
-> khāṇḍikyas tu mitadhvajāt
-> kṛtadhvaja-suto rājann
+> kṛtadhvajāt keśidhvajaḥ\
+> khāṇḍikyas tu mitadhvajāt\
+> kṛtadhvaja-suto rājann\
 > ātma-vidyā-viśāradaḥ
 
-> khāṇḍikyaḥ karma-tattva-jño
-> bhītaḥ keśidhvajād drutaḥ
-> bhānumāṁs tasya putro 'bhūc
+> khāṇḍikyaḥ karma-tattva-jño\
+> bhītaḥ keśidhvajād drutaḥ\
+> bhānumāṁs tasya putro 'bhūc\
 > chatadyumnas tu tat-sutaḥ
 
 *kṛtadhvajāt*—from Kṛtadhvaja; *keśidhvajaḥ*—a son named Keśidhvaja; *khāṇḍikyaḥ tu*—also a son named Khāṇḍikya; *mitadhvajāt*—from Mitadhvaja; *kṛtadhvaja-sutaḥ*—the son of Kṛtadhvaja; *rājan*—O King; *ātma-vidyā-viśāradaḥ*—expert in transcendental science; *khāṇḍikyaḥ*—King Khāṇḍikya; *karma-tattva-jñaḥ*—expert in Vedic ritualistic ceremonies; *bhītaḥ*—fearing; *keśidhvajāt*—because of Keśidhvaja; *drutaḥ*—he fled; *bhānumān*—Bhānumān; *tasya*—of Keśidhvaja; *putraḥ*—son; *abhūt*—there was; *śatadyumnaḥ*—Śatadyumna; *tu*—but; *tat-sutaḥ*—the son of Bhānumān.

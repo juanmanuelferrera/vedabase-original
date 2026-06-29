@@ -1,11 +1,11 @@
 ### SB 8.6.9
 
-> रूपं तवैतत्पुरुषर्षभेज्यं श्रेयोऽर्थिभिर्वैदिकतान्त्रिकेण
+> रूपं तवैतत्पुरुषर्षभेज्यं श्रेयोऽर्थिभिर्वैदिकतान्त्रिकेण\
 > योगेन धातः सह नस्त्रिलोकान्पश्याम्यमुष्मिन्नु ह विश्वमूर्तौ ॥९॥
 
-> rūpaṁ tavaitat puruṣarṣabhejyaṁ
-> śreyo 'rthibhir vaidika-tāntrikeṇa
-> yogena dhātaḥ saha nas tri-lokān
+> rūpaṁ tavaitat puruṣarṣabhejyaṁ\
+> śreyo 'rthibhir vaidika-tāntrikeṇa\
+> yogena dhātaḥ saha nas tri-lokān\
 > paśyāmy amuṣminn u ha viśva-mūrtau
 
 *rūpam*—form; *tava*—Your; *etat*—this; *puruṣa-ṛṣabha*—O best of all personalities; *ijyam*—worshipable; *śreyaḥ*—ultimate auspiciousness; *arthibhiḥ*—by persons who desire; *vaidika*—under the direction of Vedic instructions; *tāntrikeṇa*—realized by followers of *Tantras,* like *Nārada-pañcarātra*; *yogena*—by practice of mystic *yoga*; *dhātaḥ*—O supreme director; *saha*—with; *naḥ*—us (the demigods); *tri-lokān*—controlling the three worlds; *paśyāmi*—we see directly; *amuṣmin*—in You; *u*—oh; *ha*—completely manifested; *viśva-mūrtau*—in You, who have the universal form.

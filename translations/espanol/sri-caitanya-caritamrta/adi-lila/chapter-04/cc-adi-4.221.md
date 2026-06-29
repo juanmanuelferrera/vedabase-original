@@ -1,9 +1,9 @@
 ### CC Adi 4.221
 
-> সেই ভাবে নিজবাঞ্ছা করিল পূরণ ।
+> সেই ভাবে নিজবাঞ্ছা করিল পূরণ ।\
 > অবতারের এই বাঞ্ছা মূল-কারণ ॥২২১॥
 
-> sei bhāve nija-vāñchā karila pūraṇa
+> sei bhāve nija-vāñchā karila pūraṇa\
 > avatārera ei vāñchā mūla-kāraṇa
 
 *sei*—ese; *bhāve*—en el sentimiento; *nija-vāñchā*—Sus propios deseos; *karila*—hizo; *pūraṇa*—cumplimiento; *avatārera*—de la encarnación; *ei*—este; *vāñchā*—deseo; *mūla*—raíz; *kāraṇa*—causa.

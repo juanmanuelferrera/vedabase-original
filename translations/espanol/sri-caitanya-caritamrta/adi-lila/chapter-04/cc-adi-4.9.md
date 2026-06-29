@@ -1,9 +1,9 @@
 ### CC Adi 4.9
 
-> কিন্তু কৃষ্ণের যেই হয় অবতার-কাল ।
+> কিন্তু কৃষ্ণের যেই হয় অবতার-কাল ।\
 > ভারহরণ-কাল তাতে হইল মিশাল ॥৯॥
 
-> kintu kṛṣṇera yei haya avatāra-kāla
+> kintu kṛṣṇera yei haya avatāra-kāla\
 > bhāra-haraṇa-kāla tāte ha-ila miśāla
 
 *kintu*—pero; *kṛṣṇera*—del Señor Kṛṣṇa; *yei*—aquello que; *haya*—es; *avatāra*—de encarnación; *kāla*—el momento; *bhāra-haraṇa*—de aliviar la carga; *kāla*—el momento; *tāte*—en eso; *ha-ila*—hubo; *miśāla*—mezcla.

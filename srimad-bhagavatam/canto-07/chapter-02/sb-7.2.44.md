@@ -1,11 +1,11 @@
 ### SB 7.2.44
 
-> सुयज्ञओ नन्वयं शेते मूढा यमनुशोचथ
+> सुयज्ञओ नन्वयं शेते मूढा यमनुशोचथ\
 > यः श्रोता योऽनुवक्तेह स न दृश्येत कर्हिचित ॥४४॥
 
-> suyajño nanv ayaṁ śete
-> mūḍhā yam anuśocatha
-> yaḥ śrotā yo 'nuvakteha
+> suyajño nanv ayaṁ śete\
+> mūḍhā yam anuśocatha\
+> yaḥ śrotā yo 'nuvakteha\
 > sa na dṛśyeta karhicit
 
 *suyajñaḥ*—the king named Suyajña; *nanu*—indeed; *ayam*—this; *śete*—lies; *mūḍhāḥ*—O foolish people; *yam*—whom; *anuśocatha*—you cry for; *yaḥ*—he who; *śrotā*—the hearer; *yaḥ*—he who; *anuvaktā*—the speaker; *iha*—in this world; *saḥ*—he; *na*—not; *dṛśyeta*—is visible; *karhicit*—at any time.

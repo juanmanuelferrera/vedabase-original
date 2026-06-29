@@ -1,11 +1,11 @@
 ### SB 4.31.31
 
-> एतद्यः शृणुयाद्राजन्राज्ञां हर्यर्पितात्मनाम् ।
+> एतद्यः शृणुयाद्राजन्राज्ञां हर्यर्पितात्मनाम् ।\
 > आयुर्धनं यशः स्वस्ति गतिमैश्वर्यमाप्नुयात् ॥३१॥
 
-> etad yaḥ śṛṇuyād rājan
-> rājñāṁ hary-arpitātmanām
-> āyur dhanaṁ yaśaḥ svasti
+> etad yaḥ śṛṇuyād rājan\
+> rājñāṁ hary-arpitātmanām\
+> āyur dhanaṁ yaśaḥ svasti\
 > gatim aiśvaryam āpnuyāt
 
 *etat*—this; *yaḥ*—one who; *śṛṇuyāt*—hears; *rājan*—O King Parīkṣit; *rājñām*—of kings; *hari*—unto the Supreme Personality of Godhead; *arpita-ātmanām*—who have given their life and soul; *āyuḥ*—duration of life; *dhanam*—wealth; *yaśaḥ*—reputation; *svasti*—good fortune; *gatim*—the ultimate goal of life; *aiśvaryam*—material opulence; *āpnuyāt*—achieves.

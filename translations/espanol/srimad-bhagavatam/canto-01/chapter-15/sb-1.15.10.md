@@ -1,11 +1,11 @@
 ### SB 1.15.10
 
-> पत्न्यास्तवाधिमखकॢप्तमहाभिषेक श्लाघिष्ठचारुकबरं कितवैः सभायाम् ।
+> पत्न्यास्तवाधिमखकॢप्तमहाभिषेक श्लाघिष्ठचारुकबरं कितवैः सभायाम् ।\
 > स्पृष्टं विकीर्य पदयोः पतिताश्रुमुख्या यस्तत्स्त्रियोऽकृतहतेशविमुक्तकेशाः ॥१०॥
 
-> patnyās tavādhimakha-kḷpta-mahābhiṣeka-
-> ślāghiṣṭha-cāru-kabaraṁ kitavaiḥ sabhāyām
-> spṛṣṭaṁ vikīrya padayoḥ patitāśru-mukhyā
+> patnyās tavādhimakha-kḷpta-mahābhiṣeka-\
+> ślāghiṣṭha-cāru-kabaraṁ kitavaiḥ sabhāyām\
+> spṛṣṭaṁ vikīrya padayoḥ patitāśru-mukhyā\
 > yas tat-striyo 'kṛta-hateśa-vimukta-keśāḥ
 
 *patnyāḥ*—de la esposa; *tava*—tu; *adhimakha*—durante la gran ceremonia de sacrificio; *kḷpta*—arreglado; *mahā-abhiṣeka*—sumamente santificado; *ślāghiṣṭha*—así glorificado; *cāru*—hermoso; *kabaram*—cabello arracimado; *kitavaiḥ*—por los infieles; *sabhāyām*—en la gran asamblea; *spṛṣṭam*—siendo asido; *vikīrya*—siendo soltado; *padayoḥ*—a los pies; *patita-aśru-mukhyāḥ*—de aquella que cayó con lágrimas en los ojos; *yaḥ*—Él; *tat*—sus; *striyaḥ*—esposas; *akṛta*—quedaron; *hata-īśa*—desprovistas de esposos; *vimukta-keśāḥ*—cabello suelto.

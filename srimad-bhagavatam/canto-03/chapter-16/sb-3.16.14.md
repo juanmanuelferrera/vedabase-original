@@ -1,11 +1,11 @@
 ### SB 3.16.14
 
-> सतीं व्यादाय शृण्वन्तो लघ्वीं गुर्वर्थगह्वराम् ।
+> सतीं व्यादाय शृण्वन्तो लघ्वीं गुर्वर्थगह्वराम् ।\
 > विगाह्यागाधगम्भीरां न विदुस्तच्चिकीर्षितम् ॥१४॥
 
-> satīṁ vyādāya śṛṇvanto
-> laghvīṁ gurv-artha-gahvarām
-> vigāhyāgādha-gambhīrāṁ
+> satīṁ vyādāya śṛṇvanto\
+> laghvīṁ gurv-artha-gahvarām\
+> vigāhyāgādha-gambhīrāṁ\
 > na vidus tac-cikīrṣitam
 
 *satīm*—excellent; *vyādāya*—with attentive aural reception; *śṛṇvantaḥ*—hearing; *laghvīm*—properly composed; *guru*—momentous; *artha*—import; *gahvarām*—difficult to understand; *vigāhya*—pondering; *agādha*—deep; *gambhīrām*—grave; *na*—not; *viduḥ*—understand; *tat*—of the Supreme Lord; *cikīrṣitam*—the intention.

@@ -1,11 +1,11 @@
 ### SB 6.1.39
 
-> कथं स्विद्ध्रियते दण्डः किं वास्य स्थानमीप्सितम
+> कथं स्विद्ध्रियते दण्डः किं वास्य स्थानमीप्सितम\
 > दण्ड्याः किं कारिणः सर्वे आहो स्वित्कतिचिन्नृणाम ॥३९॥
 
-> kathaṁ svid dhriyate daṇḍaḥ
-> kiṁ vāsya sthānam īpsitam
-> daṇḍyāḥ kiṁ kāriṇaḥ sarve
+> kathaṁ svid dhriyate daṇḍaḥ\
+> kiṁ vāsya sthānam īpsitam\
+> daṇḍyāḥ kiṁ kāriṇaḥ sarve\
 > āho svit katicin nṛṇām
 
 *katham svit*—by which means; *dhriyate*—is imposed; *daṇḍaḥ*—punishment; *kim*—what; *vā*—or; *asya*—of this; *sthānam*—the place; *īpsitam*—desirable; *daṇḍyāḥ*—punishable; *kim*—whether; *kāriṇaḥ*—fruitive actors; *sarve*—all; *āho svit*—or whether; *katicit*—some; *nṛṇām*—of the human beings.

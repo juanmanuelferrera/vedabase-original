@@ -1,9 +1,9 @@
 ### CC Madhya 9.131
 
-> ব্রজলোকের ভাবে যেই করয়ে ভজন ৷
+> ব্রজলোকের ভাবে যেই করয়ে ভজন ৷\
 > সেই জন পায় ব্রজে ব্রজেন্দ্রনন্দন ৷৷ ১৩১ ৷৷ ॥১৩১॥
 
-> vraja-lokera bhāve yei karaye bhajana
+> vraja-lokera bhāve yei karaye bhajana\
 > sei jana pāya vraje vrajendra-nandana
 
 *vraja-lokera*—de los habitantes de Vrajabhūmi; *bhāve*—en el éxtasis; *yei*—todo aquel que; *karaye*—hace; *bhajana*—adoración; *sei jana*—esa persona; *pāya*—alcanza; *vraje*—en Vraja; *vrajendra-nandana*—el Señor Kṛṣṇa, el hijo de Mahārāja Nanda.

@@ -1,13 +1,13 @@
 ### SB 7.6.1
 
-> श्रीप्रह्राद उवाच
-> कौमार आचरेत्प्राज्ञओ धर्मान्भागवतानिह
+> श्रीप्रह्राद उवाच\
+> कौमार आचरेत्प्राज्ञओ धर्मान्भागवतानिह\
 > दुर्लभं मानुषं जन्म तदप्यध्रुवमर्थदम ॥१॥
 
-> śrī-prahrāda uvāca
-> kaumāra ācaret prājño
-> dharmān bhāgavatān iha
-> durlabhaṁ mānuṣaṁ janma
+> śrī-prahrāda uvāca\
+> kaumāra ācaret prājño\
+> dharmān bhāgavatān iha\
+> durlabhaṁ mānuṣaṁ janma\
 > tad apy adhruvam arthadam
 
 *śrī-prahrādaḥ uvāca*—Prahlāda Mahārāja dijo; *kaumāraḥ*—en la tierna edad infantil; *ācaret*—debe practicar; *prājñaḥ*—la persona inteligente; *dharmān*—deberes prescritos; *bhāgavatān*—que son servicio devocional a la Suprema Personalidad de Dios; *iha*—en esta vida; *durlabham*—que muy rara vez se obtiene; *mānuṣam*—humano; *janma*—nacimiento; *tat*—ese; *api*—incluso; *adhruvam*—no permanente, temporal; *artha-dam*—pleno de significado.

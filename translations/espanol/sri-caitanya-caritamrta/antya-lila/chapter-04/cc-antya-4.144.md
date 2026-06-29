@@ -1,9 +1,9 @@
 ### CC Antya 4.144
 
-> সনাতন কহে, — “ভাল কৈলা উপদেশ ।
+> সনাতন কহে, — “ভাল কৈলা উপদেশ ।\
 > তাহাঁ যাব, সেই মোর ‘প্রভুদত্ত দেশ’ ।।” ॥ ১৪৪ ॥
 
-> sanātana kahe,--"bhāla kailā upadeśa
+> sanātana kahe,--"bhāla kailā upadeśa\
 > tāhāṅ yāba, sei mora 'prabhu-datta deśa' "
 
 *sanātana kahe*—Sanātana Gosvāmī respondió; *bhāla kailā upadeśa*—has dado un buen consejo; *tāhāṅ yāba*—iré allí; *sei*—ese; *mora*—mi; *prabhu-datta*—dado por el Señor; *deśa*—lugar de residencia.

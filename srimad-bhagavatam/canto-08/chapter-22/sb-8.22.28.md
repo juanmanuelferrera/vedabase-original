@@ -1,11 +1,11 @@
 ### SB 8.22.28
 
-> एष दानवदैत्यानामग्रनीः कीर्तिवर्धनः
+> एष दानवदैत्यानामग्रनीः कीर्तिवर्धनः\
 > अजैषीदजयां मायां सीदन्नपि न मुह्यति ॥२८॥
 
-> eṣa dānava-daityānām
-> agranīḥ kīrti-vardhanaḥ
-> ajaiṣīd ajayāṁ māyāṁ
+> eṣa dānava-daityānām\
+> agranīḥ kīrti-vardhanaḥ\
+> ajaiṣīd ajayāṁ māyāṁ\
 > sīdann api na muhyati
 
 *eṣaḥ*—this Bali Mahārāja; *dānava-daityānām*—among the demons and unbelievers; *agranīḥ*—the foremost devotee; *kīrti-vardhanaḥ*—the most famous; *ajaiṣīt*—has already surpassed; *ajayām*—the insurmountable; *māyām*—material energy; *sīdan*—being bereft (of all material opulences); *api*—although; *na*—not; *muhyati*—is bewildered.

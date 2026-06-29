@@ -1,11 +1,11 @@
 ### SB 9.21.21
 
-> अजमीढो द्विमीढश्च पुरुमीढश्च हस्तिनः
+> अजमीढो द्विमीढश्च पुरुमीढश्च हस्तिनः\
 > अजमीढस्य वंश्याः स्युः प्रियमेधादयो द्विजाः ॥२१॥
 
-> ajamīḍho dvimīḍhaś ca
-> purumīḍhaś ca hastinaḥ
-> ajamīḍhasya vaṁśyāḥ syuḥ
+> ajamīḍho dvimīḍhaś ca\
+> purumīḍhaś ca hastinaḥ\
+> ajamīḍhasya vaṁśyāḥ syuḥ\
 > priyamedhādayo dvijāḥ
 
 *ajamīḍhaḥ*—Ajamīḍha; *dvimīḍhaḥ*—Dvimīḍha; *ca*—también; *purumīḍhaḥ*—Purumīḍhaḥ; *ca*—también; *hastinaḥ*—fueron los hijos de Hastī; *ajamīḍhasya*—de Ajamīḍha; *vaṁśyāḥ*—descendientes; *syuḥ*—son; *priyamedha-ādayaḥ*—encabezados por Priyamedha; *dvijāḥ*—*brāhmaṇas*.

@@ -1,11 +1,11 @@
 ### SB 1.5.9
 
-> यथा धर्मादयश्चार्था मुनिवर्यानुकीर्तिताः ।
+> यथा धर्मादयश्चार्था मुनिवर्यानुकीर्तिताः ।\
 > न तथा वासुदेवस्य महिमा ह्यनुवर्णितः ॥९॥
 
-> yathā dharmādayaś cārthā
-> muni-varyānukīrtitāḥ
-> na tathā vāsudevasya
+> yathā dharmādayaś cārthā\
+> muni-varyānukīrtitāḥ\
+> na tathā vāsudevasya\
 > mahimā hy anuvarṇitaḥ
 
 *yathā*—tanto como; *dharma-ādayaḥ*—todos los cuatro principios del comportamiento religioso; *ca*—y; *arthāḥ*—finalidades; *muni-varya*—por ti, el gran sabio; *anukīrtitāḥ*—descrito repetidamente; *na*—no; *tathā*—de esa manera; *vāsudevasya*—de la Personalidad de Dios, Śrī Kṛṣṇa; *mahimā*—glorias; *hi*—indudablemente; *anuvarṇitaḥ*—descrito constantemente de esa manera.

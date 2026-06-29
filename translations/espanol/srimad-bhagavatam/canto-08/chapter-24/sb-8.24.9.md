@@ -1,11 +1,11 @@
 ### SB 8.24.9
 
-> ज्ञआत्वा तद्दानवेन्द्रस्य हयग्रीवस्य चेष्टितम
+> ज्ञआत्वा तद्दानवेन्द्रस्य हयग्रीवस्य चेष्टितम\
 > दधार शफरीरूपं भगवान्हरिरीश्वरः ॥९॥
 
-> jñātvā tad dānavendrasya
-> hayagrīvasya ceṣṭitam
-> dadhāra śapharī-rūpaṁ
+> jñātvā tad dānavendrasya\
+> hayagrīvasya ceṣṭitam\
+> dadhāra śapharī-rūpaṁ\
 > bhagavān harir īśvaraḥ
 
 *jñātvā*—al darse cuenta; *tat*—eso; *dānava-indrasya*—del gran demonio; *hayagrīvasya*—de Hayagrīva; *ceṣṭitam*—actividad; *dadhāra*—adoptó; *śapharī-rūpam*—la forma de un pez; *bhagavān*—la Suprema Personalidad de Dios; *hariḥ*—el Señor; *īśvaraḥ*—el controlador supremo.

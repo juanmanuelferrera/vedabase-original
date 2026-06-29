@@ -1,11 +1,11 @@
 ### SB 3.9.41
 
-> पूर्तेन तपसा यज्ञैर्दानैर्योगसमाधिना ।
+> पूर्तेन तपसा यज्ञैर्दानैर्योगसमाधिना ।\
 > राद्धं निःश्रेयसं पुंसां मत्प्रीतिस्तत्त्वविन्मतम् ॥४१॥
 
-> pūrtena tapasā yajñair
-> dānair yoga-samādhinā
-> rāddhaṁ niḥśreyasaṁ puṁsāṁ
+> pūrtena tapasā yajñair\
+> dānair yoga-samādhinā\
+> rāddhaṁ niḥśreyasaṁ puṁsāṁ\
 > mat-prītis tattvavin-matam
 
 *pūrtena*—by traditional good work; *tapasā*—by penances; *yajñaiḥ*—by sacrifices; *dānaiḥ*—by charities; *yoga*—by mysticism; *samādhinā*—by trance; *rāddham*—success; *niḥśreyasam*—ultimately beneficial; *puṁsām*—of the human being; *mat*—of Me; *prītiḥ*—satisfaction; *tattva-vit*—expert transcendentalist; *matam*—opinion.

@@ -1,11 +1,11 @@
 ### SB 1.18.6
 
-> यस्मिन्नहनि यर्ह्येव भगवानुत्ससर्ज गाम् ।
+> यस्मिन्नहनि यर्ह्येव भगवानुत्ससर्ज गाम् ।\
 > तदैवेहानुवृत्तोऽसावधर्मप्रभवः कलिः ॥६॥
 
-> yasminn ahani yarhy eva
-> bhagavān utsasarja gām
-> tadaivehānuvṛtto 'sāv
+> yasminn ahani yarhy eva\
+> bhagavān utsasarja gām\
+> tadaivehānuvṛtto 'sāv\
 > adharma-prabhavaḥ kaliḥ
 
 *yasmin*—en ese; *ahani*—mismo día; *yarhi eva*—en ese mismo momento; *bhagavān*—la Personalidad de Dios; *utsasarja*—dejó a un lado; *gām*—la Tierra; *tadā*—en ese momento; *eva*—ciertamente; *iha*—en este mundo; *anuvṛttaḥ*—siguió; *asau*—él; *adharma*—irreligión; *prabhavaḥ*—acelerando; *kaliḥ*—la riña en persona.

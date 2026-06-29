@@ -1,9 +1,9 @@
 ### CC Madhya 15.51
 
-> কি কায সন্ন্যাসে মোর, প্রেম নিজ-ধন  ।
+> কি কায সন্ন্যাসে মোর, প্রেম নিজ-ধন  ।\
 > যে-কালে সন্ন্যাস কৈলুঁ, ছন্ন হৈল মন ॥৫১॥
 
-> ki kāya sannyāse mora, prema nija-dhana
+> ki kāya sannyāse mora, prema nija-dhana\
 > ye-kāle sannyāsa kailuṅ, channa haila mana
 
 *ki kāya*—what business; *sannyāse*—in the renounced order; *mora*—of Me; *prema*—love; *nija-dhana*—My real wealth; *ye-kāle*—at which time; *sannyāsa kailuṅ*—I accepted the renounced order; *channa*—deranged; *haila*—was; *mana*—mind.

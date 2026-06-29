@@ -1,9 +1,9 @@
 ### CC Madhya 3.212
 
-> নিরপেক্ষ হঞা প্রভু শীঘ্র চলিলা ।
+> নিরপেক্ষ হঞা প্রভু শীঘ্র চলিলা ।\
 > কান্দিতে কান্দিতে আচার্য পশ্চাৎ চলিলা ॥২১২॥
 
-> nirapekṣa hañā prabhu śīghra calilā
+> nirapekṣa hañā prabhu śīghra calilā\
 > kāndite kāndite ācārya paścāt calilā
 
 *nirapekṣa*—indiferente; *hañā*—volviéndose; *prabhu*—el Señor; *śīghra*—muy rápidamente; *calilā*—partió; *kāndite kāndite*—llorando y llorando; *ācārya*—Advaita Ācārya; *paścāt*—detrás; *calilā*—fue.

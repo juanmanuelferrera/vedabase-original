@@ -1,9 +1,9 @@
 ### CC Madhya 22.102
 
-> শরণ লঞা করে কৃষ্ণে আত্মসমর্পণ ।
+> শরণ লঞা করে কৃষ্ণে আত্মসমর্পণ ।\
 > কৃষ্ণ তারে করে তৎকালে আত্মসম ॥১০২॥
 
-> śaraṇa lañā kare kṛṣṇe ātma-samarpaṇa
+> śaraṇa lañā kare kṛṣṇe ātma-samarpaṇa\
 > kṛṣṇa tāre kare tat-kāle ātma-sama
 
 *śaraṇa lañā*—tomando refugio; *kare*—hace; *kṛṣṇe*—a Kṛṣṇa; *ātma-samarpaṇa*—rendiéndose plenamente; *kṛṣṇa*—el Señor Kṛṣṇa; *tāre*—a él; *kare*—hace; *tat-kāle*—inmediatamente; *ātma-sama*—uno de Sus asociados confidenciales.

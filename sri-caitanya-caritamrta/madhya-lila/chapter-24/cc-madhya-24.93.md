@@ -1,9 +1,9 @@
 ### CC Madhya 24.93
 
-> অজাগলস্তন-ন্যায় অন্য সাধন ।
+> অজাগলস্তন-ন্যায় অন্য সাধন ।\
 > অতএব হরি ভজে বুদ্ধিমান্ জন ॥৯৩॥
 
-> ajā-gala-stana-nyāya anya sādhana
+> ajā-gala-stana-nyāya anya sādhana\
 > ataeva hari bhaje buddhimān jana
 
 *ajā-gala-stana-nyāya*—like the nipples on the neck of a goat; *anya*—other; *sādhana*—execution of spiritual life; *ataeva*—therefore; *hari*—the Supreme Personality of Godhead; *bhaje*—one worships; *buddhimān jana*—the intelligent person.

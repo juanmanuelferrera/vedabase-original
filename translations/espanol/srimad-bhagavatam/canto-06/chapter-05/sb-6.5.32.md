@@ -1,11 +1,11 @@
 ### SB 6.5.32
 
-> एतावदुक्त्वा प्रययौ नारदोऽमोघदर्शनः
+> एतावदुक्त्वा प्रययौ नारदोऽमोघदर्शनः\
 > तेऽपि चान्वगमन्मार्गं भ्रातॄणामेव मारिष ॥३२॥
 
-> etāvad uktvā prayayau
-> nārado 'mogha-darśanaḥ
-> te 'pi cānvagaman mārgaṁ
+> etāvad uktvā prayayau\
+> nārado 'mogha-darśanaḥ\
+> te 'pi cānvagaman mārgaṁ\
 > bhrātṝṇām eva māriṣa
 
 *etāvat*—solo esto; *uktvā*—hablar; *prayayau*—se fue del lugar; *nāradaḥ*—el gran sabio Nārada; *amogha-darśanaḥ*—cuya mirada es completamente auspiciosa; *te*—ellos; *api*—también; *ca*—y; *anvagaman*—siguieron; *mārgam*—el camino; *bhrātṝṇām*—de sus hermanos mayores; *eva*—en verdad; *māriṣa*—¡oh, gran rey *ārya*!.

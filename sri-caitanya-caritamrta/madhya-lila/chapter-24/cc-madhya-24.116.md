@@ -1,9 +1,9 @@
 ### CC Madhya 24.116
 
-> ব্যাসকৃপায় শুকদেবের লীলাদি-স্মরণ ।
+> ব্যাসকৃপায় শুকদেবের লীলাদি-স্মরণ ।\
 > কৃষ্ণগুণাকৃষ্ট হঞা করেন ভজন ॥১১৬॥
 
-> vyāsa-kṛpāya śukadevera līlādi-smaraṇa
+> vyāsa-kṛpāya śukadevera līlādi-smaraṇa\
 > kṛṣṇa-guṇākṛṣṭa hañā karena bhajana
 
 *vyāsa-kṛpāya*—by the mercy of Śrīla Vyāsadeva; *śukadevera*—of Śukadeva Gosvāmī; *līlā-ādi-smaraṇa*—remembrance of the transcendental pastimes of Kṛṣṇa; *kṛṣṇa guṇa-ākṛṣṭa*—attracted by the transcendental qualities of Kṛṣṇa; *hañā*—becoming; *karena*—performed; *bhajana*—loving service.

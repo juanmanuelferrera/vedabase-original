@@ -1,11 +1,11 @@
 ### SB 3.2.23
 
-> अहो बकी यं स्तनकालकूटं जिघांसयापाययदप्यसाध्वी ।
+> अहो बकी यं स्तनकालकूटं जिघांसयापाययदप्यसाध्वी ।\
 > लेभे गतिं धात्र्युचितां ततोऽन्यं कं वा दयालुं शरणं व्रजेम ॥२३॥
 
-> aho bakī yaṁ stana-kāla-kūṭaṁ
-> jighāṁsayāpāyayad apy asādhvī
-> lebhe gatiṁ dhātry-ucitāṁ tato 'nyaṁ
+> aho bakī yaṁ stana-kāla-kūṭaṁ\
+> jighāṁsayāpāyayad apy asādhvī\
+> lebhe gatiṁ dhātry-ucitāṁ tato 'nyaṁ\
 > kaṁ vā dayāluṁ śaraṇaṁ vrajema
 
 *aho*—¡ay de mí!; *bakī*—la bruja (Pūtanā); *yam*—a quien; *stana*—de su pecho; *kāla*—mortal; *kūṭam*—veneno; *jighāṁsayā*—por envidia; *apāyayat*—alimentó; *api*—a pesar de; *asādhvī*—infiel; *lebhe*—alcanzó; *gatim*—destino; *dhātrī-ucitām*—justamente idóneo para la nodriza; *tataḥ*—más allá de quien; *anyam*—otro; *kam*—quién más; *vā*—ciertamente; *dayālum*—misericordioso; *śaraṇam*—refugiarme; *vrajema*—tomaré.

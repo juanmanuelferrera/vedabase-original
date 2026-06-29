@@ -1,11 +1,11 @@
 ### SB 4.7.9
 
-> सन्धीयमाने शिरसि दक्षो रुद्राभिवीक्षितः ।
+> सन्धीयमाने शिरसि दक्षो रुद्राभिवीक्षितः ।\
 > सद्यः सुप्त इवोत्तस्थौ ददृशे चाग्रतो मृडम् ॥९॥
 
-> sandhīyamāne śirasi
-> dakṣo rudrābhivīkṣitaḥ
-> sadyaḥ supta ivottasthau
+> sandhīyamāne śirasi\
+> dakṣo rudrābhivīkṣitaḥ\
+> sadyaḥ supta ivottasthau\
 > dadṛśe cāgrato mṛḍam
 
 *sandhīyamāne*—siendo hecho; *śirasi*—con la cabeza; *dakṣaḥ*—el rey Dakṣa; *rudra-abhivīkṣitaḥ*—habiendo sido visto por Rudra (el Señor Śiva); *sadyaḥ*—tan pronto como; *supte*—durmiendo; *iva*—como; *uttasthau*—despertó; *dadṛśe*—vio; *ca*—también; *agrataḥ*—frente; *mṛḍam*—al Señor Śiva.

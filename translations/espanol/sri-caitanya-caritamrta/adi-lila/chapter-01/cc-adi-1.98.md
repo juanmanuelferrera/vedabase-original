@@ -1,9 +1,9 @@
 ### CC Adi 1.98
 
-> দুই ভাই হৃদয়ের ক্ষালি’ অন্ধকার ।
+> দুই ভাই হৃদয়ের ক্ষালি’ অন্ধকার ।\
 > দুই ভাগবত-সঙ্গে করান সাক্ষাৎকার ॥৯৮॥
 
-> dui bhāi hṛdayera kṣāli' andhakāra
+> dui bhāi hṛdayera kṣāli' andhakāra\
 > dui bhāgavata-saṅge karāna sākṣātkāra
 
 *dui*—dos; *bhāi*—hermanos; *hṛdayera*—del corazón; *kṣāli'*—purificando; *andhakāra*—la oscuridad; *dui bhāgavata*—de los dos bhāgavatas; *saṅge*—mediante la asociación; *karāna*—producen; *sākṣāt-kāra*—un encuentro.

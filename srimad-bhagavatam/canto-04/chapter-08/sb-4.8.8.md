@@ -1,11 +1,11 @@
 ### SB 4.8.8
 
-> जाये उत्तानपादस्य सुनीतिः सुरुचिस्तयोः ।
+> जाये उत्तानपादस्य सुनीतिः सुरुचिस्तयोः ।\
 > सुरुचिः प्रेयसी पत्युर्नेतरा यत्सुतो ध्रुवः ॥८॥
 
-> jāye uttānapādasya
-> sunītiḥ surucis tayoḥ
-> suruciḥ preyasī patyur
+> jāye uttānapādasya\
+> sunītiḥ surucis tayoḥ\
+> suruciḥ preyasī patyur\
 > netarā yat-suto dhruvaḥ
 
 *jāye*—of the two wives; *uttānapādasya*—of King Uttānapāda; *sunītiḥ*—Sunīti; *suruciḥ*—Suruci; *tayoḥ*—of both of them; *suruciḥ*—Suruci; *preyasī*—very dear; *patyuḥ*—of the husband; *na itarā*—not the other; *yat*—whose; *sutaḥ*—son; *dhruvaḥ*—Dhruva.

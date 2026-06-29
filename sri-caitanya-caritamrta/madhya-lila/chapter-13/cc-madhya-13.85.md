@@ -1,9 +1,9 @@
 ### CC Madhya 13.85
 
-> আছাড় খাঞা পড়ে ভূমে গড়ি’ যায় ।
+> আছাড় খাঞা পড়ে ভূমে গড়ি’ যায় ।\
 > সুবর্ণ-পর্বত যৈছে ভূমেতে লোটায় ॥৮৫॥
 
-> āchāḍa khāñā paḍe bhūme gaḍi' yāya
+> āchāḍa khāñā paḍe bhūme gaḍi' yāya\
 > suvarṇa-parvata yaiche bhūmete loṭāya
 
 *āchāḍa khāñā*—crashing; *paḍe*—falls; *bhūme*—on the ground; *gaḍi'*—rolling; *yāya*—goes; *suvarṇa-parvata*—a golden mountain; *yaiche*—as if; *bhūmete*—on the ground; *loṭāya*—rolls.

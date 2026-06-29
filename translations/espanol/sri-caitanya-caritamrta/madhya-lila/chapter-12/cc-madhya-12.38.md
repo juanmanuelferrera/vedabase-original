@@ -1,9 +1,9 @@
 ### CC Madhya 12.38
 
-> বস্ত্র পাঞা রাজার হৈল আনন্দিত মন ।
+> বস্ত্র পাঞা রাজার হৈল আনন্দিত মন ।\
 > প্রভুরূপ করি’ করে বস্ত্রের পূজন ॥৩৮॥
 
-> vastra pāñā rājāra haila ānandita mana
+> vastra pāñā rājāra haila ānandita mana\
 > prabhu-rūpa kari' kare vastrera pūjana
 
 *vastra pāñā*—al recibir esa tela; *rājāra*—del rey; *haila*—hubo; *ānandita mana*—mente muy complacida; *prabhu-rūpa kari'*—aceptándola como el propio Śrī Caitanya Mahāprabhu; *kare*—ejecuta; *vastrera*—de la tela; *pūjana*—adoración.

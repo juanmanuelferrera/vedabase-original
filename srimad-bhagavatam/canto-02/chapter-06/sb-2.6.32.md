@@ -1,11 +1,11 @@
 ### SB 2.6.32
 
-> सृजामि तन्नियुक्तोऽहं हरो हरति तद्वशः ।
+> सृजामि तन्नियुक्तोऽहं हरो हरति तद्वशः ।\
 > विश्वं पुरुषरूपेण परिपाति त्रिशक्तिधृक् ॥३२॥
 
-> sṛjāmi tan-niyukto 'haṁ
-> haro harati tad-vaśaḥ
-> viśvaṁ puruṣa-rūpeṇa
+> sṛjāmi tan-niyukto 'haṁ\
+> haro harati tad-vaśaḥ\
+> viśvaṁ puruṣa-rūpeṇa\
 > paripāti tri-śakti-dhṛk
 
 *sṛjāmi*—do create; *tat*—by His; *niyuktaḥ*—appointment; *aham*—I; *haraḥ*—Lord Śiva; *harati*—destroys; *tat-vaśaḥ*—under His subordination; *viśvam*—the whole universe; *puruṣa*—the Personality of Godhead; *rūpeṇa*—by His eternal form; *paripāti*—maintains; *tri-śakti-dhṛk*—the controller of three energies.

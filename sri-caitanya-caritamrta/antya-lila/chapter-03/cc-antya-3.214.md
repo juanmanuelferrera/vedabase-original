@@ -1,9 +1,9 @@
 ### CC Antya 3.214
 
-> বিপ্রের কুষ্ঠ শুনি’ হরিদাস মনে দুঃখী হৈলা ।
+> বিপ্রের কুষ্ঠ শুনি’ হরিদাস মনে দুঃখী হৈলা ।\
 > বলাই-পুরোহিতে কহি’ শান্তিপুর আইলা ॥২১৪॥
 
-> viprera kuṣṭha śuni' haridāsa mane duḥkhī hailā
+> viprera kuṣṭha śuni' haridāsa mane duḥkhī hailā\
 > balāi-purohite kahi' śāntipura āilā
 
 *viprera*—of the *brāhmaṇa*; *kuṣṭha*—leprosy; *śuni'*—hearing; *haridāsa*—Haridāsa Ṭhākura; *mane*—within the mind; *duḥkhī hailā*—became unhappy; *balāi-purohite*—unto Balarāma Ācārya; *kahi'*—speaking; *śāntipura āilā*—came to Śāntipura.

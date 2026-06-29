@@ -1,11 +1,11 @@
 ### SB 3.32.18
 
-> त्रैवर्गिकास्ते पुरुषा विमुखा हरिमेधसः ।
+> त्रैवर्गिकास्ते पुरुषा विमुखा हरिमेधसः ।\
 > कथायां कथनीयोरु विक्रमस्य मधुद्विषः ॥१८॥
 
-> trai-vargikās te puruṣā
-> vimukhā hari-medhasaḥ
-> kathāyāṁ kathanīyoru-
+> trai-vargikās te puruṣā\
+> vimukhā hari-medhasaḥ\
+> kathāyāṁ kathanīyoru-\
 > vikramasya madhudviṣaḥ
 
 *trai-vargikāḥ*—interesadas en los tres procesos de elevación; *te*—aquellas; *puruṣāḥ*—personas; *vimukhāḥ*—no interesadas; *hari-medhasaḥ*—del Señor Hari; *kathāyām*—en los pasatiempos; *kathanīya*—dignos de ser cantados; *uru-vikramasya*—cuya insuperable valía; *madhu-dviṣaḥ*—quien mató al demonio Madhu.

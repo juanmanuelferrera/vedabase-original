@@ -1,11 +1,11 @@
 ### Bg 2.36
 
-> अवाच्यवादांश्च बहून्वदिष्यन्ति तवाहिताः ।
+> अवाच्यवादांश्च बहून्वदिष्यन्ति तवाहिताः ।\
 > निन्दन्तस्तव सामर्थ्यं ततो दुःखतरं नु किम् ॥३६॥
 
-> avācya-vādāṁś ca bahūn
-> vadiṣyanti tavāhitāḥ
-> nindantas tava sāmarthyaṁ
+> avācya-vādāṁś ca bahūn\
+> vadiṣyanti tavāhitāḥ\
+> nindantas tava sāmarthyaṁ\
 > tato duḥkhataraṁ nu kim
 
 *avācya*—hirientes; *vādān*—palabras inventadas; *ca*—también; *bahūn*—muchas; *vadiṣyanti*—dirán; *tava*—tus; *ahitāḥ*—enemigos; *nindantaḥ*—mientras difaman; *tava*—tu; *sāmarthyam*—habilidad; *tathaḥ*—después; *duḥkhataram*—más doloroso; *nu*—por supuesto; *kim*—qué hay.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.110
 
-> সাধারণ-প্রেমে দেখি সর্বত্র ‘সমতা’ ৷
+> সাধারণ-প্রেমে দেখি সর্বত্র ‘সমতা’ ৷\
 > রাধার কুটিল-প্রেমে হইল ‘বামতা’ ৷৷ ১১০ ৷৷ ॥১১০॥
 
-> sādhāraṇa-preme dekhi sarvatra 'samatā'
+> sādhāraṇa-preme dekhi sarvatra 'samatā'\
 > rādhāra kuṭila-preme ha-ila 'vāmatā'
 
 *sādhāraṇa-preme*—en el amor general por Dios; *dekhi*—vemos; *sarvatra*—en todas partes; *samatā*—igualdad; *rādhāra*—de Śrīmatī Rādhārāṇī; *kuṭila-preme*—en el sinuoso amor por Dios; *ha-ila*—hubo; *vāmatā*—oposición.

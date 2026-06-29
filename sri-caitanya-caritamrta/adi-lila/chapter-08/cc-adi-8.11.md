@@ -1,9 +1,9 @@
 ### CC Adi 8.11
 
-> সন্ন্যাসি-বুদ্ধ্যে মোরে করিবে নমস্কার ।
+> সন্ন্যাসি-বুদ্ধ্যে মোরে করিবে নমস্কার ।\
 > তথাপি খণ্ডিবে দুঃখ, পাইবে নিস্তার ॥১১॥
 
-> sannyāsi-buddhye more karibe namaskāra
+> sannyāsi-buddhye more karibe namaskāra\
 > tathāpi khaṇḍibe duḥkha, pāibe nistāra
 
 *sannyāsi-buddhye*—by consideration of a *sannyāsī*; *more*—unto Me; *karibe*—they will; *namaskāra*—offer obeisances; *tathāpi*—therefore; *khaṇḍibe*—will diminish; *duḥkha*—distress; *pāibe*—will get; *nistāra*—liberation.

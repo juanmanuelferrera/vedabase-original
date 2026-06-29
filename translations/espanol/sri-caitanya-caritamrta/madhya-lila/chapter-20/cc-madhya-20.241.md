@@ -1,9 +1,9 @@
 ### CC Madhya 20.241
 
-> পুরীর আবরণরূপে পুরীর নবদেশে ।
+> পুরীর আবরণরূপে পুরীর নবদেশে ।\
 > নবব্যূহরূপে নবমূর্তি পরকাশে ॥২৪১॥
 
-> purīra āvaraṇa-rūpe purīra nava-deśe
+> purīra āvaraṇa-rūpe purīra nava-deśe\
 > nava-vyūha-rūpe nava-mūrti parakāśe
 
 *purīra*—de Dvārakā Purī; *āvaraṇa-rūpe*—como cobertura de los cuatro lados; *purīra nava-deśe*—en nueve partes diferentes de la ciudad; *nava-vyūha-rūpe*—en nueve Deidades; *nava-mūrti*—nueve formas; *parakāśe*—manifiesta.

@@ -1,11 +1,11 @@
 ### SB 1.2.22
 
-> अतो वै कवयो नित्यं भक्तिं परमया मुदा ।
+> अतो वै कवयो नित्यं भक्तिं परमया मुदा ।\
 > वासुदेवे भगवति कुर्वन्त्यात्मप्रसादनीम् ॥२२॥
 
-> ato vai kavayo nityaṁ
-> bhaktiṁ paramayā mudā
-> vāsudeve bhagavati
+> ato vai kavayo nityaṁ\
+> bhaktiṁ paramayā mudā\
+> vāsudeve bhagavati\
 > kurvanty ātma-prasādanīm
 
 *ataḥ*—therefore; *vai*—certainly; *kavayaḥ*—all transcendentalists; *nityam*—from time immemorial; *bhaktim*—service unto the Lord; *paramayā*—supreme; *mudā*—with great delight; *vāsudeve*—Śrī Kṛṣṇa; *bhagavati*—the Personality of Godhead; *kurvanti*—do render; *ātma*—self; *prasādanīm*—that which enlivens.

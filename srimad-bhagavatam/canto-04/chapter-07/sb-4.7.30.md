@@ -1,15 +1,15 @@
 ### SB 4.7.30
 
-> भृगुरुवाच
-> यन्मायया गहनयापहृतात्मबोधा
-> ब्रह्मादयस्तनुभृतस्तमसि स्वपन्तः ।
-> नात्मन्श्रितं तव विदन्त्यधुनापि तत्त्वं
+> भृगुरुवाच\
+> यन्मायया गहनयापहृतात्मबोधा\
+> ब्रह्मादयस्तनुभृतस्तमसि स्वपन्तः ।\
+> नात्मन्श्रितं तव विदन्त्यधुनापि तत्त्वं\
 > सोऽयं प्रसीदतु भवान्प्रणतात्मबन्धुः ॥३०॥
 
-> bhṛgur uvāca
-> yan māyayā gahanayāpahṛtātma-bodhā
-> brahmādayas tanu-bhṛtas tamasi svapantaḥ
-> nātman-śritaṁ tava vidanty adhunāpi tattvaṁ
+> bhṛgur uvāca\
+> yan māyayā gahanayāpahṛtātma-bodhā\
+> brahmādayas tanu-bhṛtas tamasi svapantaḥ\
+> nātman-śritaṁ tava vidanty adhunāpi tattvaṁ\
 > so 'yaṁ prasīdatu bhavān praṇatātma-bandhuḥ
 
 *bhṛguḥ uvāca*—Śrī Bhṛgu said; *yat*—who; *māyayā*—by illusory energy; *gahanayā*—insurmountable; *apahṛta*—stolen; *ātma-bodhāḥ*—knowledge of the constitutional position; *brahma-ādayaḥ*—Lord Brahmā, etc.; *tanu-bhṛtaḥ*—embodied living entities; *tamasi*—in the darkness of illusion; *svapantaḥ*—lying down; *na*—not; *ātman*—in the living entity; *śritam*—situated in; *tava*—Your; *vidanti*—understand; *adhunā*—now; *api*—certainly; *tattvam*—absolute position; *saḥ*—You; *ayam*—this; *prasīdatu*—be kind; *bhavān*—Your Lordship; *praṇata-ātma*—surrendered soul; *bandhuḥ*—friend.

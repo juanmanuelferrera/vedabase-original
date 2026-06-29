@@ -1,9 +1,9 @@
 ### CC Antya 1.73
 
-> প্রভুর নৃত্য-শ্লোক শুনি’ শ্রীরূপ-গোসাঞি ।
+> প্রভুর নৃত্য-শ্লোক শুনি’ শ্রীরূপ-গোসাঞি ।\
 > সেই শ্লোকার্থ লঞা শ্লোক করিলা তথাই ॥৭৩॥
 
-> prabhura nṛtya-śloka śuni' śrī-rūpa-gosāñi
+> prabhura nṛtya-śloka śuni' śrī-rūpa-gosāñi\
 > sei ślokārtha lañā śloka karilā tathāi
 
 *prabhura*—de Śrī Caitanya Mahāprabhu; *nṛtya-śloka*—verso recitado durante Su danza; *śuni'*—escuchando; *śrī-rūpa-gosāñi*—Śrīla Rūpa Gosvāmī; *sei śloka-artha*—el significado de aquel verso; *lañā*—tomando; *śloka karilā*—compuso otro verso; *tathāi*—en el acto.

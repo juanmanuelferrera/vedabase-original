@@ -1,11 +1,11 @@
 ### SB 9.1.9
 
-> तस्य नाभेः समभवत्पद्मकोषो हिरण्मयः
+> तस्य नाभेः समभवत्पद्मकोषो हिरण्मयः\
 > तस्मिन्जज्ञए महाराज स्वयम्भूश्चतुराननः ॥९॥
 
-> tasya nābheḥ samabhavat
-> padma-koṣo hiraṇmayaḥ
-> tasmiñ jajñe mahārāja
+> tasya nābheḥ samabhavat\
+> padma-koṣo hiraṇmayaḥ\
+> tasmiñ jajñe mahārāja\
 > svayambhūś catur-ānanaḥ
 
 *tasya*—of Him (the Supreme Personality of Godhead); *nābheḥ*—from the navel; *samabhavat*—generated; *padma-koṣaḥ*—a lotus; *hiraṇmayaḥ*—known as Hiraṇmaya, or golden; *tasmin*—on that golden lotus; *jajñe*—appeared; *mahārāja*—O King; *svayambhūḥ*—one who is self-manifested, who takes birth without a mother; *catuḥ-ānanaḥ*—with four heads.

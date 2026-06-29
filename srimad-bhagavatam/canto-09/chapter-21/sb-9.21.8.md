@@ -1,11 +1,11 @@
 ### SB 9.21.8
 
-> याते शूद्रे तमन्योऽगादतिथिः श्वभिरावृतः
+> याते शूद्रे तमन्योऽगादतिथिः श्वभिरावृतः\
 > राजन्मे दीयतामन्नं सगणाय बुभुक्षते ॥८॥
 
-> yāte śūdre tam anyo 'gād
-> atithiḥ śvabhir āvṛtaḥ
-> rājan me dīyatām annaṁ
+> yāte śūdre tam anyo 'gād\
+> atithiḥ śvabhir āvṛtaḥ\
+> rājan me dīyatām annaṁ\
 > sagaṇāya bubhukṣate
 
 *yāte*—when he went away; *śūdre*—the *śūdra* guest; *tam*—unto the King; *anyaḥ*—another; *agāt*—arrived there; *atithiḥ*—guest; *śvabhiḥ āvṛtaḥ*—accompanied by dogs; *rājan*—O King; *me*—unto me; *dīyatām*—deliver; *annam*—eatables; *sa-gaṇāya*—with my company of dogs; *bubhukṣate*—hankering for food.

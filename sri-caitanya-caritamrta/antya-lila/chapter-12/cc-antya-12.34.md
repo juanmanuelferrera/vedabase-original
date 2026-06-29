@@ -1,9 +1,9 @@
 ### CC Antya 12.34
 
-> শিবানন্দের ভাগিনা, — শ্রীকান্ত-সেন নাম  ।
+> শিবানন্দের ভাগিনা, — শ্রীকান্ত-সেন নাম  ।\
 > মামার অগোচরে কহে করি’ অভিমান ॥৩৪॥
 
-> śivānandera bhāginā,—śrīkānta-sena nāma
+> śivānandera bhāginā,—śrīkānta-sena nāma\
 > māmāra agocare kahe kari' abhimāna
 
 *śivānandera*—of Śivānanda Sena; *bhāginā*—the sister's son; *śrīkānta-sena nāma*—named Śrīkānta Sena; *māmāra*—of his maternal uncle; *agocare*—in the absence of; *kahe*—said; *kari' abhimāna*—with an offended state of mind.

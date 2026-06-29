@@ -1,9 +1,9 @@
 ### CC Madhya 1.79
 
-> রাজবেশ, হাতী, ঘোড়া, মনুষ্য গহন ।
+> রাজবেশ, হাতী, ঘোড়া, মনুষ্য গহন ।\
 > কাহাঁ গোপ-বেশ, কাহাঁ নির্জন বৃন্দাবন ॥৭৯॥
 
-> rāja-veśa, hātī, ghoḍā, manuṣya gahana
+> rāja-veśa, hātī, ghoḍā, manuṣya gahana\
 > kāhāṅ gopa-veśa, kāhāṅ nirjana vṛndāvana
 
 *rāja-veśa*—vestimenta real; *hātī*—elefantes; *ghoḍā*—caballos; *manuṣya*—hombres; *gahana*—multitudes; *kāhāṅ*—dónde; *gopa-veśa*—la vestimenta de un pastorcillo de vacas; *kāhāṅ*—dónde; *nirjana*—solitario; *vṛndāvana*—de nombre Vṛndāvana.

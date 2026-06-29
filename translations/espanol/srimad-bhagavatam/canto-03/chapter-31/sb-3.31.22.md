@@ -1,13 +1,13 @@
 ### SB 3.31.22
 
-> कपिल उवाच
-> एवं कृतमतिर्गर्भे दशमास्यः स्तुवन्नृषिः ।
+> कपिल उवाच\
+> एवं कृतमतिर्गर्भे दशमास्यः स्तुवन्नृषिः ।\
 > सद्यः क्षिपत्यवाचीनं प्रसूत्यै सूतिमारुतः ॥२२॥
 
-> kapila uvāca
-> evaṁ kṛta-matir garbhe
-> daśa-māsyaḥ stuvann ṛṣiḥ
-> sadyaḥ kṣipaty avācīnaṁ
+> kapila uvāca\
+> evaṁ kṛta-matir garbhe\
+> daśa-māsyaḥ stuvann ṛṣiḥ\
+> sadyaḥ kṣipaty avācīnaṁ\
 > prasūtyai sūti-mārutaḥ
 
 *kapilaḥ uvāca*—el Señor Kapila dijo; *evam*—de este modo; *kṛta-matiḥ*—desear; *garbhe*—en el vientre; *daśa-māsyaḥ*—de diez meses; *stuvan*—alabar; *ṛṣiḥ*—la entidad viviente; *sadyaḥ*—en ese preciso instante; *kṣipati*—empuja; *avācīnam*—vuelta hacia abajo; *prasūtyai*—para nacer; *sūti-mārutaḥ*—el viento del parto.

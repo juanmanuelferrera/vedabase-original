@@ -1,14 +1,14 @@
 ### SB 4.23.18
 
-> तं सर्वगुणविन्यासं जीवे मायामये न्यधात् ।
-> तं चानुशयमात्मस्थमसावनुशयी पुमान् ।
+> तं सर्वगुणविन्यासं जीवे मायामये न्यधात् ।\
+> तं चानुशयमात्मस्थमसावनुशयी पुमान् ।\
 > नानवैराग्यवीर्येण स्वरूपस्थोऽजहात्प्रभुः ॥१८॥
 
-> taṁ sarva-guṇa-vinyāsaṁ
-> jīve māyāmaye nyadhāt
-> taṁ cānuśayam ātma-stham
-> asāv anuśayī pumān
-> jñāna-vairāgya-vīryeṇa
+> taṁ sarva-guṇa-vinyāsaṁ\
+> jīve māyāmaye nyadhāt\
+> taṁ cānuśayam ātma-stham\
+> asāv anuśayī pumān\
+> jñāna-vairāgya-vīryeṇa\
 > svarūpa-stho 'jahāt prabhuḥ
 
 *tam*—unto Him; *sarva-guṇa-vinyāsam*—the reservoir of all qualities; *jīve*—unto the designations; *māyā-maye*—the reservoir of all potencies; *nyadhāt*—placed; *tam*—that; *ca*—also; *anuśayam*—designation; *ātma-stham*—situated in self-realization; *asau*—he; *anuśayī*—the living entity; *pumān*—the enjoyer; *jñāna*—knowledge; *vairāgya*—renunciation; *vīryeṇa*—by the prowess of; *svarūpa-sthaḥ*—being situated in one's constitutional position; *ajahāt*—returned home; *prabhuḥ*—the controller.

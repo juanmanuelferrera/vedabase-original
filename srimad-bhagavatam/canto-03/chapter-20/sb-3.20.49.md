@@ -1,11 +1,11 @@
 ### SB 3.20.49
 
-> स आत्मानं मन्यमानः कृतकृत्यमिवात्मभूः ।
+> स आत्मानं मन्यमानः कृतकृत्यमिवात्मभूः ।\
 > तदा मनून्ससर्जान्ते मनसा लोकभावनान् ॥४९॥
 
-> sa ātmānaṁ manyamānaḥ
-> kṛta-kṛtyam ivātmabhūḥ
-> tadā manūn sasarjānte
+> sa ātmānaṁ manyamānaḥ\
+> kṛta-kṛtyam ivātmabhūḥ\
+> tadā manūn sasarjānte\
 > manasā loka-bhāvanān
 
 *saḥ*—Lord Brahmā; *ātmānam*—himself; *manyamānaḥ*—considering; *kṛta-kṛtyam*—had accomplished the object of life; *iva*—as if; *ātmabhūḥ*—born from the Supreme; *tadā*—then; *manūn*—the Manus; *sasarja*—created; *ante*—at the end; *manasā*—from his mind; *loka*—of the world; *bhāvanān*—promoting the welfare.

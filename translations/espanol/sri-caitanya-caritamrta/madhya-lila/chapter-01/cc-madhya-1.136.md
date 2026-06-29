@@ -1,9 +1,9 @@
 ### CC Madhya 1.136
 
-> প্রত্যব্দ আসিবে রথযাত্রা-দরশনে ।
+> প্রত্যব্দ আসিবে রথযাত্রা-দরশনে ।\
 > এই ছলে চাহে ভক্তগণের মিলনে ॥১৩৬॥
 
-> pratyabda āsibe ratha-yātrā-daraśane
+> pratyabda āsibe ratha-yātrā-daraśane\
 > ei chale cāhe bhakta-gaṇera milane
 
 *prati-abda*—cada año; *āsibe*—debéis venir todos; *ratha-yātrā*—el festival de las carrozas; *daraśane*—para ver; *ei chale*—con este pretexto; *cāhe*—desea; *bhakta-gaṇera*—de todos los devotos; *milane*—el encuentro.

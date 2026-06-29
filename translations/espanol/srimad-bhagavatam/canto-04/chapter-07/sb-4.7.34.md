@@ -1,13 +1,13 @@
 ### SB 4.7.34
 
-> ऋषय ऊचुः
-> अनन्वितं ते भगवन्विचेष्टितं यदात्मना चरसि हि कर्म नाज्यसे ।
+> ऋषय ऊचुः\
+> अनन्वितं ते भगवन्विचेष्टितं यदात्मना चरसि हि कर्म नाज्यसे ।\
 > विभूतये यत उपसेदुरीश्वरीं न मन्यते स्वयमनुवर्ततीं भवान् ॥३४॥
 
-> ṛṣaya ūcuḥ
-> ananvitaṁ te bhagavan viceṣṭitaṁ
-> yad ātmanā carasi hi karma nājyase
-> vibhūtaye yata upasedur īśvarīṁ
+> ṛṣaya ūcuḥ\
+> ananvitaṁ te bhagavan viceṣṭitaṁ\
+> yad ātmanā carasi hi karma nājyase\
+> vibhūtaye yata upasedur īśvarīṁ\
 > na manyate svayam anuvartatīṁ bhavān
 
 *ṛṣayaḥ*—los sabios; *ūcuḥ*—oraron; *ananvitam*—maravillosas; *te*—Tus; *bhagavan*—¡oh, poseedor de toda opulencia!; *viceṣṭitam*—actividades; *yat*—las cuales; *ātmanā*—por Tus potencias; *carasi*—Tú llevas a cabo; *hi*—ciertamente; *karma*—a esas actividades; *na ajyase*—no estás apegado; *vibhūtaye*—por su misericordia; *yataḥ*—de quien; *upaseduḥ*—adorada; *īśvarīm*—Lakṣmī, la diosa de la fortuna; *na manyate*—no estás apegado; *svayam*—Tú mismo; *anuvartatīm*—a Tu obediente sirvienta (Lakṣmī); *bhavān*—Tu Señoría.

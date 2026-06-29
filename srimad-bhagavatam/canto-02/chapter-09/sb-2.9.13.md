@@ -1,11 +1,11 @@
 ### SB 2.9.13
 
-> भ्राजिष्णुभिर्यः परितो विराजते लसद्विमानावलिभिर्महात्मनाम् ।
+> भ्राजिष्णुभिर्यः परितो विराजते लसद्विमानावलिभिर्महात्मनाम् ।\
 > विद्योतमानः प्रमदोत्तमाद्युभिः सविद्युदभ्रावलिभिर्यथा नभः ॥१३॥
 
-> bhrājiṣṇubhir yaḥ parito virājate
-> lasad-vimānāvalibhir mahātmanām
-> vidyotamānaḥ pramadottamādyubhiḥ
+> bhrājiṣṇubhir yaḥ parito virājate\
+> lasad-vimānāvalibhir mahātmanām\
+> vidyotamānaḥ pramadottamādyubhiḥ\
 > savidyud abhrāvalibhir yathā nabhaḥ
 
 *bhrājiṣṇubhiḥ*—by the glowing; *yaḥ*—the Vaikuṇṭhalokas; *paritaḥ*—surrounded by; *virājate*—thus situated; *lasat*—brilliant; *vimāna*—airplanes; *avalibhiḥ*—assemblage; *mahā-ātmanām*—of the great devotees of the Lord; *vidyotamānaḥ*—beautiful like lightning; *pramada*—ladies; *uttama*—celestial; *adyubhiḥ*—by complexion; *sa-vidyut*—with electric lightning; *abhrāvalibhiḥ*—with clouds in the sky; *yathā*—as it were; *nabhaḥ*—the sky.

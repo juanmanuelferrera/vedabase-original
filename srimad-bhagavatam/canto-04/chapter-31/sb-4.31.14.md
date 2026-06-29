@@ -1,11 +1,11 @@
 ### SB 4.31.14
 
-> यथा तरोर्मूलनिषेचनेन तृप्यन्ति तत्स्कन्धभुजोपशाखाः ।
+> यथा तरोर्मूलनिषेचनेन तृप्यन्ति तत्स्कन्धभुजोपशाखाः ।\
 > प्राणोपहाराच्च यथेन्द्रियाणां तथैव सर्वार्हणमच्युतेज्या ॥१४॥
 
-> yathā taror mūla-niṣecanena
-> tṛpyanti tat-skandha-bhujopaśākhāḥ
-> prāṇopahārāc ca yathendriyāṇāṁ
+> yathā taror mūla-niṣecanena\
+> tṛpyanti tat-skandha-bhujopaśākhāḥ\
+> prāṇopahārāc ca yathendriyāṇāṁ\
 > tathaiva sarvārhaṇam acyutejyā
 
 *yathā*—as; *taroḥ*—of a tree; *mūla*—the root; *niṣecanena*—by watering; *tṛpyanti*—are satisfied; *tat*—its; *skandha*—trunk; *bhuja*—branches; *upaśākhāḥ*—and twigs; *prāṇa*—the life air; *upahārāt*—by feeding; *ca*—and; *yathā*—as; *indriyāṇām*—of the senses; *tathā eva*—similarly; *sarva*—of all demigods; *arhaṇam*—worship; *acyuta*—of the Supreme Personality of Godhead; *ijyā*—worship.

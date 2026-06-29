@@ -1,32 +1,32 @@
 ### SB 2.10.37-40
 
-> प्रजापतीन्मनून्देवानृषीन्पितृगणान्पृथक् ।
-> सिद्धचारणगन्धर्वान्विद्याध्रासुरगुह्यकान् ॥३७॥
-> किन्नराप्सरसो नागान्सर्पान्किम्पुरुषान्नरान् ।
-> मात्रक्षःपिशाचांश्च प्रेतभूतविनायकान् ॥३८॥
-> कूष्माण्डोन्मादवेतालान्यातुधानान्ग्रहानपि ।
-> खगान्मृगान्पशून्वृक्षान्गिरीन्नृप सरीसृपान् ॥३९॥
-> द्विविधाश्चतुर्विधा येऽन्ये जलस्थलनभौकसः ।
+> प्रजापतीन्मनून्देवानृषीन्पितृगणान्पृथक् ।\
+> सिद्धचारणगन्धर्वान्विद्याध्रासुरगुह्यकान् ॥३७॥\
+> किन्नराप्सरसो नागान्सर्पान्किम्पुरुषान्नरान् ।\
+> मात्रक्षःपिशाचांश्च प्रेतभूतविनायकान् ॥३८॥\
+> कूष्माण्डोन्मादवेतालान्यातुधानान्ग्रहानपि ।\
+> खगान्मृगान्पशून्वृक्षान्गिरीन्नृप सरीसृपान् ॥३९॥\
+> द्विविधाश्चतुर्विधा येऽन्ये जलस्थलनभौकसः ।\
 > कुशलाकुशला मिश्राः कर्मणां गतयस्त्विमाः ॥४०॥
 
-> prajā-patīn manūn devān
-> ṛṣīn pitṛ-gaṇān pṛthak
-> siddha-cāraṇa-gandharvān
+> prajā-patīn manūn devān\
+> ṛṣīn pitṛ-gaṇān pṛthak\
+> siddha-cāraṇa-gandharvān\
 > vidyādhrāsura-guhyakān
 
-> kinnarāpsaraso nāgān
-> sarpān kimpuruṣān narān
-> mātṝ rakṣaḥ-piśācāṁś ca
+> kinnarāpsaraso nāgān\
+> sarpān kimpuruṣān narān\
+> mātṝ rakṣaḥ-piśācāṁś ca\
 > preta-bhūta-vināyakān
 
-> kūṣmāṇḍonmāda-vetālān
-> yātudhānān grahān api
-> khagān mṛgān paśūn vṛkṣān
+> kūṣmāṇḍonmāda-vetālān\
+> yātudhānān grahān api\
+> khagān mṛgān paśūn vṛkṣān\
 > girīn nṛpa sarīsṛpān
 
-> dvi-vidhāś catur-vidhā ye 'nye
-> jala-sthala-nabhaukasaḥ
-> kuśalākuśalā miśrāḥ
+> dvi-vidhāś catur-vidhā ye 'nye\
+> jala-sthala-nabhaukasaḥ\
+> kuśalākuśalā miśrāḥ\
 > karmaṇāṁ gatayas tv imāḥ
 
 *prajā-patīn*—Brahmā and his sons like Dakṣa and others; *manūn*—the periodical heads like Vaivasvata Manu; *devān*—like Indra, Candra and Varuṇa; *ṛṣīn*—like Bhṛgu and Vasiṣṭha; *pitṛ-gaṇān*—the inhabitants of the Pitā planets; *pṛthak*—separately; *siddha*—the inhabitants of the Siddha planet; *cāraṇa*—the inhabitants of the Cāraṇa planet; *gandharvān*—the inhabitants of the Gandharva planets; *vidyādhra*—the inhabitants of the Vidyādhara planet; *asura*—the atheists; *guhyakān*—the inhabitants of the Yakṣa planet; *kinnara*—the inhabitants of the Kinnara planet; *apsarasaḥ*—the beautiful angels of the Apsarā planet; *nāgān*—the serpentine inhabitants of Nāgaloka; *sarpān*—the inhabitants of Sarpaloka (snakes); *kimpuruṣān*—the monkey-shaped inhabitants of the Kimpuruṣa planet; *narān*—the inhabitants of earth; *mātṛ*—the inhabitants of Mātṛloka; *rakṣaḥ*—the inhabitants of the demoniac planet; *piśācān*—the inhabitants of Piśācaloka; *ca*—also; *preta*—the inhabitants of Pretaloka; *bhūta*—the evil spirits; *vināyakān*—the goblins; *kūṣmāṇḍa*—will-o'-the-wisp; *unmāda*—lunatics; *vetālān*—the jinn; *yātudhānān*—a particular type of evil spirit; *grahān*—the good and evil stars; *api*—also; *khagān*—the birds; *mṛgān*—the forest animals; *paśūn*—the household animals; *vṛkṣān*—the ghosts; *girīn*—the mountains; *nṛpa*—O King; *sarīsṛpān*—reptiles; *dvi-vidhāḥ*—the moving and the standing living entities; *catuḥ-vidhāḥ*—living entities born from embryos, eggs, perspiration and seeds; *ye*—others; *anye*—all; *jala*—water; *sthala*—land; *nabha-okasaḥ*—birds; *kuśala*—in happiness; *akuśalāḥ*—in distress; *miśrāḥ*—in mixed happiness and distress; *karmaṇām*—according to one's own past deeds; *gatayaḥ*—as result of; *tu*—but; *imāḥ*—all of them.

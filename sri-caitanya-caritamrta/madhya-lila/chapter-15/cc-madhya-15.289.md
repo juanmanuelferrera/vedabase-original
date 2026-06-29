@@ -1,9 +1,9 @@
 ### CC Madhya 15.289
 
-> তাবৎ রহিব আমি এথায় বসিয়া ।
+> তাবৎ রহিব আমি এথায় বসিয়া ।\
 > যাবৎ না খাইবে তুমি প্রসাদ আসিয়া ॥২৮৯॥
 
-> tāvat rahiba āmi ethāya vasiyā
+> tāvat rahiba āmi ethāya vasiyā\
 > yāvat nā khāibe tumi prasāda āsiyā
 
 *tāvat*—as long as; *rahiba*—shall stay; *āmi*—I; *ethāya*—here; *vasiyā*—sitting; *yāvat*—as long as; *nā khāibe*—will not eat; *tumi*—you; *prasāda*—remnants of the food of Jagannātha; *āsiyā*—coming here.

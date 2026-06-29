@@ -1,13 +1,13 @@
 ### CC Antya 15.78
 
-> হরিণ্মণিকবাটিকাপ্রততহারিবক্ষঃস্থলঃ
-> স্মরার্ততরুণীমনঃকলুষহারিদোরর্গলঃ ।
-> সুধাংশুহরিচন্দনোৎপলসিতাভ্রশীতাঙ্গকঃ
+> হরিণ্মণিকবাটিকাপ্রততহারিবক্ষঃস্থলঃ\
+> স্মরার্ততরুণীমনঃকলুষহারিদোরর্গলঃ ।\
+> সুধাংশুহরিচন্দনোৎপলসিতাভ্রশীতাঙ্গকঃ\
 > স মে মদনমোদনঃ সখি তনোতি বক্ষঃস্পৃহাম্ ॥৭৮॥
 
-> harinmaṇi-kavāṭikā-pratata-hāri-vakṣaḥ-sthalaḥ
-> smarārta-taruṇī-manaḥ-kaluṣa-hāri-dor-argalaḥ
-> sudhāṁśu-hari-candanotpala-sitābhra-śītāṅgakaḥ
+> harinmaṇi-kavāṭikā-pratata-hāri-vakṣaḥ-sthalaḥ\
+> smarārta-taruṇī-manaḥ-kaluṣa-hāri-dor-argalaḥ\
+> sudhāṁśu-hari-candanotpala-sitābhra-śītāṅgakaḥ\
 > sa me madana-mohanaḥ sakhi tanoti vakṣaḥ-spṛhām
 
 *harit-maṇi*—of *indranīla* gems; *kavāṭikā*—like a door; *pratata*—broad; *hāri*—attractive; *vakṣaḥ-sthalaḥ*—whose chest; *smara-ārta*—distressed by remembering; *taruṇī*—of young women; *manaḥ*—of the mind; *kaluṣa*—the pain; *hāri*—taking away; *doḥ*—whose two arms; *argalaḥ*—like bolts; *sudhāṁśu*—the moon; *hari-candana*—sandalwood; *utpala*—lotus flower; *sitābhra*—camphor; *śīta*—cool; *aṅgakaḥ*—whose body; *saḥ*—that; *me*—My; *madana-mohanaḥ*—Kṛṣṇa, who is more attractive than Cupid; *sakhi*—My friend; *tanoti*—expands; *vakṣaḥ-spṛhām*—the desire of the breasts.

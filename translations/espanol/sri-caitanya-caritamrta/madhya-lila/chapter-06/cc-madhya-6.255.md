@@ -1,15 +1,15 @@
 ### CC Madhya 6.255
 
-> কালান্নষ্টং ভক্তিযোগং নিজং যঃ
-> প্ৰাদুষ্কর্তুং কৃষ্ণচৈতন্যনামা ।
-> আবির্ভূতস্তস্য পাদারবিন্দে
-> গাঢ়ং গাঢ়ং লীয়তাং চিত্তভৃঙ্গঃ
-> যদা যদা হি ধর্মস্য গ্লানির্ভবতি ভারত ।
+> কালান্নষ্টং ভক্তিযোগং নিজং যঃ\
+> প্ৰাদুষ্কর্তুং কৃষ্ণচৈতন্যনামা ।\
+> আবির্ভূতস্তস্য পাদারবিন্দে\
+> গাঢ়ং গাঢ়ং লীয়তাং চিত্তভৃঙ্গঃ\
+> যদা যদা হি ধর্মস্য গ্লানির্ভবতি ভারত ।\
 > অভ্যুত্থানমধর্মস্য তদাত্মানং সৃজাম্যহম্ ।। ॥২৫৫॥
 
-> kālān naṣṭaṁ bhakti-yogaṁ nijaṁ yaḥ
-> prāduṣkartuṁ kṛṣṇa-caitanya-nāmā
-> āvirbhūtas tasya pādāravinde
+> kālān naṣṭaṁ bhakti-yogaṁ nijaṁ yaḥ\
+> prāduṣkartuṁ kṛṣṇa-caitanya-nāmā\
+> āvirbhūtas tasya pādāravinde\
 > gāḍhaṁ gāḍhaṁ līyatāṁ citta-bhṛṅgaḥ
 
 *kālāt*—por el mal uso de las tendencias materiales y el apego a las actividades fruitivas y al conocimiento especulativo a lo largo del tiempo; *naṣṭam*—destruido; *bhakti-yogam*—la ciencia del servicio devocional; *nijam*—que solo a Él Le compete; *yaḥ*—aquel que; *prāduṣkartum*—para revivir; *kṛṣṇa-caitanya-nāmā*—llamado Señor Śrī Kṛṣṇa Caitanya Mahāprabhu; *āvirbhūtaḥ*—quien ha aparecido; *tasya*—Sus; *pāda-aravinde*—en los pies de loto; *gāḍham gāḍham*—muy profundamente; *līyatām*—que se sumerja; *citta-bhṛṅgaḥ*—mi conciencia, como una abeja.

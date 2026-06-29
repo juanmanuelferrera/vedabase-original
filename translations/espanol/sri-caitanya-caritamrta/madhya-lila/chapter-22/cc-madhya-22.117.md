@@ -1,9 +1,9 @@
 ### CC Madhya 22.117
 
-> ধাত্র্যশ্বত্থগোবিপ্র-বৈষ্ণব-পূজন ।
+> ধাত্র্যশ্বত্থগোবিপ্র-বৈষ্ণব-পূজন ।\
 > সেবা-নামাপরাধাদি দূরে বিসর্জন ॥১১৭॥
 
-> dhātry-aśvattha-go-vipra-vaiṣṇava-pūjana
+> dhātry-aśvattha-go-vipra-vaiṣṇava-pūjana\
 > sevā-nāmāparādhādi dūre visarjana
 
 *dhātrī*—un tipo de árbol; *aśvattha*—los árboles de higuera de Bengala; *go*—las vacas; *vipra*—los *brāhmaṇas*; *vaiṣṇava*—los devotos del Señor Viṣṇu; *pūjana*—adorar; *sevā*—en el servicio devocional; *nāma*—en el canto del santo nombre; *aparādha-ādi*—las ofensas; *dūre*—lejos; *visarjana*—abandonar.

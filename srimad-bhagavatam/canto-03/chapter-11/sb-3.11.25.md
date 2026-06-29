@@ -1,11 +1,11 @@
 ### SB 3.11.25
 
-> मन्वन्तरेषु मनवस्तद्वंश्या ऋषयः सुराः ।
+> मन्वन्तरेषु मनवस्तद्वंश्या ऋषयः सुराः ।\
 > भवन्ति चैव युगपत्सुरेशाश्चानु ये च तान् ॥२५॥
 
-> manvantareṣu manavas
-> tad-vaṁśyā ṛṣayaḥ surāḥ
-> bhavanti caiva yugapat
+> manvantareṣu manavas\
+> tad-vaṁśyā ṛṣayaḥ surāḥ\
+> bhavanti caiva yugapat\
 > sureśāś cānu ye ca tān
 
 *manu-antareṣu*—after the dissolution of each and every Manu; *manavaḥ*—other Manus; *tat-vaṁśyāḥ*—and their descendants; *ṛṣayaḥ*—the seven famous sages; *surāḥ*—devotees of the Lord; *bhavanti*—flourish; *ca eva*—also all of them; *yugapat*—simultaneously; *sura-īśāḥ*—demigods like Indra; *ca*—and; *anu*—followers; *ye*—all; *ca*—also; *tān*—them.

@@ -1,13 +1,13 @@
 ### SB 6.3.11
 
-> श्रीबादरायणिरुवाच
-> इति देवः स आपृष्टः प्रजासंयमनो यमः
+> श्रीबादरायणिरुवाच\
+> इति देवः स आपृष्टः प्रजासंयमनो यमः\
 > प्रीतः स्वदूतान्प्रत्याह स्मरन्पादाम्बुजं हरेः ॥११॥
 
-> śrī-bādarāyaṇir uvāca
-> iti devaḥ sa āpṛṣṭaḥ
-> prajā-saṁyamano yamaḥ
-> prītaḥ sva-dūtān pratyāha
+> śrī-bādarāyaṇir uvāca\
+> iti devaḥ sa āpṛṣṭaḥ\
+> prajā-saṁyamano yamaḥ\
+> prītaḥ sva-dūtān pratyāha\
 > smaran pādāmbujaṁ hareḥ
 
 *śrī-bādarāyaṇiḥ uvāca*—Śukadeva Gosvāmī dijo; *iti*—así; *devaḥ*—el semidiós; *saḥ*—él; *āpṛṣṭaḥ*—ser preguntado; *prajā-saṁyamanaḥ yamaḥ*—el Señor Yamarāja, que controla a las entidades vivientes; *prītaḥ*—estar complacido; *sva-dūtān*—a sus propios sirvientes; *pratyāha*—contestó; *smaran*—recordando; *pāda-ambujam*—los pies de loto; *hareḥ*—de Hari, la Personalidad de Dios.

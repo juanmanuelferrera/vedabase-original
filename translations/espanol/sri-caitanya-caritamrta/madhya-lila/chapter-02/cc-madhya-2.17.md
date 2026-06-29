@@ -1,9 +1,9 @@
 ### CC Madhya 2.17
 
-> এইমত বিলাপ করে বিহ্বল অন্তর ।
+> এইমত বিলাপ করে বিহ্বল অন্তর ।\
 > রায়ের নাটক-শ্লোক পড়ে নিরন্তর ॥১৭॥
 
-> ei-mata vilāpa kare vihvala antara
+> ei-mata vilāpa kare vihvala antara\
 > rāyera nāṭaka-śloka paḍe nirantara
 
 *ei-mata*—de esta manera; *vilāpa*—lamentación; *kare*—hace; *vihvala*—perturbado; *antara*—por dentro; *rāyera*—de Śrī Rāmānanda Rāya; *nāṭaka*—drama; *śloka*—versos; *paḍe*—recita; *nirantara*—constantemente.

@@ -1,9 +1,9 @@
 ### CC Antya 15.47
 
-> রাধা-অঙ্গ-সঙ্গে কুচকুঙ্কুম-ভূষিত ।
+> রাধা-অঙ্গ-সঙ্গে কুচকুঙ্কুম-ভূষিত ।\
 > কৃষ্ণ-কুন্দমালা-গন্ধে বায়ু — সুবাসিত ॥৪৭॥
 
-> rādhā-aṅga-saṅge kuca-kuṅkuma-bhūṣita
+> rādhā-aṅga-saṅge kuca-kuṅkuma-bhūṣita\
 > kṛṣṇa-kunda-mālā-gandhe vāyu--suvāsita
 
 *rādhā-aṅga*—el cuerpo de Śrīmatī Rādhārāṇī; *saṅge*—al abrazar; *kuca-kuṅkuma*—con el kuṅkuma de los pechos; *bhūṣita*—decorada; *kṛṣṇa*—del Señor Kṛṣṇa; *kunda-mālā*—de la guirnalda de flores kunda; *gandhe*—por la fragancia; *vāyu*—el aire; *su-vāsita*—aromático.

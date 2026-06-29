@@ -1,11 +1,11 @@
 ### CC Antya 4.59
 
-> ন সাধয়তি মাং যোগো ন সাংখ্যং ধর্ম উদ্ধব ।
+> ন সাধয়তি মাং যোগো ন সাংখ্যং ধর্ম উদ্ধব ।\
 > ন স্বাধ্যায়স্তপস্ত্যাগো যথা ভক্তির্মমোর্জিতা ॥৫৯॥
 
-> na sādhayati māṁ yogo
-> na sāṅkhyaṁ dharma uddhava
-> na svādhyāyas tapas tyāgo
+> na sādhayati māṁ yogo\
+> na sāṅkhyaṁ dharma uddhava\
+> na svādhyāyas tapas tyāgo\
 > yathā bhaktir mamorjitā
 
 *na*—nunca; *sādhayati*—hace que permanezca satisfecho; *mām*—a Mí; *yogaḥ*—el proceso de control; *na*—ni; *sāṅkhyam*—el proceso de obtener conocimiento filosófico acerca de la Verdad Absoluta; *dharmaḥ*—tal ocupación; *uddhava*—Mi querido Uddhava; *na*—ni; *svādhyāyaḥ*—estudio de los *Vedas*; *tapaḥ*—austeridades; *tyāgaḥ*—renunciación, aceptación de *sannyāsa* o caridad; *yathā*—tanto como; *bhaktiḥ*—servicio devocional; *mama*—hacia Mí; *ūrjitā*—desarrollado.

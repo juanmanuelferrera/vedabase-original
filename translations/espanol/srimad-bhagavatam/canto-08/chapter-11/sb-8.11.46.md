@@ -1,11 +1,11 @@
 ### SB 8.11.46
 
-> येऽवशिष्टा रणे तस्मिन्नारदानुमतेन ते
+> येऽवशिष्टा रणे तस्मिन्नारदानुमतेन ते\
 > बलिं विपन्नमादाय अस्तं गिरिमुपागमन ॥४६॥
 
-> ye 'vaśiṣṭā raṇe tasmin
-> nāradānumatena te
-> baliṁ vipannam ādāya
+> ye 'vaśiṣṭā raṇe tasmin\
+> nāradānumatena te\
+> baliṁ vipannam ādāya\
 > astaṁ girim upāgaman
 
 *ye*—algunos de los demonios que; *avaśiṣṭāḥ*—quedaron; *raṇe*—tras la lucha; *tasmin*—en esa; *nārada-anumatena*—por la orden de Nārada; *te*—todos ellos; *balim*—a Mahārāja Bali; *vipannam*—muy maltrecho; *ādāya*—llevar; *astam*—llamada Asta; *girim*—a la montaña; *upāgaman*—fueron.

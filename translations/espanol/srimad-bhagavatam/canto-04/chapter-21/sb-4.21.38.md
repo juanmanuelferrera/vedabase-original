@@ -1,11 +1,11 @@
 ### SB 4.21.38
 
-> ब्रह्मण्यदेवः पुरुषः पुरातनो नित्यं हरिर्यच्चरणाभिवन्दनात् ।
+> ब्रह्मण्यदेवः पुरुषः पुरातनो नित्यं हरिर्यच्चरणाभिवन्दनात् ।\
 > अवाप लक्ष्मीमनपायिनीं यशो जगत्पवित्रं च महत्तमाग्रणीः ॥३८॥
 
-> brahmaṇya-devaḥ puruṣaḥ purātano
-> nityaṁ harir yac-caraṇābhivandanāt
-> avāpa lakṣmīm anapāyinīṁ yaśo
+> brahmaṇya-devaḥ puruṣaḥ purātano\
+> nityaṁ harir yac-caraṇābhivandanāt\
+> avāpa lakṣmīm anapāyinīṁ yaśo\
 > jagat-pavitraṁ ca mahattamāgraṇīḥ
 
 *brahmaṇya-devaḥ*—el Señor de la cultura brahmínica; *puruṣaḥ*—la Personalidad Suprema; *purātanaḥ*—el más antiguo; *nityam*—eterno; *hariḥ*—la Personalidad de Dios; *yat*—cuyos; *caraṇa*—pies de loto; *abhivandanāt*—mediante la adoración; *avāpa*—obtuvo; *lakṣmīm*—opulencias; *anapāyinīm*—perpetuamente; *yaśaḥ*—reputación; *jagat*—universal; *pavitram*—purificado; *ca*—también; *mahat*—gran; *tama*—supremo; *agraṇīḥ*—principal.

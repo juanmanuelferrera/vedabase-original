@@ -1,9 +1,9 @@
 ### CC Madhya 20.343
 
-> আর তিনযুগে ধ্যানাদিতে যেই ফল হয় ।
+> আর তিনযুগে ধ্যানাদিতে যেই ফল হয় ।\
 > কলিযুগে কৃষ্ণনামে সেই ফল পায় ॥৩৪৩॥
 
-> āra tina-yuge dhyānādite yei phala haya
+> āra tina-yuge dhyānādite yei phala haya\
 > kali-yuge kṛṣṇa-nāme sei phala pāya
 
 *āra tina-yuge*—in the three other yugas; *dhyāna-ādite*—by processes beginning with meditation; *yei*—whatever; *phala*—result; *haya*—there is; *kali-yuge*—in this Age of Kali; *kṛṣṇa-nāme*—by chanting the Hare Kṛṣṇa mahā-mantra; *sei phala pāya*—one gets the same achievement.

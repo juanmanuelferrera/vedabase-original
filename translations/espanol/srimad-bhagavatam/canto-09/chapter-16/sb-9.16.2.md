@@ -1,11 +1,11 @@
 ### SB 9.16.2
 
-> कदाचिद्रेणुका याता गङ्गायां पद्ममालिनम
+> कदाचिद्रेणुका याता गङ्गायां पद्ममालिनम\
 > गन्धर्वराजं क्रीडन्तमप्सरोभिरपश्यत ॥२॥
 
-> kadācid reṇukā yātā
-> gaṅgāyāṁ padma-mālinam
-> gandharva-rājaṁ krīḍantam
+> kadācid reṇukā yātā\
+> gaṅgāyāṁ padma-mālinam\
+> gandharva-rājaṁ krīḍantam\
 > apsarobhir apaśyata
 
 *kadācit*—en cierta ocasión; *reṇukā*—la esposa de Jamadagni y madre del Señor Paraśurāma; *yātā*—fue; *gaṅgāyām*—a la orilla del río Ganges; *padma-mālinam*—adornado con un collar de flores de loto; *gandharva-rājam*—al rey de los *gandharvas*; *krīḍantam*—jugando; *apsarobhiḥ*—con las *apsarās* (jóvenes cortesanas celestiales); *apaśyata*—ella vio.

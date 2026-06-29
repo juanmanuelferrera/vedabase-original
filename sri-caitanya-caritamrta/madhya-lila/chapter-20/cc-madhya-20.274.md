@@ -1,11 +1,11 @@
 ### CC Madhya 20.274
 
-> দৈবাৎ ক্ষুভিতধর্মিণ্যাং স্বস্যাং যোনৌ পরঃ পুমান্ ।
+> দৈবাৎ ক্ষুভিতধর্মিণ্যাং স্বস্যাং যোনৌ পরঃ পুমান্ ।\
 > আধত্ত বীর্যং সাহসূত মঽত্তত্ত্বং হিরণ্ময়ম্ ॥২৭৪॥
 
-> daivāt kṣubhita-dharmiṇyāṁ
-> svasyāṁ yonau paraḥ pumān
-> ādhatta vīryaṁ sā 'sūta
+> daivāt kṣubhita-dharmiṇyāṁ\
+> svasyāṁ yonau paraḥ pumān\
+> ādhatta vīryaṁ sā 'sūta\
 > mahat-tattvaṁ hiraṇmayam
 
 *daivāt*—from time immemorial; *kṣubhita-dharmiṇyām*—the material nature, which is subjected to agitation; *svasyām*—which belongs to the Supreme as one of His energies; *yonau*—in the womb from which the living entity takes his birth; *paraḥ pumān*—the Supreme Brahman, the Personality of Godhead; *ādhatta*—impregnated; *vīryam*—semina; *sā*—that material nature; *asūta*—produced; *mahat-tattvam*—the total material energy; *hiraṇmayam*—the original source for the emanation of varieties of material things.

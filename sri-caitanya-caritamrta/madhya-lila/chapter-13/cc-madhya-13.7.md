@@ -1,9 +1,9 @@
 ### CC Madhya 13.7
 
-> অদ্বৈত, নিতাই আদি সঙ্গে ভক্তগণ ।
+> অদ্বৈত, নিতাই আদি সঙ্গে ভক্তগণ ।\
 > সুখে মহাপ্রভু দেখে ঈশ্বর-গমন ॥৭॥
 
-> advaita, nitāi ādi saṅge bhakta-gaṇa
+> advaita, nitāi ādi saṅge bhakta-gaṇa\
 > sukhe mahāprabhu dekhe īśvara-gamana
 
 *advaita*—Advaita Ācārya; *nitāi*—Lord Nityānanda Prabhu; *ādi*—headed by; *saṅge*—with; *bhakta-gaṇa*—devotees; *sukhe*—in great happiness; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *dekhe*—sees; *īśvara-gamana*—how the Lord is starting.

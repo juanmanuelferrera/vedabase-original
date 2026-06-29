@@ -1,11 +1,11 @@
 ### SB 1.13.55
 
-> विज्ञानात्मनि संयोज्य क्षेत्रज्ञे प्रविलाप्य तम् ।
+> विज्ञानात्मनि संयोज्य क्षेत्रज्ञे प्रविलाप्य तम् ।\
 > ब्रह्मण्यात्मानमाधारे घटाम्बरमिवाम्बरे ॥५५॥
 
-> vijñānātmani saṁyojya
-> kṣetrajñe pravilāpya tam
-> brahmaṇy ātmānam ādhāre
+> vijñānātmani saṁyojya\
+> kṣetrajñe pravilāpya tam\
+> brahmaṇy ātmānam ādhāre\
 > ghaṭāmbaram ivāmbare
 
 *vijñāna*—identidad purificada; *ātmani*—en la inteligencia; *saṁyojya*—fijando perfectamente; *kṣetra-jñe*—en lo referente al ser viviente; *pravilāpya*—fundiéndose; *tam*—él; *brahmaṇi*—en el Supremo; *ātmānam*—ser viviente puro; *ādhāre*—en la fuente; *ghaṭa-ambaram*—cielo dentro de la obstrucción; *iva*—como; *ambare*—en el cielo supremo.

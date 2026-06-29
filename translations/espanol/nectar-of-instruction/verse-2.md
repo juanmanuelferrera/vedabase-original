@@ -1,11 +1,11 @@
 ### 2
 
-> अत्याहारः प्रयासश्च प्रजल्पो नियमग्रहः ।
+> अत्याहारः प्रयासश्च प्रजल्पो नियमग्रहः ।\
 > जनसङ्गश्व लौल्यं च षड्भिर्भक्तिर्विनश्यति ॥२॥
 
-> atyāhāraḥ prayāsaś ca
-> prajalpo niyamāgrahaḥ
-> jana-saṅgaś ca laulyaṁ ca
+> atyāhāraḥ prayāsaś ca\
+> prajalpo niyamāgrahaḥ\
+> jana-saṅgaś ca laulyaṁ ca\
 > ṣaḍbhir bhaktir vinaśyati
 
 *ati-āhāraḥ*—comer en exceso o acumular demasiado; *prayāsaḥ*—esfuerzo excesivo; *ca*—y; *prajalpaḥ*—charla ociosa; *niyama*—reglas y regulaciones; *āgrahaḥ*—demasiado apego a (o agrahaḥ–demasiado descuido de); *jana-saṅgaḥ*—asociación con personas mundanas; *ca*—y; *laulyam*—anhelo ardiente o codicia; *ca*—y; *ṣaḍbhiḥ*—por estas seis; *bhaktiḥ*—servicio devocional; *vinaśyati*—se destruye.

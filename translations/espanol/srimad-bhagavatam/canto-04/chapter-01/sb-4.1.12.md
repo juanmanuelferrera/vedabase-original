@@ -1,11 +1,11 @@
 ### SB 4.1.12
 
-> याः कर्दमसुताः प्रोक्ता नव ब्रह्मर्षिपत्नयः ।
+> याः कर्दमसुताः प्रोक्ता नव ब्रह्मर्षिपत्नयः ।\
 > तासां प्रसूतिप्रसवं प्रोच्यमानं निबोध मे ॥१२॥
 
-> yāḥ kardama-sutāḥ proktā
-> nava brahmarṣi-patnayaḥ
-> tāsāṁ prasūti-prasavaṁ
+> yāḥ kardama-sutāḥ proktā\
+> nava brahmarṣi-patnayaḥ\
+> tāsāṁ prasūti-prasavaṁ\
 > procyamānaṁ nibodha me
 
 *yāḥ*—aquellas que; *kardama-sutāḥ*—las hijas de Kardama; *proktāḥ*—se mencionaron; *nava*—nueve; *brahma-ṛṣi*—grandes sabios de conocimiento espiritual; *patnayaḥ*—esposas; *tāsām*—sus; *prasūti-prasavam*—generaciones de hijos y nietos; *procyamānam*—explicar; *nibodha*—trata de entender; *me*—de mí.

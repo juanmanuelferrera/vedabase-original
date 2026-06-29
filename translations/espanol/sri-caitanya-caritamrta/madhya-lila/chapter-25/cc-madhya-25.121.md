@@ -1,9 +1,9 @@
 ### CC Madhya 25.121
 
-> ‘ধর্মাদি’ বিষয়ে যৈছে এ ‘চারি’ বিচার ।
+> ‘ধর্মাদি’ বিষয়ে যৈছে এ ‘চারি’ বিচার ।\
 > সাধন-ভক্তি — এই চারি বিচারের পার ॥১২১॥
 
-> 'dharmādi' viṣaye yaiche e 'cāri, vicāra
+> 'dharmādi' viṣaye yaiche e 'cāri, vicāra\
 > sādhana-bhakti-ei cāri vicārera pāra
 
 *dharma-ādi*—de las actividades religiosas y demás; *viṣaye*—en el tema; *yaiche*—tal como; *e cāri vicāra*—hay una consideración de cuatro principios, a saber, la persona, el país, el tiempo y la atmósfera; *sādhana-bhakti*—del servicio devocional; *ei*—estas; *cāri*—cuatro; *vicārera*—a las consideraciones; *pāra*—trascendental.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.181
 
-> তেঁহো যদি ইহাঁ রহে, তবে মোর সুখ ৷
+> তেঁহো যদি ইহাঁ রহে, তবে মোর সুখ ৷\
 > তাঁ’র নিন্দা হয় যদি, সেহ মোর দুঃখ ॥১৮১॥
 
-> teṅho yadi ihāṅ rahe, tabe mora sukha
+> teṅho yadi ihāṅ rahe, tabe mora sukha\
 > tāṅ'ra nindā haya yadi, seha mora duḥkha
 
 *teṅho*—el Señor Caitanya; *yadi*—si; *ihāṅ*—aquí; *rahe*—permanece; *tabe*—entonces; *mora*—mi; *sukha*—felicidad; *tāṅ'ra nindā*—blasfemia contra Él; *haya*—hay; *yadi*—si; *seha*—eso también; *mora*—mi; *duḥkha*—infelicidad.

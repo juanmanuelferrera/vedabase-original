@@ -1,11 +1,11 @@
 ### SB 4.8.23
 
-> नान्यं ततः पद्मपलाशलोचनाद्दुःखच्छिदं ते मृगयामि कञ्चन ।
+> नान्यं ततः पद्मपलाशलोचनाद्दुःखच्छिदं ते मृगयामि कञ्चन ।\
 > यो मृग्यते हस्तगृहीतपद्मया श्रियेतरैरङ्ग विमृग्यमाणया ॥२३॥
 
-> nānyaṁ tataḥ padma-palāśa-locanād
-> duḥkha-cchidaṁ te mṛgayāmi kañcana
-> yo mṛgyate hasta-gṛhīta-padmayā
+> nānyaṁ tataḥ padma-palāśa-locanād\
+> duḥkha-cchidaṁ te mṛgayāmi kañcana\
+> yo mṛgyate hasta-gṛhīta-padmayā\
 > śriyetarair aṅga vimṛgyamāṇayā
 
 *na anyam*—no otros; *tataḥ*—por lo tanto; *padma-palāśa-locanāt*—de la Suprema Personalidad de Dios, de ojos de loto; *duḥkha-chidam*—el que puede aliviar las dificultades de los demás; *te*—tu; *mṛgayāmi*—yo estoy buscando; *kañcana*—algún otro; *yaḥ*—quien; *mṛgyate*—busque; *hasta-gṛhīta-padmayā*—con una flor de loto en la mano; *śriyā*—la diosa de la fortuna; *itaraiḥ*—por otros; *aṅga*—mi querido niño; *vimṛgyamāṇayā*—el que es adorado.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.103
 
-> গৃহস্থ বিষয়ী আমি, কি মোর সাধনে  ।
+> গৃহস্থ বিষয়ী আমি, কি মোর সাধনে  ।\
 > শ্রীমুখে আজ্ঞা কর প্রভু — নিবেদি চরণে ॥১০৩॥
 
-> gṛhastha viṣayī āmi, ki mora sādhane
+> gṛhastha viṣayī āmi, ki mora sādhane\
 > śrī-mukhe ājñā kara prabhu—nivedi caraṇe
 
 *gṛhastha*—householder; *viṣayī*—materialistic man; *āmi*—I; *ki*—what; *mora sādhane*—the process of my advancement in spiritual life; *śrī-mukhe*—from Your own mouth; *ājñā kara*—please order; *prabhu*—my Lord; *nivedi caraṇe*—I submit unto Your lotus feet.

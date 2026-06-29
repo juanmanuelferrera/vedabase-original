@@ -1,9 +1,9 @@
 ### CC Adi 7.44
 
-> উপেক্ষা করিয়া কৈল মথুরা গমন ।
+> উপেক্ষা করিয়া কৈল মথুরা গমন ।\
 > মথুরা দেখিয়া পুনঃ কৈল আগমন ॥৪৪॥
 
-> upekṣā kariyā kaila mathurā gamana
+> upekṣā kariyā kaila mathurā gamana\
 > mathurā dekhiyā punaḥ kaila āgamana
 
 *upekṣā*—neglecting them; *kariyā*—doing so; *kaila*—did; *mathurā*—the town named Mathurā; *gamana*—traveling; *mathurā*—Mathurā; *dekhiyā*—after seeing it; *punaḥ*—again; *kaila āgamana*—came back.

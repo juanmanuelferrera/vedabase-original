@@ -1,11 +1,11 @@
 ### SB 3.5.20
 
-> माण्डव्यशापाद्भगवान्प्रजासंयमनो यमः ।
+> माण्डव्यशापाद्भगवान्प्रजासंयमनो यमः ।\
 > भ्रातुः क्षेत्रे भुजिष्यायां जातः सत्यवतीसुतात् ॥२०॥
 
-> māṇḍavya-śāpād bhagavān
-> prajā-saṁyamano yamaḥ
-> bhrātuḥ kṣetre bhujiṣyāyāṁ
+> māṇḍavya-śāpād bhagavān\
+> prajā-saṁyamano yamaḥ\
+> bhrātuḥ kṣetre bhujiṣyāyāṁ\
 > jātaḥ satyavatī-sutāt
 
 *māṇḍavya*—el gran *ṛṣi* Māṇḍavya Muni; *śāpāt*—por su maldición; *bhagavān*—el muy poderoso; *prajā*—aquel que nace; *saṁyamanaḥ*—controlador de la muerte; *yamaḥ*—conocido como Yamarāja; *bhrātuḥ*—del hermano; *kṣetre*—en la esposa; *bhujiṣyāyām*—mantenida; *jātaḥ*—nacido; *satyavatī*—Satyavatī (la madre de Vicitravīrya y Vyāsadeva); *sutāt*—por el hijo (Vyāsadeva).

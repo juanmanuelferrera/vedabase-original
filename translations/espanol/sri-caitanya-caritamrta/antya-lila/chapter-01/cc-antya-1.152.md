@@ -1,13 +1,13 @@
 ### CC Antya 1.152
 
-> যস্যোৎসঙ্গসুখাশয়া শিথিলিতা গুর্বী গুরুভ্যস্ত্রপা
-> প্রাণেভ্যোঽপি সুহৃত্তমাঃ সখি তথা যূয়ং পরিক্লেশিতাঃ ।
-> ধর্মঃ সোঽপি মহান্ময়া ন গণিতঃ সাধ্বীভিরধ্যাসিতো
+> যস্যোৎসঙ্গসুখাশয়া শিথিলিতা গুর্বী গুরুভ্যস্ত্রপা\
+> প্রাণেভ্যোঽপি সুহৃত্তমাঃ সখি তথা যূয়ং পরিক্লেশিতাঃ ।\
+> ধর্মঃ সোঽপি মহান্ময়া ন গণিতঃ সাধ্বীভিরধ্যাসিতো\
 > ধিগ্ধৈর্যং তদুপেক্ষিতাপি যদহং জীবামি পাপীয়সী ॥১৫২॥
 
-> yasyotsaṅga-sukhāśayā śithilitā gurvī gurubhyas trapā
-> prāṇebhyo 'pi suhṛt-tamāḥ sakhi tathā yūyaṁ parikleśitāḥ
-> dharmaḥ so 'pi mahān mayā na gaṇitaḥ sādhvībhir adhyāsito
+> yasyotsaṅga-sukhāśayā śithilitā gurvī gurubhyas trapā\
+> prāṇebhyo 'pi suhṛt-tamāḥ sakhi tathā yūyaṁ parikleśitāḥ\
+> dharmaḥ so 'pi mahān mayā na gaṇitaḥ sādhvībhir adhyāsito\
 > dhig dhairyaṁ tad-upekṣitāpi yad ahaṁ jīvāmi pāpīyasī
 
 *yasya*—de quien; *utsaṅga-sukha-āśayā*—por el deseo de la felicidad de Su asociación; *śithilitā*—relajada; *gurvī*—muy grande; *gurubhyaḥ*—ante los superiores; *trapā*—vergüenza; *prāṇebhyaḥ*—que Mi vida; *api*—aunque; *suhṛt-tamāḥ*—más queridas; *sakhi*—oh, Mi querida amiga; *tathā*—de manera similar; *yūyam*—vosotras; *parikleśitāḥ*—tan perturbadas; *dharmaḥ*—los deberes hacia Mi esposo; *saḥ*—esos; *api*—también; *mahān*—muy grandes; *mayā*—por Mí; *na*—no; *gaṇitaḥ*—tomados en cuenta; *sādhvībhiḥ*—por las mujeres más castas; *adhyāsitaḥ*—practicados; *dhik dhairyam*—¡al infierno con la paciencia!; *tat*—por Él; *upekṣitā*—desatendida; *api*—aunque; *yat*—la cual; *aham*—Yo; *jīvāmi*—sigo viviendo; *pāpīyasī*—la más pecadora.

@@ -1,11 +1,11 @@
 ### SB 6.18.62
 
-> चकर्त सप्तधा गर्भं वज्रेण कनकप्रभम
+> चकर्त सप्तधा गर्भं वज्रेण कनकप्रभम\
 > रुदन्तं सप्तधैकैकं मा रोदीरिति तान्पुनः ॥६२॥
 
-> cakarta saptadhā garbhaṁ
-> vajreṇa kanaka-prabham
-> rudantaṁ saptadhaikaikaṁ
+> cakarta saptadhā garbhaṁ\
+> vajreṇa kanaka-prabham\
+> rudantaṁ saptadhaikaikaṁ\
 > mā rodīr iti tān punaḥ
 
 *cakarta*—cortó; *sapta-dhā*—en siete pedazos; *garbham*—el embrión; *vajreṇa*—con su rayo; *kanaka*—de oro; *prabham*—que tenía el aspecto; *rudantam*—llorando; *sapta-dhā*—en siete partes; *eka-ekam*—cada uno; *mā rodīḥ*—no lloren; *iti*—así; *tān*—a ellos; *punaḥ*—de nuevo.

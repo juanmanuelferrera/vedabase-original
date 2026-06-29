@@ -1,9 +1,9 @@
 ### CC Madhya 22.67
 
-> শাস্ত্র-যুক্তি নাহি জানে দৃঢ়, শ্রদ্ধাবান্ ।
+> শাস্ত্র-যুক্তি নাহি জানে দৃঢ়, শ্রদ্ধাবান্ ।\
 > ‘মধ্যম-অধিকারী’ সেই মহা-ভাগ্যবান্ ॥৬৭॥
 
-> śāstra-yukti nāhi jāne dṛḍha, śraddhāvān
+> śāstra-yukti nāhi jāne dṛḍha, śraddhāvān\
 > 'madhyama-adhikārī' sei mahā-bhāgyavān
 
 *śāstra-yukti*—argumentos lógicos basados en las Escrituras reveladas; *nāhi*—no; *jāne*—conoce; *dṛḍha*—firmemente; *śraddhāvān*—con fe; *madhyama-adhikārī*—devoto de segunda clase; *sei*—él; *mahā-bhāgyavān*—muy afortunado.

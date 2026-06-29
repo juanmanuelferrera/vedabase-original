@@ -1,11 +1,11 @@
 ### Bg 9.24
 
-> अहं हि सर्वयज्ञानां भोक्ता च प्रभुरेव च ।
+> अहं हि सर्वयज्ञानां भोक्ता च प्रभुरेव च ।\
 > न तु मामभिजानन्ति तत्त्वेनातश्च्यवन्ति ते ॥२४॥
 
-> ahaṁ hi sarva-yajñānāṁ
-> bhoktā ca prabhur eva ca
-> na tu mām abhijānanti
+> ahaṁ hi sarva-yajñānāṁ\
+> bhoktā ca prabhur eva ca\
+> na tu mām abhijānanti\
 > tattvenātaś cyavanti te
 
 *aham*—Yo; *hi*—con seguridad; *sarva*—de todos; *yajñānām*—los sacrificios; *bhoktā*—el disfrutador; *ca*—y; *prabhuḥ*—el Señor; *eva*—también; *ca*—y; *na*—no; *tu*—pero; *mām*—Yo; *abhijānanti*—conocen; *tattvena*—realidad; *ataḥ*—por lo tanto; *cyavanti*—caen; *te*—ellos.

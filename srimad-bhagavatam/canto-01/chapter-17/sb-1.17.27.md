@@ -1,11 +1,11 @@
 ### SB 1.17.27
 
-> शोचत्यश्रुकला साध्वी दुर्भगेवोज्झिता सती ।
+> शोचत्यश्रुकला साध्वी दुर्भगेवोज्झिता सती ।\
 > अब्रह्मण्या नृपव्याजाः शूद्रा भोक्ष्यन्ति मामिति ॥२७॥
 
-> śocaty aśru-kalā sādhvī
-> durbhagevojjhitā satī
-> abrahmaṇyā nṛpa-vyājāḥ
+> śocaty aśru-kalā sādhvī\
+> durbhagevojjhitā satī\
+> abrahmaṇyā nṛpa-vyājāḥ\
 > śūdrā bhokṣyanti mām iti
 
 *śocati*—lamenting; *aśru-kalā*—with tears in the eyes; *sādhvī*—the chaste; *durbhagā*—as if the most unfortunate; *iva*—like; *ujjhitā*—forlorn; *satī*—being so done; *abrahmaṇyāḥ*—devoid of brahminical culture; *nṛpa-vyājāḥ*—posed as the ruler; *śūdrāḥ*—lower class; *bhokṣyanti*—would enjoy; *mām*—me; *iti*—thus.

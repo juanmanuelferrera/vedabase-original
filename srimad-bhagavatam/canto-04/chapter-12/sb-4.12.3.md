@@ -1,11 +1,11 @@
 ### SB 4.12.3
 
-> न भवानवधीद्यक्षान्न यक्षा भ्रातरं तव ।
+> न भवानवधीद्यक्षान्न यक्षा भ्रातरं तव ।\
 > काल एव हि भूतानां प्रभुरप्ययभावयोः ॥३॥
 
-> na bhavān avadhīd yakṣān
-> na yakṣā bhrātaraṁ tava
-> kāla eva hi bhūtānāṁ
+> na bhavān avadhīd yakṣān\
+> na yakṣā bhrātaraṁ tava\
+> kāla eva hi bhūtānāṁ\
 > prabhur apyaya-bhāvayoḥ
 
 *na*—not; *bhavān*—you; *avadhīt*—killed; *yakṣān*—the Yakṣas; *na*—not; *yakṣāḥ*—the Yakṣas; *bhrātaram*—brother; *tava*—your; *kālaḥ*—time; *eva*—certainly; *hi*—for; *bhūtānām*—of living entities; *prabhuḥ*—the Supreme Lord; *apyaya-bhāvayoḥ*—of annihilation and generation.

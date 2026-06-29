@@ -1,13 +1,13 @@
 ### SB 8.17.12
 
-> श्रीभगवानुवाच
-> देवमातर्भवत्या मे विज्ञआतं चिरकाङ्क्षितम
+> श्रीभगवानुवाच\
+> देवमातर्भवत्या मे विज्ञआतं चिरकाङ्क्षितम\
 > यत्सपत्नैर्हृतश्रीणां च्यावितानां स्वधामतः ॥१२॥
 
-> śrī-bhagavān uvāca
-> deva-mātar bhavatyā me
-> vijñātaṁ cira-kāṅkṣitam
-> yat sapatnair hṛta-śrīṇāṁ
+> śrī-bhagavān uvāca\
+> deva-mātar bhavatyā me\
+> vijñātaṁ cira-kāṅkṣitam\
+> yat sapatnair hṛta-śrīṇāṁ\
 > cyāvitānāṁ sva-dhāmataḥ
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *deva-mātar*—¡oh, madre de los semidioses!; *bhavatyāḥ*—de ti; *me*—por Mí; *vijñātam*—entendido; *cira-kāṅkṣitam*—lo que llevas tanto tiempo deseando; *yat*—debido a; *sapatnaiḥ*—por los rivales; *hṛta-śrīṇām*—de tus hijos, que se han visto privados de toda opulencia; *cyāvitānām*—vencidos; *sva-dhāmataḥ*—de sus propias moradas.

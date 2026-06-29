@@ -1,11 +1,11 @@
 ### SB 3.6.34
 
-> एते वर्णाः स्वधर्मेण यजन्ति स्वगुरुं हरिम् ।
+> एते वर्णाः स्वधर्मेण यजन्ति स्वगुरुं हरिम् ।\
 > श्रद्धयात्मविशुद्ध्यर्थं यज्जाताः सह वृत्तिभिः ॥३४॥
 
-> ete varṇāḥ sva-dharmeṇa
-> yajanti sva-guruṁ harim
-> śraddhayātma-viśuddhy-arthaṁ
+> ete varṇāḥ sva-dharmeṇa\
+> yajanti sva-guruṁ harim\
+> śraddhayātma-viśuddhy-arthaṁ\
 > yaj-jātāḥ saha vṛttibhiḥ
 
 *ete*—all these; *varṇāḥ*—orders of society; *sva-dharmeṇa*—by one's own occupational duties; *yajanti*—worship; *sva-gurum*—with the spiritual master; *harim*—the Supreme Personality of Godhead; *śraddhayā*—with faith and devotion; *ātma*—self; *viśuddhi-artham*—for purifying; *yat*—from whom; *jātāḥ*—born; *saha*—along with; *vṛttibhiḥ*—occupational duty.

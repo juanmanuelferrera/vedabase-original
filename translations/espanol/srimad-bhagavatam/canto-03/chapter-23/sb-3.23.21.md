@@ -1,11 +1,11 @@
 ### SB 3.23.21
 
-> विहारस्थानविश्राम संवेशप्राङ्गणाजिरैः ।
+> विहारस्थानविश्राम संवेशप्राङ्गणाजिरैः ।\
 > यथोपजोषं रचितैर्विस्मापनमिवात्मनः ॥२१॥
 
-> vihāra-sthāna-viśrāma-
-> saṁveśa-prāṅgaṇājiraiḥ
-> yathopajoṣaṁ racitair
+> vihāra-sthāna-viśrāma-\
+> saṁveśa-prāṅgaṇājiraiḥ\
+> yathopajoṣaṁ racitair\
 > vismāpanam ivātmanaḥ
 
 *vihāra-sthāna*—parques de recreo; *viśrāma*—salones de reposo; *saṁveśa*—dormitorios; *prāṅgaṇa*—patios interiores; *ajiraiḥ*—con patios exteriores; *yathā-upajoṣam*—de acuerdo con la comodidad; *racitaiḥ*—que fueron diseñados; *vismāpanam*—dejó atónito; *iva*—en verdad; *ātmanaḥ*—a él mismo (Kardama).

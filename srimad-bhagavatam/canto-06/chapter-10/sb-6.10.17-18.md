@@ -1,18 +1,18 @@
 ### SB 6.10.17-18
 
-> रुद्रैर्वसुभिरादित्यैरश्विभ्यां पितृवह्निभिः
-> मरुद्भिरृभुभिः साध्यैर्विश्वेदेवैर्मरुत्पतिम ॥१७॥
-> दृष्ट्वा वज्रधरं शक्रं रोचमानं स्वया श्रिया
+> रुद्रैर्वसुभिरादित्यैरश्विभ्यां पितृवह्निभिः\
+> मरुद्भिरृभुभिः साध्यैर्विश्वेदेवैर्मरुत्पतिम ॥१७॥\
+> दृष्ट्वा वज्रधरं शक्रं रोचमानं स्वया श्रिया\
 > नामृष्यन्नसुरा राजन्मृधे वृत्रपुरःसराः ॥१८॥
 
-> rudrair vasubhir ādityair
-> aśvibhyāṁ pitṛ-vahnibhiḥ
-> marudbhir ṛbhubhiḥ sādhyair
+> rudrair vasubhir ādityair\
+> aśvibhyāṁ pitṛ-vahnibhiḥ\
+> marudbhir ṛbhubhiḥ sādhyair\
 > viśvedevair marut-patim
 
-> dṛṣṭvā vajra-dharaṁ śakraṁ
-> rocamānaṁ svayā śriyā
-> nāmṛṣyann asurā rājan
+> dṛṣṭvā vajra-dharaṁ śakraṁ\
+> rocamānaṁ svayā śriyā\
+> nāmṛṣyann asurā rājan\
 > mṛdhe vṛtra-puraḥsarāḥ
 
 *rudraiḥ*—by the Rudras; *vasubhiḥ*—by the Vasus; *ādityaiḥ*—by the Ādityas; *aśvibhyām*—by the Aśvinī-kumāras; *pitṛ*—by the Pitās; *vahnibhiḥ*—and the Vahnis; *marudbhiḥ*—by the Maruts; *ṛbhubhiḥ*—by the Ṛbhus; *sādhyaiḥ*—by the Sādhyas; *viśve-devaiḥ*—by the Viśvadevas; *marut-patim*—Indra, the heavenly King; *dṛṣṭvā*—seeing; *vajra-dharam*—bearing the thunderbolt; *śakram*—another name of Indra; *rocamānam*—shining; *svayā*—by his own; *śriyā*—opulence; *na*—not; *amṛṣyan*—tolerated; *asurāḥ*—all the demons; *rājan*—O King; *mṛdhe*—in the fight; *vṛtra-puraḥsarāḥ*—headed by Vṛtrāsura.

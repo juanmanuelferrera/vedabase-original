@@ -1,13 +1,13 @@
 ### SB 9.10.14
 
-> न त्वां वयं जडधियो नु विदाम भूमन
-> कूटस्थमादिपुरुषं जगतामधीशम
-> यत्सत्त्वतः सुरगणा रजसः प्रजेशा
+> न त्वां वयं जडधियो नु विदाम भूमन\
+> कूटस्थमादिपुरुषं जगतामधीशम\
+> यत्सत्त्वतः सुरगणा रजसः प्रजेशा\
 > मन्योश्च भूतपतयः स भवान्गुणेशः ॥१४॥
 
-> na tvāṁ vayaṁ jaḍa-dhiyo nu vidāma bhūman
-> kūṭa-stham ādi-puruṣaṁ jagatām adhīśam
-> yat-sattvataḥ sura-gaṇā rajasaḥ prajeśā
+> na tvāṁ vayaṁ jaḍa-dhiyo nu vidāma bhūman\
+> kūṭa-stham ādi-puruṣaṁ jagatām adhīśam\
+> yat-sattvataḥ sura-gaṇā rajasaḥ prajeśā\
 > manyoś ca bhūta-patayaḥ sa bhavān guṇeśaḥ
 
 *na*—not; *tvām*—Your Lordship; *vayam*—we; *jaḍa-dhiyaḥ*—dull-minded, possessing blunt intelligence; *nu*—indeed; *vidāmaḥ*—can know; *bhūman*—O Supreme; *kūṭa-stham*—within the core of the heart; *ādi-puruṣam*—the original Personality of Godhead; *jagatām*—of the universes, which progressively go on; *adhīśam*—the supreme master; *yat*—fixed under Your direction; *sattvataḥ*—infatuated with *sattva-guṇa*; *sura-gaṇāḥ*—such demigods; *rajasaḥ*—infatuated with *rajo-guṇa*; *prajā-īśāḥ*—the Prajāpatis; *manyoḥ*—influenced by *tamo-guṇa*; *ca*—and; *bhūta-patayaḥ*—rulers of ghosts; *saḥ*—such a personality; *bhavān*—Your Lordship; *guṇa-īśaḥ*—the master of all three modes of material nature.

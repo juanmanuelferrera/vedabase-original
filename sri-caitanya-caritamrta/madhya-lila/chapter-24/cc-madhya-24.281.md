@@ -1,9 +1,9 @@
 ### CC Madhya 24.281
 
-> নারদ কহে, — ‘ঐছে রহ, তুমি ভাগ্যবান্’ ।
+> নারদ কহে, — ‘ঐছে রহ, তুমি ভাগ্যবান্’ ।\
 > এত বলি’ দুইজন হইলা অন্তর্ধান ॥২৮১॥
 
-> nārada kahe,—'aiche raha, tumi bhāgyavān'
+> nārada kahe,—'aiche raha, tumi bhāgyavān'\
 > eta bali' dui-jana ha-ilā antardhāna
 
 *nārada kahe*—Nārada Muni said; *aiche raha*—live like that; *tumi bhāgyavān*—certainly you are very fortunate; *eta bali'*—saying this; *dui-jana*—both Nārada Muni and Parvata Muni; *ha-ilā antardhāna*—disappeared.

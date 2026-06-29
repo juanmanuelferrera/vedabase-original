@@ -1,9 +1,9 @@
 ### CC Adi 3.33
 
-> ডুভৃঞ্ ধাতুর অর্থ — পোষণ, ধারণ ।
+> ডুভৃঞ্ ধাতুর অর্থ — পোষণ, ধারণ ।\
 > পুষিল, ধরিল প্রেম দিয়া ত্রিভুবন ॥৩৩॥
 
-> ḍubhṛñ dhātura artha—poṣaṇa, dhāraṇa
+> ḍubhṛñ dhātura artha—poṣaṇa, dhāraṇa\
 > puṣila, dharila prema diyā tri-bhuvana
 
 *ḍubhṛñ*—known as *ḍubhṛñ* (*bhṛ*); *dhātura*—of the verbal root; *artha*—the meaning; *poṣaṇa*—nourishing; *dhāraṇa*—maintaining; *puṣila*—nourished; *dharila*—maintained; *premadiyā*—distributing love of God; *tri-bhuvana*—in the three worlds.

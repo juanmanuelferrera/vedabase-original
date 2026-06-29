@@ -1,9 +1,9 @@
 ### CC Madhya 14.5
 
-> সার্বভৌম-উপদেশে ছাড়ি’ রাজবেশ ।
+> সার্বভৌম-উপদেশে ছাড়ি’ রাজবেশ ।\
 > একলা বৈষ্ণব-বেশে করিল প্রবেশ ॥৫॥
 
-> sārvabhauma-upadeśe chāḍi' rāja-veśa
+> sārvabhauma-upadeśe chāḍi' rāja-veśa\
 > ekalā vaiṣṇava-veśe karila praveśa
 
 *sārvabhauma*—of Sārvabhauma Bhaṭṭācārya; *upadeśe*—under instructions; *chāḍi'*—giving up; *rāja-veśa*—the royal dress; *ekalā*—alone; *vaiṣṇava-veśe*—in the dress of a Vaiṣṇava; *karila praveśa*—entered.

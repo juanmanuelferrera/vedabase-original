@@ -1,9 +1,9 @@
 ### CC Adi 4.256
 
-> লীলা-অন্তে সুখে ইঁহার অঙ্গের মাধুরী ।
+> লীলা-অন্তে সুখে ইঁহার অঙ্গের মাধুরী ।\
 > তাহা দেখি’ সুখে আমি আপনা পাশরি ॥২৫৬॥
 
-> līlā-ante sukhe iṅhāra aṅgera mādhurī
+> līlā-ante sukhe iṅhāra aṅgera mādhurī\
 > tāhā dekhi' sukhe āmi āpanā pāśari
 
 *līlā-ante*—at the end of Our pastimes; *sukhe*—in happiness; *iṅhāra*—of Śrīmatī Rādhārāṇī; *aṅgera*—of the body; *mādhurī*—sweetness; *tāhā*—that; *dekhi'*—seeing; *sukhe*—in happiness; *āmi*—I; *āpanā*—Myself; *pāśari*—forget.

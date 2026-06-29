@@ -1,9 +1,9 @@
 ### CC Madhya 25.42
 
-> এই ত’ কল্পিত অর্থ মনে নাহি ভায় ।
+> এই ত’ কল্পিত অর্থ মনে নাহি ভায় ।\
 > শাস্ত্র ছাড়ি’ কুকল্পনা পাষণ্ডে বুঝায় ॥৪২॥
 
-> ei ta' kalpita artha mane nāhi bhāya
+> ei ta' kalpita artha mane nāhi bhāya\
 > śāstra chāḍi' kukalpanā pāṣaṇḍe bujhāya
 
 *ei ta'*—esto; *kalpita*—imaginario; *artha*—significado; *mane*—a la mente; *nāhi*—no; *bhāya*—atrae; *śāstra*—las escrituras autorizadas; *chāḍi'*—abandonando; *ku-kalpanā*—imaginación maliciosa; *pāṣaṇḍe*—a la clase atea de hombres; *bujhāya*—enseña.

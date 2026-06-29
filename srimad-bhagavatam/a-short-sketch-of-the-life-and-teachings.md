@@ -224,8 +224,8 @@ After this inquiry, the Lord submissively replied: "I have taken to the *saṅk�
 
 "In this age of Kali there is no other religion but the glorification of the Lord by utterance of His holy name, and that is the injunction of all the revealed scriptures. And My spiritual master has taught Me one *śloka* [from the *Bṛhan-nāradīya Purāṇa*]:
 
-> harer nāma harer nāma harer nāmaiva kevalam
-> kalau nāsty eva nāsty eva nāsty eva gatir anyathā.
+> harer nāma harer nāma harer nāmaiva kevalam\
+> kalau nāsty eva nāsty eva nāsty eva gatir anyathā.\
 > [[cc/adi/17/21|[Cc. Adi 17.21] ]]
 
 "So on the order of My spiritual master, I chant the holy name of Hari, and I am now mad after this holy name. Whenever I utter the holy name I forget Myself completely, and sometimes I laugh, cry and dance like a madman. I thought that I had actually gone mad by this process of chanting, and therefore I asked My spiritual master about it. He informed Me that this was the real effect of chanting the holy name, which produces a transcendental emotion that is a rare manifestation. It is the sign of love of God, which is the ultimate end of life. Love of God is transcendental to liberation [*mukti*], and thus it is called the fifth stage of spiritual realization, above the stage of liberation. By chanting the holy name of Kṛṣṇa one attains the stage of love of God, and it was good that fortunately I was favored with the blessing."

@@ -1,14 +1,14 @@
 ### SB 1.14.20
 
-> दैवतानि रुदन्तीव स्विद्यन्ति ह्युच्चलन्ति च ।
-> इमे जनपदा ग्रामाः पुरोद्यानाकराश्रमाः ।
+> दैवतानि रुदन्तीव स्विद्यन्ति ह्युच्चलन्ति च ।\
+> इमे जनपदा ग्रामाः पुरोद्यानाकराश्रमाः ।\
 > भ्रष्टश्रियो निरानन्दाः किमघं दर्शयन्ति नः ॥२०॥
 
-> daivatāni rudantīva
-> svidyanti hy uccalanti ca
-> ime jana-padā grāmāḥ
-> purodyānākarāśramāḥ
-> bhraṣṭa-śriyo nirānandāḥ
+> daivatāni rudantīva\
+> svidyanti hy uccalanti ca\
+> ime jana-padā grāmāḥ\
+> purodyānākarāśramāḥ\
+> bhraṣṭa-śriyo nirānandāḥ\
 > kim aghaṁ darśayanti naḥ
 
 *daivatāni*—the Deities in the temples; *rudanti*—seem to be crying; *iva*—like that; *svidyanti*—perspiring; *hi*—certainly; *uccalanti*—as if going out; *ca*—also; *ime*—these; *jana-padāḥ*—cities; *grāmāḥ*—villages; *pura*—towns; *udyāna*—gardens; *ākara*—mines; *āśramāḥ*—hermitages, etc.; *bhraṣṭa*—devoid of; *śriyaḥ*—beauty; *nirānandāḥ*—bereft of all happiness; *kim*—what sort of; *agham*—calamities; *darśayanti*—shall manifest; *naḥ*—to us.

@@ -1,13 +1,13 @@
 ### SB 4.8.1
 
-> मैत्रेय उवाच
-> सनकाद्या नारदश्च ऋभुर्हंसोऽरुणिर्यतिः ।
+> मैत्रेय उवाच\
+> सनकाद्या नारदश्च ऋभुर्हंसोऽरुणिर्यतिः ।\
 > नैते गृहान्ब्रह्मसुता ह्यावसन्नूर्ध्वरेतसः ॥१॥
 
-> maitreya uvāca
-> sanakādyā nāradaś ca
-> ṛbhur haṁso 'ruṇir yatiḥ
-> naite gṛhān brahma-sutā
+> maitreya uvāca\
+> sanakādyā nāradaś ca\
+> ṛbhur haṁso 'ruṇir yatiḥ\
+> naite gṛhān brahma-sutā\
 > hy āvasann ūrdhva-retasaḥ
 
 *maitreyaḥ uvāca*—Maitreya said; *sanaka-ādyāḥ*—those headed by Sanaka; *nāradaḥ*—Nārada; *ca*—and; *ṛbhuḥ*—Ṛbhu; *haṁsaḥ*—Haṁsa; *aruṇiḥ*—Aruṇi; *yatiḥ*—Yati; *na*—not; *ete*—all these; *gṛhān*—at home; *brahma-sutāḥ*—sons of Brahmā; *hi*—certainly; *āvasan*—did live; *ūrdhva-retasaḥ*—unadulterated celibates.

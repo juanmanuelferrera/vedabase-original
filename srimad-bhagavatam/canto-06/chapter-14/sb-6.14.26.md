@@ -1,11 +1,11 @@
 ### SB 6.14.26
 
-> ततः पाहि महाभाग पूर्वैः सह गतं तमः
+> ततः पाहि महाभाग पूर्वैः सह गतं तमः\
 > यथा तरेम दुष्पारं प्रजया तद्विधेहि नः ॥२६॥
 
-> tataḥ pāhi mahā-bhāga
-> pūrvaiḥ saha gataṁ tamaḥ
-> yathā tarema duṣpāraṁ
+> tataḥ pāhi mahā-bhāga\
+> pūrvaiḥ saha gataṁ tamaḥ\
+> yathā tarema duṣpāraṁ\
 > prajayā tad vidhehi naḥ
 
 *tataḥ*—therefore, because of this; *pāhi*—kindly save; *mahā-bhāga*—O great sage; *pūrvaiḥ saha*—along with my forefathers; *gatam*—gone; *tamaḥ*—to darkness; *yathā*—so that; *tarema*—we can cross; *duṣpāram*—very difficult to cross; *prajayā*—by getting a son; *tat*—that; *vidhehi*—kindly do; *naḥ*—for us.

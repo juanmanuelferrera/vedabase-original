@@ -1,11 +1,11 @@
 ### SB 4.11.18
 
-> स खल्विदं भगवान्कालशक्त्या गुणप्रवाहेण विभक्तवीर्यः ।
+> स खल्विदं भगवान्कालशक्त्या गुणप्रवाहेण विभक्तवीर्यः ।\
 > करोत्यकर्तैव निहन्त्यहन्ता चेष्टा विभूम्नः खलु दुर्विभाव्या ॥१८॥
 
-> sa khalv idaṁ bhagavān kāla-śaktyā
-> guṇa-pravāheṇa vibhakta-vīryaḥ
-> karoty akartaiva nihanty ahantā
+> sa khalv idaṁ bhagavān kāla-śaktyā\
+> guṇa-pravāheṇa vibhakta-vīryaḥ\
+> karoty akartaiva nihanty ahantā\
 > ceṣṭā vibhūmnaḥ khalu durvibhāvyā
 
 *saḥ*—el; *khalu*—sin embargo; *idam*—este (universo); *bhagavān*—la Personalidad de Dios; *kāla*—del tiempo; *śaktyā*—por la fuerza; *guṇa-pravāheṇa*—por la interacción de las modalidades de la naturaleza; *vibhakta*—dividida; *vīryaḥ*—(cuyas) potencias; *karoti*—actúa sobre; *akartā*—el que no hace; *eva*—aunque; *nihanti*—mata; *ahantā*—el que no mata; *ceṣṭā*—la energía; *vibhūmnaḥ*—del Señor; *khalu*—ciertamente; *durvibhāvyā*—inconcebible.

@@ -1,25 +1,25 @@
 ### SB 9.21.3-5
 
-> वियद्वित्तस्य ददतो लब्धं लब्धं बुभुक्षतः
-> निष्किञ्चनस्य धीरस्य सकुटुम्बस्य सीदतः ॥३॥
-> व्यतीयुरष्टचत्वारिंशदहान्यपिबतः किल
-> घृतपायससंयावं तोयं प्रातरुपस्थितम ॥४॥
-> कृच्छ्रप्राप्तकुटुम्बस्य क्षुत्तृड्भ्यां जातवेपथोः
+> वियद्वित्तस्य ददतो लब्धं लब्धं बुभुक्षतः\
+> निष्किञ्चनस्य धीरस्य सकुटुम्बस्य सीदतः ॥३॥\
+> व्यतीयुरष्टचत्वारिंशदहान्यपिबतः किल\
+> घृतपायससंयावं तोयं प्रातरुपस्थितम ॥४॥\
+> कृच्छ्रप्राप्तकुटुम्बस्य क्षुत्तृड्भ्यां जातवेपथोः\
 > अतिथिर्ब्राह्मणः काले भोक्तुकामस्य चागमत ॥५॥
 
-> viyad-vittasya dadato
-> labdhaṁ labdhaṁ bubhukṣataḥ
-> niṣkiñcanasya dhīrasya
+> viyad-vittasya dadato\
+> labdhaṁ labdhaṁ bubhukṣataḥ\
+> niṣkiñcanasya dhīrasya\
 > sakuṭumbasya sīdataḥ
 
-> vyatīyur aṣṭa-catvāriṁśad
-> ahāny apibataḥ kila
-> ghṛta-pāyasa-saṁyāvaṁ
+> vyatīyur aṣṭa-catvāriṁśad\
+> ahāny apibataḥ kila\
+> ghṛta-pāyasa-saṁyāvaṁ\
 > toyaṁ prātar upasthitam
 
-> kṛcchra-prāpta-kuṭumbasya
-> kṣut-tṛḍbhyāṁ jāta-vepathoḥ
-> atithir brāhmaṇaḥ kāle
+> kṛcchra-prāpta-kuṭumbasya\
+> kṣut-tṛḍbhyāṁ jāta-vepathoḥ\
+> atithir brāhmaṇaḥ kāle\
 > bhoktu-kāmasya cāgamat
 
 *viyat-vittasya*—of Rantideva, who received things sent by providence, just as the *cātaka* bird receives water from the sky; *dadataḥ*—who distributed to others; *labdham*—whatever he got; *labdham*—such gains; *bubhukṣataḥ*—he enjoyed; *niṣkiñcanasya*—always penniless; *dhīrasya*—yet very sober; *sa-kuṭumbasya*—even with his family members; *sīdataḥ*—suffering very much; *vyatīyuḥ*—passed by; *aṣṭa-catvāriṁśat*—forty-eight; *ahāni*—days; *apibataḥ*—without even drinking water; *kila*—indeed; *ghṛta-pāyasa*—food prepared with ghee and milk; *saṁyāvam*—varieties of food grains; *toyam*—water; *prātaḥ*—in the morning; *upasthitam*—arrived by chance; *kṛcchra-prāpta*—undergoing suffering; *kuṭumbasya*—whose family members; *kṣut-tṛḍbhyām*—by thirst and hunger; *jāta*—became; *vepathoḥ*—trembling; *atithiḥ*—a guest; *brāhmaṇaḥ*—a *brāhmaṇa*; *kāle*—just at that time; *bhoktu-kāmasya*—of Rantideva, who desired to eat something; *ca*—also; *āgamat*—arrived there.

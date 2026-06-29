@@ -1,9 +1,9 @@
 ### CC Adi 4.92
 
-> সর্ব-সৌন্দর্য-কান্তি বৈসয়ে যাঁহাতে ।
+> সর্ব-সৌন্দর্য-কান্তি বৈসয়ে যাঁহাতে ।\
 > সর্বলক্ষ্মীগণের শোভা হয় যাঁহা হৈতে ॥৯২॥
 
-> sarva-saundarya-kānti vaisaye yāṅhāte
+> sarva-saundarya-kānti vaisaye yāṅhāte\
 > sarva-lakṣmī-gaṇera śobhā haya yāṅhā haite
 
 *sarva-saundarya*—de toda la belleza; *kānti*—el esplendor; *vaisaye*—reside; *yāṅhāte*—en quien; *sarva-lakṣmī-gaṇera*—de todas las diosas de la fortuna; *śobhā*—el esplendor; *haya*—es; *yāṅhā haite*—de quien.

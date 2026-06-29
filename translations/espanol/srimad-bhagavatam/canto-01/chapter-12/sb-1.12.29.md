@@ -1,11 +1,11 @@
 ### SB 1.12.29
 
-> इति राज्ञ उपादिश्य विप्रा जातककोविदाः ।
+> इति राज्ञ उपादिश्य विप्रा जातककोविदाः ।\
 > लब्धापचितयः सर्वे प्रतिजग्मुः स्वकान्गृहान् ॥२९॥
 
-> iti rājña upādiśya
-> viprā jātaka-kovidāḥ
-> labdhāpacitayaḥ sarve
+> iti rājña upādiśya\
+> viprā jātaka-kovidāḥ\
+> labdhāpacitayaḥ sarve\
 > pratijagmuḥ svakān gṛhān
 
 *iti*—así pues; *rājñe*—al rey; *upādiśya*—habiendo aconsejado; *viprāḥ*—personas bien versadas en los *Vedas*; *jātaka-kovidāḥ*—personas expertas en astrología y en la ejecución de ceremonias natales; *labdha-apacitayaḥ*—aquellos que recibieron suntuosamente como remuneración; *sarve*—todos ellos; *pratijagmuḥ*—regresaron; *svakān*—a sus propias; *gṛhān*—casas.

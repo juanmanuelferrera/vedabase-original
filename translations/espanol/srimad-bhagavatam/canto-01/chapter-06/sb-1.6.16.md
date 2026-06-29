@@ -1,11 +1,11 @@
 ### SB 1.6.16
 
-> ध्यायतश्चरणाम्भोजं भावनिर्जितचेतसा ।
+> ध्यायतश्चरणाम्भोजं भावनिर्जितचेतसा ।\
 > औत्कण्ठ्याश्रुकलाक्षस्य हृद्यासीन्मे शनैर्हरिः ॥१६॥
 
-> dhyāyataś caraṇāmbhojaṁ
-> bhāva-nirjita-cetasā
-> autkaṇṭhyāśru-kalākṣasya
+> dhyāyataś caraṇāmbhojaṁ\
+> bhāva-nirjita-cetasā\
+> autkaṇṭhyāśru-kalākṣasya\
 > hṛdy āsīn me śanair hariḥ
 
 *dhyāyataḥ*—meditando así en; *caraṇa-ambhojam*—los pies de loto de la Personalidad de Dios localizada; *bhāva-nirjita*—mente transformada en amor trascendental por el Señor; *cetasā*—todas las actividades mentales (pensar, sentir y desear); *autkaṇṭhya*—anhelo; *aśru-kala*—lágrimas se deslizaron; *akṣasya*—de los ojos; *hṛdi*—dentro de mi corazón; *āsīt*—apareció; *me*—mi; *śanaiḥ*—sin demora; *hariḥ*—la Personalidad de Dios.

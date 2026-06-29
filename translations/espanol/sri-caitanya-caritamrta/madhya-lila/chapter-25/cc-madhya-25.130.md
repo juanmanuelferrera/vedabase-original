@@ -1,13 +1,13 @@
 ### CC Madhya 25.130
 
-> গায়ন্ত উচ্চৈরমুমেব সংহতাঃ
-> বিচিক্যুরুন্মত্তকবদ্বনাদ্বনম্ ।
-> পপ্রচ্ছুরাকাশবদন্তরং বহি-
+> গায়ন্ত উচ্চৈরমুমেব সংহতাঃ\
+> বিচিক্যুরুন্মত্তকবদ্বনাদ্বনম্ ।\
+> পপ্রচ্ছুরাকাশবদন্তরং বহি-\
 > র্ভূতেষু সন্তং পুরুষং বনস্পতীন্ ॥১৩০॥
 
-> gāyanta uccair amum eva saṁhatāḥ
-> vicikyur unmattakavad vanād vanam
-> papracchur ākāśavad antaraṁ bahir
+> gāyanta uccair amum eva saṁhatāḥ\
+> vicikyur unmattakavad vanād vanam\
+> papracchur ākāśavad antaraṁ bahir\
 > bhūteṣu santaṁ puruṣaṁ vanaspatīn
 
 *gāyantaḥ*—cantando continuamente; *uccaiḥ*—muy alto; *amum*—a Aquel (el Señor Śrī Kṛṣṇa); *eva*—ciertamente; *saṁhatāḥ*—reunidas; *vicikyuḥ*—buscaron; *unmattaka-vat*—como aquellas que se han vuelto locas; *vanāt*—de un bosque; *vanam*—a otro bosque; *papracchuḥ*—preguntaron acerca de; *ākāśa-vat*—como el cielo; *antaram*—dentro; *bahiḥ*—fuera; *bhūteṣu*—en todas las entidades vivientes; *santam*—existente; *puruṣam*—la Persona Suprema; *vanaspatīn*—todos los árboles y plantas.

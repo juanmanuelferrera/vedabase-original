@@ -1,9 +1,9 @@
 ### CC Madhya 25.177
 
-> এইমত দিন পঞ্চ লোক নিস্তারিয়া ।
+> এইমত দিন পঞ্চ লোক নিস্তারিয়া ।\
 > আর দিন চলিলা প্রভু উদ্বিগ্ন হঞা ॥১৭৭॥
 
-> ei-mata dina pañca loka nistāriyā
+> ei-mata dina pañca loka nistāriyā\
 > āra dina calilā prabhu udvigna hañā
 
 *ei-mata*—in this way; *dina pañca*—five days; *loka*—the people; *nistāriyā*—delivering; *āra dina*—on the next day; *calilā*—departed; *prabhu*—Śrī Caitanya Mahāprabhu; *udvigna hañā*—being very eager.

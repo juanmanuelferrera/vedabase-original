@@ -1,11 +1,11 @@
 ### SB 6.19.18
 
-> कृतमेकतरेणापि दम्पत्योरुभयोरपि
+> कृतमेकतरेणापि दम्पत्योरुभयोरपि\
 > पत्न्यां कुर्यादनर्हायां पतिरेतत्समाहितः ॥१८॥
 
-> kṛtam ekatareṇāpi
-> dam-patyor ubhayor api
-> patnyāṁ kuryād anarhāyāṁ
+> kṛtam ekatareṇāpi\
+> dam-patyor ubhayor api\
+> patnyāṁ kuryād anarhāyāṁ\
 > patir etat samāhitaḥ
 
 *kṛtam*—executed; *ekatareṇa*—by one; *api*—even; *dam-patyoḥ*—of the wife and husband; *ubhayoḥ*—of both; *api*—still; *patnyām*—when the wife; *kuryāt*—he should execute; *anarhāyām*—is unable; *patiḥ*—the husband; *etat*—this; *samāhitaḥ*—with attention.

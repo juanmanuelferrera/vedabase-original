@@ -1,11 +1,11 @@
 ### SB 7.13.26
 
-> सुखमस्यात्मनो रूपं सर्वेहोपरतिस्तनुः
+> सुखमस्यात्मनो रूपं सर्वेहोपरतिस्तनुः\
 > मनःसंस्पर्शजान्दृष्ट्वा भोगान्स्वप्स्यामि संविशन ॥२६॥
 
-> tatrāpi dam-patīnāṁ ca
-> sukhāyānyāpanuttaye
-> karmāṇi kurvatāṁ dṛṣṭvā
+> tatrāpi dam-patīnāṁ ca\
+> sukhāyānyāpanuttaye\
+> karmāṇi kurvatāṁ dṛṣṭvā\
 > nivṛtto 'smi viparyayam
 
 *tatra*—ahí; *api*—también; *dam-patīnām*—de hombres y mujeres unidos en matrimonio; *ca*—y; *sukhāya*—en busca de placer, especialmente el placer de la vida sexual; *anya-apanuttaye*—para evitar el sufrimiento; *karmāṇi*—actividades fruitivas; *kurvatām*—siempre ocupados en; *dṛṣṭvā*—al observar; *nivṛttaḥ asmi*—ahora he dejado (esas actividades); *viparyayam*—lo contrario.

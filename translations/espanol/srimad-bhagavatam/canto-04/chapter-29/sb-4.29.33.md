@@ -1,11 +1,11 @@
 ### SB 4.29.33
 
-> यथा हि पुरुषो भारं शिरसा गुरुमुद्वहन् ।
+> यथा हि पुरुषो भारं शिरसा गुरुमुद्वहन् ।\
 > तं स्कन्धेन स आधत्ते तथा सर्वाः प्रतिक्रियाः ॥३३॥
 
-> yathā hi puruṣo bhāraṁ
-> śirasā gurum udvahan
-> taṁ skandhena sa ādhatte
+> yathā hi puruṣo bhāraṁ\
+> śirasā gurum udvahan\
+> taṁ skandhena sa ādhatte\
 > tathā sarvāḥ pratikriyāḥ
 
 *yathā*—como; *hi*—ciertamente; *puruṣaḥ*—un hombre; *bhāram*—una carga; *śirasā*—sobre la cabeza; *gurum*—pesada; *udvahan*—llevar; *tam*—esa; *skandhena*—sobre el hombro; *saḥ*—él; *ādhatte*—pone; *tathā*—de manera similar; *sarvāḥ*—todas; *pratikriyāḥ*—neutralizaciones.

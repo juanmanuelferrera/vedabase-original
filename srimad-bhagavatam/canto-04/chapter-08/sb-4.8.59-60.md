@@ -1,18 +1,18 @@
 ### SB 4.8.59-60
 
-> एवं कायेन मनसा वचसा च मनोगतम् ।
-> परिचर्यमाणो भगवान्भक्तिमत्परिचर्यया ॥५९॥
-> पुंसाममायिनां सम्यग्भजतां भाववर्धनः ।
+> एवं कायेन मनसा वचसा च मनोगतम् ।\
+> परिचर्यमाणो भगवान्भक्तिमत्परिचर्यया ॥५९॥\
+> पुंसाममायिनां सम्यग्भजतां भाववर्धनः ।\
 > श्रेयो दिशत्यभिमतं यद्धर्मादिषु देहिनाम् ॥६०॥
 
-> evaṁ kāyena manasā
-> vacasā ca mano-gatam
-> paricaryamāṇo bhagavān
+> evaṁ kāyena manasā\
+> vacasā ca mano-gatam\
+> paricaryamāṇo bhagavān\
 > bhaktimat-paricaryayā
 
-> puṁsām amāyināṁ samyag
-> bhajatāṁ bhāva-vardhanaḥ
-> śreyo diśaty abhimataṁ
+> puṁsām amāyināṁ samyag\
+> bhajatāṁ bhāva-vardhanaḥ\
+> śreyo diśaty abhimataṁ\
 > yad dharmādiṣu dehinām
 
 *evam*—thus; *kāyena*—by the body; *manasā*—by the mind; *vacasā*—by the words; *ca*—also; *manaḥ-gatam*—simply by thinking of the Lord; *paricaryamāṇaḥ*—engaged in the devotional service; *bhagavān*—the Supreme Personality of Godhead; *bhakti-mat*—according to the regulative principles of devotional service; *paricaryayā*—by worshiping the Lord; *puṁsām*—of the devotee; *amāyinām*—who is sincere and serious; *samyak*—perfectly; *bhajatām*—engaged in devotional service; *bhāva-vardhanaḥ*—the Lord, who increases the ecstasy of the devotee; *śreyaḥ*—ultimate goal; *diśati*—bestows; *abhimatam*—desire; *yat*—as they are; *dharma-ādiṣu*—regarding spiritual life and economic development; *dehinām*—of the conditioned souls.

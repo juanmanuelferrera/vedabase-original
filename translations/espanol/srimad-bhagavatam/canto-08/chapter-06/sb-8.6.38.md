@@ -1,11 +1,11 @@
 ### SB 8.6.38
 
-> गिरिं चारोप्य गरुडे हस्तेनैकेन लीलया
+> गिरिं चारोप्य गरुडे हस्तेनैकेन लीलया\
 > आरुह्य प्रययावब्धिं सुरासुरगणैर्वृतः ॥३८॥
 
-> giriṁ cāropya garuḍe
-> hastenaikena līlayā
-> āruhya prayayāv abdhiṁ
+> giriṁ cāropya garuḍe\
+> hastenaikena līlayā\
+> āruhya prayayāv abdhiṁ\
 > surāsura-gaṇair vṛtaḥ
 
 *girim*—la montaña; *ca*—también; *āropya*—poner; *garuḍe*—a lomos de Garuḍa; *hastena*—con la mano; *ekena*—una; *līlayā*—como pasatiempo, con gran facilidad; *āruhya*—tras subirse; *prayayau*—fue; *abdhim*—al océano de leche; *sura-asura-gaṇaiḥ*—por los semidioses y los *asuras*; *vṛtaḥ*—rodeado.

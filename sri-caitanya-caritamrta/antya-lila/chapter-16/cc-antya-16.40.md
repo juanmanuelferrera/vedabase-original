@@ -1,9 +1,9 @@
 ### CC Antya 16.40
 
-> প্রতিদিন প্রভু যদি যা’ন দরশনে ।
+> প্রতিদিন প্রভু যদি যা’ন দরশনে ।\
 > জল-করঙ্গ লঞা গোবিন্দ যায় প্রভু-সনে ॥৪০॥
 
-> prati-dina prabhu yadi yā'na daraśane
+> prati-dina prabhu yadi yā'na daraśane\
 > jala-karaṅga lañā govinda yāya prabhu-sane
 
 *prati-dina*—every day; *prabhu*—Śrī Caitanya Mahāprabhu; *yadi*—when; *yā'na*—goes; *daraśane*—to see Lord Jagannātha; *jala-karaṅga*—a waterpot; *lañā*—taking; *govinda*—the personal servant of the Lord (Govinda); *yāya*—goes; *prabhu-sane*—with Śrī Caitanya Mahāprabhu.

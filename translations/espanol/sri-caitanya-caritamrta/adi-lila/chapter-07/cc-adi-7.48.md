@@ -1,9 +1,9 @@
 ### CC Adi 7.48
 
-> তাঁরে শিখাইলা সব বৈষ্ণবের ধর্ম ।
+> তাঁরে শিখাইলা সব বৈষ্ণবের ধর্ম ।\
 > ভাগবত-আদি শাস্ত্রের যত গূঢ় মর্ম ॥৪৮॥
 
-> tāṅre śikhāilā saba vaiṣṇavera dharma
+> tāṅre śikhāilā saba vaiṣṇavera dharma\
 > bhāgavata-ādi śāstrera yata gūḍha marma
 
 *tāṅre*—a él (Sanātana Gosvāmī); *śikhāilā*—el Señor le enseñó; *saba*—todas; *vaiṣṇavera*—de los devotos; *dharma*—actividades regulares; *bhāgavata*—el *Śrīmad-Bhāgavatam*; *ādi*—comenzando por; *śāstrera*—de las escrituras reveladas; *yata*—todas; *gūḍha*—confidenciales; *marma*—propósitos.

@@ -1,11 +1,11 @@
 ### SB 7.5.53
 
-> यथा त्रिवर्गं गुरुभिरात्मने उपशिक्षितम
+> यथा त्रिवर्गं गुरुभिरात्मने उपशिक्षितम\
 > न साधु मेने तच्छिक्षां द्वन्द्वारामोपवर्णिताम ॥५३॥
 
-> yathā tri-vargaṁ gurubhir
-> ātmane upaśikṣitam
-> na sādhu mene tac-chikṣāṁ
+> yathā tri-vargaṁ gurubhir\
+> ātmane upaśikṣitam\
+> na sādhu mene tac-chikṣāṁ\
 > dvandvārāmopavarṇitām
 
 *yathā*—as; *tri-vargam*—the three processes (religion, economic development and sense gratification); *gurubhiḥ*—by the teachers; *ātmane*—unto himself (Prahlāda Mahārāja); *upaśikṣitam*—instructed; *na*—not; *sādhu*—really good; *mene*—he considered; *tat-śikṣām*—the education in that; *dvandva-ārāma*—by persons taking pleasure in duality (in material enmity and friendship); *upavarṇitām*—which is prescribed.

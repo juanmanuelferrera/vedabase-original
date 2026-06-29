@@ -1,9 +1,9 @@
 ### CC Madhya 5.116
 
-> গোপাল রহিলা, দুঁহে করেন সেবন ।
+> গোপাল রহিলা, দুঁহে করেন সেবন ।\
 > দেখিতে আইলা সব দেশের লোক-জন ॥১১৬॥
 
-> gopāla rahilā, duṅhe karena sevana
+> gopāla rahilā, duṅhe karena sevana\
 > dekhite āilā saba deśera loka-jana
 
 *gopāla*—Lord Gopāla; *rahilā*—stayed; *duṅhe*—both of them; *karena*—do; *sevana*—service; *dekhite*—to see; *āilā*—came; *saba*—all; *deśera*—of the countries; *loka-jana*—the people.

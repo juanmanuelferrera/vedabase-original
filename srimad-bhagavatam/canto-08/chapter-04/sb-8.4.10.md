@@ -1,11 +1,11 @@
 ### SB 8.4.10
 
-> तस्मा इमं शापमदादसाधुरयं दुरात्माकृतबुद्धिरद्य
+> तस्मा इमं शापमदादसाधुरयं दुरात्माकृतबुद्धिरद्य\
 > विप्रावमन्ता विशतां तमिस्रं यथा गजः स्तब्धमतिः स एव ॥१०॥
 
-> tasmā imaṁ śāpam adād asādhur
-> ayaṁ durātmākṛta-buddhir adya
-> viprāvamantā viśatāṁ tamisraṁ
+> tasmā imaṁ śāpam adād asādhur\
+> ayaṁ durātmākṛta-buddhir adya\
+> viprāvamantā viśatāṁ tamisraṁ\
 > yathā gajaḥ stabdha-matiḥ sa eva
 
 *tasmai*—unto Mahārāja Indradyumna; *imam*—this; *śāpam*—curse; *adāt*—he gave; *asādhuḥ*—not at all gentle; *ayam*—this; *durātmā*—degraded soul; *akṛta*—without education; *buddhiḥ*—his intelligence; *adya*—now; *vipra*—of a *brāhmaṇa*; *avamantā*—insulter; *viśatām*—let him enter; *tamisram*—darkness; *yathā*—as; *gajaḥ*—an elephant; *stabdha-matiḥ*—possessing blunt intelligence; *saḥ*—he; *eva*—indeed.

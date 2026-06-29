@@ -1,11 +1,11 @@
 ### CC Madhya 25.140
 
-> স্মরন্তঃ স্মারয়ন্ত্যশ্চ মিথোঽঘৌঘহরং হরিম্ ।
+> স্মরন্তঃ স্মারয়ন্ত্যশ্চ মিথোঽঘৌঘহরং হরিম্ ।\
 > ভক্ত্যা সংজাতয়া ভক্ত্যা বিভ্রত্যুৎপুলকাং তনুম্ ॥১৪০॥
 
-> smarantaḥ smārayaś ca
-> mitho 'ghaugha-haraṁ harim
-> bhaktyā sañjātayā bhaktyā
+> smarantaḥ smārayaś ca\
+> mitho 'ghaugha-haraṁ harim\
+> bhaktyā sañjātayā bhaktyā\
 > bibhraty utpulakāṁ tanum
 
 *smarantaḥ*—remembering; *smārayaḥ ca*—and reminding; *mithaḥ*—one another; *aghaugha-haram*—who takes away everything inauspicious from the devotee; *harim*—the Supreme Personality of Godhead; *bhaktyā*—by devotion; *sañjātayā*—awakened; *bhaktyā*—by devotion; *bibhrati*—possess; *utpulakām*—agitated by ecstasy; *tanum*—body.

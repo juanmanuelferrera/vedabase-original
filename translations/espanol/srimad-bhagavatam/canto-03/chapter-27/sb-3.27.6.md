@@ -1,11 +1,11 @@
 ### SB 3.27.6
 
-> यमादिभिर्योगपथैरभ्यसञ्श्रद्धयान्वितः ।
+> यमादिभिर्योगपथैरभ्यसञ्श्रद्धयान्वितः ।\
 > मयि भावेन सत्येन मत्कथाश्रवणेन च ॥६॥
 
-> yamādibhir yoga-pathair
-> abhyasañ śraddhayānvitaḥ
-> mayi bhāvena satyena
+> yamādibhir yoga-pathair\
+> abhyasañ śraddhayānvitaḥ\
+> mayi bhāvena satyena\
 > mat-kathā-śravaṇena ca
 
 *yama-ādibhiḥ*—empezando con *yama*; *yoga-pathaiḥ*—por medio del sistema de *yoga*; *abhyasan*—practicando; *śraddhayā anvitaḥ*—con gran fe; *mayi*—a Mí; *bhāvena*—con devoción; *satyena*—sin mezcla; *mat-kathā*—narraciones acerca de Mí; *śravaṇena*—escuchando; *ca*—y.

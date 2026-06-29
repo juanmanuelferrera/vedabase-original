@@ -1,9 +1,9 @@
 ### CC Adi 11.55
 
-> ভাগবতে কৃষ্ণলীলা বর্ণিলা বেদব্যাস ।
+> ভাগবতে কৃষ্ণলীলা বর্ণিলা বেদব্যাস ।\
 > চৈতন্য-লীলাতে ব্যাস — বৃন্দাবন দাস ॥৫৫॥
 
-> bhāgavate kṛṣṇa-līlā varṇilā vedavyāsa
+> bhāgavate kṛṣṇa-līlā varṇilā vedavyāsa\
 > caitanya-līlāte vyāsa--vṛndāvana dāsa
 
 *bhāgavate*—en el *Śrīmad-Bhāgavatam*; *kṛṣṇa-līlā*—los pasatiempos del Señor Kṛṣṇa; *varṇilā*—describió; *veda-vyāsa*—Dvaipāyana Vyāsadeva; *caitanya-līlāte*—en los pasatiempos del Señor Caitanya; *vyāsa*—Vedavyāsa; *vṛndāvana dāsa*—Śrīla Vṛndāvana dāsa Ṭhākura.

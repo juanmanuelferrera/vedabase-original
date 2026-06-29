@@ -1,9 +1,9 @@
 ### CC Antya 3.257
 
-> মুক্তি-হেতুক তারক হয় ‘রামনাম’ ।
+> মুক্তি-হেতুক তারক হয় ‘রামনাম’ ।\
 > ‘কৃষ্ণনাম’ পারক হঞা করে প্রেমদান ॥২৫৭॥
 
-> mukti-hetuka tāraka haya 'rāma-nāma'
+> mukti-hetuka tāraka haya 'rāma-nāma'\
 > 'kṛṣṇa-nāma' pāraka hañā kare prema-dāna
 
 *mukti-hetuka*—la causa de la liberación; *tāraka*—liberador; *haya*—es; *rāma-nāma*—el santo nombre del Señor Rāma; *kṛṣṇa-nāma*—el santo nombre del Señor Kṛṣṇa; *pāraka*—aquello que lleva al otro lado del océano de nesciencia; *hañā*—siendo; *kare*—da; *prema-dāna*—el regalo del amor a Kṛṣṇa.

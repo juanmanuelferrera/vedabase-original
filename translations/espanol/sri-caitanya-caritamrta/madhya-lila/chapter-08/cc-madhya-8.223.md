@@ -1,9 +1,9 @@
 ### CC Madhya 8.223
 
-> তাহাতে দৃষ্টান্ত — উপনিষদ্ শ্রুতিগণ ৷
+> তাহাতে দৃষ্টান্ত — উপনিষদ্ শ্রুতিগণ ৷\
 > রাগমার্গে ভজি’ পাইল ব্রজেন্দ্রনন্দন ৷৷ ২২৩ ৷৷ ॥২২৩॥
 
-> tāhāte dṛṣṭānta--upaniṣad śruti-gaṇa
+> tāhāte dṛṣṭānta--upaniṣad śruti-gaṇa\
 > rāga-mārge bhaji' pāila vrajendra-nandana
 
 *tāhāte*—en esta cuestión; *dṛṣṭānta*—el ejemplo; *upaniṣad śruti-gaṇa*—los grandes sabios conocidos como las *Upaniṣads* o *śrutis* personificadas; *rāga-mārge*—por la senda del amor espontáneo; *bhaji'*—adorando; *pāila*—obtuvieron; *vrajendra-nandana*—los pies de loto del Señor Kṛṣṇa.

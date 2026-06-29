@@ -1,11 +1,11 @@
 ### SB 9.11.6
 
-> अप्रत्तं नस्त्वया किं नु भगवन्भुवनेश्वर
+> अप्रत्तं नस्त्वया किं नु भगवन्भुवनेश्वर\
 > यन्नोऽन्तर्हृदयं विश्य तमो हंसि स्वरोचिषा ॥६॥
 
-> aprattaṁ nas tvayā kiṁ nu
-> bhagavan bhuvaneśvara
-> yan no 'ntar-hṛdayaṁ viśya
+> aprattaṁ nas tvayā kiṁ nu\
+> bhagavan bhuvaneśvara\
+> yan no 'ntar-hṛdayaṁ viśya\
 > tamo haṁsi sva-rociṣā
 
 *aprattam*—not given; *naḥ*—unto us; *tvayā*—by Your Lordship; *kim*—what; *nu*—indeed; *bhagavan*—O Supreme Lord; *bhuvana-īśvara*—O master of the whole universe; *yat*—because; *naḥ*—our; *antaḥ-hṛdayam*—within the core of the heart; *viśya*—entering; *tamaḥ*—the darkness of ignorance; *haṁsi*—You annihilate; *sva-rociṣā*—by Your own effulgence.

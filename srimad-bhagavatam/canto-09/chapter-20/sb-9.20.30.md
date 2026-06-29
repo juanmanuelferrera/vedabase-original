@@ -1,11 +1,11 @@
 ### SB 9.20.30
 
-> किरातहूणान्यवनान्पौण्ड्रान्कङ्कान्खशान्छकान
+> किरातहूणान्यवनान्पौण्ड्रान्कङ्कान्खशान्छकान\
 > अब्रह्मण्यनृपांश्चाहन्म्लेच्छान्दिग्विजयेऽखिलान ॥३०॥
 
-> kirāta-hūṇān yavanān
-> pauṇḍrān kaṅkān khaśāñ chakān
-> abrahmaṇya-nṛpāṁś cāhan
+> kirāta-hūṇān yavanān\
+> pauṇḍrān kaṅkān khaśāñ chakān\
+> abrahmaṇya-nṛpāṁś cāhan\
 > mlecchān dig-vijaye 'khilān
 
 *kirāta*—the black people called Kirātas (mostly the Africans); *hūṇān*—the Huns, the tribes from the far north; *yavanān*—the meat-eaters; *pauṇḍrān*—the Pauṇḍras; *kaṅkān*—the Kaṅkas; *khaśān*—the Mongolians; *śakān*—the Śakas; *abrahmaṇya*—against the brahminical culture; *nṛpān*—kings; *ca*—and; *ahan*—he killed; *mlecchān*—such atheists, who had no respect for Vedic civilization; *dik-vijaye*—while conquering all directions; *akhilān*—all of them.

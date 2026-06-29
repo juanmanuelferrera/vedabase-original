@@ -1,12 +1,12 @@
 ### SB 7.8.27
 
-> असाध्वमन्यन्त हृतौकसोऽमरा घनच्छदा भारत सर्वधिष्ण्यपाः
-> तं मन्यमानो निजवीर्यशङ्कितं यद्धस्तमुक्तो नृहरिं महासुरः
+> असाध्वमन्यन्त हृतौकसोऽमरा घनच्छदा भारत सर्वधिष्ण्यपाः\
+> तं मन्यमानो निजवीर्यशङ्कितं यद्धस्तमुक्तो नृहरिं महासुरः\
 > पुनस्तमासज्जत खड्गचर्मणी प्रगृह्य वेगेन गतश्रमो मृधे ॥२७॥
 
-> taṁ manyamāno nija-vīrya-śaṅkitaṁ
-> yad dhasta-mukto nṛhariṁ mahāsuraḥ
-> punas tam āsajjata khaḍga-carmaṇī
+> taṁ manyamāno nija-vīrya-śaṅkitaṁ\
+> yad dhasta-mukto nṛhariṁ mahāsuraḥ\
+> punas tam āsajjata khaḍga-carmaṇī\
 > pragṛhya vegena gata-śramo mṛdhe
 
 *tam*—a Él (al Señor Nṛsiṁhadeva); *manyamānaḥ*—pensando; *nija-vīrya-śaṅkitam*—asustado de su poder; *yat*—debido a; *hasta-muktaḥ*—liberado de las garras del Señor; *nṛ-harim*—el Señor Nṛsiṁhadeva; *mahā-asuraḥ*—el gran demonio; *punaḥ*—de nuevo; *tam*—a Él; *āsajjata*—atacó; *khaḍga-carmaṇī*—su espada y su escudo; *pragṛhya*—tomando; *vegena*—con gran fuerza; *gata-śramaḥ*—libre de la fatiga; *mṛdhe*—en la batalla.

@@ -1,11 +1,11 @@
 ### SB 7.10.23
 
-> पित्र्यं च स्थानमातिष्ठ यथोक्तं ब्रह्मवादिभिः
+> पित्र्यं च स्थानमातिष्ठ यथोक्तं ब्रह्मवादिभिः\
 > मय्यावेश्य मनस्तात कुरु कर्माणि मत्परः ॥२३॥
 
-> pitryaṁ ca sthānam ātiṣṭha
-> yathoktaṁ brahmavādibhiḥ
-> mayy āveśya manas tāta
+> pitryaṁ ca sthānam ātiṣṭha\
+> yathoktaṁ brahmavādibhiḥ\
+> mayy āveśya manas tāta\
 > kuru karmāṇi mat-paraḥ
 
 *pitryam*—paternal; *ca*—also; *sthānam*—place, throne; *ātiṣṭha*—sit upon; *yathā-uktam*—as described; *brahmavādibhiḥ*—by the followers of Vedic civilization; *mayi*—unto Me; *āveśya*—being fully absorbed; *manaḥ*—the mind; *tāta*—My dear boy; *kuru*—just execute; *karmāṇi*—the regulative duties; *mat-paraḥ*—just for the sake of My work.

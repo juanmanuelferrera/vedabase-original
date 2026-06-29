@@ -1,9 +1,9 @@
 ### CC Adi 7.127
 
-> প্রাকৃত-বস্তুতে যদি অচিন্ত্যশক্তি হয় ।
+> প্রাকৃত-বস্তুতে যদি অচিন্ত্যশক্তি হয় ।\
 > ঈশ্বরের অচিন্ত্যশক্তি, — ইথে কি বিস্ময় ॥১২৭॥
 
-> prākṛta-vastute yadi acintya-śakti haya
+> prākṛta-vastute yadi acintya-śakti haya\
 > īśvarera acintya-śakti,—ithe ki vismaya
 
 *prākṛta-vastute*—in material things; *yadi*—if; *acintya*—inconceivable; *śakti*—potency; *haya*—becomes possible; *īśvarera*—of the Supreme Lord; *acintya*—inconceivable; *śakti*—potency; *ithe*—in this; *ki*—what; *vismaya*—wonderful.

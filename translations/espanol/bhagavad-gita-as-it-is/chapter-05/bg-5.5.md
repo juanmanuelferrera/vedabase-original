@@ -1,11 +1,11 @@
 ### Bg 5.5
 
-> यत्साङ्ख्यैः प्राप्यते स्थानं तद्योगैरपि गम्यते ।
+> यत्साङ्ख्यैः प्राप्यते स्थानं तद्योगैरपि गम्यते ।\
 > एकं साङ्ख्यं च योगं च यः पश्यति स पश्यति ॥५॥
 
-> yat sāṅkhyaiḥ prāpyate sthānaṁ
-> tad yogair api gamyate
-> ekaṁ sāṅkhyaṁ ca yogaṁ ca
+> yat sāṅkhyaiḥ prāpyate sthānaṁ\
+> tad yogair api gamyate\
+> ekaṁ sāṅkhyaṁ ca yogaṁ ca\
 > yaḥ paśyati sa paśyati
 
 *yat*—que; *sāṅkhyaiḥ*—por medio de la filosofía sāṅkhya; *prāpyate*—se alcanza; *sthānam*—lugar; *tat*—eso; *yogaiḥ*—mediante el servicio devocional; *api*—también; *gamyate*—uno puede alcanzar; *ekam*—uno; *sāṅkhyam*—estudio analítico; *ca*—y; *yogam*—acción con devoción; *ca*—y; *yaḥ*—aquel que; *paśyati*—ve; *saḥ*—él; *paśyati*—realmente ve.

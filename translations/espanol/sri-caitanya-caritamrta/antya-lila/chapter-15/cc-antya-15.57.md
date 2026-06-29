@@ -1,9 +1,9 @@
 ### CC Antya 15.57
 
-> সৌন্দর্য দেখিয়া ভূমে পড়ে মূর্চ্ছা পাঞা ।
+> সৌন্দর্য দেখিয়া ভূমে পড়ে মূর্চ্ছা পাঞা ।\
 > হেনকালে স্বরূপাদি মিলিলা আসিয়া ॥৫৭॥
 
-> saundarya dekhiyā bhūme paḍe mūrcchā pāñā
+> saundarya dekhiyā bhūme paḍe mūrcchā pāñā\
 > hena-kāle svarūpādi mililā āsiyā
 
 *saundarya*—la belleza; *dekhiyā*—al ver; *bhūme*—al suelo; *paḍe*—cayó; *mūrcchā pāñā*—perdiendo la conciencia; *hena-kāle*—en ese momento; *svarūpa-ādi*—los devotos, encabezados por Svarūpa Dāmodara Gosvāmī; *mililā āsiyā*—llegaron allí y se reunieron.

@@ -1,9 +1,9 @@
 ### CC Madhya 11.138
 
-> yadyapi mukunda-āmā-saṅge śiśu haite
+> yadyapi mukunda-āmā-saṅge śiśu haite\
 > tāṅhā haite adhika sukha tomāre dekhite
 
-> yadyapi mukunda-āmā-saṅge śiśu haite
+> yadyapi mukunda-āmā-saṅge śiśu haite\
 > tāṅhā haite adhika sukha tomāre dekhite
 
 *yadyapi*—aunque; *mukunda*—Mukunda; *āmā-saṅge*—conmigo; *śiśu haite*—desde la infancia; *tāṅhā haite*—más que él; *adhika*—aún más; *sukha*—felicidad; *tomāre dekhite*—al verte.

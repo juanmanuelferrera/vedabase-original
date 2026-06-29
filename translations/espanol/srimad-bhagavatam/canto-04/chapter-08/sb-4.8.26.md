@@ -1,11 +1,11 @@
 ### SB 4.8.26
 
-> अहो तेजः क्षत्रियाणां मानभङ्गममृष्यताम् ।
+> अहो तेजः क्षत्रियाणां मानभङ्गममृष्यताम् ।\
 > बालोऽप्ययं हृदा धत्ते यत्समातुरसद्वचः ॥२६॥
 
-> aho tejaḥ kṣatriyāṇāṁ
-> māna-bhaṅgam amṛṣyatām
-> bālo 'py ayaṁ hṛdā dhatte
+> aho tejaḥ kṣatriyāṇāṁ\
+> māna-bhaṅgam amṛṣyatām\
+> bālo 'py ayaṁ hṛdā dhatte\
 > yat samātur asad-vacaḥ
 
 *aho*—¡qué sorprendente es!; *tejaḥ*—el poder; *kṣatriyāṇām*—de los *kṣatriyas*; *māna-bhaṅgam*—hiriendo el prestigio; *amṛṣyatām*—incapaz de tolerar; *bālaḥ*—solo un niño; *api*—aunque; *ayam*—este; *hṛdā*—a pecho; *dhatte*—ha tomado; *yat*—lo que; *sa-mātuḥ*—de su madrastra; *asat*—desagradables; *vacaḥ*—palabras.

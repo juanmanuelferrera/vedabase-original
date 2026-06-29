@@ -1,11 +1,11 @@
 ### SB 1.9.24
 
-> स देवदेवो भगवान्प्रतीक्षतां कलेवरं यावदिदं हिनोम्यहम् ।
+> स देवदेवो भगवान्प्रतीक्षतां कलेवरं यावदिदं हिनोम्यहम् ।\
 > प्रसन्नहासारुणलोचनोल्लसन्मुखाम्बुजो ध्यानपथश्चतुर्भुजः ॥२४॥
 
-> sa deva-devo bhagavān pratīkṣatāṁ
-> kalevaraṁ yāvad idaṁ hinomy aham
-> prasanna-hāsāruṇa-locanollasan-
+> sa deva-devo bhagavān pratīkṣatāṁ\
+> kalevaraṁ yāvad idaṁ hinomy aham\
+> prasanna-hāsāruṇa-locanollasan-\
 > mukhāmbujo dhyāna-pathaś catur-bhujaḥ
 
 *saḥ*—Él; *deva-devaḥ*—el Supremo Señor de los señores; *bhagavān*—la Personalidad de Dios; *pratīkṣatām*—tenga la bondad de esperar; *kalevaram*—cuerpo; *yāvat*—mientras; *idam*—este (cuerpo material); *hinomi*—deje; *aham*—yo; *prasanna*—alegre; *hāsa*—sonriente; *aruṇa-locana*—ojos tan rojos como el sol de la mañana; *ullasat*—adornada hermosamente; *mukha-ambujaḥ*—Su cara cual flor de loto; *dhyāna-pathaḥ*—en la senda de mi meditación; *catur-bhujaḥ*—la forma de Nārāyaṇa de cuatro manos (la Deidad venerable de Bhīṣmadeva).

@@ -1,11 +1,11 @@
 ### SB 7.15.36
 
-> यः प्रव्रज्य गृहात्पूर्वं त्रिवर्गावपनात्पुनः
+> यः प्रव्रज्य गृहात्पूर्वं त्रिवर्गावपनात्पुनः\
 > यदि सेवेत तान्भिक्षुः स वै वान्ताश्यपत्रपः ॥३६॥
 
-> yaḥ pravrajya gṛhāt pūrvaṁ
-> tri-vargāvapanāt punaḥ
-> yadi seveta tān bhikṣuḥ
+> yaḥ pravrajya gṛhāt pūrvaṁ\
+> tri-vargāvapanāt punaḥ\
+> yadi seveta tān bhikṣuḥ\
 > sa vai vāntāśy apatrapaḥ
 
 *yaḥ*—one who; *pravrajya*—being finished for good and leaving for the forest (being situated in transcendental bliss); *gṛhāt*—from home; *pūrvam*—at first; *tri-varga*—the three principles of religion, economic development and sense gratification; *āvapanāt*—from the field in which they are sown; *punaḥ*—again; *yadi*—if; *seveta*—should accept; *tān*—materialistic activities; *bhikṣuḥ*—a person who has accepted the *sannyāsa* order; *saḥ*—that person; *vai*—indeed; *vānta-āśī*—one who eats his own vomit; *apatrapaḥ*—without shame.

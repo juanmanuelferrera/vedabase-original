@@ -1,13 +1,13 @@
 ### Bg 2.11
 
-> श्रीभगवानुवाच ।
-> अशोच्यानन्वशोचस्त्वं प्रज्ञावादांश्च भाषसे ।
+> श्रीभगवानुवाच ।\
+> अशोच्यानन्वशोचस्त्वं प्रज्ञावादांश्च भाषसे ।\
 > गतासूनगतासूंश्च नानुशोचन्ति पण्डिताः ॥११॥
 
-> śrī bhagavān uvāca
-> aśocyān anvaśocas tvaṁ
-> prajñā-vādāṁś ca bhāṣase
-> gatāsūn agatāsūṁś ca
+> śrī bhagavān uvāca\
+> aśocyān anvaśocas tvaṁ\
+> prajñā-vādāṁś ca bhāṣase\
+> gatāsūn agatāsūṁś ca\
 > nānuśocanti paṇḍitāḥ
 
 *śrī bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *aśocyān*—aquello que no es digno de lamentación; *anvaśocaḥ*—te estás lamentando; *tvam*—tú; *prajñā-vādān*—palabras eruditas; *ca*—también; *bhāṣase*—hablando; *gata*—pérdida; *asūn*—vida; *agata*—no pasada; *asūn*—vida; *ca*—también; *na*—nunca; *anuśocanti*—lamentan; *paṇḍitāḥ*—los eruditos.

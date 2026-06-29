@@ -1,11 +1,11 @@
 ### SB 4.18.17
 
-> गन्धर्वाप्सरसोऽधुक्षन्पात्रे पद्ममये पयः ।
+> गन्धर्वाप्सरसोऽधुक्षन्पात्रे पद्ममये पयः ।\
 > वत्सं विश्वावसुं कृत्वा गान्धर्वं मधु सौभगम् ॥१७॥
 
-> gandharvāpsaraso 'dhukṣan
-> pātre padmamaye payaḥ
-> vatsaṁ viśvāvasuṁ kṛtvā
+> gandharvāpsaraso 'dhukṣan\
+> pātre padmamaye payaḥ\
+> vatsaṁ viśvāvasuṁ kṛtvā\
 > gāndharvaṁ madhu saubhagam
 
 *gandharva*—los habitantes del planeta Gandharva; *apsarasaḥ*—los habitantes del planeta Apsarā; *adhukṣan*—ordeñaron; *pātre*—en una vasija; *padma-maye*—hecha de un loto; *payaḥ*—leche; *vatsam*—ternero; *viśvāvasum*—con el nombre de Viśvāvasu; *kṛtvā*—haciendo; *gāndharvam*—canciones; *madhu*—dulces; *saubhagam*—belleza.

@@ -1,11 +1,11 @@
 ### SB 7.4.3
 
-> ततो जगाम भगवानमोघानुग्रहो विभुः
+> ततो जगाम भगवानमोघानुग्रहो विभुः\
 > पूजितोऽसुरवर्येण स्तूयमानः प्रजेश्वरैः ॥३॥
 
-> tato jagāma bhagavān
-> amoghānugraho vibhuḥ
-> pūjito 'sura-varyeṇa
+> tato jagāma bhagavān\
+> amoghānugraho vibhuḥ\
+> pūjito 'sura-varyeṇa\
 > stūyamānaḥ prajeśvaraiḥ
 
 *tataḥ*—a continuación; *jagāma*—partió; *bhagavān*—el muy poderoso, el Señor Brahmā; *amogha*—sin falta; *anugrahaḥ*—cuya bendición; *vibhuḥ*—el Ser Supremo del universo; *pūjitaḥ*—siendo adorado; *asura-varyeṇa*—por el más grande de los demonios (Hiraṇyakaśipu); *stūyamānaḥ*—siendo alabado; *prajā-īśvaraiḥ*—por muchos semidioses, los amos de distintas regiones.

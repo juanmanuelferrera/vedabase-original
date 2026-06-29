@@ -1,13 +1,13 @@
 ### SB 6.16.65
 
-> श्रीशुक उवाच
-> आश्वास्य भगवानित्थं चित्रकेतुं जगद्गुरुः
+> श्रीशुक उवाच\
+> आश्वास्य भगवानित्थं चित्रकेतुं जगद्गुरुः\
 > पश्यतस्तस्य विश्वात्मा ततश्चान्तर्दधे हरिः ॥६५॥
 
-> śrī-śuka uvāca
-> āśvāsya bhagavān itthaṁ
-> citraketuṁ jagad-guruḥ
-> paśyatas tasya viśvātmā
+> śrī-śuka uvāca\
+> āśvāsya bhagavān itthaṁ\
+> citraketuṁ jagad-guruḥ\
+> paśyatas tasya viśvātmā\
 > tataś cāntardadhe hariḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *āśvāsya*—assuring; *bhagavān*—the Supreme Personality of Godhead; *ittham*—thus; *citraketum*—King Citraketu; *jagat-guruḥ*—the supreme spiritual master; *paśyataḥ*—while looking on; *tasya*—he; *viśva-ātmā*—the Supersoul of the whole universe; *tataḥ*—from there; *ca*—also; *antardadhe*—disappeared; *hariḥ*—Lord Hari.

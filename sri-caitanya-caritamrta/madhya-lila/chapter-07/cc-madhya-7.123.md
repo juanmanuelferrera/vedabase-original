@@ -1,9 +1,9 @@
 ### CC Madhya 7.123
 
-> অনেকপ্রকার স্নেহে ভিক্ষা করাইল ।
+> অনেকপ্রকার স্নেহে ভিক্ষা করাইল ।\
 > গোসাঞির শেষান্ন সবংশে খাইল ॥১২৩॥
 
-> aneka-prakāra snehe bhikṣā karāila
+> aneka-prakāra snehe bhikṣā karāila\
 > gosāñira śeṣānna sa-vaṁśe khāila
 
 *aneka-prakāra*—various kinds; *snehe*—in affection; *bhikṣā*—food; *karāila*—made Him eat; *gosāñira*—of Lord Caitanya Mahāprabhu; *śeṣa-anna*—remnants of food; *sa-vaṁśe*—with all the members of the family; *khāila*—ate.

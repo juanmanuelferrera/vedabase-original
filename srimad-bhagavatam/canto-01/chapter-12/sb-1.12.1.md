@@ -1,13 +1,13 @@
 ### SB 1.12.1
 
-> शौनक उवाच
-> अश्वत्थाम्नोपसृष्टेन ब्रह्मशीर्ष्णोरुतेजसा ।
+> शौनक उवाच\
+> अश्वत्थाम्नोपसृष्टेन ब्रह्मशीर्ष्णोरुतेजसा ।\
 > उत्तराया हतो गर्भ ईशेनाजीवितः पुनः ॥१॥
 
-> śaunaka uvāca
-> aśvatthāmnopasṛṣṭena
-> brahma-śīrṣṇoru-tejasā
-> uttarāyā hato garbha
+> śaunaka uvāca\
+> aśvatthāmnopasṛṣṭena\
+> brahma-śīrṣṇoru-tejasā\
+> uttarāyā hato garbha\
 > īśenājīvitaḥ punaḥ
 
 *śaunakaḥ uvāca*—the sage Śaunaka said; *aśvatthāmna*—of Aśvatthāmā (the son of Droṇa); *upasṛṣṭena*—by release of; *brahma-śīrṣṇā*—the invincible weapon, *brahmāstra*; *uru-tejasā*—by high temperature; *uttarāyāḥ*—of Uttarā (mother of Parīkṣit); *hataḥ*—being spoiled; *garbhaḥ*—womb; *īśena*—by the Supreme Lord; *ājīvitaḥ*—brought to life; *punaḥ*—again.

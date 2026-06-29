@@ -1,13 +1,13 @@
 ### CC Madhya 13.155
 
-> মোর ভাগ্য মো-বিষয়ে, তোমার যে প্রেম হয়ে,
-> সেই প্রেম — পরম প্রবল ।
-> লুকাঞা আমা আনে, সঙ্গ করায় তোমা-সনে,
+> মোর ভাগ্য মো-বিষয়ে, তোমার যে প্রেম হয়ে,\
+> সেই প্রেম — পরম প্রবল ।\
+> লুকাঞা আমা আনে, সঙ্গ করায় তোমা-সনে,\
 > প্ৰকটেহ আনিবে সত্বর ॥১৫৫॥
 
-> mora bhāgya mo-viṣaye, tomāra ye prema haye,
-> sei prema-parama prabala
-> lukāñā āmā āne, saṅga karāya tomā-sane,
+> mora bhāgya mo-viṣaye, tomāra ye prema haye,\
+> sei prema-parama prabala\
+> lukāñā āmā āne, saṅga karāya tomā-sane,\
 > prakaṭeha ānibe satvara
 
 *mora bhāgya*—Mi fortuna; *mo-viṣaye*—en relación conmigo; *tomāra*—Tu; *ye*—cualquier; *prema*—amor; *haye*—que hay; *sei prema*—ese amor; *parama pra-bala*—muy poderoso; *lukāñā*—en secreto; *āmā āne*—Me trae; *saṅga karāya*—Me obliga a asociarme; *tomā-sane*—contigo; *prakaṭeha*—manifestado directamente; *ānibe*—traerá; *satvara*—muy pronto.

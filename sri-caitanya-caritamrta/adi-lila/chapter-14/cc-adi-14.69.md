@@ -1,11 +1,11 @@
 ### CC Adi 14.69
 
-> সংকল্পো বিদিতঃ সাধ্ব্যো ভবতীনাং মদর্চনম্ ।
+> সংকল্পো বিদিতঃ সাধ্ব্যো ভবতীনাং মদর্চনম্ ।\
 > ময়ানুমোদিতঃ সোঽসৌ সত্যো ভবিতুমর্হতি ॥৬৯॥
 
-> saṅkalpo viditaḥ sādhvyo
-> bhavatīnāṁ mad-arcanam
-> mayānumoditaḥ so 'sau
+> saṅkalpo viditaḥ sādhvyo\
+> bhavatīnāṁ mad-arcanam\
+> mayānumoditaḥ so 'sau\
 > satyo bhavitum arhati
 
 *saṅkalpaḥ*—desire; *viditaḥ*—has been understood; *sādhvyaḥ*—O all of you chaste ladies; *bhavatīnām*—of all of you; *mat-arcanam*—for worshiping Me; *mayā*—by Me; *anumoditaḥ*—accepted; *saḥ*—that; *asau*—that determination or desire; *satyaḥ*—successful; *bhavitum*—to become; *arhati*—deserves.

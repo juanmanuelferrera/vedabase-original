@@ -1,11 +1,11 @@
 ### SB 3.5.3
 
-> जनस्य कृष्णाद्विमुखस्य दैवादधर्मशीलस्य सुदुःखितस्य ।
+> जनस्य कृष्णाद्विमुखस्य दैवादधर्मशीलस्य सुदुःखितस्य ।\
 > अनुग्रहायेह चरन्ति नूनं भूतानि भव्यानि जनार्दनस्य ॥३॥
 
-> janasya kṛṣṇād vimukhasya daivād
-> adharma-śīlasya suduḥkhitasya
-> anugrahāyeha caranti nūnaṁ
+> janasya kṛṣṇād vimukhasya daivād\
+> adharma-śīlasya suduḥkhitasya\
+> anugrahāyeha caranti nūnaṁ\
 > bhūtāni bhavyāni janārdanasya
 
 *janasya*—del hombre común; *kṛṣṇāt*—del Señor Supremo, Kṛṣṇa; *vimukhasya*—de aquel que ha vuelto la espalda al Señor; *daivāt*—por la influencia de la energía externa; *adharma-śīlasya*—de alguien que está dedicado a la irreligiosidad; *su-duḥkhitasya*—de alguien que está siempre infeliz; *anugrahāya*—por ser compasivo con ellos; *iha*—en este mundo; *caranti*—deambulan; *nūnam*—ciertamente; *bhūtāni*—personas; *bhavyāni*—grandes almas filantrópicas; *janārdanasya*—de la Suprema Personalidad de Dios.

@@ -1,11 +1,11 @@
 ### SB 3.1.11
 
-> अजातशत्रोः प्रतियच्छ दायं तितिक्षतो दुर्विषहं तवागः ।
+> अजातशत्रोः प्रतियच्छ दायं तितिक्षतो दुर्विषहं तवागः ।\
 > सहानुजो यत्र वृकोदराहिः श्वसन्रुषा यत्त्वमलं बिभेषि ॥११॥
 
-> ajāta-śatroḥ pratiyaccha dāyaṁ
-> titikṣato durviṣahaṁ tavāgaḥ
-> sahānujo yatra vṛkodarāhiḥ
+> ajāta-śatroḥ pratiyaccha dāyaṁ\
+> titikṣato durviṣahaṁ tavāgaḥ\
+> sahānujo yatra vṛkodarāhiḥ\
 > śvasan ruṣā yat tvam alaṁ bibheṣi
 
 *ajāta-śatroḥ*—of Yudhiṣṭhira, who has no enemy; *pratiyaccha*—return; *dāyam*—legitimate share; *titikṣataḥ*—of he who is so forbearing; *durviṣaham*—unbearable; *tava*—your; *āgaḥ*—offense; *saha*—along with; *anujaḥ*—younger brothers; *yatra*—wherein; *vṛkodara*—Bhīma; *ahiḥ*—revenging snake; *śvasan*—breathing heavily; *ruṣā*—in anger; *yat*—whom; *tvam*—you; *alam*—verily; *bibheṣi*—do fear.

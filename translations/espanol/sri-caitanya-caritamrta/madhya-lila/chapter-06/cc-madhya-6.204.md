@@ -1,9 +1,9 @@
 ### CC Madhya 6.204
 
-> দেখি’ সার্বভৌম দণ্ডবৎ করি’ পড়ি’ ।
+> দেখি’ সার্বভৌম দণ্ডবৎ করি’ পড়ি’ ।\
 > পুনঃ উঠি’ স্তুতি করে দুই কর যুড়ি’ ॥২০৪॥
 
-> dekhi' sārvabhauma daṇḍavat kari' paḍi'
+> dekhi' sārvabhauma daṇḍavat kari' paḍi'\
 > punaḥ uṭhi' stuti kare dui kara yuḍi'
 
 *dekhi'*—al ver eso; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *daṇḍavat*—reverencias; *kari'*—haciendo; *paḍi'*—cayendo de bruces; *punaḥ*—de nuevo; *uṭhi'*—poniéndose en pie; *stuti*—oración; *kare*—ofrece; *dui*—dos; *kara*—manos; *yuḍi'*—juntando.

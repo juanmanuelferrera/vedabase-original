@@ -1,11 +1,11 @@
 ### SB 1.3.33
 
-> यत्रेमे सदसद्रूपे प्रतिषिद्धे स्वसंविदा ।
+> यत्रेमे सदसद्रूपे प्रतिषिद्धे स्वसंविदा ।\
 > अविद्ययात्मनि कृते इति तद्ब्रह्मदर्शनम् ॥३३॥
 
-> yatreme sad-asad-rūpe
-> pratiṣiddhe sva-saṁvidā
-> avidyayātmani kṛte
+> yatreme sad-asad-rūpe\
+> pratiṣiddhe sva-saṁvidā\
+> avidyayātmani kṛte\
 > iti tad brahma-darśanam
 
 *yatra*—whenever; *ime*—in all these; *sat-asat*—gross and subtle; *rūpe*—in the forms of; *pratiṣiddhe*—on being nullified; *sva-saṁvidā*—by self-realization; *avidyayā*—by ignorance; *ātmani*—in the self; *kṛte*—having been imposed; *iti*—thus; *tat*—that is; *brahma-darśanam*—the process of seeing the Absolute.

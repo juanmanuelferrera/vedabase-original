@@ -1,11 +1,11 @@
 ### SB 8.3.12
 
-> नमः शान्ताय घोराय मूढाय गुणधर्मिणे
+> नमः शान्ताय घोराय मूढाय गुणधर्मिणे\
 > निर्विशेषाय साम्याय नमो ज्ञआनघनाय च ॥१२॥
 
-> namaḥ śāntāya ghorāya
-> mūḍhāya guṇa-dharmiṇe
-> nirviśeṣāya sāmyāya
+> namaḥ śāntāya ghorāya\
+> mūḍhāya guṇa-dharmiṇe\
+> nirviśeṣāya sāmyāya\
 > namo jñāna-ghanāya ca
 
 *namaḥ*—all obeisances; *śāntāya*—unto Him who is above all material qualities and completely peaceful, or unto Vāsudeva, the Supersoul in every living entity; *ghorāya*—unto the fierce forms of the Lord like Jāmadagnya and Nṛsiṁhadeva; *mūḍhāya*—the form of the Lord as an animal, such as the boar; *guṇa-dharmiṇe*—who accepts different qualities within the material world; *nirviśeṣāya*—who is without material qualities, being fully spiritual; *sāmyāya*—Lord Buddha, the form of *nirvāṇa,* wherein the material qualities stop; *namaḥ*—I offer my respectful obeisances; *jñāna-ghanāya*—who is knowledge or the impersonal Brahman; *ca*—also.

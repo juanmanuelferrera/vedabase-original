@@ -1,25 +1,25 @@
 ### SB 8.10.32-34
 
-> वृषाकपिस्तु जम्भेन महिषेण विभावसुः
-> इल्वलः सह वातापिर्ब्रह्मपुत्रैररिन्दम ॥३२॥
-> कामदेवेन दुर्मर्ष उत्कलो मातृभिः सह
-> बृहस्पतिश्चोशनसा नरकेण शनैश्चरः ॥३३॥
-> मरुतो निवातकवचैः कालेयैर्वसवोऽमराः
+> वृषाकपिस्तु जम्भेन महिषेण विभावसुः\
+> इल्वलः सह वातापिर्ब्रह्मपुत्रैररिन्दम ॥३२॥\
+> कामदेवेन दुर्मर्ष उत्कलो मातृभिः सह\
+> बृहस्पतिश्चोशनसा नरकेण शनैश्चरः ॥३३॥\
+> मरुतो निवातकवचैः कालेयैर्वसवोऽमराः\
 > विश्वेदेवास्तु पौलोमै रुद्राः क्रोधवशैः सह ॥३४॥
 
-> vṛṣākapis tu jambhena
-> mahiṣeṇa vibhāvasuḥ
-> ilvalaḥ saha vātāpir
+> vṛṣākapis tu jambhena\
+> mahiṣeṇa vibhāvasuḥ\
+> ilvalaḥ saha vātāpir\
 > brahma-putrair arindama
 
-> kāmadevena durmarṣa
-> utkalo mātṛbhiḥ saha
-> bṛhaspatiś cośanasā
+> kāmadevena durmarṣa\
+> utkalo mātṛbhiḥ saha\
+> bṛhaspatiś cośanasā\
 > narakeṇa śanaiścaraḥ
 
-> maruto nivātakavacaiḥ
-> kāleyair vasavo 'marāḥ
-> viśvedevās tu paulomai
+> maruto nivātakavacaiḥ\
+> kāleyair vasavo 'marāḥ\
+> viśvedevās tu paulomai\
 > rudrāḥ krodhavaśaiḥ saha
 
 *vṛṣākapiḥ*—Lord Śiva; *tu*—indeed; *jambhena*—with Jambha; *mahiṣeṇa*—with Mahiṣāsura; *vibhāvasuḥ*—the fire-god; *ilvalaḥ*—the demon Ilvala; *saha vātāpiḥ*—with his brother, Vātāpi; *brahma-putraiḥ*—with the sons of Brahmā, such as Vasiṣṭha; *arim-dama*—O Mahārāja Parīkṣit, suppressor of enemies; *kāmadevena*—with Kāmadeva; *durmarṣaḥ*—Durmarṣa; *utkalaḥ*—the demon Utkala; *mātṛbhiḥ saha*—with the demigoddesses known as the Mātṛkās; *bṛhaspatiḥ*—the demigod Bṛhaspati; *ca*—and; *uśanasā*—with Śukrācārya; *narakeṇa*—with the demon known as Naraka; *śanaiścaraḥ*—the demigod Śani, or Saturn; *marutaḥ*—the demigods of air; *nivātakavacaiḥ*—with the demon Nivātakavaca; *kāleyaiḥ*—with the Kālakeyas; *vasavaḥ amarāḥ*—the Vasus fought; *viśvedevāḥ*—the Viśvedeva demigods; *tu*—indeed; *paulomaiḥ*—with the Paulomas; *rudrāḥ*—the eleven Rudras; *krodhavaśaiḥ saha*—with the Krodhavaśa demons.

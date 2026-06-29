@@ -1,11 +1,11 @@
 ### SB 9.7.21
 
-> शुनःशेफं पशुं पित्रे प्रदाय समवन्दत
+> शुनःशेफं पशुं पित्रे प्रदाय समवन्दत\
 > ततः पुरुषमेधेन हरिश्चन्द्रो महायशाः ॥२१॥
 
-> tataḥ puruṣa-medhena
-> hariścandro mahā-yaśāḥ
-> muktodaro 'yajad devān
+> tataḥ puruṣa-medhena\
+> hariścandro mahā-yaśāḥ\
+> muktodaro 'yajad devān\
 > varuṇādīn mahat-kathaḥ
 
 *tataḥ*—thereafter; *puruṣa-medhena*—by sacrificing a man in the *yajña*; *hariścandraḥ*—King Hariścandra; *mahā-yaśāḥ*—very famous; *mukta-udaraḥ*—became free from dropsy; *ayajat*—offered sacrifices; *devān*—unto the demigods; *varuṇa-ādīn*—headed by Varuṇa and others; *mahat-kathaḥ*—famous in history with other exalted personalities.

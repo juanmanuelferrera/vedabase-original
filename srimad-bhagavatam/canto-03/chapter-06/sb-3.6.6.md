@@ -1,11 +1,11 @@
 ### SB 3.6.6
 
-> हिरण्मयः स पुरुषः सहस्रपरिवत्सरान् ।
+> हिरण्मयः स पुरुषः सहस्रपरिवत्सरान् ।\
 > आण्डकोश उवासाप्सु सर्वसत्त्वोपबृंहितः ॥६॥
 
-> hiraṇmayaḥ sa puruṣaḥ
-> sahasra-parivatsarān
-> āṇḍa-kośa uvāsāpsu
+> hiraṇmayaḥ sa puruṣaḥ\
+> sahasra-parivatsarān\
+> āṇḍa-kośa uvāsāpsu\
 > sarva-sattvopabṛṁhitaḥ
 
 *hiraṇmayaḥ*—the Garbhodakaśāyī Viṣṇu, who also assumes the *virāṭ-rūpa*; *saḥ*—He; *puruṣaḥ*—incarnation of Godhead; *sahasra*—one thousand; *parivatsarān*—celestial years; *āṇḍa-kośe*—within the global universe; *uvāsa*—resided; *apsu*—on the water; *sarva-sattva*—all living entities lying with Him; *upabṛṁhitaḥ*—so spread.

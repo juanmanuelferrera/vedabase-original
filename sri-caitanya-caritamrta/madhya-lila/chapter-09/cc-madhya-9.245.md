@@ -1,9 +1,9 @@
 ### CC Madhya 9.245
 
-> মধ্বাচার্য-স্থানে আইলা যাঁহা ‘তত্ত্ববাদী’ ।
+> মধ্বাচার্য-স্থানে আইলা যাঁহা ‘তত্ত্ববাদী’ ।\
 > উড়ুপীতে ‘কৃষ্ণ’ দেখি, তাহাঁ হৈল প্রেমোন্মাদী ॥২৪৫॥
 
-> madhvācārya-sthāne āilā yāṅhā 'tattvavādī'
+> madhvācārya-sthāne āilā yāṅhā 'tattvavādī'\
 > uḍupīte 'kṛṣṇa' dekhi, tāhāṅ haila premonmādī
 
 *madhva-ācārya-sthāne*—at the place of Madhvācārya; *āilā*—arrived; *yāṅhā*—where; *tattva-vādī*—philosophers known as Tattvavādīs; *uḍupīte*—at the place known as Uḍupī; *kṛṣṇa*—the Deity of Lord Kṛṣṇa; *dekhi*—seeing; *tāhāṅ*—there; *haila*—became; *prema-unmādī*—mad in ecstasy.

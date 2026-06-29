@@ -1,11 +1,11 @@
 ### SB 3.6.35
 
-> एतत्क्षत्तर्भगवतो दैवकर्मात्मरूपिणः ।
+> एतत्क्षत्तर्भगवतो दैवकर्मात्मरूपिणः ।\
 > कः श्रद्दध्यादुपाकर्तुं योगमायाबलोदयम् ॥३५॥
 
-> etat kṣattar bhagavato
-> daiva-karmātma-rūpiṇaḥ
-> kaḥ śraddadhyād upākartuṁ
+> etat kṣattar bhagavato\
+> daiva-karmātma-rūpiṇaḥ\
+> kaḥ śraddadhyād upākartuṁ\
 > yogamāyā-balodayam
 
 *etat*—this; *kṣattaḥ*—O Vidura; *bhagavataḥ*—of the Supreme Personality of Godhead; *daiva-karma-ātma-rūpiṇaḥ*—of the gigantic form of transcendental work, time and nature; *kaḥ*—who else; *śraddadhyāt*—can aspire; *upākartum*—measure in totality; *yogamāyā*—internal potency; *bala-udayam*—manifested by the strength of.

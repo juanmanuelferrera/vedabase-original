@@ -1,9 +1,9 @@
 ### CC Antya 8.27
 
-> শুষ্ক-ব্রহ্মজ্ঞানী, নাহি কৃষ্ণের ‘সম্বন্ধ’ ।
+> শুষ্ক-ব্রহ্মজ্ঞানী, নাহি কৃষ্ণের ‘সম্বন্ধ’ ।\
 > সর্ব লোক নিন্দা করে, নিন্দাতে নির্বন্ধ ॥২৭॥
 
-> śuṣka-brahma-jñānī, nāhi kṛṣṇera 'sambandha'
+> śuṣka-brahma-jñānī, nāhi kṛṣṇera 'sambandha'\
 > sarva loka nindā kare, nindāte nirbandha
 
 *śuṣka*—dry; *brahma-jñānī*—impersonalist philosopher; *nāhi*—there is not; *kṛṣṇera*—with Lord Kṛṣṇa; *sambandha*—relationship; *sarva*—all; *loka*—persons; *nindā kare*—criticizes; *nindāte nirbandha*—fixed in blaspheming.

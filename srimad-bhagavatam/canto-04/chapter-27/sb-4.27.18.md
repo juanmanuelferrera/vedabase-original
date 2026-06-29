@@ -1,11 +1,11 @@
 ### SB 4.27.18
 
-> स एव पुर्यां मधुभुक्पञ्चालेषु स्वपार्षदैः ।
+> स एव पुर्यां मधुभुक्पञ्चालेषु स्वपार्षदैः ।\
 > उपनीतं बलिं गृह्णन्स्त्रीजितो नाविदद्भयम् ॥१८॥
 
-> sa eva puryāṁ madhu-bhuk
-> pañcāleṣu sva-pārṣadaiḥ
-> upanītaṁ baliṁ gṛhṇan
+> sa eva puryāṁ madhu-bhuk\
+> pañcāleṣu sva-pārṣadaiḥ\
+> upanītaṁ baliṁ gṛhṇan\
 > strī-jito nāvidad bhayam
 
 *saḥ*—he; *eva*—certainly; *puryām*—within the city; *madhu-bhuk*—enjoying sex life; *pañcāleṣu*—in the kingdom of Pañcāla (five sense objects); *sva-pārṣadaiḥ*—along with his followers; *upanītam*—brought; *balim*—taxes; *gṛhṇan*—accepting; *strī-jitaḥ*—conquered by women; *na*—did not; *avidat*—understand; *bhayam*—fear of death.

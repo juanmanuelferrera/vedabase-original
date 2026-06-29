@@ -1,11 +1,11 @@
 ### SB 4.9.65
 
-> उत्तानपादो राजर्षिः प्रभावं तनयस्य तम् ।
+> उत्तानपादो राजर्षिः प्रभावं तनयस्य तम् ।\
 > श्रुत्वा दृष्ट्वाद्भुततमं प्रपेदे विस्मयं परम् ॥६५॥
 
-> uttānapādo rājarṣiḥ
-> prabhāvaṁ tanayasya tam
-> śrutvā dṛṣṭvādbhutatamaṁ
+> uttānapādo rājarṣiḥ\
+> prabhāvaṁ tanayasya tam\
+> śrutvā dṛṣṭvādbhutatamaṁ\
 > prapede vismayaṁ param
 
 *uttānapādaḥ*—el rey Uttānapāda; *rāja-ṛṣiḥ*—el gran rey santo; *prabhāvam*—influencia; *tanayasya*—de su hijo; *tam*—esa; *śrutvā*—al escuchar; *dṛṣṭvā*—viendo; *adbhuta*—maravillosa; *tamam*—en grado superlativo; *prapede*—sintió felicidad; *vismayam*—maravilla; *param*—suprema.

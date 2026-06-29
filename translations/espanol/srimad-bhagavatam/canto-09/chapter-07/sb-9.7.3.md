@@ -1,11 +1,11 @@
 ### SB 9.7.3
 
-> गन्धर्वानवधीत्तत्र वध्यान्वै विष्णुशक्तिधृक
+> गन्धर्वानवधीत्तत्र वध्यान्वै विष्णुशक्तिधृक\
 > नागाल्लब्धवरः सर्पादभयं स्मरतामिदम ॥३॥
 
-> gandharvān avadhīt tatra
-> vadhyān vai viṣṇu-śakti-dhṛk
-> nāgāl labdha-varaḥ sarpād
+> gandharvān avadhīt tatra\
+> vadhyān vai viṣṇu-śakti-dhṛk\
+> nāgāl labdha-varaḥ sarpād\
 > abhayaṁ smaratām idam
 
 *gandharvān*—a los habitantes de Gandharvaloka; *avadhīt*—mató; *tatra*—allí (en las regiones inferiores del universo); *vadhyān*—que merecieron la muerte; *vai*—en verdad; *viṣṇu-śakti-dhṛk*—dotado de poder por el Señor Viṣṇu; *nāgāt*—de las *nāgas*; *labdha-varaḥ*—haber recibido una bendición; *sarpāt*—de las serpientes; *abhayam*—seguridades; *smaratām*—de quienes recuerden; *idam*—esta historia.

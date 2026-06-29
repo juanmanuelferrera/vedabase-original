@@ -1,9 +1,9 @@
 ### CC Madhya 24.331
 
-> মন্ত্র-অধিকারী, মন্ত্র-সিদ্ধ্যাদি-শোধন ।
+> মন্ত্র-অধিকারী, মন্ত্র-সিদ্ধ্যাদি-শোধন ।\
 > দীক্ষা, প্রাতঃস্মৃতি-কৃত্য, শৌচ, আচমন ॥৩৩১॥
 
-> mantra-adhikārī, mantra-siddhy-ādi-śodhana
+> mantra-adhikārī, mantra-siddhy-ādi-śodhana\
 > dīkṣā, prātaḥ-smṛti-kṛtya, śauca, ācamana
 
 *mantra-adhikārī*—cualificación para recibir la iniciación del mantra; *mantra-siddhi-ādi*—la perfección del mantra, etc.; *śodhana*—purificación; *dīkṣā*—iniciación; *prātaḥ-smṛti-kṛtya*—deberes matutinos y recuerdo del Señor Supremo; *śauca*—limpieza; *ācamana*—lavarse la boca y otras partes del cuerpo.

@@ -1,11 +1,11 @@
 ### SB 7.15.20
 
-> कामस्यान्तं हि क्षुत्तृड्भ्यां क्रोधस्यैतत्फलोदयात
+> कामस्यान्तं हि क्षुत्तृड्भ्यां क्रोधस्यैतत्फलोदयात\
 > जनो याति न लोभस्य जित्वा भुक्त्वा दिशो भुवः ॥२०॥
 
-> kāmasyāntaṁ hi kṣut-tṛḍbhyāṁ
-> krodhasyaitat phalodayāt
-> jano yāti na lobhasya
+> kāmasyāntaṁ hi kṣut-tṛḍbhyāṁ\
+> krodhasyaitat phalodayāt\
+> jano yāti na lobhasya\
 > jitvā bhuktvā diśo bhuvaḥ
 
 *kāmasya*—of the desire for sense gratification or the urgent needs of the body; *antam*—end; *hi*—indeed; *kṣut-tṛḍbhyām*—by one who is very hungry or thirsty; *krodhasya*—of anger; *etat*—this; *phala-udayāt*—by venting chastisement and its reaction; *janaḥ*—a person; *yāti*—crosses over; *na*—not; *lobhasya*—greed; *jitvā*—conquering; *bhuktvā*—enjoying; *diśaḥ*—all directions; *bhuvaḥ*—of the globe.

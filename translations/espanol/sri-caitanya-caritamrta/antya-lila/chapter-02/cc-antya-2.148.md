@@ -1,9 +1,9 @@
 ### CC Antya 2.148
 
-> সেইক্ষণে দিব্যদেহে প্রভুস্থানে আইলা ।
+> সেইক্ষণে দিব্যদেহে প্রভুস্থানে আইলা ।\
 > প্রভুকৃপা পাঞা অন্তর্ধানেই রহিলা ॥১৪৮॥
 
-> sei-kṣaṇe divya-dehe prabhu-sthāne āilā
+> sei-kṣaṇe divya-dehe prabhu-sthāne āilā\
 > prabhu-kṛpā pāñā antardhānei rahilā
 
 *sei-kṣaṇe*—inmediatamente después; *divya-dehe*—en un cuerpo espiritual; *prabhu-sthāne āilā*—fue a Śrī Caitanya Mahāprabhu; *prabhu-kṛpā*—la misericordia de Śrī Caitanya Mahāprabhu; *pāñā*—recibiendo; *antardhānei rahilā*—permaneció invisible.

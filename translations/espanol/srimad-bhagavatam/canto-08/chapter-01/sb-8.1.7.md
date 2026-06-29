@@ -1,11 +1,11 @@
 ### SB 8.1.7
 
-> विरक्तः कामभोगेषु शतरूपापतिः प्रभुः
+> विरक्तः कामभोगेषु शतरूपापतिः प्रभुः\
 > विसृज्य राज्यं तपसे सभार्यो वनमाविशत ॥७॥
 
-> viraktaḥ kāma-bhogeṣu
-> śatarūpā-patiḥ prabhuḥ
-> visṛjya rājyaṁ tapase
+> viraktaḥ kāma-bhogeṣu\
+> śatarūpā-patiḥ prabhuḥ\
+> visṛjya rājyaṁ tapase\
 > sabhāryo vanam āviśat
 
 *viraktaḥ*—sin apego; *kāma-bhogeṣu*—en la complacencia de los sentidos (en la vida de *gṛhastha*); *śatarūpā-patiḥ*—el esposo de Śatarūpā, Svāyambhuva Manu; *prabhuḥ*—que era el amo o rey del mundo; *visṛjya*—después de renunciar por completo; *rājyam*—a su reino; *tapase*—para practicar austeridades; *sa-bhāryaḥ*—con su esposa; *vanam*—al bosque; *āviśat*—entró.

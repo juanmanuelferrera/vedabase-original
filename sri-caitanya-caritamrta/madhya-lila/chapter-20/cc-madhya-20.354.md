@@ -1,9 +1,9 @@
 ### CC Madhya 20.354
 
-> অবতার নাহি কহে — ‘আমি অবতার’ ।
+> অবতার নাহি কহে — ‘আমি অবতার’ ।\
 > মুনি সব জানি’ করে লক্ষণ-বিচার ॥৩৫৪॥
 
-> avatāra nāhi kahe—'āmi avatāra'
+> avatāra nāhi kahe—'āmi avatāra'\
 > muni saba jāni' kare lakṣaṇa-vicāra
 
 *avatāra*—the actual incarnation of Godhead; *nāhi*—never; *kahe*—says; *āmi avatāra*—I am an incarnation; *muni*—the great sage Mahāmuni Vyāsadeva; *saba jāni'*—knowing all (past, present and future); *kare lakṣaṇa-vicāra*—describes the symptoms of the avatāras.

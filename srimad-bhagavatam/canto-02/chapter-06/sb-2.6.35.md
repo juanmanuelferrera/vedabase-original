@@ -1,11 +1,11 @@
 ### SB 2.6.35
 
-> सोऽहं समाम्नायमयस्तपोमयः प्रजापतीनामभिवन्दितः पतिः ।
+> सोऽहं समाम्नायमयस्तपोमयः प्रजापतीनामभिवन्दितः पतिः ।\
 > आस्थाय योगं निपुणं समाहितस्तं नाध्यगच्छं यत आत्मसम्भवः ॥३५॥
 
-> so 'haṁ samāmnāyamayas tapomayaḥ
-> prajāpatīnām abhivanditaḥ patiḥ
-> āsthāya yogaṁ nipuṇaṁ samāhitas
+> so 'haṁ samāmnāyamayas tapomayaḥ\
+> prajāpatīnām abhivanditaḥ patiḥ\
+> āsthāya yogaṁ nipuṇaṁ samāhitas\
 > taṁ nādhyagacchaṁ yata ātma-sambhavaḥ
 
 *saḥ aham*—myself (the great Brahmā); *samāmnāya-mayaḥ*—in the chain of disciplic succession of Vedic wisdom; *tapaḥ-mayaḥ*—successfully having undergone all austerities; *prajāpatīnām*—of all the forefathers of living entities; *abhivanditaḥ*—worshipable; *patiḥ*—master; *āsthāya*—successfully practiced; *yogam*—mystic powers; *nipuṇam*—very expert; *samāhitaḥ*—self-realized; *tam*—the Supreme Lord; *na*—did not; *adhyagaccham*—properly understood; *yataḥ*—from whom; *ātma*—self; *sambhavaḥ*—generated.

@@ -1,11 +1,11 @@
 ### SB 4.9.67
 
-> आत्मानं च प्रवयसमाकलय्य विशाम्पतिः ।
+> आत्मानं च प्रवयसमाकलय्य विशाम्पतिः ।\
 > वनं विरक्तः प्रातिष्ठद्विमृशन्नात्मनो गतिम् ॥६७॥
 
-> ātmānaṁ ca pravayasam
-> ākalayya viśāmpatiḥ
-> vanaṁ viraktaḥ prātiṣṭhad
+> ātmānaṁ ca pravayasam\
+> ākalayya viśāmpatiḥ\
+> vanaṁ viraktaḥ prātiṣṭhad\
 > vimṛśann ātmano gatim
 
 *ātmānam*—himself; *ca*—also; *pravayasam*—advanced in age; *ākalayya*—considering; *viśāmpatiḥ*—King Uttānapāda; *vanam*—to the forest; *viraktaḥ*—detached; *prātiṣṭhat*—departed; *vimṛśan*—deliberating on; *ātmanaḥ*—of the self; *gatim*—salvation.

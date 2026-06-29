@@ -1,13 +1,13 @@
 ### SB 7.9.16
 
-> त्रस्तोऽस्म्यहं कृपणवत्सल दुःसहोग्र
-> संसारचक्रकदनाद्ग्रसतां प्रणीतः
-> बद्धः स्वकर्मभिरुशत्तम तेऽङ्घ्रिमूलं
+> त्रस्तोऽस्म्यहं कृपणवत्सल दुःसहोग्र\
+> संसारचक्रकदनाद्ग्रसतां प्रणीतः\
+> बद्धः स्वकर्मभिरुशत्तम तेऽङ्घ्रिमूलं\
 > प्रीतोऽपवर्गशरणं ह्वयसे कदा नु ॥१६॥
 
-> trasto 'smy ahaṁ kṛpaṇa-vatsala duḥsahogra-
-> saṁsāra-cakra-kadanād grasatāṁ praṇītaḥ
-> baddhaḥ sva-karmabhir uśattama te 'ṅghri-mūlaṁ
+> trasto 'smy ahaṁ kṛpaṇa-vatsala duḥsahogra-\
+> saṁsāra-cakra-kadanād grasatāṁ praṇītaḥ\
+> baddhaḥ sva-karmabhir uśattama te 'ṅghri-mūlaṁ\
 > prīto 'pavarga-śaraṇaṁ hvayase kadā nu
 
 *trastaḥ*—atemorizado; *asmi*—estoy; *aham*—yo; *kṛpaṇa-vatsala*—¡oh, mi Señor, que eres muy bondadoso con las almas caídas (que no tienen conocimiento espiritual)!; *duḥsaha*—intolerable; *ugra*—feroz; *saṁsāra-cakra*—del ciclo de nacimientos y muertes; *kadanāt*—de esa condición miserable; *grasatām*—entre otras almas condicionadas, que se devoran entre sí; *praṇītaḥ*—arrojado; *baddhaḥ*—atado; *sva-karmabhiḥ*—al proceso de las reacciones de mis propias actividades; *uśattama*—¡oh, grande, insuperable!; *te*—Tus; *aṅghri-mūlam*—a las plantas de Tus pies de loto; *prītaḥ*—complacido (conmigo); *apavarga-śaraṇam*—que son el refugio que trae la liberación de esta horrible condición de la existencia material; *hvayase*—Tú llamarás (a mí); *kadā*—cuándo; *nu*—en verdad.

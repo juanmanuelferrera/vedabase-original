@@ -1,11 +1,11 @@
 ### SB 3.12.43
 
-> वैखानसा वालखिल्यौ दुम्बराः फेनपा वने ।
+> वैखानसा वालखिल्यौ दुम्बराः फेनपा वने ।\
 > न्यासे कुटीचकः पूर्वं बह्वोदो हंसनिष्क्रियौ ॥४३॥
 
-> vaikhānasā vālakhilyau-
-> dumbarāḥ phenapā vane
-> nyāse kuṭīcakaḥ pūrvaṁ
+> vaikhānasā vālakhilyau-\
+> dumbarāḥ phenapā vane\
+> nyāse kuṭīcakaḥ pūrvaṁ\
 > bahvodo haṁsa-niṣkriyau
 
 *vaikhānasāḥ*—the section of men who retire from active life and live on half-boiled meals; *vālakhilya*—one who quits his former stock of grains on receipt of more; *audumbarāḥ*—one who lives on what he gets from the direction towards which he starts after rising from bed; *phenapāḥ*—one who lives on the fruits which automatically fall from the tree; *vane*—in the forest; *nyāse*—in the order of renunciation; *kuṭīcakaḥ*—life in the family without attachment; *pūrvam*—in the beginning; *bahvodaḥ*—giving up all material activities and engaging fully in transcendental service; *haṁsa*—fully engaged in transcendental knowledge; *niṣkriyau*—stopping all kinds of activities.

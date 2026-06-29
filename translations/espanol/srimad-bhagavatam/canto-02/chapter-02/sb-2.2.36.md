@@ -1,11 +1,11 @@
 ### SB 2.2.36
 
-> तस्मात्सर्वात्मना राजन्हरिः सर्वत्र सर्वदा ।
+> तस्मात्सर्वात्मना राजन्हरिः सर्वत्र सर्वदा ।\
 > श्रोतव्यः कीर्तितव्यश्च स्मर्तव्यो भगवान्नृणाम् ॥३६॥
 
-> tasmāt sarvātmanā rājan
-> hariḥ sarvatra sarvadā
-> śrotavyaḥ kīrtitavyaś ca
+> tasmāt sarvātmanā rājan\
+> hariḥ sarvatra sarvadā\
+> śrotavyaḥ kīrtitavyaś ca\
 > smartavyo bhagavān nṛṇām
 
 *tasmāt*—por lo tanto; *sarva*—todos; *ātmanā*—alma; *rājan*—¡oh, rey!; *hariḥ*—el Señor; *sarvatra*—en todas partes; *sarvadā*—siempre; *śrotavyaḥ*—debe ser oído; *kīrtitavyaḥ*—glorificado; *ca*—también; *smartavyaḥ*—sea recordado; *bhagavān*—la Personalidad de Dios; *nṛṇām*—por el ser humano.

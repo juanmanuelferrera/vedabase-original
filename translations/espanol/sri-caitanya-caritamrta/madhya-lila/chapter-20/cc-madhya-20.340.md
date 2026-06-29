@@ -1,9 +1,9 @@
 ### CC Madhya 20.340
 
-> ‘পীত’-বর্ণ ধরি’ তবে কৈলা প্রবর্তন ।
+> ‘পীত’-বর্ণ ধরি’ তবে কৈলা প্রবর্তন ।\
 > প্রেমভক্তি দিলা লোকে লঞা ভক্তগণ ॥৩৪০॥
 
-> pita'-varṇa dhari' tabe kailā pravartana
+> pita'-varṇa dhari' tabe kailā pravartana\
 > prema-bhakti dilā loke lañā bhakta-gaṇa
 
 *pīta-varṇa dhari'*—asumiendo el color amarillo; *tabe*—después; *kailā pravartana*—introdujo el movimiento de saṅkīrtana; *prema-bhakti dilā*—distribuyó amor por Kṛṣṇa; *loke*—a la gente en general; *lañā bhakta-gaṇa*—acompañado por Sus devotos.

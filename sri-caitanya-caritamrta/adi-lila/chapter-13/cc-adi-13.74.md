@@ -1,9 +1,9 @@
 ### CC Adi 13.74
 
-> তবে পুত্র জনমিলা ‘বিশ্বরূপ’ নাম ।
+> তবে পুত্র জনমিলা ‘বিশ্বরূপ’ নাম ।\
 > মহা-গুণবান্ তেঁহ — ‘বলদেব’-ধাম ॥৭৪॥
 
-> tabe putra janamilā 'viśvarūpa' nāma
+> tabe putra janamilā 'viśvarūpa' nāma\
 > mahā-guṇavān teṅha—'baladeva'-dhāma
 
 *tabe*—thereafter; *putra*—son; *janamilā*—took birth; *viśvarūpa*—Viśvarūpa; *nāma*—named; *mahā-guṇavān*—highly qualified; *teṅha*—He; *baladeva*—of Lord Baladeva; *dhāma*—incarnation.

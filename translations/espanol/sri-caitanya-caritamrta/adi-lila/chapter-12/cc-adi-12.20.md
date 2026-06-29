@@ -1,9 +1,9 @@
 ### CC Adi 12.20
 
-> গুণ্ডিচা-মন্দিরে মহাপ্রভুর সম্মুখে ।
+> গুণ্ডিচা-মন্দিরে মহাপ্রভুর সম্মুখে ।\
 > কীর্তনে নর্তন করে বড় প্রেম-সুখে ॥২০॥
 
-> guṇḍicā-mandire mahāprabhura sammukhe
+> guṇḍicā-mandire mahāprabhura sammukhe\
 > kīrtane nartana kare baḍa prema-sukhe
 
 *guṇḍicā-mandire*—en el Guṇḍicā-mandira de Jagannātha Purī; *mahāprabhura*—del Señor Caitanya Mahāprabhu; *sammukhe*—delante; *kīrtane*—en el saṅkīrtana; *nartana*—danza; *kare*—realiza; *baḍa*—gran; *prema-sukhe*—en bienaventuranza trascendental.

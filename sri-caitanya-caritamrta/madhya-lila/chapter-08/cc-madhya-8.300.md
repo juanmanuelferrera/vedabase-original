@@ -1,9 +1,9 @@
 ### CC Madhya 8.300
 
-> প্রাতঃকালে উঠি’ প্রভু দেখি’ হনুমান্ ।
+> প্রাতঃকালে উঠি’ প্রভু দেখি’ হনুমান্ ।\
 > তাঁরে নমস্করি’ প্রভু দক্ষিণে করিলা প্রয়াণ ॥৩০০॥
 
-> prātaḥ-kāle uṭhi' prabhu dekhi' hanumān
+> prātaḥ-kāle uṭhi' prabhu dekhi' hanumān\
 > tāṅre namaskari' prabhu dakṣiṇe karilā prayāṇa
 
 *prātaḥ-kāle*—in the morning; *uṭhi'*—rising; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *dekhi'*—visiting; *hanumān*—the village deity Hanumān; *tāṅre*—unto him; *namaskari'*—offering obeisances; *prabhu*—Śrī Caitanya Mahāprabhu; *dakṣiṇe*—to the south; *karilā*—made; *prayāṇa*—departure.

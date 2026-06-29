@@ -1,11 +1,11 @@
 ### SB 1.8.23
 
-> यथा हृषीकेश खलेन देवकी कंसेन रुद्धातिचिरं शुचार्पिता ।
+> यथा हृषीकेश खलेन देवकी कंसेन रुद्धातिचिरं शुचार्पिता ।\
 > विमोचिताहं च सहात्मजा विभो त्वयैव नाथेन मुहुर्विपद्गणात् ॥२३॥
 
-> yathā hṛṣīkeśa khalena devakī
-> kaṁsena ruddhāticiraṁ śucārpitā
-> vimocitāhaṁ ca sahātmajā vibho
+> yathā hṛṣīkeśa khalena devakī\
+> kaṁsena ruddhāticiraṁ śucārpitā\
+> vimocitāhaṁ ca sahātmajā vibho\
 > tvayaiva nāthena muhur vipad-gaṇāt
 
 *yathā*—como si fuera; *hṛṣīkeśa*—el amo de los sentidos; *khalena*—por los envidiosos; *devakī*—Devakī (la madre de Śrī Kṛṣṇa); *kaṁsena*—por el rey Kaṁsa; *ruddhā*—encarcelada; *ati-ciram*—durante mucho tiempo; *śuca-arpitā*—afligida; *vimocitā*—liberada; *aham ca*—yo también; *saha-ātma-jā*—junto con mis hijos; *vibho*—¡oh, Tú, el grande!; *tvayā eva*—por Tu Señoría; *nāthena*—como el protector; *muhuḥ*—constantemente; *vipat-gaṇāt*—de una serie de peligros.

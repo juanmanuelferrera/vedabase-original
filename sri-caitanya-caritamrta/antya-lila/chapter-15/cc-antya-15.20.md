@@ -1,13 +1,13 @@
 ### CC Antya 15.20
 
-> কৃষ্ণের বচন-মাধুরী, নানা-রস নর্মধারী,
-> তার অন্যায় কথন না যায় ।
-> জগতের নারীর কাণে, মাধুরীগুণে বান্ধি’ টানে,
+> কৃষ্ণের বচন-মাধুরী, নানা-রস নর্মধারী,\
+> তার অন্যায় কথন না যায় ।\
+> জগতের নারীর কাণে, মাধুরীগুণে বান্ধি’ টানে,\
 > টানাটানি কাণের প্রাণ যায় ॥২০॥
 
-> kṛṣṇera vacana-mādhurī, nānā-rasa-narma-dhārī,
-> tāra anyāya kathana nā yāya
-> jagatera nārīra kāṇe, mādhurī-guṇe bāndhi' ṭāne,
+> kṛṣṇera vacana-mādhurī, nānā-rasa-narma-dhārī,\
+> tāra anyāya kathana nā yāya\
+> jagatera nārīra kāṇe, mādhurī-guṇe bāndhi' ṭāne,\
 > ṭānāṭāni kāṇera prāṇa yāya
 
 *kṛṣṇera*—of Lord Kṛṣṇa; *vacana-mādhurī*—the sweetness of speaking; *nānā*—various; *rasa-narma-dhārī*—full of joking words; *tāra*—of that; *anyāya*—atrocities; *kathana*—description; *nā yāya*—cannot be made; *jagatera*—of the world; *nārīra*—of women; *kāṇe*—in the ear; *mādhurī-guṇe*—to the attributes of sweetness; *bāndhi'*—binding; *ṭāne*—pulls; *ṭānāṭāni*—tug-of-war; *kāṇera*—of the ear; *prāṇa yāya*—the life departs.

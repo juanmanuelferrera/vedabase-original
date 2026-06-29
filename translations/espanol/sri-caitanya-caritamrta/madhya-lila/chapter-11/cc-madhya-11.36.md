@@ -1,9 +1,9 @@
 ### CC Madhya 11.36
 
-> প্রভু কহে, — রায়, তুমি কি কার্য করিলে ?
+> প্রভু কহে, — রায়, তুমি কি কার্য করিলে ?\
 > ঈশ্বরে না দেখি’ কেনে আগে এথা আইলে ? ৩৬ ৷৷ ॥৩৬॥
 
-> prabhu kahe,-rāya, tumi ki kārya karile?
+> prabhu kahe,-rāya, tumi ki kārya karile?\
 > īśvare nā dekhi' kene āge ethā āile?
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *rāya*—Mi querido Rāmānanda Rāya; *tumi*—tú; *ki kārya*—qué; *karile*—has hecho; *īśvare*—a la Suprema Personalidad de Dios; *nā dekhi'*—sin ver; *kene*—por qué; *āge*—primero; *ethā*—aquí; *āile*—has venido.

@@ -1,9 +1,9 @@
 ### CC Madhya 25.267
 
-> ভক্ত লাগি’ বিস্তারিলা আপন-বদনে ।
+> ভক্ত লাগি’ বিস্তারিলা আপন-বদনে ।\
 > কাহাঁ ভক্ত-মুখে কহাই শুনিলা আপনে ॥২৬৭॥
 
-> bhakta lāgi' vistārilā āpana-vadane
+> bhakta lāgi' vistārilā āpana-vadane\
 > kāhāṅ bhakta-mukhe kahāi śunilā āpane
 
 *bhakta lāgi'*—especially for the purpose of His devotees; *vistārilā*—expansively described; *āpana-vadane*—personally, with His own mouth; *kāhāṅ*—sometimes; *bhakta-mukhe*—through the mouth of His devotees; *kahāi*—making describe; *śunilā āpane*—listened Himself.

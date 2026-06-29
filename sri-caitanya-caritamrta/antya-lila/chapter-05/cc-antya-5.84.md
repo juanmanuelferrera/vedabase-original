@@ -1,9 +1,9 @@
 ### CC Antya 5.84
 
-> সন্ন্যাসী পণ্ডিতগণের করিতে গর্বনাশ ।
+> সন্ন্যাসী পণ্ডিতগণের করিতে গর্বনাশ ।\
 > নীচ-শূদ্র-দ্বারা করেন ধর্মের প্রকাশ ॥৮৪॥
 
-> sannyāsī paṇḍita-gaṇera karite garva nāśa
+> sannyāsī paṇḍita-gaṇera karite garva nāśa\
 > nīca-śūdra-dvārā karena dharmera prakāśa
 
 *sannyāsī*—persons in the renounced order; *paṇḍita-gaṇera*—of the learned scholars; *karite*—to do; *garva*—pride; *nāśa*—vanquishing; *nīca*—lowborn; *śūdra*—a fourth-class man; *dvārā*—through; *karena*—does; *dharmeraprakāśa*—spreading of real religious principles.

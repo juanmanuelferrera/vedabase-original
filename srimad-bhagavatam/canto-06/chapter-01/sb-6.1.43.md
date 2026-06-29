@@ -1,11 +1,11 @@
 ### SB 6.1.43
 
-> एतैरधर्मो विज्ञआतः स्थानं दण्डस्य युज्यते
+> एतैरधर्मो विज्ञआतः स्थानं दण्डस्य युज्यते\
 > सर्वे कर्मानुरोधेन दण्डमर्हन्ति कारिणः ॥४३॥
 
-> etair adharmo vijñātaḥ
-> sthānaṁ daṇḍasya yujyate
-> sarve karmānurodhena
+> etair adharmo vijñātaḥ\
+> sthānaṁ daṇḍasya yujyate\
+> sarve karmānurodhena\
 > daṇḍam arhanti kāriṇaḥ
 
 *etaiḥ*—by all these (witnesses, beginning from the sun-god); *adharmaḥ*—deviation from the regulative principles; *vijñātaḥ*—is known; *sthānam*—the proper place; *daṇḍasya*—of punishment; *yujyate*—is accepted as; *sarve*—all; *karma-anurodhena*—with consideration of the activities performed; *daṇḍam*—punishment; *arhanti*—deserve; *kāriṇaḥ*—the performers of sinful activities.

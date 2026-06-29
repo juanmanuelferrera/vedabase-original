@@ -1,11 +1,11 @@
 ### SB 1.14.30
 
-> प्रद्युम्नः सर्ववृष्णीनां सुखमास्ते महारथः ।
+> प्रद्युम्नः सर्ववृष्णीनां सुखमास्ते महारथः ।\
 > गम्भीररयोऽनिरुद्धो वर्धते भगवानुत ॥३०॥
 
-> pradyumnaḥ sarva-vṛṣṇīnāṁ
-> sukham āste mahā-rathaḥ
-> gambhīra-rayo 'niruddho
+> pradyumnaḥ sarva-vṛṣṇīnāṁ\
+> sukham āste mahā-rathaḥ\
+> gambhīra-rayo 'niruddho\
 > vardhate bhagavān uta
 
 *pradyumnaḥ*—Pradyumna (a son of Lord Kṛṣṇa); *sarva*—all; *vṛṣṇīnām*—of the members of the Vṛṣṇi family; *sukham*—happiness; *āste*—are in; *mahā-rathaḥ*—the great general; *gambhīra*—deeply; *rayaḥ*—dexterity; *aniruddhaḥ*—Aniruddha (a grandson of Lord Kṛṣṇa); *vardhate*—flourishing; *bhagavān*—the Personality of Godhead; *uta*—must.

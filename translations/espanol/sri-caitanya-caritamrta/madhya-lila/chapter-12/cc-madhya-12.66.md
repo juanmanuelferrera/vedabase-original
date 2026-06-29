@@ -1,9 +1,9 @@
 ### CC Madhya 12.66
 
-> বিদায় হঞা রায় আইল রাজপুত্রে লঞা ।
+> বিদায় হঞা রায় আইল রাজপুত্রে লঞা ।\
 > রাজা সুখ পাইল পুত্রের চেষ্টা দেখিয়া ॥৬৬॥
 
-> vidāya hañā rāya āila rāja-putre lañā
+> vidāya hañā rāya āila rāja-putre lañā\
 > rājā sukha pāila putrera ceṣṭā dekhiyā
 
 *vidāya hañā*—despidiéndose; *rāya*—Rāmānanda Rāya; *āila*—regresó; *rāja-putre lañā*—llevando al hijo del rey; *rājā*—el rey; *sukha pāila*—sintió gran felicidad; *putrera*—de su hijo; *ceṣṭā*—actividades; *dekhiyā*—al ver.

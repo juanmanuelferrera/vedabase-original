@@ -1,18 +1,18 @@
 ### SB 3.9.27-28
 
-> अथाभिप्रेतमन्वीक्ष्य ब्रह्मणो मधुसूदनः ।
-> विषण्णचेतसं तेन कल्पव्यतिकराम्भसा ॥२७॥
-> लोकसंस्थानविज्ञान आत्मनः परिखिद्यतः ।
+> अथाभिप्रेतमन्वीक्ष्य ब्रह्मणो मधुसूदनः ।\
+> विषण्णचेतसं तेन कल्पव्यतिकराम्भसा ॥२७॥\
+> लोकसंस्थानविज्ञान आत्मनः परिखिद्यतः ।\
 > तमाहागाधया वाचा कश्मलं शमयन्निव ॥२८॥
 
-> athābhipretam anvīkṣya
-> brahmaṇo madhusūdanaḥ
-> viṣaṇṇa-cetasaṁ tena
+> athābhipretam anvīkṣya\
+> brahmaṇo madhusūdanaḥ\
+> viṣaṇṇa-cetasaṁ tena\
 > kalpa-vyatikarāmbhasā
 
-> loka-saṁsthāna-vijñāna
-> ātmanaḥ parikhidyataḥ
-> tam āhāgādhayā vācā
+> loka-saṁsthāna-vijñāna\
+> ātmanaḥ parikhidyataḥ\
+> tam āhāgādhayā vācā\
 > kaśmalaṁ śamayann iva
 
 *atha*—inmediatamente después; *abhipretam*—intención; *anvīkṣya*—observando; *brahmaṇaḥ*—de Brahmā; *madhusūdanaḥ*—aquel que mató al demonio Madhu; *viṣaṇṇa*—deprimido; *cetasam*—del corazón; *tena*—por él; *kalpa*—milenio; *vyatikara-ambhasā*—agua devastadora; *loka-saṁsthāna*—situación del sistema planetario; *vijñāne*—en la ciencia; *ātmanaḥ*—de sí mismo; *parikhidyataḥ*—suficientemente angustiado; *tam*—a él; *āha*—dijo; *agādhayā*—profundamente pensativo; *vācā*—mediante palabras; *kaśmalam*—impurezas; *śamayan*—disipando; *iva*—de esa manera.

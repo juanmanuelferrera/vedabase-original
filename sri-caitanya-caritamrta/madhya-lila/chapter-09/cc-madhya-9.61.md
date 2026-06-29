@@ -1,9 +1,9 @@
 ### CC Madhya 9.61
 
-> গুরু-কর্ণে কহে সবে ‘কৃষ্ণ’ ‘রাম’ ‘হরি’ ।
+> গুরু-কর্ণে কহে সবে ‘কৃষ্ণ’ ‘রাম’ ‘হরি’ ।\
 > চেতন পাঞা আচার্য বলে ‘হরি’ ‘হরি’ ॥৬১॥
 
-> guru-karṇe kahe sabe 'kṛṣṇa' 'rāma' 'hari'
+> guru-karṇe kahe sabe 'kṛṣṇa' 'rāma' 'hari'\
 > cetana pāñā ācārya bale 'hari' 'hari'
 
 *guru-karṇe*—into the ear of the spiritual master; *kahe*—they said; *sabe*—all together; *kṛṣṇa rāma hari*—the holy names of the Lord, namely Kṛṣṇa, Rāma and Hari; *cetana*—consciousness; *pāñā*—getting; *ācārya*—the teacher; *bale*—chanted; *hari hari*—the name of Lord Hari.

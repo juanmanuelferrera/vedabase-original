@@ -1,13 +1,13 @@
 ### SB 3.15.29
 
-> द्वार्येतयोर्निविविशुर्मिषतोरपृष्ट्वा
-> पूर्वा यथा पुरटवज्रकपाटिका याः ।
-> सर्वत्र तेऽविषमया मुनयः स्वदृष्ट्या
+> द्वार्येतयोर्निविविशुर्मिषतोरपृष्ट्वा\
+> पूर्वा यथा पुरटवज्रकपाटिका याः ।\
+> सर्वत्र तेऽविषमया मुनयः स्वदृष्ट्या\
 > ये सञ्चरन्त्यविहता विगताभिशङ्काः ॥२९॥
 
-> dvāry etayor niviviśur miṣator apṛṣṭvā
-> pūrvā yathā puraṭa-vajra-kapāṭikā yāḥ
-> sarvatra te 'viṣamayā munayaḥ sva-dṛṣṭyā
+> dvāry etayor niviviśur miṣator apṛṣṭvā\
+> pūrvā yathā puraṭa-vajra-kapāṭikā yāḥ\
+> sarvatra te 'viṣamayā munayaḥ sva-dṛṣṭyā\
 > ye sañcaranty avihatā vigatābhiśaṅkāḥ
 
 *dvāri*—in the door; *etayoḥ*—both doorkeepers; *niviviśuḥ*—entered; *miṣatoḥ*—while seeing; *apṛṣṭvā*—without asking; *pūrvāḥ*—as before; *yathā*—as; *puraṭa*—made of gold; *vajra*—and diamond; *kapāṭikāḥ*—the doors; *yāḥ*—which; *sarvatra*—everywhere; *te*—they; *aviṣa-mayā*—without any sense of discrimination; *munayaḥ*—the great sages; *sva-dṛṣṭyā*—out of their own will; *ye*—who; *sañcaranti*—move; *avihatāḥ*—without being checked; *vigata*—without; *abhiśaṅkāḥ*—doubt.

@@ -1,11 +1,11 @@
 ### CC Adi 5.79
 
-> এতে চাংশকলাঃ পুংসঃ কৃষ্ণস্তু ভগবান্ স্বয়ম্ ।
+> এতে চাংশকলাঃ পুংসঃ কৃষ্ণস্তু ভগবান্ স্বয়ম্ ।\
 > ইন্দ্রারি-ব্যাকুলং লোকং মৃড়য়ন্তি যুগে যুগে ॥৭৯॥
 
-> ete cāṁśa-kalāḥ puṁsaḥ
-> kṛṣṇas tu bhagavān svayam
-> indrāri-vyākulaṁ lokaṁ
+> ete cāṁśa-kalāḥ puṁsaḥ\
+> kṛṣṇas tu bhagavān svayam\
+> indrāri-vyākulaṁ lokaṁ\
 > mṛḍayanti yuge yuge
 
 *ete*—all these; *ca*—also; *aṁśa-kalāḥ*—part or part of the part; *puṁsaḥ*—of the Supreme Person; *kṛṣṇaḥ tu*—but Lord Kṛṣṇa; *bhagavān*—the original Personality of Godhead; *svayam*—Himself; *indra-ari*—the demons; *vyākulam*—disturbed; *lokam*—all the planets; *mṛḍayanti*—makes them happy; *yuge yuge*—in different millenniums.

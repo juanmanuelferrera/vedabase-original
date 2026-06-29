@@ -1,9 +1,9 @@
 ### CC Adi 3.34
 
-> শেষলীলায় ধরে নাম ‘শ্রীকৃষ্ণচৈতন্য’।
+> শেষলীলায় ধরে নাম ‘শ্রীকৃষ্ণচৈতন্য’।\
 > শ্রীকৃষ্ণ জানায়ে সব বিশ্ব কৈল ধন্য ॥৩৪॥
 
-> śeṣa-līlāya dhare nāma 'śrī-kṛṣṇa-caitanya'
+> śeṣa-līlāya dhare nāma 'śrī-kṛṣṇa-caitanya'\
 > śrī-kṛṣṇa jānāye saba viśva kaila dhanya
 
 *śeṣa-līlāya*—in His final pastimes; *dhare*—He held; *nāma*—the name; *śrī-kṛṣṇa-caitanya*—Śrī Kṛṣṇa Caitanya; *śrī-kṛṣṇa*—about Lord Kṛṣṇa; *jānāye*—He taught; *saba*—all; *viśva*—the world; *kaila*—made; *dhanya*—fortunate.

@@ -1,9 +1,9 @@
 ### CC Madhya 5.109
 
-> আইল সকল লোক সাক্ষী দেখিবারে ।
+> আইল সকল লোক সাক্ষী দেখিবারে ।\
 > গোপাল দেখিঞা লোক দণ্ডবৎ করে ॥১০৯॥
 
-> āila sakala loka sākṣī dekhibāre
+> āila sakala loka sākṣī dekhibāre\
 > gopāla dekhiñā loka daṇḍavat kare
 
 *āila*—vinieron; *sakala*—todos; *loka*—la gente; *sākṣī*—al testigo; *dekhibāre*—a ver; *gopāla*—el Señor Gopāla; *dekhiñā*—al ver; *loka*—toda la gente; *daṇḍavat*—ofreciendo reverencias; *kare*—hacen.

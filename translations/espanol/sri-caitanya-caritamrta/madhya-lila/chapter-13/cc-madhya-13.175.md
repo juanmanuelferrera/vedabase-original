@@ -1,9 +1,9 @@
 ### CC Madhya 13.175
 
-> জগন্নাথ-সেবক যত রাজপাত্রগণ  ।
+> জগন্নাথ-সেবক যত রাজপাত্রগণ  ।\
 > যাত্রিক লোক, নীলাচলবাসী যত জন ॥১৭৫॥
 
-> jagannātha-sevaka yata rāja-pātra-gaṇa
+> jagannātha-sevaka yata rāja-pātra-gaṇa\
 > yātrika loka, nīlācala-vāsī yata jana
 
 *jagannātha-sevaka*—los sirvientes del Señor Jagannātha; *yata*—todos; *rāja-pātra-gaṇa*—y los funcionarios del gobierno; *yātrika*—visitantes peregrinos; *loka*—la gente en general; *nīlācala-vāsī*—los residentes de Jagannātha Purī; *yata jana*—cuantas personas había.

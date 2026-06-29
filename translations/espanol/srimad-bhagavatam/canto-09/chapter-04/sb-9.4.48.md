@@ -1,11 +1,11 @@
 ### SB 9.4.48
 
-> प्राग्दिष्टं भृत्यरक्षायां पुरुषेण महात्मना
+> प्राग्दिष्टं भृत्यरक्षायां पुरुषेण महात्मना\
 > ददाह कृत्यां तां चक्रं क्रुद्धाहिमिव पावकः ॥४८॥
 
-> prāg diṣṭaṁ bhṛtya-rakṣāyāṁ
-> puruṣeṇa mahātmanā
-> dadāha kṛtyāṁ tāṁ cakraṁ
+> prāg diṣṭaṁ bhṛtya-rakṣāyāṁ\
+> puruṣeṇa mahātmanā\
+> dadāha kṛtyāṁ tāṁ cakraṁ\
 > kruddhāhim iva pāvakaḥ
 
 *prāk diṣṭam*—como estaba dispuesto de antemano; *bhṛtya-rakṣāyām*—para la protección de Sus sirvientes; *puruṣeṇa*—por la Persona Suprema; *mahā-ātmanā*—por la Superalma; *dadāha*—reducido a cenizas; *kṛtyām*—el demonio creado; *tām*—a él; *cakram*—el disco; *kruddha*—iracunda; *ahim*—a una serpiente; *iva*—como; *pāvakaḥ*—el fuego.

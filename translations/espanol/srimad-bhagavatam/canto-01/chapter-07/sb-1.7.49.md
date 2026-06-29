@@ -1,13 +1,13 @@
 ### SB 1.7.49
 
-> सूत उवाच
-> धर्म्यं न्याय्यं सकरुणं निर्व्यलीकं समं महत् ।
+> सूत उवाच\
+> धर्म्यं न्याय्यं सकरुणं निर्व्यलीकं समं महत् ।\
 > राजा धर्मसुतो राज्ञ्याःप्रत्यनन्दद्वचो द्विजाः ॥४९॥
 
-> sūta uvāca
-> dharmyaṁ nyāyyaṁ sakaruṇaṁ
-> nirvyalīkaṁ samaṁ mahat
-> rājā dharma-suto rājñyāḥ
+> sūta uvāca\
+> dharmyaṁ nyāyyaṁ sakaruṇaṁ\
+> nirvyalīkaṁ samaṁ mahat\
+> rājā dharma-suto rājñyāḥ\
 > pratyanandad vaco dvijāḥ
 
 *sūtaḥ uvāca*—Sūta Gosvāmī dijo; *dharmyam*—de acuerdo con los principios religiosos; *nyāyyam*—justicia; *sa-karuṇam*—lleno de misericordia; *nirvyalīkam*—sin duplicidad en el *dharma*; *samam*—equidad; *mahat*—gloriosas; *rājā*—el rey; *dharma-sutaḥ*—hijo; *rājñyāḥ*—por la reina; *pratyanandat*—respaldó; *vacaḥ*—declaraciones; *dvijāḥ*—¡oh, *brāhmaṇas*!.

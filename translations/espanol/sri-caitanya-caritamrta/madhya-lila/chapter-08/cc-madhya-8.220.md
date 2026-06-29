@@ -1,9 +1,9 @@
 ### CC Madhya 8.220
 
-> সেই গোপীভাবামৃতে যাঁর লোভ হয় ৷
+> সেই গোপীভাবামৃতে যাঁর লোভ হয় ৷\
 > বেদধর্মলোক ত্যজি’ সে কৃষ্ণে ভজয় ৷৷ ২২০ ৷৷ ॥২২০॥
 
-> sei gopī-bhāvāmṛte yāṅra lobha haya
+> sei gopī-bhāvāmṛte yāṅra lobha haya\
 > veda-dharma-loka tyaji' se kṛṣṇe bhajaya
 
 *sei*—ese; *gopī*—de las gopīs; *bhāva-amṛte*—en el néctar del éxtasis; *yāṅra*—de quien; *lobha*—apego; *haya*—existe; *veda-dharma*—principios religiosos de los Vedas; *loka*—opinión popular; *tyaji'*—abandonando; *se*—esa persona; *kṛṣṇe*—a Kṛṣṇa; *bhajaya*—presta servicio amoroso.

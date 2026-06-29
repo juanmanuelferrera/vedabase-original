@@ -1,9 +1,9 @@
 ### CC Madhya 20.125
 
-> অভিধেয়-নাম ‘ভক্তি,’ ‘প্রেম’ — প্রয়োজন ।
+> অভিধেয়-নাম ‘ভক্তি,’ ‘প্রেম’ — প্রয়োজন ।\
 > পুরুষার্থ-শিরোমণি প্রেম মহাধন ॥১২৫॥
 
-> abhidheya-nāma 'bhakti' 'prema'—prayojana
+> abhidheya-nāma 'bhakti' 'prema'—prayojana\
 > puruṣārtha-śiromaṇi prema mahā-dhana
 
 *abhidheya*—activities to revive one's relationship; *nāma*—named; *bhakti*—devotional service; *prema*—love of Godhead; *prayojana*—the ultimate goal of life; *puruṣa-artha-śiromaṇi*—the topmost interest of the living entity; *prema*—love of Godhead; *mahā-dhana*—the greatest wealth.

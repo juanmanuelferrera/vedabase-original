@@ -1,11 +1,11 @@
 ### SB 6.4.29
 
-> यद्यन्निरुक्तं वचसा निरूपितं धियाक्षभिर्वा मनसोत यस्य
+> यद्यन्निरुक्तं वचसा निरूपितं धियाक्षभिर्वा मनसोत यस्य\
 > मा भूत्स्वरूपं गुणरूपं हि तत्तत्स वै गुणापायविसर्गलक्षणः ॥२९॥
 
-> yad yan niruktaṁ vacasā nirūpitaṁ
-> dhiyākṣabhir vā manasota yasya
-> mā bhūt svarūpaṁ guṇa-rūpaṁ hi tat tat
+> yad yan niruktaṁ vacasā nirūpitaṁ\
+> dhiyākṣabhir vā manasota yasya\
+> mā bhūt svarūpaṁ guṇa-rūpaṁ hi tat tat\
 > sa vai guṇāpāya-visarga-lakṣaṇaḥ
 
 *yat yat*—todo lo que; *niruktam*—expresado; *vacasā*—con palabras; *nirūpitam*—averiguado; *dhiyā*—con la supuesta meditación o inteligencia; *akṣabhiḥ*—con los sentidos; *vā*—o; *manasā*—con la mente; *uta*—ciertamente; *yasya*—de quien; *mā bhūt*—puede no ser; *sva-rūpam*—la verdadera forma del Señor; *guṇa-rūpam*—compuesta de las tres cualidades; *hi*—en verdad; *tat tat*—eso; *saḥ*—esa Suprema Personalidad de Dios; *vai*—en verdad; *guṇa-apāya*—la causa de la aniquilación de todo lo que está hecho de las modalidades materiales de la naturaleza; *visarga*—y la creación; *lakṣaṇaḥ*—que aparece como.

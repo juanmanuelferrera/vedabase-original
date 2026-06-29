@@ -1,9 +1,9 @@
 ### CC Madhya 18.131
 
-> একদিন ‘দশ’ ‘বিশ’ আইসে নিমন্ত্রণ ।
+> একদিন ‘দশ’ ‘বিশ’ আইসে নিমন্ত্রণ ।\
 > ভট্টাচার্য একের মাত্র করেন গ্রহণ ॥১৩১॥
 
-> eka-dina 'daśa' 'biśa' āise nimantraṇa
+> eka-dina 'daśa' 'biśa' āise nimantraṇa\
 > bhaṭṭācārya ekera mātra karena grahaṇa
 
 *eka-dina*—in one day; *daśa biśa*—ten to twenty; *āise*—come; *nimantraṇa*—the invitations; *bhaṭṭācārya*—Balabhadra Bhaṭṭācārya; *ekera*—of one of them; *mātra*—only; *karena grahaṇa*—accepts.

@@ -1,11 +1,11 @@
 ### SB 7.14.38
 
-> तेष्वेव भगवान्राजंस्तारतम्येन वर्तते
+> तेष्वेव भगवान्राजंस्तारतम्येन वर्तते\
 > तस्मात्पात्रं हि पुरुषो यावानात्मा यथेयते ॥३८॥
 
-> teṣv eva bhagavān rājaṁs
-> tāratamyena vartate
-> tasmāt pātraṁ hi puruṣo
+> teṣv eva bhagavān rājaṁs\
+> tāratamyena vartate\
+> tasmāt pātraṁ hi puruṣo\
 > yāvān ātmā yatheyate
 
 *teṣu*—entre los distintos tipos de cuerpos (semidiós, humano, animal, ave, etc.); *eva*—en verdad; *bhagavān*—la Suprema Personalidad de Dios en Su aspecto de Paramātmā; *rājan*—¡oh, rey!; *tāratamyena*—comparativamente, más o menos; *vartate*—está situado; *tasmāt*—por lo tanto; *pātram*—la Persona Suprema; *hi*—en verdad; *puruṣaḥ*—Paramātmā; *yāvān*—en la medida en que; *ātmā*—el nivel de comprensión; *yathā*—el grado de austeridad y penitencia; *īyate*—Se manifiesta.

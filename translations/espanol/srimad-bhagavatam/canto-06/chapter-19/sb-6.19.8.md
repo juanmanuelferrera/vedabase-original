@@ -1,10 +1,10 @@
 ### SB 6.19.8
 
-> हविःशेषं च जुहुयादनले द्वादशाहुतीः
+> हविःशेषं च जुहुयादनले द्वादशाहुतीः\
 > ओं नमो भगवते महापुरुषाय महाविभूतिपतये स्वाहेति ॥८॥
 
-> haviḥ-śeṣaṁ ca juhuyād
-> anale dvādaśāhutī
+> haviḥ-śeṣaṁ ca juhuyād\
+> anale dvādaśāhutī\
 > oṁ namo bhagavate mahā-puruṣāya mahāvibhūti-pataye svāheti
 
 *haviḥ-śeṣam*—remanentes de la ofrenda; *ca*—y; *juhuyāt*—se deben ofrecer; *anale*—en el fuego; *dvādaśa*—doce; *āhutīḥ*—oblaciones; *oṁ*—¡oh, mi Señor!; *namaḥ*—reverencias; *bhagavate*—a la Suprema Personalidad de Dios; *mahā-puruṣāya*—el disfrutador supremo; *mahā-vibhūti*—de la diosa de la fortuna; *pataye*—el esposo; *svāhā*—saludos; *iti*—así.

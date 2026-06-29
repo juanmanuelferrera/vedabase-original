@@ -1,11 +1,11 @@
 ### SB 1.12.7
 
-> मातुर्गर्भगतो वीरः स तदा भृगुनन्दन ।
+> मातुर्गर्भगतो वीरः स तदा भृगुनन्दन ।\
 > ददर्श पुरुषं कञ्चिद्दह्यमानोऽस्त्रतेजसा ॥७॥
 
-> mātur garbha-gato vīraḥ
-> sa tadā bhṛgu-nandana
-> dadarśa puruṣaṁ kañcid
+> mātur garbha-gato vīraḥ\
+> sa tadā bhṛgu-nandana\
+> dadarśa puruṣaṁ kañcid\
 > dahyamāno 'stra-tejasā
 
 *mātuḥ*—madre; *garbha*—vientre; *gataḥ*—situado allí; *vīraḥ*—el gran guerrero; *saḥ*—el niño Parīkṣit; *tadā*—en ese entonces; *bhṛgu-nandana*—¡oh, hijo de Bhṛgu!; *dadarśa*—pudo ver; *puruṣam*—el Señor Supremo; *kañcit*—como otra persona; *dahyamānaḥ*—sufriendo las quemaduras; *astra*—el *brahmāstra*; *tejasā*—temperatura.

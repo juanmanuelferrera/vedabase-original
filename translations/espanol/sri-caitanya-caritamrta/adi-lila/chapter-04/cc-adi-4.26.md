@@ -1,9 +1,9 @@
 ### CC Adi 4.26
 
-> প্রিয়া যদি মান করি’ করয়ে ভর্ৎসন ।
+> প্রিয়া যদি মান করি’ করয়ে ভর্ৎসন ।\
 > বেদস্তুতি হৈতে হরে সেই মোর মন ॥২৬॥
 
-> priyā yadi māna kari' karaye bhartsana
+> priyā yadi māna kari' karaye bhartsana\
 > veda-stuti haite hare sei mora mana
 
 *priyā*—la amada; *yadi*—si; *māna kari'*—con enfado celoso; *karaye*—hace; *bhartsana*—reprensión; *veda-stuti*—las oraciones Védicas; *haite*—de; *hare*—roba; *sei*—eso; *mora*—Mi; *mana*—mente.

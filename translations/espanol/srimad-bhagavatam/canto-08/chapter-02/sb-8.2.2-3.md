@@ -1,18 +1,18 @@
 ### SB 8.2.2-3
 
-> तावता विस्तृतः पर्यक्त्रिभिः शृङ्गैः पयोनिधिम
-> दिशः खं रोचयन्नास्ते रौप्यायसहिरण्मयैः ॥२॥
-> अन्यैश्च ककुभः सर्वा रत्नधातुविचित्रितैः
+> तावता विस्तृतः पर्यक्त्रिभिः शृङ्गैः पयोनिधिम\
+> दिशः खं रोचयन्नास्ते रौप्यायसहिरण्मयैः ॥२॥\
+> अन्यैश्च ककुभः सर्वा रत्नधातुविचित्रितैः\
 > नानाद्रुमलतागुल्मैर्निर्घोषैर्निर्झराम्भसाम ॥३॥
 
-> tāvatā vistṛtaḥ paryak
-> tribhiḥ śṛṅgaiḥ payo-nidhim
-> diśaḥ khaṁ rocayann āste
+> tāvatā vistṛtaḥ paryak\
+> tribhiḥ śṛṅgaiḥ payo-nidhim\
+> diśaḥ khaṁ rocayann āste\
 > raupyāyasa-hiraṇmayaiḥ
 
-> anyaiś ca kakubhaḥ sarvā
-> ratna-dhātu-vicitritaiḥ
-> nānā-druma-latā-gulmair
+> anyaiś ca kakubhaḥ sarvā\
+> ratna-dhātu-vicitritaiḥ\
+> nānā-druma-latā-gulmair\
 > nirghoṣair nirjharāmbhasām
 
 *tāvatā*—de ese modo; *vistṛtaḥ*—largo y ancho (ciento treinta mil kilómetros); *paryak*—alrededor; *tribhiḥ*—con tres; *śṛṅgaiḥ*—picos; *payaḥ-nidhim*—sobre una isla en el océano de leche; *diśaḥ*—en todas direcciones; *kham*—el cielo; *rocayan*—agradable; *āste*—se elevan; *raupya*—hechos de plata; *ayasa*—hierro; *hiraṇmayaiḥ*—y oro; *anyaiḥ*—con otros picos; *ca*—también; *kakubhaḥ*—direcciones; *sarvāḥ*—todas; *ratna*—con joyas; *dhātu*—y minerales; *vicitritaiḥ*—adornada con gran belleza; *nānā*—con diversos; *druma-latā*—árboles y enredaderas; *gulmaiḥ*—y arbustos; *nirghoṣaiḥ*—con los sonidos de; *nirjhara*—cataratas; *ambhasām*—de agua.

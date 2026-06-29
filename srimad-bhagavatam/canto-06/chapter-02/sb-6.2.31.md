@@ -1,11 +1,11 @@
 ### SB 6.2.31
 
-> अथ ते क्व गताः सिद्धाश्चत्वारश्चारुदर्शनाः
+> अथ ते क्व गताः सिद्धाश्चत्वारश्चारुदर्शनाः\
 > व्यामोचयन्नीयमानं बद्ध्वा पाशैरधो भुवः ॥३१॥
 
-> atha te kva gatāḥ siddhāś
-> catvāraś cāru-darśanāḥ
-> vyāmocayan nīyamānaṁ
+> atha te kva gatāḥ siddhāś\
+> catvāraś cāru-darśanāḥ\
+> vyāmocayan nīyamānaṁ\
 > baddhvā pāśair adho bhuvaḥ
 
 *atha*—thereafter; *te*—those persons; *kva*—where; *gatāḥ*—went; *siddhāḥ*—liberated; *catvāraḥ*—four personalities; *cāru-darśanāḥ*—extremely beautiful to see; *vyāmocayan*—they released; *nīyamānam*—me, who was being carried away; *baddhvā*—being arrested; *pāśaiḥ*—by ropes; *adhaḥ bhuvaḥ*—downward to the hellish region.

@@ -1,11 +1,11 @@
 ### SB 4.9.35
 
-> स्वाराज्यं यच्छतो मौढ्यान्मानो मे भिक्षितो बत ।
+> स्वाराज्यं यच्छतो मौढ्यान्मानो मे भिक्षितो बत ।\
 > ईश्वरात्क्षीणपुण्येन फलीकारानिवाधनः ॥३५॥
 
-> svārājyaṁ yacchato mauḍhyān
-> māno me bhikṣito bata
-> īśvarāt kṣīṇa-puṇyena
+> svārājyaṁ yacchato mauḍhyān\
+> māno me bhikṣito bata\
+> īśvarāt kṣīṇa-puṇyena\
 > phalī-kārān ivādhanaḥ
 
 *svārājyam*—Su servicio devocional; *yacchataḥ*—del Señor, que estaba deseoso de ofrecer; *mauḍhyāt*—por necedad; *mānaḥ*—prosperidad material; *me*—por mí; *bhikṣitaḥ*—fue pedida; *bata*—¡ay!; *īśvarāt*—de un gran emperador; *kṣīṇa*—reducidas; *puṇyena*—cuyas actividades piadosas; *phalī-kārān*—partículas rotas de arroz blanco; *iva*—como; *adhanaḥ*—un pobre.

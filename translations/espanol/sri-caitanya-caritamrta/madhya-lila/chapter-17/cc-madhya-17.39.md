@@ -1,11 +1,11 @@
 ### CC Madhya 17.39
 
-> যত্র নৈসর্গদুর্বৈরাঃ সহাসন্ নৃ-মৃগাদয়ঃ ।
+> যত্র নৈসর্গদুর্বৈরাঃ সহাসন্ নৃ-মৃগাদয়ঃ ।\
 > মিত্রাণীবাজিতাবাস-দ্রুত-রুট্-তর্ষণাদিকম্ ॥৩৯॥
 
-> yatra naisarga-durvairāḥ
-> sahāsan nṛ-mṛgādayaḥ
-> mitrāṇīvājitāvāsa-
+> yatra naisarga-durvairāḥ\
+> sahāsan nṛ-mṛgādayaḥ\
+> mitrāṇīvājitāvāsa-\
 > druta-ruṭ-tarṣaṇādikam
 
 *yatra*—donde; *naisarga*—por naturaleza; *durvairāḥ*—que viven en enemistad; *saha-āsan*—viven juntos; *nṛ*—seres humanos; *mṛga-ādayaḥ*—y animales; *mitrāṇi*—amigos; *iva*—como; *ajita*—del Señor Śrī Kṛṣṇa; *āvāsa*—residencia; *druta*—desaparecidos; *ruj*—ira; *tarṣaṇa-ādikam*—sed y demás.

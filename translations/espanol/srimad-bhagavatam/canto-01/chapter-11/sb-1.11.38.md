@@ -1,11 +1,11 @@
 ### SB 1.11.38
 
-> एतदीशनमीशस्य प्रकृतिस्थोऽपि तद्गुणैः ।
+> एतदीशनमीशस्य प्रकृतिस्थोऽपि तद्गुणैः ।\
 > न युज्यते सदात्मस्थैर्यथा बुद्धिस्तदाश्रया ॥३८॥
 
-> etad īśanam īśasya
-> prakṛti-stho 'pi tad-guṇaiḥ
-> na yujyate sadātma-sthair
+> etad īśanam īśasya\
+> prakṛti-stho 'pi tad-guṇaiḥ\
+> na yujyate sadātma-sthair\
 > yathā buddhis tad-āśrayā
 
 *etat*—esa; *īśanam*—divinidad; *īśasya*—de la Personalidad de Dios; *prakṛti-sthaḥ*—estando en contacto con la naturaleza material; *api*—a pesar de; *tat-guṇaiḥ*—por las cualidades; *na*—nunca; *yujyate*—es afectado; *sadā ātma-sthaiḥ*—por aquellos que están situados en la eternidad; *yathā*—como es; *buddhiḥ*—inteligencia; *tat*—el Señor; *āśrayā*—aquellos que están bajo el refugio de.

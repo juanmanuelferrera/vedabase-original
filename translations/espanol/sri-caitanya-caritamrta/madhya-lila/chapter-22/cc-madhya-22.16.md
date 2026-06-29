@@ -1,13 +1,13 @@
 ### CC Madhya 22.16
 
-> কামাদীনাং কতি ন কতিধা পালিতা দুর্নিদেশা-
-> স্তেষাং জাতা ময়ি ন করুণা ন ত্রপা নোপশান্তিঃ ।
-> উৎসৃজ্যৈতানথ যদুপতে সাম্প্রতং লব্ধবুদ্ধি-
+> কামাদীনাং কতি ন কতিধা পালিতা দুর্নিদেশা-\
+> স্তেষাং জাতা ময়ি ন করুণা ন ত্রপা নোপশান্তিঃ ।\
+> উৎসৃজ্যৈতানথ যদুপতে সাম্প্রতং লব্ধবুদ্ধি-\
 > স্ত্বামায়াতঃ শরণমভয়ং মাং নিযুঙ্ক্ষ্বাত্মদাস্যে ॥১৬॥
 
-> kāmādīnāṁ kati na katidhā pālitā durnideśās
-> teṣāṁ jātā mayi na karuṇā na trapā nopaśāntiḥ
-> utsṛjyaitān atha yadu-pate sāmprataṁ labdha-buddhis
+> kāmādīnāṁ kati na katidhā pālitā durnideśās\
+> teṣāṁ jātā mayi na karuṇā na trapā nopaśāntiḥ\
+> utsṛjyaitān atha yadu-pate sāmprataṁ labdha-buddhis\
 > tvām āyātaḥ śaraṇam abhayaṁ māṁ niyuṅkṣvātma-dāsye
 
 *kāma-ādīnām*—de mis amos como la lujuria, la ira, la codicia, la ilusión y la envidia; *kati*—cuántas; *na*—no; *katidhā*—de cuántas maneras; *pālitāḥ*—obedecidas; *durnideśāḥ*—órdenes indeseables; *teṣām*—de ellos; *jātā*—generada; *mayi*—hacia mí; *na*—no; *karuṇā*—misericordia; *na*—no; *trapā*—vergüenza; *na*—no; *upaśāntiḥ*—deseo de cesar; *utsṛjya*—abandonando; *etān*—todos estos; *atha*—por la presente; *yadu-pate*—¡oh, el mejor de la dinastía Yadu!; *sāmpratam*—ahora; *labdha-buddhiḥ*—habiendo despertado la inteligencia; *tvām*—a Ti; *āyātaḥ*—acercado; *śaraṇam*—que eres el refugio; *abhayam*—libre de temor; *mām*—a mí; *niyuṅkṣva*—por favor, ocúpame; *ātma-dāsye*—en Tu servicio personal.

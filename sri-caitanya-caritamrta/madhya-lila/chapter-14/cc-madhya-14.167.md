@@ -1,9 +1,9 @@
 ### CC Madhya 14.167
 
-> অষ্ট ‘সাত্ত্বিক’, হর্ষাদি ‘ব্যভিচারী’ যাঁর ।
+> অষ্ট ‘সাত্ত্বিক’, হর্ষাদি ‘ব্যভিচারী’ যাঁর ।\
 > ‘সহজ প্রেম’, বিংশতি ‘ভাব’-অলঙ্কার ॥১৬৭॥
 
-> aṣṭa 'sāttvika', harṣādi 'vyabhicārī' yāṅra
+> aṣṭa 'sāttvika', harṣādi 'vyabhicārī' yāṅra\
 > 'sahaja prema', viṁśati 'bhāva'-alaṅkāra
 
 *aṣṭa*—eight; *sāttvika*—transcendental symptoms; *harṣa-ādi*—like jubilation; *vyabhicārī*—distinctive features; *yāṅra*—of whose; *sahaja prema*—natural love; *viṁśati*—twenty; *bhāva*—of ecstasy; *alaṅkāra*—ornaments.

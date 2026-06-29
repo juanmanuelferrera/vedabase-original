@@ -1,13 +1,13 @@
 ### SB 6.3.26
 
-> एवं विमृश्य सुधियो भगवत्यनन्ते
-> सर्वात्मना विदधते खलु भावयोगम
-> ते मे न दण्डमर्हन्त्यथ यद्यमीषां
+> एवं विमृश्य सुधियो भगवत्यनन्ते\
+> सर्वात्मना विदधते खलु भावयोगम\
+> ते मे न दण्डमर्हन्त्यथ यद्यमीषां\
 > स्यात्पातकं तदपि हन्त्युरुगायवादः ॥२६॥
 
-> evaṁ vimṛśya sudhiyo bhagavaty anante
-> sarvātmanā vidadhate khalu bhāva-yogam
-> te me na daṇḍam arhanty atha yady amīṣāṁ
+> evaṁ vimṛśya sudhiyo bhagavaty anante\
+> sarvātmanā vidadhate khalu bhāva-yogam\
+> te me na daṇḍam arhanty atha yady amīṣāṁ\
 > syāt pātakaṁ tad api hanty urugāya-vādaḥ
 
 *evam*—thus; *vimṛśya*—considering; *su-dhiyaḥ*—those whose intelligence is sharp; *bhagavati*—unto the Supreme Personality of Godhead; *anante*—the unlimited; *sarva-ātmanā*—with all their heart and soul; *vidadhate*—take to; *khalu*—indeed; *bhāva-yogam*—the process of devotional service; *te*—such persons; *me*—my; *na*—not; *daṇḍam*—punishment; *arhanti*—deserve; *atha*—therefore; *yadi*—if; *amīṣām*—of them; *syāt*—there is; *pātakam*—some sinful activity; *tat*—that; *api*—also; *hanti*—destroys; *urugāya-vādaḥ*—the chanting of the holy name of the Supreme Lord.

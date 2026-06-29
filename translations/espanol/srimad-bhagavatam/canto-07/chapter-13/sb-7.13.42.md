@@ -1,11 +1,11 @@
 ### SB 7.13.42
 
-> नाहं निन्दे न च स्तौमि स्वभावविषमं जनम
+> नाहं निन्दे न च स्तौमि स्वभावविषमं जनम\
 > एतेषां श्रेय आशासे उतैकात्म्यं महात्मनि ॥४२॥
 
-> nāhaṁ ninde na ca staumi
-> sva-bhāva-viṣamaṁ janam
-> eteṣāṁ śreya āśāse
+> nāhaṁ ninde na ca staumi\
+> sva-bhāva-viṣamaṁ janam\
+> eteṣāṁ śreya āśāse\
 > utaikātmyaṁ mahātmani
 
 *na*—no; *aham*—yo; *ninde*—blasfemar; *na*—ni; *ca*—también; *staumi*—alabar; *sva-bhāva*—cuya naturaleza; *viṣamam*—contradictoria; *janam*—una entidad viviente o ser humano; *eteṣām*—de todos ellos; *śreyaḥ*—el beneficio supremo; *āśāse*—yo oro; *uta*—en verdad; *aikātmyam*—unidad; *mahā-ātmani*—en la Superalma, el Parabrahman (Kṛṣṇa).

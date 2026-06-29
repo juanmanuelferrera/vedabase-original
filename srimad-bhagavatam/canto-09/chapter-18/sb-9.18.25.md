@@ -1,11 +1,11 @@
 ### SB 9.18.25
 
-> दुर्मना भगवान्काव्यः पौरोहित्यं विगर्हयन
+> दुर्मना भगवान्काव्यः पौरोहित्यं विगर्हयन\
 > स्तुवन्वृत्तिं च कापोतीं दुहित्रा स ययौ पुरात ॥२५॥
 
-> durmanā bhagavān kāvyaḥ
-> paurohityaṁ vigarhayan
-> stuvan vṛttiṁ ca kāpotīṁ
+> durmanā bhagavān kāvyaḥ\
+> paurohityaṁ vigarhayan\
+> stuvan vṛttiṁ ca kāpotīṁ\
 > duhitrā sa yayau purāt
 
 *durmanāḥ*—being very unhappy; *bhagavān*—the most powerful; *kāvyaḥ*—Śukrācārya; *paurohityam*—the business of priesthood; *vigarhayan*—condemning; *stuvan*—praising; *vṛttim*—the profession; *ca*—and; *kāpotīm*—of collecting grains from the field; *duhitrā*—with his daughter; *saḥ*—he (Śukrācārya); *yayau*—went; *purāt*—from his own residence.

@@ -1,13 +1,13 @@
 ### SB 6.16.1
 
-> श्रीबादरायणिरुवाच
-> अथ देवऋषी राजन्सम्परेतं नृपात्मजम
+> श्रीबादरायणिरुवाच\
+> अथ देवऋषी राजन्सम्परेतं नृपात्मजम\
 > दर्शयित्वेति होवाच ज्ञआतीनामनुशोचताम ॥१॥
 
-> śrī-bādarāyaṇir uvāca
-> atha deva-ṛṣī rājan
-> samparetaṁ nṛpātmajam
-> darśayitveti hovāca
+> śrī-bādarāyaṇir uvāca\
+> atha deva-ṛṣī rājan\
+> samparetaṁ nṛpātmajam\
+> darśayitveti hovāca\
 > jñātīnām anuśocatām
 
 *śrī-bādarāyaṇiḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *atha*—así; *deva-ṛṣiḥ*—el gran sabio Nārada; *rājan*—¡oh, rey!; *samparetam*—muerto; *nṛpa-ātmajam*—al hijo del rey; *darśayitvā*—hacer visible; *iti*—así; *ha*—en verdad; *uvāca*—explicó; *jñātīnām*—a todos los familiares; *anuśocatām*—que se lamentaban.

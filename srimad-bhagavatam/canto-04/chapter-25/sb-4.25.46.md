@@ -1,11 +1,11 @@
 ### SB 4.25.46
 
-> पञ्च द्वारस्तु पौरस्त्या दक्षिणैका तथोत्तरा ।
+> पञ्च द्वारस्तु पौरस्त्या दक्षिणैका तथोत्तरा ।\
 > पश्चिमे द्वे अमूषां ते नामानि नृप वर्णये ॥४६॥
 
-> pañca dvāras tu paurastyā
-> dakṣiṇaikā tathottarā
-> paścime dve amūṣāṁ te
+> pañca dvāras tu paurastyā\
+> dakṣiṇaikā tathottarā\
+> paścime dve amūṣāṁ te\
 > nāmāni nṛpa varṇaye
 
 *pañca*—five; *dvāraḥ*—doors; *tu*—then; *paurastyāḥ*—facing the eastern side; *dakṣiṇā*—southern; *ekā*—one; *tathā*—also; *uttarā*—one toward the north; *paścime*—similarly, on the western side; *dve*—two; *amūṣām*—of them; *te*—unto you; *nāmāni*—names; *nṛpa*—O King; *varṇaye*—I shall describe.

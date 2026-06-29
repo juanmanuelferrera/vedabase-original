@@ -1,9 +1,9 @@
 ### CC Antya 11.81
 
-> সব বৈষ্ণবে প্রভু বসাইলা সারি সারি ।
+> সব বৈষ্ণবে প্রভু বসাইলা সারি সারি ।\
 > আপনে পরিবেশে প্রভু লঞা জনা চারি ॥৮১॥
 
-> saba vaiṣṇave prabhu vasāilā sāri sāri
+> saba vaiṣṇave prabhu vasāilā sāri sāri\
 > āpane pariveśe prabhu lañā janā cāri
 
 *saba vaiṣṇave*—all the Vaiṣṇavas; *prabhu*—Śrī Caitanya Mahāprabhu; *vasāilā*—made to sit down; *sāri sāri*—in lines; *āpane*—personally; *pariveśe*—distributes; *prabhu*—Śrī Caitanya Mahāprabhu; *lañā*—taking; *janā cāri*—four men.

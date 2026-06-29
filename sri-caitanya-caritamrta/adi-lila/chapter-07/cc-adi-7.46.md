@@ -1,9 +1,9 @@
 ### CC Adi 7.46
 
-> তপন-মিশ্রের ঘরে ভিক্ষা-নির্বাহণ ।
+> তপন-মিশ্রের ঘরে ভিক্ষা-নির্বাহণ ।\
 > সন্ন্যাসীর সঙ্গে নাহি মানে নিমন্ত্রণ ॥৪৬॥
 
-> tapana-miśrera ghare bhikṣā-nirvāhaṇa
+> tapana-miśrera ghare bhikṣā-nirvāhaṇa\
 > sannyāsīra saṅge nāhi māne nimantraṇa
 
 *tapana-miśrera*—of Tapana Miśra; *ghare*—in the house; *bhikṣā*—accepting food; *nirvāhaṇa*—regularly executed; *sannyāsīra*—with other Māyāvādī *sannyasīs*; *saṅge*—in company with them; *nāhi*—never; *māne*—accepted; *nimantraṇa*—invitation.

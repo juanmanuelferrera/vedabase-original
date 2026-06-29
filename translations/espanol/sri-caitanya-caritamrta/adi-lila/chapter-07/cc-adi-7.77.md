@@ -1,9 +1,9 @@
 ### CC Adi 7.77
 
-> এই আজ্ঞা পাঞা নাম লই অনুক্ষণ ।
+> এই আজ্ঞা পাঞা নাম লই অনুক্ষণ ।\
 > নাম লৈতে লৈতে মোর ভ্রান্ত হৈল মন ॥৭৭॥
 
-> ei ājñā pāñā nāma la-i anukṣaṇa
+> ei ājñā pāñā nāma la-i anukṣaṇa\
 > nāma laite laite mora bhrānta haila mana
 
 *ei*—esta; *ājñā*—orden; *pāñā*—recibiendo; *nāma*—el santo nombre; *la-i*—canto; *anukṣaṇa*—siempre; *nāma*—el santo nombre; *laite*—aceptando; *laite*—aceptando; *mora*—Mi; *bhrānta*—confusión; *haila*—ocurrió; *mana*—en la mente.

@@ -1,9 +1,9 @@
 ### CC Antya 11.63
 
-> আগে মহাপ্রভু চলেন নৃত্য করিতে করিতে ।
+> আগে মহাপ্রভু চলেন নৃত্য করিতে করিতে ।\
 > পাছে নৃত্য করে বক্রেশ্বর ভক্তগণ-সাথে ॥৬৩॥
 
-> āge mahāprabhu calena nṛtya karite karite
+> āge mahāprabhu calena nṛtya karite karite\
 > pāche nṛtya kare vakreśvara bhakta-gaṇa-sāthe
 
 *āge*—in front; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *calena*—goes; *nṛtya*—dancing; *karite karite*—performing; *pāche*—behind; *nṛtya kare*—dances; *vakreśvara*—Vakreśvara; *bhakta-gaṇa-sāthe*—with other devotees.

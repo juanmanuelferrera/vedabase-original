@@ -1,9 +1,9 @@
 ### CC Antya 6.292
 
-> নেত্রজলে সেই শিলা ভিজে নিরন্তর ।
+> নেত্রজলে সেই শিলা ভিজে নিরন্তর ।\
 > শিলারে কহেন প্রভু — ‘কৃষ্ণ-কলেবর’ ॥২৯২॥
 
-> netra-jale sei śilā bhije nirantara
+> netra-jale sei śilā bhije nirantara\
 > śilāre kahena prabhu—'kṛṣṇa-kalevara'
 
 *netra-jale*—by the tears of His eyes; *sei*—that; *śilā*—stone; *bhije*—remains wet; *nirantara*—always; *śilāre*—the stone; *kahena*—says; *prabhu*—Śrī Caitanya Mahāprabhu; *kṛṣṇa-kalevara*—the body of Lord Kṛṣṇa.

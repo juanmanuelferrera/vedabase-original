@@ -1,6 +1,6 @@
 ### CC Adi 1.68
 
-> dui-rūpe haya bhagavānera prakāśa
+> dui-rūpe haya bhagavānera prakāśa\
 > eke ta' prakāśa haya, āre ta' vilāsa
 
 *dui-rūpe*—em duas formas; *haya*—são; *bhagavānera*—da Suprema Personalidade de Deus; *prakāśa*—manifestações; *eke*—numa; *ta'*—certamente; *prakāśa*—manifestação; *haya*—é; *āre*—na outra; *ta'*—certamente; *vilāsa*—ocupado em passatempos.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.171
 
-> মণি যৈছে অবিকৃতে প্রসবে হেমভার ।
+> মণি যৈছে অবিকৃতে প্রসবে হেমভার ।\
 > জগদ্রূপ হয় ঈশ্বর, তবু অবিকার ॥১৭১॥
 
-> maṇi yaiche avikṛte prasabe hema-bhāra
+> maṇi yaiche avikṛte prasabe hema-bhāra\
 > jagad-rūpa haya īśvara, tabu avikāra
 
 *maṇi*—the touchstone; *yaiche*—just as; *avikṛte*—without being transformed; *prasabe*—produces; *hema-bhāra*—volumes of gold; *jagat-rūpa*—the cosmic manifestation; *haya*—becomes; *īśvara*—the Supreme Personality of Godhead; *tabu*—still; *avikāra*—unchanged.

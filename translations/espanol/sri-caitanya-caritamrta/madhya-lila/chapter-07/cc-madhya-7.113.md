@@ -1,9 +1,9 @@
 ### CC Madhya 7.113
 
-> এইমত যাইতে যাইতে গেলা কূর্মস্থানে ৷
+> এইমত যাইতে যাইতে গেলা কূর্মস্থানে ৷\
 > কূর্ম দেখি’ কৈল তাঁরে স্তবন-প্ৰণামে ৷৷ ১১৩ ৷৷ ॥১১৩॥
 
-> ei-mata yāite yāite gelā kūrma-sthāne
+> ei-mata yāite yāite gelā kūrma-sthāne\
 > kūrma dekhi' kaila tāṅre stavana-praṇāme
 
 *ei-mata*—de esta manera; *yāite yāite*—mientras pasaba; *gelā*—fue; *kūrma-sthāne*—al lugar de peregrinaje conocido como Kūrma-kṣetra; *kūrma dekhi'*—al ver al Señor Kūrma; *kaila*—ofreció; *tāṅre*—a Él; *stavana*—oraciones; *praṇāme*—y reverencias.

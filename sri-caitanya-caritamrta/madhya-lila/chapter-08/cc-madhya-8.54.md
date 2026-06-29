@@ -1,9 +1,9 @@
 ### CC Madhya 8.54
 
-> প্রভু যাই’ সেই বিপ্ৰঘরে ভিক্ষা কৈল ।
+> প্রভু যাই’ সেই বিপ্ৰঘরে ভিক্ষা কৈল ।\
 > দুই জনার উৎকণ্ঠায় আসি’ সন্ধ্যা হৈল ॥৫৪॥
 
-> prabhu yāi' sei vipra-ghare bhikṣā kaila
+> prabhu yāi' sei vipra-ghare bhikṣā kaila\
 > dui janāra utkaṇṭḥāya āsi' sandhyā haila
 
 *prabhu*—Lord Śrī Caitanya Mahāprabhu; *yāi'*—going; *sei*—that; *vipra-ghare*—to the house of the *brāhmaṇa*; *bhikṣā*—lunch; *kaila*—accepted; *dui*—two; *janāra*—of the persons; *utkaṇṭhāya*—in the impatience; *āsi'*—coming; *sandhyā*—evening; *haila*—appeared.

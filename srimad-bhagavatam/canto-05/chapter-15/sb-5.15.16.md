@@ -1,15 +1,15 @@
 ### SB 5.15.16
 
-> तत्रायं श्लोकः
-> प्रैयव्रतं वंशमिमं
-> विरजश्चरमोद्भवः
-> अकरोदत्यलं कीर्त्या
+> तत्रायं श्लोकः\
+> प्रैयव्रतं वंशमिमं\
+> विरजश्चरमोद्भवः\
+> अकरोदत्यलं कीर्त्या\
 > विष्णुः सुरगणं यथा ॥१६॥
 
-> tatrāyaṁ ślokaḥ—
-> praiyavrataṁ vaṁśam imaṁ
-> virajaś caramodbhavaḥ
-> akarod aty-alaṁ kīrtyā
+> tatrāyaṁ ślokaḥ—\
+> praiyavrataṁ vaṁśam imaṁ\
+> virajaś caramodbhavaḥ\
+> akarod aty-alaṁ kīrtyā\
 > viṣṇuḥ sura-gaṇaṁ yathā
 
 *tatra*—in that connection; *ayam ślokaḥ*—there is this famous verse; *praiyavratam*—coming from King Priyavrata; *vaṁśam*—the dynasty; *imam*—this; *virajaḥ*—King Viraja; *carama-udbhavaḥ*—the source of one hundred sons (headed by Śatajit); *akarot*—decorated; *ati-alam*—very greatly; *kīrtyā*—by his reputation; *viṣṇuḥ*—Lord Viṣṇu, the Supreme Personality of Godhead; *sura-gaṇam*—the demigods; *yathā*—just as.

@@ -1,11 +1,11 @@
 ### SB 3.23.43
 
-> प्रेक्षयित्वा भुवो गोलं पत्न्यै यावान्स्वसंस्थया ।
+> प्रेक्षयित्वा भुवो गोलं पत्न्यै यावान्स्वसंस्थया ।\
 > बह्वाश्चर्यं महायोगी स्वाश्रमाय न्यवर्तत ॥४३॥
 
-> prekṣayitvā bhuvo golaṁ
-> patnyai yāvān sva-saṁsthayā
-> bahv-āścaryaṁ mahā-yogī
+> prekṣayitvā bhuvo golaṁ\
+> patnyai yāvān sva-saṁsthayā\
+> bahv-āścaryaṁ mahā-yogī\
 > svāśramāya nyavartata
 
 *prekṣayitvā*—after showing; *bhuvaḥ*—of the universe; *golam*—the globe; *patnyai*—to his wife; *yāvān*—as much; *sva-saṁsthayā*—with its arrangements; *bahu-āścaryam*—full of many wonders; *mahā-yogī*—the great *yogī* (Kardama); *sva-āśramāya*—to his own hermitage; *nyavartata*—returned.

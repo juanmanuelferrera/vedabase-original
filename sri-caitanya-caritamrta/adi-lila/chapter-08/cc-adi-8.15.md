@@ -1,9 +1,9 @@
 ### CC Adi 8.15
 
-> শ্রীকৃষ্ণচৈতন্য-দয়া করহ বিচার ।
+> শ্রীকৃষ্ণচৈতন্য-দয়া করহ বিচার ।\
 > বিচার করিলে চিত্তে পাবে চমৎকার ॥১৫॥
 
-> śrī-kṛṣṇa-caitanya-dayā karaha vicāra
+> śrī-kṛṣṇa-caitanya-dayā karaha vicāra\
 > vicāra karite citte pābe camatkāra
 
 *śrī-kṛṣṇa-caitanya*—Lord Śrī Caitanya Mahāprabhu; *dayā*—His mercy; *karaha*—just put into; *vicāra*—consideration; *vicāra*—when such consideration; *karile*—will be done by you; *citte*—in your heart; *pābe*—you will get; *camatkāra*—striking wonder.

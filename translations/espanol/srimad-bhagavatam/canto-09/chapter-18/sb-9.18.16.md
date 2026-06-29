@@ -1,11 +1,11 @@
 ### SB 9.18.16
 
-> आत्मवृत्तमविज्ञआय कत्थसे बहु भिक्षुकि
+> आत्मवृत्तमविज्ञआय कत्थसे बहु भिक्षुकि\
 > किं न प्रतीक्षसेऽस्माकं गृहान्बलिभुजो यथा ॥१६॥
 
-> ātma-vṛttam avijñāya
-> katthase bahu bhikṣuki
-> kiṁ na pratīkṣase 'smākaṁ
+> ātma-vṛttam avijñāya\
+> katthase bahu bhikṣuki\
+> kiṁ na pratīkṣase 'smākaṁ\
 > gṛhān balibhujo yathā
 
 *ātma-vṛttam*—la propia posición; *avijñāya*—sin entender; *katthase*—estás hablando como una loca; *bahu*—tanto; *bhikṣuki*—pedigüeña; *kim*—acaso; *na*—no; *pratīkṣase*—esperas; *asmākam*—nuestra; *gṛhān*—en la casa; *balibhujaḥ*—los cuervos; *yathā*—como.

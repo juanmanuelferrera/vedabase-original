@@ -1,9 +1,9 @@
 ### CC Madhya 9.5
 
-> সেই সব তীর্থের ক্রম কহিতে না পারি ৷
+> সেই সব তীর্থের ক্রম কহিতে না পারি ৷\
 > দক্ষিণ-বামে তীর্থ-গমন হয় ফেরাফেরি ৷৷ ৫ ৷৷ ॥৫॥
 
-> sei saba tīrthera krama kahite nā pāri
+> sei saba tīrthera krama kahite nā pāri\
 > dakṣiṇa-vāme tīrtha-gamana haya pherāpheri
 
 *sei saba*—todos esos; *tīrthera*—de los lugares santos; *krama*—el orden cronológico; *kahite*—de relatar; *nā pāri*—soy incapaz; *dakṣiṇa-vāme*—a la derecha y a la izquierda; *tīrtha-gamana*—visita de los lugares santos; *haya*—es; *pherāpheri*—ir y venir.

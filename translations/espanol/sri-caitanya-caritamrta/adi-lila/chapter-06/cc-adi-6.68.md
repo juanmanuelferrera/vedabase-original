@@ -1,13 +1,13 @@
 ### CC Adi 6.68
 
-> অপি বত মধুপুর্যামার্যপুত্রোঽধুনাস্তে
-> স্মরতি স পিতৃগেহান্ সৌম্য বন্ধূংশ্চ গোপান্ ।
-> ক্বচিদপি স কথাং নঃ কিঙ্করীণাং গৃণীতে
+> অপি বত মধুপুর্যামার্যপুত্রোঽধুনাস্তে\
+> স্মরতি স পিতৃগেহান্ সৌম্য বন্ধূংশ্চ গোপান্ ।\
+> ক্বচিদপি স কথাং নঃ কিঙ্করীণাং গৃণীতে\
 > ভুজমগুরুসুগন্ধং মূর্ধ্ন্যধাস্যৎ কদা নু ॥৬৮॥
 
-> api bata madhu-puryām ārya-putro 'dhunāste
-> smarati sa pitṛ-gehān saumya bandhūṁś ca gopān
-> kvacid api sa kathāṁ naḥ kiṅkariṇāṁ gṛṇīte
+> api bata madhu-puryām ārya-putro 'dhunāste\
+> smarati sa pitṛ-gehān saumya bandhūṁś ca gopān\
+> kvacid api sa kathāṁ naḥ kiṅkariṇāṁ gṛṇīte\
 > bhujam aguru-sugandhaṁ mūrdhny adhāsyat kadā nu
 
 *api*—ciertamente; *bata*—lamentable; *madhu-puryām*—en la ciudad de Mathurā; *ārya-putraḥ*—el hijo de Nanda Mahārāja; *adhunā*—ahora; *āste*—reside; *smarati*—recuerda; *saḥ*—Él; *pitṛ-gehān*—los asuntos del hogar de Su padre; *saumya*—¡oh, gran alma (Uddhava)!; *bandhūn*—Sus muchos amigos; *ca*—y; *gopān*—los pastorcillos de vacas; *kvacit*—alguna vez; *api*—o; *saḥ*—Él; *kathām*—conversaciones; *naḥ*—de nosotras; *kiṅkarīṇām*—de las sirvientas; *gṛṇīte*—refiere; *bhujam*—la mano; *aguru-su-gandham*—con la fragancia de *aguru*; *mūrdhni*—sobre la cabeza; *adhāsyat*—colocará; *kadā*—cuándo; *nu*—acaso.

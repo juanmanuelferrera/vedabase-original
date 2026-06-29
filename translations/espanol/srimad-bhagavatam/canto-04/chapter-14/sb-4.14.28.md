@@ -1,11 +1,11 @@
 ### SB 4.14.28
 
-> तस्मान्मां कर्मभिर्विप्रा यजध्वं गतमत्सराः ।
+> तस्मान्मां कर्मभिर्विप्रा यजध्वं गतमत्सराः ।\
 > बलिं च मह्यं हरत मत्तोऽन्यः कोऽग्रभुक्पुमान् ॥२८॥
 
-> tasmān māṁ karmabhir viprā
-> yajadhvaṁ gata-matsarāḥ
-> baliṁ ca mahyaṁ harata
+> tasmān māṁ karmabhir viprā\
+> yajadhvaṁ gata-matsarāḥ\
+> baliṁ ca mahyaṁ harata\
 > matto 'nyaḥ ko 'gra-bhuk pumān
 
 *tasmāt*—por esta razón; *mām*—a mí; *karmabhiḥ*—con actividades rituales; *viprāḥ*—¡oh, *brāhmaṇas*!; *yajadhvam*—adoren; *gata*—sin; *matsarāḥ*—ser envidiosos; *balim*—artículos de adoración; *ca*—también; *mahyam*—a mí; *harata*—traigan; *mattaḥ*—que yo; *anyaḥ*—otra; *kaḥ*—quién es; *agra-bhuk*—el disfrutador de las primeras oblaciones; *pumān*—personalidad.

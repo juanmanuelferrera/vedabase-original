@@ -1,11 +1,11 @@
 ### SB 4.24.44
 
-> दर्शनं नो दिदृक्षूणां देहि भागवतार्चितम् ।
+> दर्शनं नो दिदृक्षूणां देहि भागवतार्चितम् ।\
 > रूपं प्रियतमं स्वानां सर्वेन्द्रियगुणाञ्जनम् ॥४४॥
 
-> darśanaṁ no didṛkṣūṇāṁ
-> dehi bhāgavatārcitam
-> rūpaṁ priyatamaṁ svānāṁ
+> darśanaṁ no didṛkṣūṇāṁ\
+> dehi bhāgavatārcitam\
+> rūpaṁ priyatamaṁ svānāṁ\
 > sarvendriya-guṇāñjanam
 
 *darśanam*—vision; *naḥ*—our; *didṛkṣūṇām*—desirous to see; *dehi*—kindly exhibit; *bhāgavata*—of the devotees; *arcitam*—as worshiped by them; *rūpam*—form; *priya-tamam*—dearmost; *svānām*—of Your devotees; *sarva-indriya*—all the senses; *guṇa*—qualities; *añjanam*—very much pleasing.

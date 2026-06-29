@@ -1,9 +1,9 @@
 ### CC Madhya 4.124
 
-> প্রেমামৃতে তৃপ্ত, ক্ষুধাতৃষ্ণা নাহি বাধে ।
+> প্রেমামৃতে তৃপ্ত, ক্ষুধাতৃষ্ণা নাহি বাধে ।\
 > ক্ষীর-ইচ্ছা হৈল, তাহে মানে অপরাধে ॥১২৪॥
 
-> premāmṛte tṛpta, kṣudhā-tṛṣṇā nāhi bādhe
+> premāmṛte tṛpta, kṣudhā-tṛṣṇā nāhi bādhe\
 > kṣīra-icchā haila, tāhe māne aparādhe
 
 *prema-amṛte tṛpta*—satisfecho únicamente en el amoroso servicio del Señor; *kṣudhā-tṛṣṇā*—hambre y sed; *nāhi*—no; *bādhe*—impiden; *kṣīra*—por el arroz con leche dulce; *icchā*—el deseo; *haila*—surgió; *tāhe*—por eso; *māne*—considera; *aparādhe*—ofensa.

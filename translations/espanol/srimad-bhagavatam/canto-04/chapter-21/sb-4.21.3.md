@@ -1,11 +1,11 @@
 ### SB 4.21.3
 
-> सवृन्दैः कदलीस्तम्भैः पूगपोतैः परिष्कृतम् ।
+> सवृन्दैः कदलीस्तम्भैः पूगपोतैः परिष्कृतम् ।\
 > तरुपल्लवमालाभिः सर्वतः समलङ्कृतम् ॥३॥
 
-> savṛndaiḥ kadalī-stambhaiḥ
-> pūga-potaiḥ pariṣkṛtam
-> taru-pallava-mālābhiḥ
+> savṛndaiḥ kadalī-stambhaiḥ\
+> pūga-potaiḥ pariṣkṛtam\
+> taru-pallava-mālābhiḥ\
 > sarvataḥ samalaṅkṛtam
 
 *sa-vṛndaiḥ*—junto con frutas y flores; *kadalī-stambhaiḥ*—con las columnas hechas con plataneros; *pūga-potaiḥ*—con grupos de animales jóvenes y procesiones de elefantes; *pariṣkṛtam*—muy limpia; *taru*—plantas jóvenes; *pallava*—hojas de mango tiernas; *mālābhiḥ*—con guirnaldas; *sarvataḥ*—por todas partes; *samalaṅkṛtam*—muy bien adornada.

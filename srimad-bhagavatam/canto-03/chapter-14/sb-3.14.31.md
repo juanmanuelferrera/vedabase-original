@@ -1,11 +1,11 @@
 ### SB 3.14.31
 
-> स विदित्वाथ भार्यायास्तं निर्बन्धं विकर्मणि ।
+> स विदित्वाथ भार्यायास्तं निर्बन्धं विकर्मणि ।\
 > नत्वा दिष्टाय रहसि तयाथोपविवेश हि ॥३१॥
 
-> sa viditvātha bhāryāyās
-> taṁ nirbandhaṁ vikarmaṇi
-> natvā diṣṭāya rahasi
+> sa viditvātha bhāryāyās\
+> taṁ nirbandhaṁ vikarmaṇi\
+> natvā diṣṭāya rahasi\
 > tayāthopaviveśa hi
 
 *saḥ*—he; *viditvā*—understanding; *atha*—thereupon; *bhāryāyāḥ*—of the wife; *tam*—that; *nirbandham*—obstinacy; *vikarmaṇi*—in the forbidden act; *natvā*—offering obeisances; *diṣṭāya*—unto worshipable fate; *rahasi*—in a secluded place; *tayā*—with her; *atha*—thus; *upaviveśa*—lay; *hi*—certainly.

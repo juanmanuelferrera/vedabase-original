@@ -1,9 +1,9 @@
 ### CC Madhya 6.4
 
-> জগন্নাথ আলিঙ্গিতে চলিলা ধাঞা ।
+> জগন্নাথ আলিঙ্গিতে চলিলা ধাঞা ।\
 > মন্দিরে পড়িলা প্রেমে আবিষ্ট হঞা ॥৪॥
 
-> jagannātha āliṅgite calilā dhāñā
+> jagannātha āliṅgite calilā dhāñā\
 > mandire paḍilā preme āviṣṭa hañā
 
 *jagannātha*—el Señor Jagannātha; *āliṅgite*—abrazar; *calilā*—fue; *dhāñā*—muy rápidamente; *mandire*—en el templo; *paḍilā*—cayó al suelo; *preme*—en éxtasis; *āviṣṭa*—abrumado; *hañā*—quedando.

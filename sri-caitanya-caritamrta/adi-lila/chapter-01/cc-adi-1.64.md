@@ -1,9 +1,9 @@
 ### CC Adi 1.64
 
-> সেই ভক্তগণ হয় দ্বিবিধ প্রকার ।
+> সেই ভক্তগণ হয় দ্বিবিধ প্রকার ।\
 > পারিষদ্গণ এক, সাধকগণ আর ॥৬৪॥
 
-> sei bhakta-gaṇa haya dvi-vidha prakāra
+> sei bhakta-gaṇa haya dvi-vidha prakāra\
 > pāriṣad-gaṇa eka, sādhaka-gaṇa āra
 
 *sei*—these; *bhakta-gaṇa*—devotees; *haya*—are; *dvi-vidha*—twofold; *prakāra*—varieties; *pāriṣat-gaṇa*—factual devotees; *eka*—one; *sādhaka-gaṇa*—prospective devotees; *āra*—the other.

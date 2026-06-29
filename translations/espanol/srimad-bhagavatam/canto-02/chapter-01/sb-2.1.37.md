@@ -1,11 +1,11 @@
 ### SB 2.1.37
 
-> ब्रह्माननं क्षत्रभुजो महात्मा विडूरुरङ्घ्रिश्रितकृष्णवर्णः ।
+> ब्रह्माननं क्षत्रभुजो महात्मा विडूरुरङ्घ्रिश्रितकृष्णवर्णः ।\
 > नानाभिधाभीज्यगणोपपन्नो द्रव्यात्मकः कर्म वितानयोगः ॥३७॥
 
-> brahmānanaṁ kṣatra-bhujo mahātmā
-> viḍ ūrur aṅghri-śrita-kṛṣṇa-varṇaḥ
-> nānābhidhābhījya-gaṇopapanno
+> brahmānanaṁ kṣatra-bhujo mahātmā\
+> viḍ ūrur aṅghri-śrita-kṛṣṇa-varṇaḥ\
+> nānābhidhābhījya-gaṇopapanno\
 > dravyātmakaḥ karma vitāna-yogaḥ
 
 *brahma*—los *brāhmaṇas*; *ānanam*—la cara; *kṣatra*—los *kṣatriyas*; *bhujaḥ*—los brazos; *mahātmā*—el *virāṭ-puruṣa*; *viṭ*—los *vaiśyas*; *ūruḥ*—los muslos; *aṅghri-śrita*—bajo la protección de Sus pies; *kṛṣṇa-varṇaḥ*—los *śūdras*; *nānā*—diversos; *abhidhā*—por los nombres; *abhījya-gaṇa*—los semidioses; *upapannaḥ*—siendo dominado; *dravya-ātmakaḥ*—con artículos apropiados; *karma*—actividades; *vitāna-yogaḥ*—ejecuciones de sacrificios.

@@ -1,9 +1,9 @@
 ### CC Antya 7.75
 
-> চৌদ্দ মাদল বাজে উচ্চ সঙ্কীর্তন ।
+> চৌদ্দ মাদল বাজে উচ্চ সঙ্কীর্তন ।\
 > এক এক নর্তকের প্রেমে ভাসিল ভুবন ॥৭৫॥
 
-> caudda mādala bāje ucca saṅkīrtana
+> caudda mādala bāje ucca saṅkīrtana\
 > eka eka nartakera preme bhāsila bhuvana
 
 *caudda mādala*—catorce mṛdaṅgas; *bāje*—sonaban; *ucca saṅkīrtana*—fuerte canto congregacional; *eka eka*—de cada grupo; *nartakera*—del danzarín; *preme*—en amor extático; *bhāsila bhuvana*—inundó el mundo entero.

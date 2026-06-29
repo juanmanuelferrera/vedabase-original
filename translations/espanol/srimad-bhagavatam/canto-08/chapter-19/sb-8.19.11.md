@@ -1,11 +1,11 @@
 ### SB 8.19.11
 
-> स तन्निकेतं परिमृश्य शून्यमपश्यमानः कुपितो ननाद
+> स तन्निकेतं परिमृश्य शून्यमपश्यमानः कुपितो ननाद\
 > क्ष्मां द्यां दिशः खं विवरान्समुद्रान्विष्णुं विचिन्वन्न ददर्श वीरः ॥११॥
 
-> sa tan-niketaṁ parimṛśya śūnyam
-> apaśyamānaḥ kupito nanāda
-> kṣmāṁ dyāṁ diśaḥ khaṁ vivarān samudrān
+> sa tan-niketaṁ parimṛśya śūnyam\
+> apaśyamānaḥ kupito nanāda\
+> kṣmāṁ dyāṁ diśaḥ khaṁ vivarān samudrān\
 > viṣṇuṁ vicinvan na dadarśa vīraḥ
 
 *saḥ*—ese Hiraṇyakaśipu; *tat-niketam*—la residencia del Señor Viṣṇu; *parimṛśya*—buscar; *śūnyam*—vacía; *apaśyamānaḥ*—sin ver al Señor Viṣṇu; *kupitaḥ*—muy iracundo; *nanāda*—dando grandes voces; *kṣmām*—en la superficie de la Tierra; *dyām*—en el espacio exterior; *diśaḥ*—en todas direcciones; *kham*—en el cielo; *vivarān*—en todas las cuevas; *samudrān*—en todos los océanos; *viṣṇum*—al Señor Viṣṇu; *vicinvan*—en busca de; *na*—no; *dadarśa*—vio; *vīraḥ*—aunque era muy poderoso.

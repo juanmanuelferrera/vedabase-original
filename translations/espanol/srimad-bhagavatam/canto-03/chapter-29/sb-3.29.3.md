@@ -1,11 +1,11 @@
 ### SB 3.29.3
 
-> विरागो येन पुरुषो भगवन्सर्वतो भवेत् ।
+> विरागो येन पुरुषो भगवन्सर्वतो भवेत् ।\
 > आचक्ष्व जीवलोकस्य विविधा मम संसृतीः ॥३॥
 
-> virāgo yena puruṣo
-> bhagavan sarvato bhavet
-> ācakṣva jīva-lokasya
+> virāgo yena puruṣo\
+> bhagavan sarvato bhavet\
+> ācakṣva jīva-lokasya\
 > vividhā mama saṁsṛtīḥ
 
 *virāgaḥ*—desapegada; *yena*—por las cuales; *puruṣaḥ*—una persona; *bhagavan*—mi querido Señor; *sarvataḥ*—completamente; *bhavet*—puede llegar a; *ācakṣva*—explica, por favor; *jīva-lokasya*—para la gente en general; *vividhāḥ*—múltiples; *mama*—para mí; *saṁsṛtīḥ*—el ciclo del nacimiento y la muerte.

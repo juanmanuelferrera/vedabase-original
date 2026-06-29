@@ -1,13 +1,13 @@
 ### CC Madhya 22.16
 
-> কামাদীনাং কতি ন কতিধা পালিতা দুর্নিদেশা-
-> স্তেষাং জাতা ময়ি ন করুণা ন ত্রপা নোপশান্তিঃ ।
-> উৎসৃজ্যৈতানথ যদুপতে সাম্প্রতং লব্ধবুদ্ধি-
+> কামাদীনাং কতি ন কতিধা পালিতা দুর্নিদেশা-\
+> স্তেষাং জাতা ময়ি ন করুণা ন ত্রপা নোপশান্তিঃ ।\
+> উৎসৃজ্যৈতানথ যদুপতে সাম্প্রতং লব্ধবুদ্ধি-\
 > স্ত্বামায়াতঃ শরণমভয়ং মাং নিযুঙ্ক্ষ্বাত্মদাস্যে ॥১৬॥
 
-> kāmādīnāṁ kati na katidhā pālitā durnideśās
-> teṣāṁ jātā mayi na karuṇā na trapā nopaśāntiḥ
-> utsṛjyaitān atha yadu-pate sāmprataṁ labdha-buddhis
+> kāmādīnāṁ kati na katidhā pālitā durnideśās\
+> teṣāṁ jātā mayi na karuṇā na trapā nopaśāntiḥ\
+> utsṛjyaitān atha yadu-pate sāmprataṁ labdha-buddhis\
 > tvām āyātaḥ śaraṇam abhayaṁ māṁ niyuṅkṣvātma-dāsye
 
 *kāma-ādīnām*—of my masters such as lust, anger, greed, illusion and envy; *kati*—how many; *na*—not; *katidhā*—in how many ways; *pālitāḥ*—obeyed; *durnideśāḥ*—undesirable orders; *teṣām*—of them; *jātā*—generated; *mayi*—unto me; *na*—not; *karuṇā*—mercy; *na*—not; *trapā*—shame; *na*—not; *upaśāntiḥ*—desire to cease; *utsṛjya*—giving up; *etān*—all these; *atha*—herewith; *yadu-pate*—O best of the Yadu dynasty; *sāmpratam*—now; *labdha-buddhiḥ*—having awakened intelligence; *tvām*—You; *āyātaḥ*—approached; *śaraṇam*—who are the shelter; *abhayam*—fearless; *mām*—me; *niyuṅkṣva*—please engage; *ātma-dāsye*—in Your personal service.

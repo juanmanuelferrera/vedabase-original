@@ -1,11 +1,11 @@
 ### SB 7.15.42
 
-> अक्षं दशप्राणमधर्मधर्मौ चक्रेऽभिमानं रथिनं च जीवम
+> अक्षं दशप्राणमधर्मधर्मौ चक्रेऽभिमानं रथिनं च जीवम\
 > धनुर्हि तस्य प्रणवं पठन्ति शरं तु जीवं परमेव लक्ष्यम ॥४२॥
 
-> akṣaṁ daśa-prāṇam adharma-dharmau
-> cakre 'bhimānaṁ rathinaṁ ca jīvam
-> dhanur hi tasya praṇavaṁ paṭhanti
+> akṣaṁ daśa-prāṇam adharma-dharmau\
+> cakre 'bhimānaṁ rathinaṁ ca jīvam\
+> dhanur hi tasya praṇavaṁ paṭhanti\
 > śaraṁ tu jīvaṁ param eva lakṣyam
 
 *akṣam*—los radios (de la rueda de la cuadriga); *daśa*—diez; *prāṇam*—las diez clases de aires que circulan por el cuerpo; *adharma*—la irreligión; *dharmau*—la religión (las dos caras de la rueda, superior e inferior); *cakre*—en la rueda; *abhimānam*—la identificación falsa; *rathinam*—el auriga o señor del cuerpo; *ca*—también; *jīvam*—la entidad viviente; *dhanuḥ*—el arco; *hi*—en verdad; *tasya*—suyo; *praṇavam*—el *mantra oṁkāra* de los *Vedas*; *paṭhanti*—se dice; *śaram*—una flecha; *tu*—pero; *jīvam*—la entidad viviente; *param*—el Señor Supremo; *eva*—en verdad; *lakṣya*—el blanco.

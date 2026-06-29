@@ -1,9 +1,9 @@
 ### CC Antya 4.86
 
-> yāre yaiche nācāo, se taiche kare nartane
+> yāre yaiche nācāo, se taiche kare nartane\
 > kaiche nāce, kebā nācāya, seha nāhi jāne"
 
-> yāre yaiche nācāo, se taiche kare nartane
+> yāre yaiche nācāo, se taiche kare nartane\
 > kaiche nāce, kebā nācāya, seha nāhi jāne"
 
 *yāre*—a quienquiera; *yaiche*—como; *nācāo*—Tú haces bailar; *se*—esa persona; *taiche*—así; *kare nartane*—baila; *kaiche*—cómo; *nāce*—baila; *kebā nācāya*—quién le hace bailar; *seha*—él; *nāhi jāne*—no sabe.

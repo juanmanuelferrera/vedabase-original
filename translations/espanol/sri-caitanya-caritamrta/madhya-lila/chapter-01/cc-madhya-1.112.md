@@ -1,9 +1,9 @@
 ### CC Madhya 1.112
 
-> তবে ভট্টথারি হৈতে কৃষ্ণদাসের উদ্ধার ।
+> তবে ভট্টথারি হৈতে কৃষ্ণদাসের উদ্ধার ।\
 > রামজপী বিপ্রমুখে কৃষ্ণনাম প্রচার ॥১১২॥
 
-> tabe bhaṭṭathāri haite kṛṣṇa-dāsera uddhāra
+> tabe bhaṭṭathāri haite kṛṣṇa-dāsera uddhāra\
 > rāma-japī vipra-mukhe kṛṣṇa-nāma pracāra
 
 *tabe*—después de esto; *bhaṭṭa-thāri*—un Bhaṭṭathāri; *haite*—de; *kṛṣṇa-dāsera*—de Kṛṣṇadāsa; *uddhāra*—la liberación; *rāma-japī*—los que cantan el nombre del Señor Rāma; *vipra-mukhe*—a los brāhmaṇas; *kṛṣṇa-nāma*—el nombre del Señor Kṛṣṇa; *pracāra*—predicación.

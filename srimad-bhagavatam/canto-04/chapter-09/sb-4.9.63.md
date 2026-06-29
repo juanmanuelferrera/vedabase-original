@@ -1,11 +1,11 @@
 ### SB 4.9.63
 
-> उद्यानानि च रम्याणि विचित्रैरमरद्रुमैः ।
+> उद्यानानि च रम्याणि विचित्रैरमरद्रुमैः ।\
 > कूजद्विहङ्गमिथुनैर्गायन्मत्तमधुव्रतैः ॥६३॥
 
-> udyānāni ca ramyāṇi
-> vicitrair amara-drumaiḥ
-> kūjad-vihaṅga-mithunair
+> udyānāni ca ramyāṇi\
+> vicitrair amara-drumaiḥ\
+> kūjad-vihaṅga-mithunair\
 > gāyan-matta-madhuvrataiḥ
 
 *udyānāni*—gardens; *ca*—also; *ramyāṇi*—very beautiful; *vicitraiḥ*—various; *amara-drumaiḥ*—with trees brought from the heavenly planets; *kūjat*—singing; *vihaṅga*—of birds; *mithunaiḥ*—with pairs; *gāyat*—humming; *matta*—mad; *madhu-vrataiḥ*—with bumblebees.

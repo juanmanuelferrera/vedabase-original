@@ -1,15 +1,15 @@
 ### SB 1.1.1
 
-> ॐ नमो भगवते वासुदेवाय
-> जन्माद्यस्य यतोऽन्वयादितरतश्चार्थेष्वभिज्ञः स्वराट्
-> तेने ब्रह्म हृदा य आदिकवये मुह्यन्ति यत्सूरयः ।
-> तेजोवारिमृदां यथा विनिमयो यत्र त्रिसर्गोऽमृषा
+> ॐ नमो भगवते वासुदेवाय\
+> जन्माद्यस्य यतोऽन्वयादितरतश्चार्थेष्वभिज्ञः स्वराट्\
+> तेने ब्रह्म हृदा य आदिकवये मुह्यन्ति यत्सूरयः ।\
+> तेजोवारिमृदां यथा विनिमयो यत्र त्रिसर्गोऽमृषा\
 > धाम्ना स्वेन सदा निरस्तकुहकं सत्यं परं धीमहि ॥१॥
 
-> oṁ namo bhagavate vāsudevāya
-> janmādy asya yato 'nvayād itarataś cārtheṣv abhijñaḥ svarāṭ
-> tene brahma hṛdā ya ādi-kavaye muhyanti yat sūrayaḥ
-> tejo-vāri-mṛdāṁ yathā vinimayo yatra tri-sargo 'mṛṣā
+> oṁ namo bhagavate vāsudevāya\
+> janmādy asya yato 'nvayād itarataś cārtheṣv abhijñaḥ svarāṭ\
+> tene brahma hṛdā ya ādi-kavaye muhyanti yat sūrayaḥ\
+> tejo-vāri-mṛdāṁ yathā vinimayo yatra tri-sargo 'mṛṣā\
 > dhāmnā svena sadā nirasta-kuhakaṁ satyaṁ paraṁ dhīmahi
 
 *om*—O my Lord; *namaḥ*—offering my obeisances; *bhagavate*—unto the Personality of Godhead; *vāsudevāya*—unto Vāsudeva (the son of Vasudeva), or Lord Śrī Kṛṣṇa, the primeval Lord; *janma-ādi*—creation, sustenance and destruction; *asya*—of the manifested universes; *yataḥ*—from whom; *anvayāt*—directly; *itarataḥ*—indirectly; *ca*—and; *artheṣu*—purposes; *abhijñaḥ*—fully cognizant; *sva-rāṭ*—fully independent; *tene*—imparted; *brahma*—the Vedic knowledge; *hṛdā*—consciousness of the heart; *yaḥ*—one who; *ādi-kavaye*—unto the original created being; *muhyanti*—are illusioned; *yat*—about whom; *sūrayaḥ*—great sages and demigods; *tejaḥ*—fire; *vāri*—water; *mṛdām*—earth; *yathā*—as much as; *vinimayaḥ*—action and reaction; *yatra*—whereupon; *tri-sargaḥ*—three modes of creation, creative faculties; *amṛṣā*—almost factual; *dhāmnā*—along with all transcendental paraphernalia; *svena*—self-sufficiently; *sadā*—always; *nirasta*—negation by absence; *kuhakam*—illusion; *satyam*—truth; *param*—absolute; *dhīmahi*—I do meditate upon.

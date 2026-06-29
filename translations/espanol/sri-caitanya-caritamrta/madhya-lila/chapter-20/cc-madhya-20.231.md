@@ -1,9 +1,9 @@
 ### CC Madhya 20.231
 
-> শ্রীধর — পদ্মচক্রগদাশঙ্খকর ।
+> শ্রীধর — পদ্মচক্রগদাশঙ্খকর ।\
 > হৃষীকেশ — গদাচক্রপদ্মশঙ্খধর ॥২৩১॥
 
-> śrīdhara--padma-cakra-gadā-śaṅkha-kara
+> śrīdhara--padma-cakra-gadā-śaṅkha-kara\
 > hṛṣīkeśa--gadā-cakra-padma-śaṅkha-dhara
 
 *śrīdhara*—el Señor Śrīdhara; *padma*—loto; *cakra*—disco; *gadā*—maza; *śaṅkha*—caracola; *kara*—en las manos; *hṛṣīkeśa*—el Señor Hṛṣīkeśa; *gadā*—maza; *cakra*—disco; *padma*—loto; *śaṅkha*—caracola; *dhara*—que sostiene.

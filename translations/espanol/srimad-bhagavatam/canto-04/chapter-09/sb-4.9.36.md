@@ -1,13 +1,13 @@
 ### SB 4.9.36
 
-> मैत्रेय उवाच
-> न वै मुकुन्दस्य पदारविन्दयो रजोजुषस्तात भवादृशा जनाः ।
+> मैत्रेय उवाच\
+> न वै मुकुन्दस्य पदारविन्दयो रजोजुषस्तात भवादृशा जनाः ।\
 > वाञ्छन्ति तद्दास्यमृतेऽर्थमात्मनो यदृच्छया लब्धमनःसमृद्धयः ॥३६॥
 
-> maitreya uvāca
-> na vai mukundasya padāravindayo
-> rajo-juṣas tāta bhavādṛśā janāḥ
-> vāñchanti tad-dāsyam ṛte 'rtham ātmano
+> maitreya uvāca\
+> na vai mukundasya padāravindayo\
+> rajo-juṣas tāta bhavādṛśā janāḥ\
+> vāñchanti tad-dāsyam ṛte 'rtham ātmano\
 > yadṛcchayā labdha-manaḥ-samṛddhayaḥ
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya continuó; *na*—nunca; *vai*—ciertamente; *mukundasya*—del Señor, que puede dar la liberación; *pada-aravindayoḥ*—de los pies de loto; *rajaḥ-juṣaḥ*—personas deseosas de saborear el polvo; *tāta*—mi querido Vidura; *bhavādṛśāḥ*—como tú mismo; *janāḥ*—personas; *vāñchanti*—desean; *tat*—Su; *dāsyam*—servidumbre; *ṛte*—sin; *artham*—interés; *ātmanaḥ*—para sí mismos; *yadṛcchayā*—automáticamente; *labdha*—por lo que se obtiene; *manaḥ-samṛddhayaḥ*—considerándose muy ricos.

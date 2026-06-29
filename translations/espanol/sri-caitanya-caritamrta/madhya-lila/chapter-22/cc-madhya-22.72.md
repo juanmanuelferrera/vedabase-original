@@ -1,11 +1,11 @@
 ### CC Madhya 22.72
 
-> সর্বভূতেষু যঃ পশ্যেদ্ভগবদ্ভাবমাত্মনঃ ।
+> সর্বভূতেষু যঃ পশ্যেদ্ভগবদ্ভাবমাত্মনঃ ।\
 > ভূতানি ভগবত্যাত্মন্যেষ ভাগবতোত্তমঃ ॥৭২॥
 
-> sarva-bhūteṣu yaḥ paśyed
-> bhagavad-bhāvam ātmanaḥ
-> bhūtāni bhagavaty ātmany
+> sarva-bhūteṣu yaḥ paśyed\
+> bhagavad-bhāvam ātmanaḥ\
+> bhūtāni bhagavaty ātmany\
 > eṣa bhāgavatottamaḥ
 
 *sarva-bhūteṣu*—en todos los objetos (en la materia, el espíritu y las combinaciones de materia y espíritu); *yaḥ*—todo aquel que; *paśyet*—ve; *bhagavat-bhāvam*—la capacidad de ocuparse en el servicio del Señor; *ātmanaḥ*—del alma espiritual suprema o de la trascendencia más allá de la concepción material de la vida; *bhūtāni*—todos los seres; *bhagavati*—en la Suprema Personalidad de Dios; *ātmani*—el principio fundamental de toda existencia; *eṣaḥ*—este; *bhāgavata-uttamaḥ*—una persona avanzada en el servicio devocional.

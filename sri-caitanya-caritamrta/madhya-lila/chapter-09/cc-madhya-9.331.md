@@ -1,9 +1,9 @@
 ### CC Madhya 9.331
 
-> রাজা মোরে আজ্ঞা দিল নীলাচলে যাইতে ।
+> রাজা মোরে আজ্ঞা দিল নীলাচলে যাইতে ।\
 > চলিবার উদ্যোগ আমি লাগিয়াছি করিতে ॥৩৩১॥
 
-> rājā more ājñā dila nīlācale yāite
+> rājā more ājñā dila nīlācale yāite\
 > calibāra udyoga āmi lāgiyāchi karite
 
 *rājā*—the King; *more*—unto me; *ājñā dila*—has given an order; *nīlācale yāite*—to go to Jagannātha Purī; *calibāra*—to go; *udyoga*—arrangement; *āmi*—I; *lāgiyāchi*—began; *karite*—to do.

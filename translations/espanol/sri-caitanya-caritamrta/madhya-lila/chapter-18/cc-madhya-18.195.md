@@ -1,9 +1,9 @@
 ### CC Madhya 18.195
 
-> মোক্ষাদি আনন্দ যার নহে এক ‘কণ’ ।
+> মোক্ষাদি আনন্দ যার নহে এক ‘কণ’ ।\
 > পূর্ণানন্দ-প্রাপ্তি তাঁর চরণ-সেবন ॥১৯৫॥
 
-> mokṣādi ānanda yāra nahe eka 'kaṇa'
+> mokṣādi ānanda yāra nahe eka 'kaṇa'\
 > pūrṇānanda-prāpti tāṅra caraṇa-sevana
 
 *mokṣa-ādi*—la liberación y demás; *ānanda*—bienaventuranza trascendental; *yāra*—cuya; *nahe*—no es; *eka*—ni siquiera; *kaṇa*—un fragmento; *pūrṇa-ānanda-prāpti*—logro de una vida completamente bienaventurada; *tāṅra caraṇa-sevana*—servicio a Sus pies de loto.

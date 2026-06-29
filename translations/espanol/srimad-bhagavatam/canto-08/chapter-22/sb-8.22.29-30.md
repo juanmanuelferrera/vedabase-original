@@ -1,18 +1,18 @@
 ### SB 8.22.29-30
 
-> क्षीणरिक्थश्च्युतः स्थानात्क्षिप्तो बद्धश्च शत्रुभिः
-> ज्ञआतिभिश्च परित्यक्तो यातनामनुयापितः ॥२९॥
-> गुरुणा भर्त्सितः शप्तो जहौ सत्यं न सुव्रतः
+> क्षीणरिक्थश्च्युतः स्थानात्क्षिप्तो बद्धश्च शत्रुभिः\
+> ज्ञआतिभिश्च परित्यक्तो यातनामनुयापितः ॥२९॥\
+> गुरुणा भर्त्सितः शप्तो जहौ सत्यं न सुव्रतः\
 > छलैरुक्तो मया धर्मो नायं त्यजति सत्यवाक ॥३०॥
 
-> kṣīṇa-rikthaś cyutaḥ sthānāt
-> kṣipto baddhaś ca śatrubhiḥ
-> jñātibhiś ca parityakto
+> kṣīṇa-rikthaś cyutaḥ sthānāt\
+> kṣipto baddhaś ca śatrubhiḥ\
+> jñātibhiś ca parityakto\
 > yātanām anuyāpitaḥ
 
-> guruṇā bhartsitaḥ śapto
-> jahau satyaṁ na suvrataḥ
-> chalair ukto mayā dharmo
+> guruṇā bhartsitaḥ śapto\
+> jahau satyaṁ na suvrataḥ\
+> chalair ukto mayā dharmo\
 > nāyaṁ tyajati satya-vāk
 
 *kṣīṇa-rikthaḥ*—aunque privado de toda riqueza; *cyutaḥ*—caído; *sthānāt*—de su posición superior; *kṣiptaḥ*—violentamente expulsado; *baddhaḥ ca*—y atado por la fuerza; *śatrubhiḥ*—por sus enemigos; *jñātibhiḥ ca*—y por los miembros de su familia o parientes; *parityaktaḥ*—abandonado; *yātanām*—todo tipo de sufrimientos; *anuyāpitaḥ*—pocas veces sufridos con tanta intensidad; *guruṇā*—por su maestro espiritual; *bhartsitaḥ*—reprendido; *śaptaḥ*—y maldecido; *jahau*—abandonó; *satyam*—la veracidad; *na*—no; *su-vrataḥ*—firme en su voto; *chalaiḥ*—con fingimiento; *uktaḥ*—hablados; *mayā*—por Mí; *dharmaḥ*—los principios religiosos; *na*—no; *ayam*—este Bali Mahārāja; *tyajati*—abandonó; *satya-vāk*—que es fiel a su palabra.

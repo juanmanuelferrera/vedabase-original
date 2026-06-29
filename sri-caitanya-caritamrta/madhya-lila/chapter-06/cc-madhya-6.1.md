@@ -1,11 +1,11 @@
 ### CC Madhya 6.1
 
-> নৌমি তং গৌরচন্দ্রং যঃ কুতর্ক-কর্কশাশয়ম্ ।
+> নৌমি তং গৌরচন্দ্রং যঃ কুতর্ক-কর্কশাশয়ম্ ।\
 > সার্বভৌমং সর্বভূমা ভক্তিভূমানমাচরৎ ॥১॥
 
-> naumi taṁ gauracandraṁ yaḥ
-> kutarka-karkaśāśayam
-> sārvabhaumaṁ sarva-bhūmā
+> naumi taṁ gauracandraṁ yaḥ\
+> kutarka-karkaśāśayam\
+> sārvabhaumaṁ sarva-bhūmā\
 > bhakti-bhūmānam ācarat
 
 *naumi*—I offer my respectful obeisances; *tam*—unto Him; *gauracandram*—who is known as Lord Gauracandra; *yaḥ*—who; *ku-tarka*—by bad arguments; *karkaśa-āśayam*—whose heart was hard; *sārvabhaumam*—Sārvabhauma Bhaṭṭācārya; *sarva-bhūmā*—the Lord of everything; *bhakti-bhūmānam*—into a great personality of devotion; *ācarat*—converted.

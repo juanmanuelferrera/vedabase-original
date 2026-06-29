@@ -1,11 +1,11 @@
 ### SB 8.11.48
 
-> बलिश्चोशनसा स्पृष्टः प्रत्यापन्नेन्द्रियस्मृतिः
+> बलिश्चोशनसा स्पृष्टः प्रत्यापन्नेन्द्रियस्मृतिः\
 > पराजितोऽपि नाखिद्यल्लोकतत्त्वविचक्षणः ॥४८॥
 
-> baliś cośanasā spṛṣṭaḥ
-> pratyāpannendriya-smṛtiḥ
-> parājito 'pi nākhidyal
+> baliś cośanasā spṛṣṭaḥ\
+> pratyāpannendriya-smṛtiḥ\
+> parājito 'pi nākhidyal\
 > loka-tattva-vicakṣaṇaḥ
 
 *baliḥ*—Mahārāja Bali; *ca*—también; *uśanasā*—por Śukrācārya; *spṛṣṭaḥ*—tocado; *pratyāpanna*—fue devuelta; *indriya-smṛtiḥ*—puesta en práctica de las actividades de los sentidos y de la memoria; *parājitaḥ*—fue vencido; *api*—aunque; *na akhidyat*—no se lamentó; *loka-tattva-vicakṣaṇaḥ*—pues tenía mucha experiencia en los asuntos del universo.

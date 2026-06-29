@@ -1,25 +1,25 @@
 ### CC Madhya 22.88-90
 
-> সত্যং শৌচং দয়া মৌনং বুদ্ধির্হ্রীঃ শ্রীর্যশঃ ক্ষমা ।
-> শমো দমো ভগশ্চেতি যৎসঙ্গাদ্যাতি সংক্ষয়ম্ ॥৮৮॥
-> তেষ্বশান্তেষু মূঢ়েষু খণ্ডিতাত্মস্বসাধুষু ।
-> সঙ্গং ন কুর্যাচ্ছোচ্যেষু যোষিৎক্রীড়ামৃগেষু চ ॥৮৯॥
-> ন তথাস্য ভবেন্মোহো বন্ধশ্চান্যপ্রসঙ্গতঃ ।
+> সত্যং শৌচং দয়া মৌনং বুদ্ধির্হ্রীঃ শ্রীর্যশঃ ক্ষমা ।\
+> শমো দমো ভগশ্চেতি যৎসঙ্গাদ্যাতি সংক্ষয়ম্ ॥৮৮॥\
+> তেষ্বশান্তেষু মূঢ়েষু খণ্ডিতাত্মস্বসাধুষু ।\
+> সঙ্গং ন কুর্যাচ্ছোচ্যেষু যোষিৎক্রীড়ামৃগেষু চ ॥৮৯॥\
+> ন তথাস্য ভবেন্মোহো বন্ধশ্চান্যপ্রসঙ্গতঃ ।\
 > যোষিৎসঙ্গাদ্যথা পুংসো যথা তৎসঙ্গিসঙ্গতঃ ॥৯০॥
 
-> satyaṁ śaucaṁ dayā maunaṁ
-> buddhir hrīḥ śrīr yaśaḥ kṣamā
-> śamo damo bhagaś ceti
+> satyaṁ śaucaṁ dayā maunaṁ\
+> buddhir hrīḥ śrīr yaśaḥ kṣamā\
+> śamo damo bhagaś ceti\
 > yat-saṅgād yāti saṅkṣayam
 
-> teṣv aśānteṣu mūḍheṣu
-> khaṇḍitātmasv asādhuṣu
-> saṅgaṁ na kuryāc chocyeṣu
+> teṣv aśānteṣu mūḍheṣu\
+> khaṇḍitātmasv asādhuṣu\
+> saṅgaṁ na kuryāc chocyeṣu\
 > yoṣit-krīḍā-mṛgeṣu ca
 
-> na tathāsya bhaven moho
-> bandhaś cānya-prasaṅgataḥ
-> yoṣit-saṅgād yathā puṁso
+> na tathāsya bhaven moho\
+> bandhaś cānya-prasaṅgataḥ\
+> yoṣit-saṅgād yathā puṁso\
 > yathā tat-saṅgi-saṅgataḥ
 
 *satyam*—truthfulness; *śaucam*—cleanliness; *dayā*—mercy; *maunam*—silence; *buddhiḥ*—intelligence; *hrīḥ*—modesty; *śrīḥ*—beauty; *yaśaḥ*—fame; *kṣama*—forgiveness; *śamaḥ*—controlling the mind; *damaḥ*—controlling the senses; *bhagaḥ*—opulence; *ca*—and; *iti*—thus; *yat*—of whom; *saṅgāt*—by the association; *yāti*—goes to; *saṅkṣayam*—complete destruction; *teṣu*—among them; *aśānteṣu*—who are restless; *mūdheṣu*—among the fools; *khaṇḍita-ātmasu*—whose self-realization is spoiled; *asādhuṣu*—not saintly; *saṅgam*—association; *na*—not; *kuryāt*—should do; *śocyeṣu*—who are full of lamentation; *yoṣit*—of women; *krīḍā-mṛgeṣu*—who are like toy animals; *ca*—also; *na*—not; *tathā*—so much; *asya*—of him; *bhavet*—there may be; *mohaḥ*—illusion; *bandhaḥ*—binding; *ca*—and; *anya*—other types; *prasaṅgataḥ*—from association; *yoṣit-saṅgāt*—by association with women; *yathā*—as; *puṁsaḥ*—of the man; *yathā*—as well as; *tat-saṅgi-saṅgataḥ*—by association with persons attached to women.

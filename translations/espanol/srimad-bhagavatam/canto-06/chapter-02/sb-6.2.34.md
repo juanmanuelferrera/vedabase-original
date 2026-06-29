@@ -1,11 +1,11 @@
 ### SB 6.2.34
 
-> क्व चाहं कितवः पापो ब्रह्मघ्नो निरपत्रपः
+> क्व चाहं कितवः पापो ब्रह्मघ्नो निरपत्रपः\
 > क्व च नारायणेत्येतद्भगवन्नाम मङ्गलम ॥३४॥
 
-> kva cāhaṁ kitavaḥ pāpo
-> brahma-ghno nirapatrapaḥ
-> kva ca nārāyaṇety etad
+> kva cāhaṁ kitavaḥ pāpo\
+> brahma-ghno nirapatrapaḥ\
+> kva ca nārāyaṇety etad\
 > bhagavan-nāma maṅgalam
 
 *kva*—dónde; *ca*—también; *aham*—yo; *kitavaḥ*—un engañador; *pāpaḥ*—la personificación de todos los pecados; *brahma-ghnaḥ*—el destructor de mi propia cultura brahmínica; *nirapatrapaḥ*—desvergonzado; *kva*—dónde; *ca*—también; *nārāyaṇa*—Nārāyaṇa; *iti*—así; *etat*—este; *bhagavat-nāma*—el santo nombre de la Suprema Personalidad de Dios; *maṅgalam*—completamente auspicioso.

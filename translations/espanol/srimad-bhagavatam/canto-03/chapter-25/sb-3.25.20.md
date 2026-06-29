@@ -1,11 +1,11 @@
 ### SB 3.25.20
 
-> प्रसङ्गमजरं पाशमात्मनः कवयो विदुः ।
+> प्रसङ्गमजरं पाशमात्मनः कवयो विदुः ।\
 > स एव साधुषु कृतो मोक्षद्वारमपावृतम् ॥२०॥
 
-> prasaṅgam ajaraṁ pāśam
-> ātmanaḥ kavayo viduḥ
-> sa eva sādhuṣu kṛto
+> prasaṅgam ajaraṁ pāśam\
+> ātmanaḥ kavayo viduḥ\
+> sa eva sādhuṣu kṛto\
 > mokṣa-dvāram apāvṛtam
 
 *prasaṅgam*—apego; *ajaram*—fuerte; *pāśam*—enredo; *ātmanaḥ*—del alma; *kavayaḥ*—hombres eruditos; *viduḥ*—saben; *saḥ eva*—eso mismo; *sādhuṣu*—a los devotos; *kṛtaḥ*—aplicado; *mokṣa-dvāram*—las puertas de la liberación; *apāvṛtam*—abiertas.

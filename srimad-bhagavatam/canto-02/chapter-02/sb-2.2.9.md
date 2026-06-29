@@ -1,11 +1,11 @@
 ### SB 2.2.9
 
-> रसन्नवक्त्रं नलिनायतेक्षणं कदम्बकिञ्जल्कपिशङ्गवाससम् ।
+> रसन्नवक्त्रं नलिनायतेक्षणं कदम्बकिञ्जल्कपिशङ्गवाससम् ।\
 > लसन्महारत्नहिरण्मयाङ्गदं स्फुरन्महारत्नकिरीटकुण्डलम् ॥९॥
 
-> prasanna-vaktraṁ nalināyatekṣaṇaṁ
-> kadamba-kiñjalka-piśaṅga-vāsasam
-> lasan-mahā-ratna-hiraṇmayāṅgadaṁ
+> prasanna-vaktraṁ nalināyatekṣaṇaṁ\
+> kadamba-kiñjalka-piśaṅga-vāsasam\
+> lasan-mahā-ratna-hiraṇmayāṅgadaṁ\
 > sphuran-mahā-ratna-kirīṭa-kuṇḍalam
 
 *prasanna*—expresses happiness; *vaktram*—mouth; *nalina-āyata*—spread like the petals of a lotus; *īkṣaṇam*—eyes; *kadamba*—*kadamba* flower; *kiñjalka*—saffron; *piśaṅga*—yellow; *vāsasam*—garments; *lasat*—hanging; *mahā-ratna*—valuable jewels; *hiraṇmaya*—made of gold; *aṅgadam*—ornament; *sphurat*—glowing; *mahā-ratna*—valuable jewels; *kirīṭa*—head dress; *kuṇḍalam*—earrings.

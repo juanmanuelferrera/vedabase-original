@@ -1,11 +1,11 @@
 ### CC Madhya 20.355
 
-> যস্যাবতারা জ্ঞায়ন্তে শরীরেষ্বশরীরিণঃ ।
+> যস্যাবতারা জ্ঞায়ন্তে শরীরেষ্বশরীরিণঃ ।\
 > তৈস্তৈরতুল্যাতিশয়ৈর্বীর্যৈর্দেহিষ্বসঙ্গতৈঃ ॥৩৫৫॥
 
-> yasyāvatārā jñāyante
-> śarīriṣv aśarīriṇaḥ
-> tais tair atulyātiśayair
+> yasyāvatārā jñāyante\
+> śarīriṣv aśarīriṇaḥ\
+> tais tair atulyātiśayair\
 > vīryair dehiṣv asaṅgataiḥ
 
 *yasya*—cuyas; *avatārāḥ*—encarnaciones; *jñāyante*—se pueden conocer; *śarīriṣu*—entre las entidades vivientes; *aśarīriṇaḥ*—del Señor, que no tiene cuerpo material; *taiḥ taiḥ*—todas aquellas; *atulya*—incomparables; *atiśayaiḥ*—extraordinarias; *vīryaiḥ*—por proezas; *dehiṣu*—entre las entidades vivientes; *asaṅgataiḥ*—imposibles.

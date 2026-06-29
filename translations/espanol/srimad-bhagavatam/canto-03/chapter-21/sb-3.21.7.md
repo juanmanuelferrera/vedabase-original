@@ -1,11 +1,11 @@
 ### SB 3.21.7
 
-> ततः समाधियुक्तेन क्रियायोगेन कर्दमः ।
+> ततः समाधियुक्तेन क्रियायोगेन कर्दमः ।\
 > सम्प्रपेदे हरिं भक्त्या प्रपन्नवरदाशुषम् ॥७॥
 
-> tataḥ samādhi-yuktena
-> kriyā-yogena kardamaḥ
-> samprapede hariṁ bhaktyā
+> tataḥ samādhi-yuktena\
+> kriyā-yogena kardamaḥ\
+> samprapede hariṁ bhaktyā\
 > prapanna-varadāśuṣam
 
 *tataḥ*—entonces, en esa penitencia; *samādhi-yuktena*—en trance; *kriyā-yogena*—con adoración *bhakti-yoga*; *kardamaḥ*—el sabio Kardama; *samprapede*—sirvió; *harim*—a la Personalidad de Dios; *bhaktyā*—con servicio devocional; *prapanna*—a las almas entregadas; *varadāśuṣam*—el que otorga toda bendición.

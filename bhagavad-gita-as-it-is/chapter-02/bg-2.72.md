@@ -1,11 +1,11 @@
 ### Bg 2.72
 
-> एषा ब्राह्मी स्थितिः पार्थ नैनां प्राप्य विमुह्यति ।
+> एषा ब्राह्मी स्थितिः पार्थ नैनां प्राप्य विमुह्यति ।\
 > स्थित्वास्यामन्तकालेऽपि ब्रह्मनिर्वाणमृच्छति ॥७२॥
 
-> eṣā brāhmī sthitiḥ pārtha
-> naināṁ prāpya vimuhyati
-> sthitvāsyām anta-kāle 'pi
+> eṣā brāhmī sthitiḥ pārtha\
+> naināṁ prāpya vimuhyati\
+> sthitvāsyām anta-kāle 'pi\
 > brahma-nirvāṇam ṛcchati
 
 *eṣā*—this; *brāhmī*—spiritual; *sthitiḥ*—situation; *pārtha*—O son of Pṛthā; *na*—never; *enām*—this; *prāpya*—achieving; *vimuhyati*—bewilders; *sthitvā*—being so situated; *asyām*—being so; *anta-kāle*—at the end of life; *api*—also; *brahma-nirvāṇam*—spiritual (kingdom of God); *ṛcchati*—attains.

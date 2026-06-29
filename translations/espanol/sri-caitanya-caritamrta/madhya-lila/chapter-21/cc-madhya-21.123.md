@@ -1,13 +1,13 @@
 ### CC Madhya 21.123
 
-> যস্যাননং মকরকুণ্ডলচারুকর্ণ-
-> ভ্রাজৎকপোলসুভগং সবিলাসহাসম্ ।
-> নিত্যোৎসবং ন ততৃপুর্দৃশিভিঃ পিবন্ত্যো
+> যস্যাননং মকরকুণ্ডলচারুকর্ণ-\
+> ভ্রাজৎকপোলসুভগং সবিলাসহাসম্ ।\
+> নিত্যোৎসবং ন ততৃপুর্দৃশিভিঃ পিবন্ত্যো\
 > নার্যো নরাশ্চ মুদিতাঃ কুপিতা নিমেশ্চ ॥১২৩॥
 
-> yasyānanaṁ makara-kuṇḍala-cāru-karṇa-
-> bhrājat-kapola-subhagaṁ savilāsa-hāsam
-> nityotsavaṁ na tatṛpur dṛśibhiḥ pibantyo
+> yasyānanaṁ makara-kuṇḍala-cāru-karṇa-\
+> bhrājat-kapola-subhagaṁ savilāsa-hāsam\
+> nityotsavaṁ na tatṛpur dṛśibhiḥ pibantyo\
 > nāryo narāś ca muditāḥ kupitā nimeś ca
 
 *yasya*—de Kṛṣṇa; *ānanam*—rostro; *makara-kuṇḍala*—por pendientes en forma de tiburón; *cāru*—embellecidas; *karṇa*—las orejas; *bhrājat*—resplandecientes; *kapola*—mejillas; *subhagam*—delicado; *sa-vilāsa-hāsam*—sonriendo con espíritu de disfrute; *nitya-utsavam*—en el que hay festividades eternas de gozo; *na*—no; *tatṛpuḥ*—quedaban satisfechos; *dṛśibhiḥ*—con los ojos; *pibantyaḥ*—bebiendo; *nāryaḥ*—todas las mujeres; *narāḥ*—los hombres; *ca*—y; *muditāḥ*—muy complacidos; *kupitāḥ*—muy enojados; *nimeḥ*—con el creador del parpadeo de los ojos; *ca*—también.

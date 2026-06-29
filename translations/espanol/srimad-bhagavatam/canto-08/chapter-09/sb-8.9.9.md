@@ -1,13 +1,13 @@
 ### SB 8.9.9
 
-> श्रीभगवानुवाच
-> कथं कश्यपदायादाः पुंश्चल्यां मयि सङ्गताः
+> श्रीभगवानुवाच\
+> कथं कश्यपदायादाः पुंश्चल्यां मयि सङ्गताः\
 > विश्वासं पण्डितो जातु कामिनीषु न याति हि ॥९॥
 
-> śrī-bhagavān uvāca
-> kathaṁ kaśyapa-dāyādāḥ
-> puṁścalyāṁ mayi saṅgatāḥ
-> viśvāsaṁ paṇḍito jātu
+> śrī-bhagavān uvāca\
+> kathaṁ kaśyapa-dāyādāḥ\
+> puṁścalyāṁ mayi saṅgatāḥ\
+> viśvāsaṁ paṇḍito jātu\
 > kāminīṣu na yāti hi
 
 *śrī-bhagavān uvāca*—la Suprema Personalidad de Dios en la forma de Mohinī-mūrti dijo; *katham*—cómo es que; *kaśyapa-dāyādāḥ*—todos ustedes, descendientes de Kaśyapa Muni; *puṁścalyām*—a una prostituta que agita la mente de los hombres; *mayi*—a Mí; *saṅgatāḥ*—vienen para relacionarse; *viśvāsam*—fe; *paṇḍitaḥ*—los eruditos; *jātu*—en ningún momento; *kāminīṣu*—en una mujer; *na*—nunca; *yāti*—tiene lugar; *hi*—en verdad.

@@ -1,9 +1,9 @@
 ### CC Madhya 21.79
 
-> কৃষ্ণ-সহ দ্বারকা-বৈভব অনুভব হৈল ।
+> কৃষ্ণ-সহ দ্বারকা-বৈভব অনুভব হৈল ।\
 > একত্র মিলনে কেহ কাহো না দেখিল ॥৭৯॥
 
-> kṛṣṇa-saha dvārakā-vaibhava anubhava haila
+> kṛṣṇa-saha dvārakā-vaibhava anubhava haila\
 > ekatra milane keha kāho nā dekhila
 
 *kṛṣṇa-saha*—with Kṛṣṇa; *dvārakā-vaibhava*—the opulence of Dvārakā; *anubhava haila*—there was perception; *ekatra milane*—although they came together; *keha*—someone; *kāho*—anyone else; *nā dekhila*—did not see.

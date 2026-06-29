@@ -1,9 +1,9 @@
 ### CC Adi 17.305
 
-> ইথে তর্ক করি’ কেহ না কর সংশয় ।
+> ইথে তর্ক করি’ কেহ না কর সংশয় ।\
 > কৃষ্ণের অচিন্ত্যশক্তি এই মত হয় ॥৩০৫॥
 
-> ithe tarka kari' keha nā kara saṁśaya
+> ithe tarka kari' keha nā kara saṁśaya\
 > kṛṣṇera acintya-śakti ei mata haya
 
 *ithe*—en este asunto; *tarka kari'*—argumentando; *keha*—alguien; *nā*—no; *kara*—haga; *saṁśaya*—dudas; *kṛṣṇera*—del Señor Kṛṣṇa; *acintya-śakti*—potencia inconcebible; *ei*—este; *mata*—el veredicto; *haya*—es.

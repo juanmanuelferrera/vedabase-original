@@ -1,11 +1,11 @@
 ### SB 3.24.7
 
-> अवादयंस्तदा व्योम्नि वादित्राणि घनाघनाः ।
+> अवादयंस्तदा व्योम्नि वादित्राणि घनाघनाः ।\
 > गायन्ति तं स्म गन्धर्वा नृत्यन्त्यप्सरसो मुदा ॥७॥
 
-> avādayaṁs tadā vyomni
-> vāditrāṇi ghanāghanāḥ
-> gāyanti taṁ sma gandharvā
+> avādayaṁs tadā vyomni\
+> vāditrāṇi ghanāghanāḥ\
+> gāyanti taṁ sma gandharvā\
 > nṛtyanty apsaraso mudā
 
 *avādayan*—hicieron sonar; *tadā*—en aquel momento; *vyomni*—en el cielo; *vāditrāṇi*—instrumentos musicales; *ghanāghanāḥ*—las nubes lluviosas; *gāyanti*—cantaban; *tam*—a Él; *sma*—ciertamente; *gandharvāḥ*—los *gandharvas*; *nṛtyanti*—danzaban; *apsarasaḥ*—las *apsarās*; *mudā*—llenas de éxtasis jubiloso.

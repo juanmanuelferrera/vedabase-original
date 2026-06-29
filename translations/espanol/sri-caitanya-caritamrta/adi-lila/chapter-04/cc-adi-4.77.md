@@ -1,9 +1,9 @@
 ### CC Adi 4.77
 
-> বৈভবগণ যেন তাঁর অঙ্গ-বিভূতি ।
+> বৈভবগণ যেন তাঁর অঙ্গ-বিভূতি ।\
 > বিম্ব-প্রতিবিম্ব-রূপ মহিষীর ততি ॥৭৭॥
 
-> vaibhava-gaṇa yena tāṅra aṅga-vibhūti
+> vaibhava-gaṇa yena tāṅra aṅga-vibhūti\
 > bimba-pratibimba-rūpa mahiṣīra tati
 
 *vaibhava-gaṇa*—las expansiones; *yena*—como si fuera; *tāṅra*—de Ella; *aṅga*—del cuerpo; *vibhūti*—expansiones poderosas; *bimba*—reflejos; *pratibimba*—contrarreflejos; *rūpa*—que poseen la forma; *mahiṣīra*—de las reinas; *tati*—la expansión.

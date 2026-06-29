@@ -1,9 +1,9 @@
 ### CC Madhya 16.191
 
-> তাহাঁ যাইতে কর তুমি সহায়-প্রকার  ।
+> তাহাঁ যাইতে কর তুমি সহায়-প্রকার  ।\
 > এই বড় আজ্ঞা, এই বড় উপকার ।।’ ১৯১ ॥১৯১॥
 
-> tāhāṅ yāite kara tumi sahāya-prakāra
+> tāhāṅ yāite kara tumi sahāya-prakāra\
 > ei baḍa ājñā, ei baḍa upakāra'
 
 *tāhāṅ yāite*—para ir allí; *kara*—haz; *tumi*—tú; *sahāya-prakāra*—todo tipo de ayuda; *ei baḍa ājñā*—esta es una gran orden; *ei baḍa upakāra*—este es un gran favor.

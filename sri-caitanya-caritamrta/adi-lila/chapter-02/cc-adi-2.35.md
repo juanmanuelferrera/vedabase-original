@@ -1,9 +1,9 @@
 ### CC Adi 2.35
 
-> ব্রহ্মা বলেন, তুমি কি না হও নারায়ণ ।
+> ব্রহ্মা বলেন, তুমি কি না হও নারায়ণ ।\
 > তুমি নারায়ণ — শুন তাহার কারণ ॥৩৫॥
 
-> brahmā balena, tumi ki nā hao nārāyaṇa
+> brahmā balena, tumi ki nā hao nārāyaṇa\
 > tumi nārāyaṇa—śuna tāhāra kāraṇa
 
 *brahmā*—Lord Brahmā; *balena*—says; *tumi*—You; *ki nā hao*—are not; *nārāyaṇa*—Lord Nārāyaṇa; *tumi*—You; *nārāyaṇa*—Lord Nārāyaṇa; *śuna*—please hear; *tāhāra*—of that; *kāraṇa*—reason.

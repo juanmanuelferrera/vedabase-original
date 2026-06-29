@@ -1,11 +1,11 @@
 ### SB 1.7.17
 
-> इति प्रियां वल्गुविचित्रजल्पैः स सान्त्वयित्वाच्युतमित्रसूतः ।
+> इति प्रियां वल्गुविचित्रजल्पैः स सान्त्वयित्वाच्युतमित्रसूतः ।\
 > अन्वाद्रवद्दंशित उग्रधन्वा कपिध्वजो गुरुपुत्रं रथेन ॥१७॥
 
-> iti priyāṁ valgu-vicitra-jalpaiḥ
-> sa sāntvayitvācyuta-mitra-sūtaḥ
-> anvādravad daṁśita ugra-dhanvā
+> iti priyāṁ valgu-vicitra-jalpaiḥ\
+> sa sāntvayitvācyuta-mitra-sūtaḥ\
+> anvādravad daṁśita ugra-dhanvā\
 > kapi-dhvajo guru-putraṁ rathena
 
 *iti*—así pues; *priyām*—a la querida; *valgu*—dulce; *vicitra*—variadas; *jalpaiḥ*—mediante declaraciones; *saḥ*—él; *sāntvayitvā*—satisfaciendo; *acyuta-mitra-sūtaḥ*—Arjuna, a quien el infalible Señor guía como amigo y auriga; *anvādravat*—seguido; *daṁśitaḥ*—siendo protegido por un *kavaca*; *ugra-dhanvā*—equipado con armas terribles; *kapi-dhvajaḥ*—Arjuna; *guru-putram*—el hijo del maestro de milicia; *rathena*—montándose en la cuadriga.

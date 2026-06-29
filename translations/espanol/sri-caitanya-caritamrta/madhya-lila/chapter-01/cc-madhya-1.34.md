@@ -1,9 +1,9 @@
 ### CC Madhya 1.34
 
-> প্রভু-আজ্ঞায় কৈল সব শাস্ত্রের বিচার ।
+> প্রভু-আজ্ঞায় কৈল সব শাস্ত্রের বিচার ।\
 > ব্রজের নিগূঢ় ভক্তি করিল প্রচার ॥৩৪॥
 
-> prabhu ājñāya kaila saba śāstrera vicāra
+> prabhu ājñāya kaila saba śāstrera vicāra\
 > vrajera nigūḍha bhakti karila pracāra
 
 *prabhu ājñāya*—por orden del Señor Śrī Caitanya Mahāprabhu; *kaila*—ellos realizaron; *saba śāstrera*—de todas las escrituras; *vicāra*—estudio analítico; *vrajera*—de Śrī Vṛndāvana-dhāma; *nigūḍha*—más confidencial; *bhakti*—servicio devocional; *karila*—hicieron; *pracāra*—prédica.

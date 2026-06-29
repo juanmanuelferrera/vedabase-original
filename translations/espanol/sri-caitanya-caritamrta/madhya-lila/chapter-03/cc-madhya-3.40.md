@@ -1,9 +1,9 @@
 ### CC Madhya 3.40
 
-> এত বলি’ নৌকায় চড়াঞা নিল নিজ-ঘর ।
+> এত বলি’ নৌকায় চড়াঞা নিল নিজ-ঘর ।\
 > পাদপ্রক্ষালন কৈল আনন্দ-অন্তর ॥৪০॥
 
-> eta bali' naukāya caḍāñā nila nija-ghara
+> eta bali' naukāya caḍāñā nila nija-ghara\
 > pāda-prakṣālana kaila ānanda-antara
 
 *eta bali'*—diciendo esto; *naukāya caḍāñā*—haciéndolo subir al pequeño bote; *nila*—llevó; *nija-ghara*—a Su propia residencia; *pāda-prakṣālana*—lavado de los pies; *kaila*—hizo; *ānanda-antara*—muy feliz por dentro.

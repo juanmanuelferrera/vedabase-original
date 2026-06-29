@@ -1,9 +1,9 @@
 ### CC Adi 17.222
 
-> কাজী কহে, — মোর বংশে যত উপজিবে ।
+> কাজী কহে, — মোর বংশে যত উপজিবে ।\
 > তাহাকে ‘তালাক’ দিব, — কীর্তন না বাধিবে ॥২২২॥
 
-> kājī kahe,—mora vaṁśe yata upajibe
+> kājī kahe,—mora vaṁśe yata upajibe\
 > tāhāke 'tālāka' diba,—kīrtana nā bādhibe
 
 *kājī kahe*—the Kazi said; *mora*—my; *vaṁśe*—in the dynasty; *yata*—all (descendants); *upajibe*—who will take birth; *tāhāke*—unto them; *tālāka*—grave admonition; *diba*—I shall give; *kīrtana*—the *saṅkīrtana* movement; *nā*—never; *bādhibe*—they will oppose.

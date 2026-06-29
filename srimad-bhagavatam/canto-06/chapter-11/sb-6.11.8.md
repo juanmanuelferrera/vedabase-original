@@ -1,11 +1,11 @@
 ### SB 6.11.8
 
-> ममर्द पद्भ्यां सुरसैन्यमातुरं निमीलिताक्षं रणरङ्गदुर्मदः
+> ममर्द पद्भ्यां सुरसैन्यमातुरं निमीलिताक्षं रणरङ्गदुर्मदः\
 > गां कम्पयन्नुद्यतशूल ओजसा नालं वनं यूथपतिर्यथोन्मदः ॥८॥
 
-> mamarda padbhyāṁ sura-sainyam āturaṁ
-> nimīlitākṣaṁ raṇa-raṅga-durmadaḥ
-> gāṁ kampayann udyata-śūla ojasā
+> mamarda padbhyāṁ sura-sainyam āturaṁ\
+> nimīlitākṣaṁ raṇa-raṅga-durmadaḥ\
+> gāṁ kampayann udyata-śūla ojasā\
 > nālaṁ vanaṁ yūtha-patir yathonmadaḥ
 
 *mamarda*—trampled; *padbhyām*—by his feet; *sura-sainyam*—the army of the demigods; *āturam*—who were very afraid; *nimīlita-akṣam*—closing their eyes; *raṇa-raṅga-durmadaḥ*—arrogant on the battlefield; *gām*—the surface of the globe; *kampayan*—causing to tremble; *udyata-śūlaḥ*—taking up his trident; *ojasā*—with his strength; *nālam*—of hollow bamboo sticks; *vanam*—a forest; *yūtha-patiḥ*—an elephant; *yathā*—just as; *unmadaḥ*—maddened.

@@ -1,11 +1,11 @@
 ### SB 4.27.16
 
-> स सप्तभिः शतैरेको विंशत्या च शतं समाः ।
+> स सप्तभिः शतैरेको विंशत्या च शतं समाः ।\
 > पुरञ्जनपुराध्यक्षो गन्धर्वैर्युयुधे बली ॥१६॥
 
-> sa saptabhiḥ śatair eko
-> viṁśatyā ca śataṁ samāḥ
-> purañjana-purādhyakṣo
+> sa saptabhiḥ śatair eko\
+> viṁśatyā ca śataṁ samāḥ\
+> purañjana-purādhyakṣo\
 > gandharvair yuyudhe balī
 
 *saḥ*—he; *saptabhiḥ*—with seven; *śataiḥ*—hundred; *ekaḥ*—alone; *viṁśatyā*—with twenty; *ca*—also; *śatam*—hundred; *samāḥ*—years; *purañjana*—of King Purañjana; *pura-adhyakṣaḥ*—superintendent of the city; *gandharvaiḥ*—with the Gandharvas; *yuyudhe*—fought; *balī*—very valiant.

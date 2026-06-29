@@ -1,11 +1,11 @@
 ### SB 6.9.11
 
-> हतपुत्रस्ततस्त्वष्टा जुहावेन्द्राय शत्रवे
+> हतपुत्रस्ततस्त्वष्टा जुहावेन्द्राय शत्रवे\
 > इन्द्रशत्रो विवर्धस्व मा चिरं जहि विद्विषम ॥११॥
 
-> hata-putras tatas tvaṣṭā
-> juhāvendrāya śatrave
-> indra-śatro vivardhasva
+> hata-putras tatas tvaṣṭā\
+> juhāvendrāya śatrave\
+> indra-śatro vivardhasva\
 > mā ciraṁ jahi vidviṣam
 
 *hata-putraḥ*—que perdió a su hijo; *tataḥ*—a continuación; *tvaṣṭā*—Tvaṣṭā; *juhāva*—realizó un sacrificio; *indrāya*—de Indra; *śatrave*—para crear un enemigo; *indra-śatro*—¡oh, enemigo de Indra!; *vivardhasva*—aumenta; *mā*—no; *ciram*—tras mucho tiempo; *jahi*—mata; *vidviṣam*—a tu enemigo.

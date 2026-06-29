@@ -1,11 +1,11 @@
 ### SB 3.10.6
 
-> तपसा ह्येधमानेन विद्यया चात्मसंस्थया ।
+> तपसा ह्येधमानेन विद्यया चात्मसंस्थया ।\
 > विवृद्धविज्ञानबलो न्यपाद्वायुं सहाम्भसा ॥६॥
 
-> tapasā hy edhamānena
-> vidyayā cātma-saṁsthayā
-> vivṛddha-vijñāna-balo
+> tapasā hy edhamānena\
+> vidyayā cātma-saṁsthayā\
+> vivṛddha-vijñāna-balo\
 > nyapād vāyuṁ sahāmbhasā
 
 *tapasā*—by penance; *hi*—certainly; *edhamānena*—increasing; *vidyayā*—by transcendental knowledge; *ca*—also; *ātma*—self; *saṁsthayā*—situated in the self; *vivṛddha*—matured; *vijñāna*—practical knowledge; *balaḥ*—power; *nyapāt*—drank; *vāyum*—the wind; *saha ambhasā*—along with the water.

@@ -1,11 +1,11 @@
 ### SB 1.14.43
 
-> अपि स्वित्पर्यभुङ्क्थास्त्वं सम्भोज्यान्वृद्धबालकान् ।
+> अपि स्वित्पर्यभुङ्क्थास्त्वं सम्भोज्यान्वृद्धबालकान् ।\
 > जुगुप्सितं कर्म किञ्चित्कृतवान्न यदक्षमम् ॥४३॥
 
-> api svit parya-bhuṅkthās tvaṁ
-> sambhojyān vṛddha-bālakān
-> jugupsitaṁ karma kiñcit
+> api svit parya-bhuṅkthās tvaṁ\
+> sambhojyān vṛddha-bālakān\
+> jugupsitaṁ karma kiñcit\
 > kṛtavān na yad akṣamam
 
 *api svit*—if it were so that; *parya*—by leaving aside; *bhuṅkthāḥ*—have dined; *tvam*—yourself; *sambhojyān*—deserving to dine together; *vṛddha*—the old men; *bālakān*—boys; *jugupsitam*—abominable; *karma*—action; *kiñcit*—something; *kṛtavān*—you must have done; *na*—not; *yat*—that which; *akṣamam*—unpardonable.

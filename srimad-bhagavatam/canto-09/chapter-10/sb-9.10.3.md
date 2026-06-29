@@ -1,11 +1,11 @@
 ### SB 9.10.3
 
-> तस्यानुचरितं राजन्नृषिभिस्तत्त्वदर्शिभिः
+> तस्यानुचरितं राजन्नृषिभिस्तत्त्वदर्शिभिः\
 > श्रुतं हि वर्णितं भूरि त्वया सीतापतेर्मुहुः ॥३॥
 
-> tasyānucaritaṁ rājann
-> ṛṣibhis tattva-darśibhiḥ
-> śrutaṁ hi varṇitaṁ bhūri
+> tasyānucaritaṁ rājann\
+> ṛṣibhis tattva-darśibhiḥ\
+> śrutaṁ hi varṇitaṁ bhūri\
 > tvayā sītā-pater muhuḥ
 
 *tasya*—of Him, the Supreme Personality of Godhead Lord Rāmacandra and His brothers; *anucaritam*—transcendental activities; *rājan*—O King (Mahārāja Parīkṣit); *ṛṣibhiḥ*—by great sages or saintly persons; *tattva-darśibhiḥ*—by persons who know the Absolute Truth; *śrutam*—have all been heard; *hi*—indeed; *varṇitam*—as they have been so nicely described; *bhūri*—many; *tvayā*—by you; *sītā-pateḥ*—of Lord Rāmacandra, the husband of mother Sītā; *muhuḥ*—more than often.

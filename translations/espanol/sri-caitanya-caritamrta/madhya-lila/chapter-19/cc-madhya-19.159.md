@@ -1,9 +1,9 @@
 ### CC Madhya 19.159
 
-> ‘নিষিদ্ধাচার’, ‘কুটীনাটী’, ‘জীবহিংসন’  ।
+> ‘নিষিদ্ধাচার’, ‘কুটীনাটী’, ‘জীবহিংসন’  ।\
 > ‘লাভ’, ‘পূজা’, ‘প্রতিষ্ঠাদি’ যত উপশাখাগণ ॥১৫৯॥
 
-> 'niṣiddhācāra', 'kuṭīnāṭī', 'jīva-hiṁsana'
+> 'niṣiddhācāra', 'kuṭīnāṭī', 'jīva-hiṁsana'\
 > 'lābha', 'pūjā', 'pratiṣṭhādi' yata upaśākhā-gaṇa
 
 *niṣiddha-ācāra*—conducta que no debe exhibir una persona que desea alcanzar la perfección; *kuṭīnāṭī*—diplomacia; *jīva-hiṁsana*—matar innecesariamente a los animales o al alma; *lābha*—ganancia según cálculos materiales; *pūjā*—adoración obtenida al satisfacer a la gente mundana; *pratiṣṭha-ādi*—convertirse en un hombre importante según cálculos materiales, etc.; *yata*—todas estas; *upaśākhā-gaṇa*—enredaderas innecesarias.

@@ -1,11 +1,11 @@
 ### SB 6.8.39
 
-> तस्योपरि विमानेन गन्धर्वपतिरेकदा
+> तस्योपरि विमानेन गन्धर्वपतिरेकदा\
 > ययौ चित्ररथः स्त्रीभिर्वृतो यत्र द्विजक्षयः ॥३९॥
 
-> tasyopari vimānena
-> gandharva-patir ekadā
-> yayau citrarathaḥ strībhir
+> tasyopari vimānena\
+> gandharva-patir ekadā\
+> yayau citrarathaḥ strībhir\
 > vṛto yatra dvija-kṣayaḥ
 
 *tasya*—su cuerpo muerto; *upari*—por encima; *vimānena*—en avión; *gandharva-patiḥ*—el rey de Gandharvaloka, Citraratha; *ekadā*—en cierta ocasión; *yayau*—fue; *citrarathaḥ*—Citraratha; *strībhiḥ*—por muchas mujeres hermosas; *vṛtaḥ*—rodeado; *yatra*—donde; *dvija-kṣayaḥ*—el *brāhmaṇa* Kauśika había muerto.

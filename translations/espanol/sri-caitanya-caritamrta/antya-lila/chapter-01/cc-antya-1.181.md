@@ -1,9 +1,9 @@
 ### CC Antya 1.181
 
-> প্রভু কহে, — “রায়, তোমার ইহাতে উল্লাস ।
+> প্রভু কহে, — “রায়, তোমার ইহাতে উল্লাস ।\
 > শুনিতেই লজ্জা, লোকে করে উপহাস ।।” ॥ ১৮১ ॥
 
-> prabhu kahe,--"rāya, tomāra ihāte ullāsa
+> prabhu kahe,--"rāya, tomāra ihāte ullāsa\
 > śunitei lajjā, loke kare upahāsa"
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu dice; *rāya*—Rāmānanda Rāya; *tomāra*—tu; *ihāte*—en esto; *ullāsa*—júbilo; *śunitei*—al oír; *lajjā*—avergonzado; *loke*—la gente en general; *kare*—hace; *upahāsa*—burla.

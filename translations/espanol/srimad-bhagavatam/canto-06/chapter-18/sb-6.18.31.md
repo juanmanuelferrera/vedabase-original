@@ -1,11 +1,11 @@
 ### SB 6.18.31
 
-> एवं शुश्रूषितस्तात भगवान्कश्यपः स्त्रिया
+> एवं शुश्रूषितस्तात भगवान्कश्यपः स्त्रिया\
 > प्रहस्य परमप्रीतो दितिमाहाभिनन्द्य च ॥३१॥
 
-> evaṁ śuśrūṣitas tāta
-> bhagavān kaśyapaḥ striyā
-> prahasya parama-prīto
+> evaṁ śuśrūṣitas tāta\
+> bhagavān kaśyapaḥ striyā\
+> prahasya parama-prīto\
 > ditim āhābhinandya ca
 
 *evam*—así; *śuśrūṣitaḥ*—servido; *tāta*—¡oh, querido rey!; *bhagavān*—el poderoso; *kaśyapaḥ*—Kaśyapa; *striyā*—por la mujer; *prahasya*—sonriendo; *parama-prītaḥ*—muy complacido; *ditim*—a Diti; *āha*—dijo; *abhinandya*—aprobando; *ca*—también.

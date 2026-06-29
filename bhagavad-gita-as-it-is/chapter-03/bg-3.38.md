@@ -1,11 +1,11 @@
 ### Bg 3.38
 
-> धूमेनाव्रियते वह्निर्यथादर्शो मलेन च ।
+> धूमेनाव्रियते वह्निर्यथादर्शो मलेन च ।\
 > यथोल्बेनावृतो गर्भस्तथा तेनेदमावृतम् ॥३८॥
 
-> dhūmenāvriyate vahnir
-> yathādarśo malena ca
-> yatholbenāvṛto garbhas
+> dhūmenāvriyate vahnir\
+> yathādarśo malena ca\
+> yatholbenāvṛto garbhas\
 > tathā tenedam āvṛtam
 
 *dhūmena*—by smoke; *āvriyate*—covered; *vahniḥ*—fire; *yathā*—just as; *ādarśaḥ*—mirror; *malena*—by dust; *ca*—also; *yathā*—just as; *ulbena*—by the womb; *āvṛtaḥ*—is covered; *garbhaḥ*—embryo; *tathā*—so; *tena*—by that lust; *idam*—this; *āvṛtam*—is covered.

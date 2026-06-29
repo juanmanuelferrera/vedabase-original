@@ -1,11 +1,11 @@
 ### SB 1.14.40
 
-> कच्चिन्नाभिहतोऽभावैः शब्दादिभिरमङ्गलैः ।
+> कच्चिन्नाभिहतोऽभावैः शब्दादिभिरमङ्गलैः ।\
 > न दत्तमुक्तमर्थिभ्य आशया यत्प्रतिश्रुतम् ॥४०॥
 
-> kaccin nābhihato 'bhāvaiḥ
-> śabdādibhir amaṅgalaiḥ
-> na dattam uktam arthibhya
+> kaccin nābhihato 'bhāvaiḥ\
+> śabdādibhir amaṅgalaiḥ\
+> na dattam uktam arthibhya\
 > āśayā yat pratiśrutam
 
 *kaccit*—whether; *na*—could not; *abhihataḥ*—addressed by; *abhāvaiḥ*—unfriendly; *śabda-ādibhiḥ*—by sounds; *amaṅgalaiḥ*—inauspicious; *na*—did not; *dattam*—give in charity; *uktam*—is said; *arthibhyaḥ*—unto one who asked; *āśayā*—with hope; *yat*—what; *pratiśrutam*—promised to be paid.

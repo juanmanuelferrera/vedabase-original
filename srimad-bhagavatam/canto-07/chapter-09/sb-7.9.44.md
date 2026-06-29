@@ -1,13 +1,13 @@
 ### SB 7.9.44
 
-> प्रायेण देव मुनयः स्वविमुक्तिकामा
-> मौनं चरन्ति विजने न परार्थनिष्ठाः
-> नैतान्विहाय कृपणान्विमुमुक्ष एको
+> प्रायेण देव मुनयः स्वविमुक्तिकामा\
+> मौनं चरन्ति विजने न परार्थनिष्ठाः\
+> नैतान्विहाय कृपणान्विमुमुक्ष एको\
 > नान्यं त्वदस्य शरणं भ्रमतोऽनुपश्ये ॥४४॥
 
-> prāyeṇa deva munayaḥ sva-vimukti-kāmā
-> maunaṁ caranti vijane na parārtha-niṣṭhāḥ
-> naitān vihāya kṛpaṇān vimumukṣa eko
+> prāyeṇa deva munayaḥ sva-vimukti-kāmā\
+> maunaṁ caranti vijane na parārtha-niṣṭhāḥ\
+> naitān vihāya kṛpaṇān vimumukṣa eko\
 > nānyaṁ tvad asya śaraṇaṁ bhramato 'nupaśye
 
 *prāyeṇa*—generally, in almost all cases; *deva*—O my Lord; *munayaḥ*—the great saintly persons; *sva*—personal, own; *vimukti-kāmāḥ*—ambitious for liberation from this material world; *maunam*—silently; *caranti*—they wander (in places like the Himalayan forests, where they have no touch with the activities of the materialists); *vijane*—in solitary places; *na*—not; *para-artha-niṣṭhāḥ*—interested in working for others by giving them the benefit of the Kṛṣṇa consciousness movement, by enlightening them with Kṛṣṇa consciousness; *na*—not; *etān*—these; *vihāya*—leaving aside; *kṛpaṇān*—fools and rascals (engaged in materialistic activity who do not know the benefit of the human form of life); *vimumukṣe*—I desire to be liberated and to return home, back to Godhead; *ekaḥ*—alone; *na*—not; *anyam*—other; *tvat*—but for You; *asya*—of this; *śaraṇam*—shelter; *bhramataḥ*—of the living entity rotating and wandering throughout the material universes; *anupaśye*—do I see.

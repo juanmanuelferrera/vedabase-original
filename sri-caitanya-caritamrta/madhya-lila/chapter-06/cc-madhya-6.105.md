@@ -1,9 +1,9 @@
 ### CC Madhya 6.105
 
-> তোমার আগে এত কথার নাহি প্রয়োজন ।
+> তোমার আগে এত কথার নাহি প্রয়োজন ।\
 > ঊষর-ভূমিতে যেন বীজের রোপণ ॥১০৫॥
 
-> tomāra āge eta kathāra nāhi prayojana
+> tomāra āge eta kathāra nāhi prayojana\
 > ūṣara-bhūmite yena bījera ropaṇa
 
 *tomāraāge*—before you; *eta*—so many; *kathāra*—of words; *nāhi*—there is not; *prayojana*—necessity; *ūṣara-bhūmite*—in barren land; *yena*—like; *bījera*—of the seed; *ropaṇa*—sowing.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.253
 
-> ইচ্ছাশক্তিপ্রধান কৃষ্ণ — ইচ্ছায় সর্বকর্তা ।
+> ইচ্ছাশক্তিপ্রধান কৃষ্ণ — ইচ্ছায় সর্বকর্তা ।\
 > জ্ঞানশক্তিপ্রধান বাসুদেব অধিষ্ঠাতা ॥২৫৩॥
 
-> icchā-śakti-pradhāna kṛṣṇa—icchāya sarva-kartā
+> icchā-śakti-pradhāna kṛṣṇa—icchāya sarva-kartā\
 > jñāna-śakti-pradhāna vāsudeva adhiṣṭhātā
 
 *icchā-śakti*—of willpower; *pradhāna*—predominator; *kṛṣṇa*—Lord Kṛṣṇa; *icchāya*—simply by willing; *sarva-kartā*—the creator of everything; *jñāna-śakti-pradhāna*—the predominator of the power of knowledge; *vāsudeva*—Lord Vāsudeva; *adhiṣṭhātā*—reservoir.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.149
 
-> রাগাত্মিকা-ভক্তি — ‘মুখ্যা’ ব্রজবাসি-জনে ।
+> রাগাত্মিকা-ভক্তি — ‘মুখ্যা’ ব্রজবাসি-জনে ।\
 > তার অনুগত ভক্তির ‘রাগানুগা’-নামে ॥১৪৯॥
 
-> rāgātmikā-bhakti—'mukhyā' vraja-vāsi-jane
+> rāgātmikā-bhakti—'mukhyā' vraja-vāsi-jane\
 > tāra anugata bhaktira 'rāgānugā'-nāme
 
 *rāgātmikā-bhakti*—spontaneous devotional service; *mukhyā*—preeminent; *vraja-vāsi-jane*—in the inhabitants of Vraja, or Vṛndāvana; *tāra*—that; *anugata*—following; *bhaktira*—of devotional service; *rāgānugā-nāme*—named *rāgānugā* or following after spontaneous devotional service.

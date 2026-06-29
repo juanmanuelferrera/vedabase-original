@@ -1,9 +1,9 @@
 ### CC Antya 5.128
 
-> শুনি’ সভাসদের চিত্তে হৈল চমৎকার ।
+> শুনি’ সভাসদের চিত্তে হৈল চমৎকার ।\
 > ‘সত্য কহে গোসাঞি, দুঁহার করিয়াছে তিরস্কার’ ॥১২৮॥
 
-> śuni' sabhā-sadera citte haila camatkāra
+> śuni' sabhā-sadera citte haila camatkāra\
 > 'satya kahe gosāñi, duṅhāra kariyāche tiraskāra'
 
 *śuni'*—al escuchar; *sabhā-sadera*—de todos los miembros de la asamblea; *citte*—en las mentes; *haila*—hubo; *camatkāra*—asombro; *satya*—la verdad; *kahe*—dijo; *gosāñi*—Svarūpa Dāmodara Gosvāmī; *duṅhāra*—de ambos; *kariyāche*—ha cometido; *tiraskāra*—ofensa.

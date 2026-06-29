@@ -1,11 +1,11 @@
 ### SB 1.7.18
 
-> तमापतन्तं स विलक्ष्य दूरात्कुमारहोद्विग्नमना रथेन ।
+> तमापतन्तं स विलक्ष्य दूरात्कुमारहोद्विग्नमना रथेन ।\
 > पराद्रवत्प्राणपरीप्सुरुर्व्यां यावद्गमं रुद्रभयाद्यथा कः ॥१८॥
 
-> tam āpatantaṁ sa vilakṣya dūrāt
-> kumāra-hodvigna-manā rathena
-> parādravat prāṇa-parīpsur urvyāṁ
+> tam āpatantaṁ sa vilakṣya dūrāt\
+> kumāra-hodvigna-manā rathena\
+> parādravat prāṇa-parīpsur urvyāṁ\
 > yāvad-gamaṁ rudra-bhayād yathā kaḥ
 
 *tam*—a él; *āpatantam*—acercándose furiosamente; *saḥ*—él; *vilakṣya*—viendo; *dūrāt*—desde lejos; *kumāra-hā*—el asesino de príncipes; *udvigna-manāḥ*—con la mente perturbada; *rathena*—en la cuadriga; *parādravat*—huyó; *prāṇa*—vida; *parīpsuḥ*—para proteger; *urvyām*—a gran velocidad; *yāvat-gamam*—mientras huía; *rudra-bhayāt*—por temor a Śiva; *yathā*—como; *kaḥ*—Brahmā (o *arkaḥ*—Sūrya).

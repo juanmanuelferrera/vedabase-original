@@ -1,9 +1,9 @@
 ### CC Madhya 4.113
 
-> নৃত্যগীত করি’ জগমোহনে বসিলা ।
+> নৃত্যগীত করি’ জগমোহনে বসিলা ।\
 > ‘ক্যা ক্যা ভোগ লাগে?’ ব্রাহ্মণে পুছিলা ॥১১৩॥
 
-> nṛtya-gīta kari' jaga-mohane vasilā
+> nṛtya-gīta kari' jaga-mohane vasilā\
 > 'kyā kyā bhoga lāge?' brāhmaṇe puchilā
 
 *nṛtya-gīta kari'*—after performing dancing and chanting; *jaga-mohane*—in the corridor of the temple; *vasilā*—he sat down; *kyā kyā*—what; *bhoga*—foods; *lāge*—they offer; *brāhmaṇe*—from the *brāhmaṇa* priest; *puchilā*—inquired.

@@ -1,13 +1,13 @@
 ### CC Madhya 20.359
 
-> জন্মাদ্যস্য যতোঽন্বয়াদিতরতশ্চার্থেষ্বভিজ্ঞঃ স্বরাট্
-> তেনে ব্রহ্ম হৃদা য আদিকবয়ে মুহ্যন্তি যত্ সূরয়ঃ ।
-> তেজোবারিমৃদাং যথা বিনিময়ো যত্র ত্রিসর্গোঽমৃষা
+> জন্মাদ্যস্য যতোঽন্বয়াদিতরতশ্চার্থেষ্বভিজ্ঞঃ স্বরাট্\
+> তেনে ব্রহ্ম হৃদা য আদিকবয়ে মুহ্যন্তি যত্ সূরয়ঃ ।\
+> তেজোবারিমৃদাং যথা বিনিময়ো যত্র ত্রিসর্গোঽমৃষা\
 > ধাম্না স্বেন সদা নিরস্তকুহকং সত্যং পরং ধীমহি ॥৩৫৯॥
 
-> janmādy asya yato 'nvayād itarataś cārtheṣv abhijñaḥ svarāṭ
-> tene brahma hṛdā ya ādi-kavaye muhyanti yat sūrayaḥ
-> tejo-vāri-mṛdāṁ yathā vinimayo yatra tri-sargo 'mṛṣā
+> janmādy asya yato 'nvayād itarataś cārtheṣv abhijñaḥ svarāṭ\
+> tene brahma hṛdā ya ādi-kavaye muhyanti yat sūrayaḥ\
+> tejo-vāri-mṛdāṁ yathā vinimayo yatra tri-sargo 'mṛṣā\
 > dhāmnā svena sadā nirasta-kuhakaṁ satyaṁ paraṁ dhīmahi
 
 *janma-ādi*—creation, maintenance and dissolution; *asya*—of this (the universe); *yataḥ*—from whom; *anvayāt*—directly from the spiritual connection; *itarataḥ*—indirectly from the lack of material contact; *ca*—also; *artheṣu*—in all affairs; *abhijñaḥ*—perfectly cognizant; *sva-rāṭ*—independent; *tene*—imparted; *brahma*—the Absolute Truth; *hṛdā*—through the heart; *yaḥ*—who; *ādi-kavaye*—unto Lord Brahmā; *muhyanti*—are bewildered; *yat*—in whom; *sūrayaḥ*—great personalities like Lord Brahmā and other demigods or great brāhmaṇas; *tejaḥ-vāri-mṛdām*—of fire, water and earth; *yathā*—as; *vinimayaḥ*—the exchange; *yatra*—in whom; *tri-sargaḥ*—the material creation of three modes; *amṛṣā*—factual; *dhāmnā*—with the abode; *svena*—His own personal; *sadā*—always; *nirasta-kuhakam*—devoid of all illusion; *satyam*—the truth; *param*—absolute; *dhīmahi*—let us meditate upon.

@@ -1,9 +1,9 @@
 ### CC Madhya 16.158
 
-> মদ্যপ যবন — রাজার আগে অধিকার ।
+> মদ্যপ যবন — রাজার আগে অধিকার ।\
 > তাঁর ভয়ে পথে কেহ নারে চলিবার ॥১৫৮॥
 
-> madyapa yavana-rājāra āge adhikāra
+> madyapa yavana-rājāra āge adhikāra\
 > tāṅra bhaye pathe keha nāre calibāra
 
 *madyapa*—borracho; *yavana*—mahometano; *rājāra*—de un rey; *āge*—adelante; *adhikāra*—el gobierno; *tāṅra bhaye*—por temor a ese rey; *pathe*—por el camino; *keha*—nadie; *nāre*—puede; *calibāra*—viajar.

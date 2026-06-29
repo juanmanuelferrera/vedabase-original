@@ -1,9 +1,9 @@
 ### CC Madhya 10.46
 
-> প্রহররাজ মহাপাত্র ইঁহ মহামতি ৷
+> প্রহররাজ মহাপাত্র ইঁহ মহামতি ৷\
 > পরমানন্দ মহাপাত্র ইঁহার সংহতি ৷৷ ৪৬ ৷৷ ॥৪৬॥
 
-> prahararāja mahāpātra iṅha mahā-mati
+> prahararāja mahāpātra iṅha mahā-mati\
 > paramānanda mahāpātra iṅhāra saṁhati
 
 *prahararāja*—Prahararāja; *mahāpātra*—Mahāpātra; *iṅha*—este; *mahā-mati*—muy inteligente; *paramānanda mahāpātra*—Paramānanda Mahāpātra; *iṅhāra*—de él; *saṁhati*—combinación.

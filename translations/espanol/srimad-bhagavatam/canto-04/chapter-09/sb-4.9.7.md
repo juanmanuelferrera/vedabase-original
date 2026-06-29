@@ -1,13 +1,13 @@
 ### SB 4.9.7
 
-> एकस्त्वमेव भगवन्निदमात्मशक्त्या
-> मायाख्ययोरुगुणया महदाद्यशेषम् ।
-> सृष्ट्वानुविश्य पुरुषस्तदसद्गुणेषु
+> एकस्त्वमेव भगवन्निदमात्मशक्त्या\
+> मायाख्ययोरुगुणया महदाद्यशेषम् ।\
+> सृष्ट्वानुविश्य पुरुषस्तदसद्गुणेषु\
 > नानेव दारुषु विभावसुवद्विभासि ॥७॥
 
-> ekas tvam eva bhagavann idam ātma-śaktyā
-> māyākhyayoru-guṇayā mahad-ādy-aśeṣam
-> sṛṣṭvānuviśya puruṣas tad-asad-guṇeṣu
+> ekas tvam eva bhagavann idam ātma-śaktyā\
+> māyākhyayoru-guṇayā mahad-ādy-aśeṣam\
+> sṛṣṭvānuviśya puruṣas tad-asad-guṇeṣu\
 > nāneva dāruṣu vibhāvasuvad vibhāsi
 
 *ekaḥ*—Uno; *tvam*—Tú; *eva*—ciertamente; *bhagavan*—¡oh, mi Señor!; *idam*—este mundo material; *ātma-śaktyā*—por Tu propia potencia; *māyā-ākhyayā*—cuyo nombre es *māyā*; *uru*—muy poderosa; *guṇayā*—que consiste en las modalidades de la naturaleza; *mahat-ādi*—el *mahat-tattva,* etc.; *aśeṣam*—ilimitado; *sṛṣṭvā*—después de crear; *anuviśya*—y después de entrar; *puruṣaḥ*—la Superalma; *tat*—de *māyā*; *asat-guṇeṣu*—en las cualidades temporalmente manifiestas; *nānā*—con diversidad; *iva*—como si; *dāruṣu*—en trozos de madera; *vibhāvasu-vat*—como el fuego; *vibhāsi*—Tú apareces.

@@ -1,9 +1,9 @@
 ### CC Madhya 22.29
 
-> জ্ঞানী জীবন্মুক্তদশা পাইনু করি’ মানে ।
+> জ্ঞানী জীবন্মুক্তদশা পাইনু করি’ মানে ।\
 > বস্তুতঃ বুদ্ধি ‘শুদ্ধ’ নহে কৃষ্ণভক্তি বিনে ॥২৯॥
 
-> jñānī jīvan-mukta-daśā pāinu kari, māne
+> jñānī jīvan-mukta-daśā pāinu kari, māne\
 > vastutaḥ buddhi 'śuddha' nahe kṛṣṇa-bhakti vine
 
 *jñānī*—the speculative philosophers; *jīvan-mukta-daśā*—the stage of liberation even while in this body; *pāinu*—I have gotten; *kari'*—taking; *māne*—considers; *vastutaḥ*—factually; *buddhi*—intelligence; *śuddha*—purified; *nahe*—not; *kṛṣṇa-bhakti vine*—without devotional service to Kṛṣṇa.

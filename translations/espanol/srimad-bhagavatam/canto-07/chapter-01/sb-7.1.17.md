@@ -1,11 +1,11 @@
 ### SB 7.1.17
 
-> दमघोषसुतः पाप आरभ्य कलभाषणात
+> दमघोषसुतः पाप आरभ्य कलभाषणात\
 > सम्प्रत्यमर्षी गोविन्दे दन्तवक्रश्च दुर्मतिः ॥१७॥
 
-> etad veditum icchāmaḥ
-> sarva eva vayaṁ mune
-> bhagavan-nindayā veno
+> etad veditum icchāmaḥ\
+> sarva eva vayaṁ mune\
+> bhagavan-nindayā veno\
 > dvijais tamasi pātitaḥ
 
 *etat*—esto; *veditum*—conocer; *icchāmaḥ*—deseamos; *sarve*—todos; *eva*—ciertamente; *vayam*—nosotros; *mune*—¡oh, gran sabio!; *bhagavat-nindayā*—debido a sus blasfemias contra el Señor; *venaḥ*—Vena, el padre de Pṛthu Mahārāja; *dvijaiḥ*—por los*brāhmaṇas*; *tamasi*—al infierno; *pātitaḥ*—fue arrojado.

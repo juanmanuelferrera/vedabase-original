@@ -1,11 +1,11 @@
 ### SB 1.11.14
 
-> सम्मार्जितमहामार्ग रथ्यापणकचत्वराम् ।
+> सम्मार्जितमहामार्ग रथ्यापणकचत्वराम् ।\
 > सिक्तां गन्धजलैरुप्तां फलपुष्पाक्षताङ्कुरैः ॥१४॥
 
-> sammārjita-mahā-mārga-
-> rathyāpaṇaka-catvarām
-> siktāṁ gandha-jalair uptāṁ
+> sammārjita-mahā-mārga-\
+> rathyāpaṇaka-catvarām\
+> siktāṁ gandha-jalair uptāṁ\
 > phala-puṣpākṣatāṅkuraiḥ
 
 *sammārjita*—limpiados a fondo; *mahā-mārga*—carreteras; *rathya*—callejuelas y vías subterráneas; *āpaṇaka*—plazas de mercado; *catvarām*—lugares públicos de reunión; *siktām*—humedecidos con; *gandha-jalaiḥ*—agua perfumada; *uptām*—cubierto de; *phala*—frutas; *puṣpa*—flores; *akṣata*—enteras; *aṅkuraiḥ*—semillas.

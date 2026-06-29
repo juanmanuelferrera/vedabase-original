@@ -1,11 +1,11 @@
 ### SB 3.19.27
 
-> क्षितौ शयानं तमकुण्ठवर्चसं करालदंष्ट्रं परिदष्टदच्छदम् ।
+> क्षितौ शयानं तमकुण्ठवर्चसं करालदंष्ट्रं परिदष्टदच्छदम् ।\
 > अजादयो वीक्ष्य शशंसुरागता अहो इमं को नु लभेत संस्थितिम् ॥२७॥
 
-> kṣitau śayānaṁ tam akuṇṭha-varcasaṁ
-> karāla-daṁṣṭraṁ paridaṣṭa-dacchadam
-> ajādayo vīkṣya śaśaṁsur āgatā
+> kṣitau śayānaṁ tam akuṇṭha-varcasaṁ\
+> karāla-daṁṣṭraṁ paridaṣṭa-dacchadam\
+> ajādayo vīkṣya śaśaṁsur āgatā\
 > aho imaṁ ko nu labheta saṁsthitim
 
 *kṣitau*—en el suelo; *śayānam*—yaciendo; *tam*—Hiraṇyākṣa; *akuṇṭha*—sin desvanecerse; *varcasam*—lustre; *karāla*—terribles; *daṁṣṭram*—dientes; *paridaṣṭa*—mordido; *dat-chadam*—labio; *aja-ādayaḥ*—Brahmā y otros; *vīkṣya*—habiendo visto; *śaśaṁsuḥ*—admirado dijo; *āgatāḥ*—llegó; *aho*—¡oh!; *imam*—esta; *kaḥ*—quién; *nu*—en verdad; *labheta*—pudiera encontrar; *saṁsthitim*—muerte.

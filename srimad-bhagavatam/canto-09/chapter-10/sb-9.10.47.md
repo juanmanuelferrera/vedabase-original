@@ -1,11 +1,11 @@
 ### SB 9.10.47
 
-> गुरून्वयस्यावरजान्पूजितः प्रत्यपूजयत
+> गुरून्वयस्यावरजान्पूजितः प्रत्यपूजयत\
 > वैदेही लक्ष्मणश्चैव यथावत्समुपेयतुः ॥४७॥
 
-> putrān sva-mātaras tās tu
-> prāṇāṁs tanva ivotthitāḥ
-> āropyāṅke 'bhiṣiñcantyo
+> putrān sva-mātaras tās tu\
+> prāṇāṁs tanva ivotthitāḥ\
+> āropyāṅke 'bhiṣiñcantyo\
 > bāṣpaughair vijahuḥ śucaḥ
 
 *putrān*—the sons; *sva-mātaraḥ*—Their mothers; *tāḥ*—they, headed by Kauśalyā and Kaikeyī; *tu*—but; *prāṇān*—life; *tanvaḥ*—bodies; *iva*—like; *utthitāḥ*—arisen; *āropya*—keeping; *aṅke*—on the lap; *abhiṣiñcantyaḥ*—moistening (the bodies of their sons); *bāṣpa*—by tears; *oghaiḥ*—continuously pouring; *vijahuḥ*—gave up; *śucaḥ*—lamentation due to separation from their sons.

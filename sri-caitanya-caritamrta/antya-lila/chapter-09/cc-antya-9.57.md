@@ -1,9 +1,9 @@
 ### CC Antya 9.57
 
-> সংখ্যা লাগি’ দুই-হাতে অঙ্গুলীতে লেখা ।
+> সংখ্যা লাগি’ দুই-হাতে অঙ্গুলীতে লেখা ।\
 > সহস্রাদি পূর্ণ হৈলে, অঙ্গে কাটে রেখা ।।” ॥ ৫৭ ॥
 
-> saṅkhyā lāgi' dui-hāte aṅgulīte lekhā
+> saṅkhyā lāgi' dui-hāte aṅgulīte lekhā\
 > sahasrādi pūrṇa haile, aṅge kāṭe rekhā"
 
 *saṅkhyā lāgi'*—for counting; *dui-hāte*—in two hands; *aṅgulīte*—on the fingers; *lekhā*—marking; *sahasra-ādi*—one thousand times; *pūrṇa haile*—when finished; *aṅge*—on the body; *kāṭe rekhā*—makes a mark.

@@ -1,11 +1,11 @@
 ### SB 2.9.15
 
-> ददर्श तत्राखिलसात्वतां पतिं श्रियः पतिं यज्ञपतिं जगत्पतिम् ।
+> ददर्श तत्राखिलसात्वतां पतिं श्रियः पतिं यज्ञपतिं जगत्पतिम् ।\
 > सुनन्दनन्दप्रबलार्हणादिभिः स्वपार्षदाग्रैः परिसेवितं विभुम् ॥१५॥
 
-> dadarśa tatrākhila-sātvatāṁ patiṁ
-> śriyaḥ patiṁ yajña-patiṁ jagat-patim
-> sunanda-nanda-prabalārhaṇādibhiḥ
+> dadarśa tatrākhila-sātvatāṁ patiṁ\
+> śriyaḥ patiṁ yajña-patiṁ jagat-patim\
+> sunanda-nanda-prabalārhaṇādibhiḥ\
 > sva-pārṣadāgraiḥ parisevitaṁ vibhum
 
 *dadarśa*—Brahmā vio; *tatra*—ahí (en Vaikuṇṭhaloka); *akhila*—entero; *sātvatām*—de los grandes devotos; *patim*—el Señor; *śriyaḥ*—la diosa de la fortuna; *patim*—el Señor; *yajña*—del sacrificio; *patim*—el Señor; *jagat*—del universo; *patim*—el Señor; *sunanda*—Sunanda; *nanda*—Nanda; *prabala*—Prabala; *arhaṇa*—Arhana; *ādibhiḥ*—por ellos; *sva-pārṣada*—asociados propios; *agraiḥ*—por los principales; *parisevitam*—siendo servido con amor trascendental; *vibhum*—el gran Todopoderoso.

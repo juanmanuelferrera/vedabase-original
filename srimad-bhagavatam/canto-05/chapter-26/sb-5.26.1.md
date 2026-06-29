@@ -1,9 +1,9 @@
 ### SB 5.26.1
 
-> राजोवाच
+> राजोवाच\
 > महर्ष एतद्वैचित्र्यं लोकस्य कथमिति ॥१॥
 
-> rājovāca
+> rājovāca\
 > maharṣa etad vaicitryaṁ lokasya katham iti.
 
 *rājā uvāca*—the King said; *maharṣe*—O great saint (Śukadeva Gosvāmī); *etat*—this; *vaicitryam*—variegatedness; *lokasya*—of the living entities; *katham*—how; *iti*—thus.

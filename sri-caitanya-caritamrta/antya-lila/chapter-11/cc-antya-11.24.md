@@ -1,9 +1,9 @@
 ### CC Antya 11.24
 
-> প্রভু কহে, — “বৃদ্ধ হইলা ‘সংখ্যা’ অল্প কর ।
+> প্রভু কহে, — “বৃদ্ধ হইলা ‘সংখ্যা’ অল্প কর ।\
 > সিদ্ধ-দেহ তুমি, সাধনে আগ্রহ কেনে কর ? ॥ ২৪ ॥
 
-> prabhu kahe,—"vṛddha ha-ilā 'saṅkhyā' alpa kara
+> prabhu kahe,—"vṛddha ha-ilā 'saṅkhyā' alpa kara\
 > siddha-deha tumi, sādhane āgraha kene kara?
 
 *prabhu kahe*—Lord Śrī Caitanya Mahāprabhu said; *vṛddha ha-ilā*—you have become old; *saṅkhyā alpa kara*—reduce your number; *siddha-deha tumi*—you are already liberated; *sādhane*—in the regulative principles; *āgraha kene kara*—why are you eager.

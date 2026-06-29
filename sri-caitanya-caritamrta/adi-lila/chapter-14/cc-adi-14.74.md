@@ -1,9 +1,9 @@
 ### CC Adi 14.74
 
-> শচী আসি’ কহে, — কেনে অশুচি ছুইঁলা ।
+> শচী আসি’ কহে, — কেনে অশুচি ছুইঁলা ।\
 > গঙ্গাস্নান কর যাই’ — অপবিত্র হইলা ॥৭৪॥
 
-> śacī āsi' kahe,—kene aśuci chuṅilā
+> śacī āsi' kahe,—kene aśuci chuṅilā\
 > gaṅgā-snāna kara yāi'—apavitra ha-ilā
 
 *śacī āsi'*—mother Śacī, coming there; *kahe*—said; *kene*—why; *aśuci*—untouchable; *chuṅilā*—You have touched; *gaṅgā-snāna*—bathing in the Ganges; *kara*—do; *yāi'*—going there; *apavitra ha-ilā*—You have become impure.

@@ -1,11 +1,11 @@
 ### SB 4.30.16
 
-> अपृथग्धर्मशीलानां सर्वेषां वः सुमध्यमा ।
+> अपृथग्धर्मशीलानां सर्वेषां वः सुमध्यमा ।\
 > अपृथग्धर्मशीलेयं भूयात्पत्न्यर्पिताशया ॥१६॥
 
-> apṛthag-dharma-śīlānāṁ
-> sarveṣāṁ vaḥ sumadhyamā
-> apṛthag-dharma-śīleyaṁ
+> apṛthag-dharma-śīlānāṁ\
+> sarveṣāṁ vaḥ sumadhyamā\
+> apṛthag-dharma-śīleyaṁ\
 > bhūyāt patny arpitāśayā
 
 *apṛthak*—sin diferencias; *dharma*—ocupación; *śīlānām*—cuyo carácter; *sarveṣām*—todos; *vaḥ*—de ustedes; *su-madhyamā*—una muchacha con la cintura delgada; *apṛthak*—sin diferencias; *dharma*—ocupación; *śīlā*—de buen comportamiento; *iyam*—esta; *bhūyāt*—que ella sea; *patnī*—esposa; *arpita-āśayā*—completamente entregada.

@@ -1,14 +1,14 @@
 ### CC Adi 7.89-90
 
-> স্বেদ, কম্প, রোমাঞ্চাশ্রু, গদ্গদ, বৈবর্ণ্য ।
-> উন্মাদ, বিষাদ, ধৈর্য, গর্ব, হর্ষ, দৈন্য ॥৮৯॥
-> এত ভাবে প্রেমা ভক্তগণেরে নাচায় ।
+> স্বেদ, কম্প, রোমাঞ্চাশ্রু, গদ্গদ, বৈবর্ণ্য ।\
+> উন্মাদ, বিষাদ, ধৈর্য, গর্ব, হর্ষ, দৈন্য ॥৮৯॥\
+> এত ভাবে প্রেমা ভক্তগণেরে নাচায় ।\
 > কৃষ্ণের আনন্দামৃতসাগরে ভাসায় ॥৯০॥
 
-> sveda, kampa, romāñcāśru, gadgada, vaivarṇya
+> sveda, kampa, romāñcāśru, gadgada, vaivarṇya\
 > unmāda, viṣāda, dhairya, garva, harṣa, dainya
 
-> eta bhāve premā bhaktagaṇere nācāya
+> eta bhāve premā bhaktagaṇere nācāya\
 > kṛṣṇera ānandāmṛta-sāgare bhāsāya
 
 *sveda*—perspiration; *kampa*—trembling; *romāñca*—standing of the hairs on the body; *aśru*—tears; *gadgada*—faltering; *vaivarṇya*—changing of bodily color; *unmāda*—madness; *viṣāda*—melancholy; *dhairya*—patience; *garva*—pride; *harṣa*—joyfulness; *dainya*—humbleness; *eta*—in many ways; *bhāve*—in ecstasy; *premā*—love of Godhead; *bhakta-gaṇere*—unto the devotees; *nācāya*—causes to dance; *kṛṣṇera*—of Lord Kṛṣṇa; *ānanda*—transcendental bliss; *amṛta*—nectar; *sāgare*—in the ocean; *bhāsāya*—floats.

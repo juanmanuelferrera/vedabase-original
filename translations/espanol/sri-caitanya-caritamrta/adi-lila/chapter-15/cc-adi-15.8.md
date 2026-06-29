@@ -1,9 +1,9 @@
 ### CC Adi 15.8
 
-> এক দিন মাতার পদে করিয়া প্রণাম ।
+> এক দিন মাতার পদে করিয়া প্রণাম ।\
 > প্রভু কহে, — মাতা, মোরে দেহ এক দান ॥৮॥
 
-> eka dina mātāra pade kariyā praṇāma
+> eka dina mātāra pade kariyā praṇāma\
 > prabhu kahe,--mātā, more deha eka dāna
 
 *eka dina*—un día; *mātāra*—de la madre; *pade*—a los pies; *kariyā*—haciendo; *praṇāma*—reverencias; *prabhu*—el Señor; *kahe*—dijo; *mātā*—mi querida madre; *more*—a Mí; *deha*—da; *eka*—un; *dāna*—regalo.

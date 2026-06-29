@@ -1,9 +1,9 @@
 ### CC Madhya 16.134
 
-> পণ্ডিত কহে, — “সব দোষ আমার উপর ।
+> পণ্ডিত কহে, — “সব দোষ আমার উপর ।\
 > তোমা-সঙ্গে না যাইব, যাইব একেশ্বর ॥১৩৪॥
 
-> paṇḍita kahe,--"saba doṣa āmāra upara
+> paṇḍita kahe,--"saba doṣa āmāra upara\
 > tomā-saṅge nā yāiba, yāiba ekeśvara
 
 *paṇḍita kahe*—el Paṇḍita dijo; *saba*—toda; *doṣa*—falta; *āmāra upara*—sobre mí; *tomā-saṅge*—contigo; *nā yāiba*—no iré; *yāiba*—iré; *ekeśvara*—solo.

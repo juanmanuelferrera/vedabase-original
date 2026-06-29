@@ -1,11 +1,11 @@
 ### SB 8.7.46
 
-> निशम्य कर्म तच्छम्भोर्देवदेवस्य मीढुषः
+> निशम्य कर्म तच्छम्भोर्देवदेवस्य मीढुषः\
 > प्रजा दाक्षायणी ब्रह्मा वैकुण्ठश्च शशंसिरे ॥४६॥
 
-> praskannaṁ pibataḥ pāṇer
-> yat kiñcij jagṛhuḥ sma tat
-> vṛścikāhi-viṣauṣadhyo
+> praskannaṁ pibataḥ pāṇer\
+> yat kiñcij jagṛhuḥ sma tat\
+> vṛścikāhi-viṣauṣadhyo\
 > dandaśūkāś ca ye 'pare
 
 *praskannam*—salpicado en distintos puntos; *pibataḥ*—del Señor Śiva mientras bebía; *pāṇeḥ*—de la palma; *yat*—el cual; *kiñcit*—muy poco; *jagṛhuḥ*—aprovecharon la oportunidad para beber; *sma*—en verdad; *tat*—eso; *vṛścika*—los escorpiones; *ahi*—las cobras; *viṣa-auṣadhyaḥ*—las plantas venenosas; *dandaśūkāḥ ca*—y los animales de mordedura venenosa; *ye*—quienes; *apare*—otras entidades vivientes.

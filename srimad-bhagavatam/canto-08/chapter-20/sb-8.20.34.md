@@ -1,11 +1,11 @@
 ### SB 8.20.34
 
-> पदं द्वितीयं क्रमतस्त्रिविष्टपं न वै तृतीयाय तदीयमण्वपि
+> पदं द्वितीयं क्रमतस्त्रिविष्टपं न वै तृतीयाय तदीयमण्वपि\
 > उरुक्रमस्याङ्घ्रिरुपर्युपर्यथो महर्जनाभ्यां तपसः परं गतः ॥३४॥
 
-> padaṁ dvitīyaṁ kramatas triviṣṭapaṁ
-> na vai tṛtīyāya tadīyam aṇv api
-> urukramasyāṅghrir upary upary atho
+> padaṁ dvitīyaṁ kramatas triviṣṭapaṁ\
+> na vai tṛtīyāya tadīyam aṇv api\
+> urukramasyāṅghrir upary upary atho\
 > mahar-janābhyāṁ tapasaḥ paraṁ gataḥ
 
 *padam*—step; *dvitīyam*—second; *kramataḥ*—advancing; *tri-viṣṭapam*—all of the heavenly planets; *na*—not; *vai*—indeed; *tṛtīyāya*—for the third step; *tadīyam*—of the Lord; *aṇu api*—only a spot of land remained; *urukramasya*—of the Supreme Personality of Godhead, who performs uncommon activities; *aṅghriḥ*—steps occupying above and below; *upari upari*—higher and higher; *atho*—now; *mahaḥ-janābhyām*—than Maharloka and Janaloka; *tapasaḥ*—that Tapoloka; *param*—beyond that; *gataḥ*—approached.

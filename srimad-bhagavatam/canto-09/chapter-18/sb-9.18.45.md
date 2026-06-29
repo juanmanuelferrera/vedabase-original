@@ -1,11 +1,11 @@
 ### SB 9.18.45
 
-> इति प्रमुदितः पूरुः प्रत्यगृह्णाज्जरां पितुः
+> इति प्रमुदितः पूरुः प्रत्यगृह्णाज्जरां पितुः\
 > सोऽपि तद्वयसा कामान्यथावज्जुजुषे नृप ॥४५॥
 
-> iti pramuditaḥ pūruḥ
-> pratyagṛhṇāj jarāṁ pituḥ
-> so 'pi tad-vayasā kāmān
+> iti pramuditaḥ pūruḥ\
+> pratyagṛhṇāj jarāṁ pituḥ\
+> so 'pi tad-vayasā kāmān\
 > yathāvaj jujuṣe nṛpa
 
 *iti*—in this way; *pramuditaḥ*—very pleased; *pūruḥ*—Pūru; *pratyagṛhṇāt*—accepted; *jarām*—the old age and invalidity; *pituḥ*—of his father; *saḥ*—that father (Yayāti); *api*—also; *tat-vayasā*—by the youth of his son; *kāmān*—all desires; *yathā-vat*—as required; *jujuṣe*—satisfied; *nṛpa*—O Mahārāja Parīkṣit.

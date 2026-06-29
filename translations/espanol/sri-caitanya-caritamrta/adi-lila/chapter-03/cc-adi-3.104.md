@@ -1,11 +1,11 @@
 ### CC Adi 3.104
 
-> তুলসীদলমাত্রেণ জলস্য চুলুকেন বা ।
+> তুলসীদলমাত্রেণ জলস্য চুলুকেন বা ।\
 > বিক্রীণীতে স্বমাত্মানং ভক্তেভ্যো ভক্তবৎসলঃ ॥১০৪॥
 
-> tulasī-dala-mātreṇa
-> jalasya culukena vā
-> vikrīṇīte svam ātmānaṁ
+> tulasī-dala-mātreṇa\
+> jalasya culukena vā\
+> vikrīṇīte svam ātmānaṁ\
 > bhaktebhyo bhakta-vatsalaḥ
 
 *tulasī*—de *tulasī*; *dala*—una hoja; *mātreṇa*—con tan solo; *jalasya*—de agua; *culukena*—con un puñado; *vā*—y; *vikrīṇīte*—se vende; *svam*—Su propio; *ātmānam*—ser; *bhaktebhyaḥ*—a los devotos; *bhakta-vatsalaḥ*—el Señor Kṛṣṇa, que es afectuoso con Sus devotos.

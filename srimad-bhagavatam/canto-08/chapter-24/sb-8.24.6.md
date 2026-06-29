@@ -1,11 +1,11 @@
 ### SB 8.24.6
 
-> उच्चावचेषु भूतेषु चरन्वायुरिवेश्वरः
+> उच्चावचेषु भूतेषु चरन्वायुरिवेश्वरः\
 > नोच्चावचत्वं भजते निर्गुणत्वाद्धियो गुणैः ॥६॥
 
-> uccāvaceṣu bhūteṣu
-> caran vāyur iveśvaraḥ
-> noccāvacatvaṁ bhajate
+> uccāvaceṣu bhūteṣu\
+> caran vāyur iveśvaraḥ\
+> noccāvacatvaṁ bhajate\
 > nirguṇatvād dhiyo guṇaiḥ
 
 *ucca-avaceṣu*—having higher or lower bodily forms; *bhūteṣu*—among the living entities; *caran*—behaving; *vāyuḥ iva*—exactly like the air; *īśvaraḥ*—the Supreme Lord; *na*—not; *ucca-avacatvam*—the quality of higher or lower grades of life; *bhajate*—accepts; *nirguṇatvāt*—because of being transcendental, above all material qualities; *dhiyaḥ*—generally; *guṇaiḥ*—by the modes of material nature.

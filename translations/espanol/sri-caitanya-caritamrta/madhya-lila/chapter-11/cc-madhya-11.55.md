@@ -1,9 +1,9 @@
 ### CC Madhya 11.55
 
-> premāveśe puṣpodyāne karibena praveśa
+> premāveśe puṣpodyāne karibena praveśa\
 > sei-kāle ekale tumi chāḍi' rāja-veśa
 
-> premāveśe puṣpodyāne karibena praveśa
+> premāveśe puṣpodyāne karibena praveśa\
 > sei-kāle ekale tumi chāḍi' rāja-veśa
 
 *prema-āveśe*—en amor extático; *puṣpa-udyāne*—en el jardín de Guṇḍicā, donde el Señor permanece; *karibena praveśa*—entrará; *sei-kāle*—en ese momento; *ekale*—solo; *tumi*—tú; *chāḍi'*—abandonando; *rāja-veśa*—el atuendo real.

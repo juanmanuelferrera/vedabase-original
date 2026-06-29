@@ -1,9 +1,9 @@
 ### CC Madhya 1.178
 
-> মোরে কেন পুছ, তুমি পুছ আপন-মন ।
+> মোরে কেন পুছ, তুমি পুছ আপন-মন ।\
 > তুমি নরাধিপ হও বিষ্ণু-অংশ সম ॥১৭৮॥
 
-> more kena pucha, tumi pucha āpana-mana
+> more kena pucha, tumi pucha āpana-mana\
 > tumi narādhipa hao viṣṇu-aṁśa sama
 
 *more*—unto me; *kena*—why; *pucha*—you inquire; *tumi*—you; *pucha*—inquire; *āpana-mana*—your own mind; *tumi*—you; *nara-adhipa*—King of the people; *hao*—you are; *viṣṇu-aṁśa sama*—representative of the Supreme Personality of Godhead.

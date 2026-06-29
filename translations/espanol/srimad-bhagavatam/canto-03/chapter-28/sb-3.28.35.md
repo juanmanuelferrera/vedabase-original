@@ -1,13 +1,13 @@
 ### SB 3.28.35
 
-> मुक्ताश्रयं यर्हि निर्विषयं विरक्तं
-> निर्वाणमृच्छति मनः सहसा यथार्चिः ।
-> आत्मानमत्र पुरुषोऽव्यवधानमेकम्
+> मुक्ताश्रयं यर्हि निर्विषयं विरक्तं\
+> निर्वाणमृच्छति मनः सहसा यथार्चिः ।\
+> आत्मानमत्र पुरुषोऽव्यवधानमेकम्\
 > अन्वीक्षते प्रतिनिवृत्तगुणप्रवाहः ॥३५॥
 
-> muktāśrayaṁ yarhi nirviṣayaṁ viraktaṁ
-> nirvāṇam ṛcchati manaḥ sahasā yathārciḥ
-> ātmānam atra puruṣo 'vyavadhānam ekam
+> muktāśrayaṁ yarhi nirviṣayaṁ viraktaṁ\
+> nirvāṇam ṛcchati manaḥ sahasā yathārciḥ\
+> ātmānam atra puruṣo 'vyavadhānam ekam\
 > anvīkṣate pratinivṛtta-guṇa-pravāhaḥ
 
 *mukta-āśrayam*—situada en la liberación; *yarhi*—en el momento en que; *nirviṣayam*—desapegada de los objetos de los sentidos; *viraktam*—indiferente; *nirvāṇam*—extinción; *ṛcchati*—obtiene; *manaḥ*—la mente; *sahasā*—inmediatamente; *yathā*—como; *arciḥ*—la llama; *ātmānam*—la mente; *atra*—en ese momento; *puruṣaḥ*—una persona; *avyavadhānam*—sin separación; *ekam*—una; *anvīkṣate*—percibe; *pratinivṛtta*—liberada; *guṇa-pravāhaḥ*—del flujo de cualidades materiales.

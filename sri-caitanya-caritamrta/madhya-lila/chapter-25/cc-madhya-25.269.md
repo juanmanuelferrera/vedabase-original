@@ -1,9 +1,9 @@
 ### CC Madhya 25.269
 
-> শ্রদ্ধা করি’ এই লীলা শুন, ভক্তগণ ।
+> শ্রদ্ধা করি’ এই লীলা শুন, ভক্তগণ ।\
 > ইহার প্ৰসাদে পাইবা চৈতন্য-চরণ ॥২৬৯॥
 
-> śraddhā kari' ei līlā śuna, bhakta-gaṇa
+> śraddhā kari' ei līlā śuna, bhakta-gaṇa\
 > ihāra prasāde pāibā caitanya-caraṇa
 
 *śraddhā kari'*—having faith and love; *ei līlā*—these pastimes of Śrī Caitanya Mahāprabhu; *śuna*—hear; *bhakta-gaṇa*—O devotees; *ihāra prasāde*—by the grace of this transcendental hearing; *pāibā*—you will get; *caitanya-caraṇa*—the lotus feet of Śrī Caitanya Mahāprabhu.

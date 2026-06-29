@@ -1,11 +1,11 @@
 ### SB 7.5.48
 
-> इति तच्चिन्तया किञ्चिन्म्लानश्रियमधोमुखम
+> इति तच्चिन्तया किञ्चिन्म्लानश्रियमधोमुखम\
 > शण्डामर्कावौशनसौ विविक्त इति होचतुः ॥४८॥
 
-> iti tac-cintayā kiñcin
-> mlāna-śriyam adho-mukham
-> śaṇḍāmarkāv auśanasau
+> iti tac-cintayā kiñcin\
+> mlāna-śriyam adho-mukham\
+> śaṇḍāmarkāv auśanasau\
 > vivikta iti hocatuḥ
 
 *iti*—thus; *tat-cintayā*—with full anxiety because of Prahlāda Mahārāja's position; *kiñcit*—somewhat; *mlāna*—lost; *śriyam*—bodily luster; *adhaḥ-mukham*—his face downward; *śaṇḍa-amarkau*—Ṣaṇḍa and Amarka; *auśanasau*—sons of Śukrācārya; *vivikte*—in a secret place; *iti*—thus; *ha*—indeed; *ūcatuḥ*—spoke.

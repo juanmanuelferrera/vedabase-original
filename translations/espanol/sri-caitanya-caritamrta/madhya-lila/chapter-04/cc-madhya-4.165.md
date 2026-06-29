@@ -1,9 +1,9 @@
 ### CC Madhya 4.165
 
-> গ্রীষ্মকালে গোপীনাথ পরিবে চন্দন ।
+> গ্রীষ্মকালে গোপীনাথ পরিবে চন্দন ।\
 > শুনি’ আনন্দিত হৈল সেবকের মন ॥১৬৫॥
 
-> grīṣma-kāle gopīnātha paribe candana
+> grīṣma-kāle gopīnātha paribe candana\
 > śuni' ānandita haila sevakera mana
 
 *grīṣma-kāle*—en el verano; *gopīnātha*—el Señor Gopīnātha; *paribe*—se pondrá; *candana*—pasta de sándalo; *śuni'*—al oír; *ānandita*—complacidos; *haila*—quedaron; *sevakera*—de los sirvientes; *mana*—las mentes.

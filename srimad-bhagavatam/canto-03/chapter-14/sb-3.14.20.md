@@ -1,11 +1,11 @@
 ### SB 3.14.20
 
-> यामाश्रित्येन्द्रियारातीन्दुर्जयानितराश्रमैः ।
+> यामाश्रित्येन्द्रियारातीन्दुर्जयानितराश्रमैः ।\
 > वयं जयेम हेलाभिर्दस्यून्दुर्गपतिर्यथा ॥२०॥
 
-> yām āśrityendriyārātīn
-> durjayān itarāśramaiḥ
-> vayaṁ jayema helābhir
+> yām āśrityendriyārātīn\
+> durjayān itarāśramaiḥ\
+> vayaṁ jayema helābhir\
 > dasyūn durga-patir yathā
 
 *yām*—whom; *āśritya*—taking shelter of; *indriya*—senses; *arātīn*—enemies; *durjayān*—difficult to conquer; *itara*—other than the householders; *āśramaiḥ*—by orders of society; *vayam*—we; *jayema*—can conquer; *helābhiḥ*—easily; *dasyūn*—invading plunderers; *durga-patiḥ*—a fort commander; *yathā*—as.

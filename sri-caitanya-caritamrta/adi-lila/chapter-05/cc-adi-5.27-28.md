@@ -1,14 +1,14 @@
 ### CC Adi 5.27-28
 
-> স্বরূপবিগ্রহ কৃষ্ণের কেবল দ্বিভুজ ।
-> নারায়ণরূপে সেই তনু চতুর্ভুজ ॥২৭॥
-> শঙ্খ-চক্র-গদা-পদ্ম, মহৈশ্বর্যময় ।
+> স্বরূপবিগ্রহ কৃষ্ণের কেবল দ্বিভুজ ।\
+> নারায়ণরূপে সেই তনু চতুর্ভুজ ॥২৭॥\
+> শঙ্খ-চক্র-গদা-পদ্ম, মহৈশ্বর্যময় ।\
 > শ্রী-ভূ-নীলা-শক্তি যাঁর চরণ সেবয় ॥২৮॥
 
-> svarūpa-vigraha kṛṣṇera kevala dvi-bhuja
+> svarūpa-vigraha kṛṣṇera kevala dvi-bhuja\
 > nārāyaṇa-rūpe sei tanu catur-bhuja
 
-> śaṅkha-cakra-gadā-padma, mahaiśvarya-maya
+> śaṅkha-cakra-gadā-padma, mahaiśvarya-maya\
 > śrī-bhū-nīlā-śakti yāṅra caraṇa sevaya
 
 *svarūpa-vigraha*—personal form; *kṛṣṇera*—of Lord Kṛṣṇa; *kevala*—only; *dvi-bhuja*—two hands; *nārāyaṇa-rūpe*—in the form of Lord Nārāyaṇa; *sei*—that; *tanu*—body; *catuḥ-bhuja*—four-handed; *śaṅkha-cakra*—conchshell and disc; *gadā*—club; *padma*—lotus flower; *mahā*—very great; *aiśvarya-maya*—full of opulence; *śrī*—named *śrī*; *bhū*—named *bhū*; *nīlā*—named *nīlā*; *śakti*—energies; *yāṅra*—whose; *caraṇa sevaya*—serve the lotus feet.

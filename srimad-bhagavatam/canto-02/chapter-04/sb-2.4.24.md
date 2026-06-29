@@ -1,11 +1,11 @@
 ### SB 2.4.24
 
-> नमस्तस्मै भगवते वासुदेवाय वेधसे ।
+> नमस्तस्मै भगवते वासुदेवाय वेधसे ।\
 > पपुर्ज्ञानमयं सौम्या यन्मुखाम्बुरुहासवम् ॥२४॥
 
-> namas tasmai bhagavate
-> vāsudevāya vedhase
-> papur jñānam ayaṁ saumyā
+> namas tasmai bhagavate\
+> vāsudevāya vedhase\
+> papur jñānam ayaṁ saumyā\
 > yan-mukhāmburuhāsavam
 
 *namaḥ*—my obeisances; *tasmai*—unto Him; *bhagavate*—unto the Personality of Godhead; *vāsudevāya*—unto Vāsudeva or His incarnations; *vedhase*—the compiler of the Vedic literatures; *papuḥ*—drunk; *jñānam*—knowledge; *ayam*—this Vedic knowledge; *saumyāḥ*—the devotees, especially the consorts of Lord Kṛṣṇa; *yat*—from whose; *mukha-amburuha*—the lotuslike mouth; *āsavam*—nectar from His mouth.

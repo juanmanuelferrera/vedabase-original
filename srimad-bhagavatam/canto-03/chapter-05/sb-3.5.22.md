@@ -1,11 +1,11 @@
 ### SB 3.5.22
 
-> अथ ते भगवल्लीला योगमायोरुबृंहिताः ।
+> अथ ते भगवल्लीला योगमायोरुबृंहिताः ।\
 > विश्वस्थित्युद्भवान्तार्था वर्णयाम्यनुपूर्वशः ॥२२॥
 
-> atha te bhagaval-līlā
-> yoga-māyorubṛṁhitāḥ
-> viśva-sthity-udbhavāntārthā
+> atha te bhagaval-līlā\
+> yoga-māyorubṛṁhitāḥ\
+> viśva-sthity-udbhavāntārthā\
 > varṇayāmy anupūrvaśaḥ
 
 *atha*—therefore; *te*—unto you; *bhagavat*—pertaining to the Personality of Godhead; *līlāḥ*—pastimes; *yoga-māyā*—energy of the Lord; *uru*—greatly; *bṛṁhitāḥ*—extended by; *viśva*—of the cosmic world; *sthiti*—maintenance; *udbhava*—creation; *anta*—dissolution; *arthāḥ*—purpose; *varṇayāmi*—I shall describe; *anupūrvaśaḥ*—systematically.

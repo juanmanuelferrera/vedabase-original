@@ -1,9 +1,9 @@
 ### CC Antya 6.316
 
-> সিংহদ্বারে গাভী-আগে সেই ভাত ডারে ।
+> সিংহদ্বারে গাভী-আগে সেই ভাত ডারে ।\
 > সড়া-গন্ধে তৈলঙ্গী-গাই খাইতে না পারে ॥৩১৬॥
 
-> siṁha-dvāre gābhī-āge sei bhāta ḍāre
+> siṁha-dvāre gābhī-āge sei bhāta ḍāre\
 > saḍā-gandhe tailaṅgī-gāi khāite nā pāre
 
 *siṁha-dvāre*—en la puerta conocida como Siṁha-dvāra; *gābhī-āge*—delante de las vacas; *sei bhāta*—ese alimento; *ḍāre*—lo arrojan; *saḍā-gandhe*—a causa del olor a podrido; *tailaṅgī-gāi*—las vacas de Tailaṅga; *khāite nā pāre*—no pueden comerlo.

@@ -1,9 +1,9 @@
 ### CC Adi 14.6
 
-> বাল্যলীলায় আগে প্রভুর উত্তান শয়ন ।
+> বাল্যলীলায় আগে প্রভুর উত্তান শয়ন ।\
 > পিতা-মাতায় দেখাইল চিহ্ন চরণ ॥৬॥
 
-> bālya-līlāya āge prabhura uttāna śayana
+> bālya-līlāya āge prabhura uttāna śayana\
 > pitā-mātāya dekhāila cihna caraṇa
 
 *bālya-līlāya*—en Sus pasatiempos como niño; *āge*—primero; *prabhura*—del Señor; *uttāna*—girando el cuerpo; *śayana*—estando acostado; *pitā-mātāya*—a los padres; *dekhāila*—mostró; *cihna*—marcas; *caraṇa*—de los pies de loto.

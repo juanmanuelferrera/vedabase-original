@@ -1,9 +1,9 @@
 ### CC Madhya 8.105
 
-> গোপীগণের রাস-নৃত্য-মণ্ডলী ছাড়িয়া ৷
+> গোপীগণের রাস-নৃত্য-মণ্ডলী ছাড়িয়া ৷\
 > রাধা চাহি’ বনে ফিরে বিলাপ করিয়া ৷৷ ১০৫ ৷৷ ॥১০৫॥
 
-> gopī-gaṇera rāsa-nṛtya-maṇḍalī chāḍiyā
+> gopī-gaṇera rāsa-nṛtya-maṇḍalī chāḍiyā\
 > rādhā cāhi' vane phire vilāpa kariyā
 
 *gopī-gaṇera*—de las gopīs; *rāsa-nṛtya*—de la danza del rāsa; *maṇḍalī*—el círculo; *chāḍiyā*—abandonando; *rādhā*—Śrīmatī Rādhārāṇī; *cāhi'*—deseando; *vane*—en el bosque; *phire*—vaga; *vilāpa*—lamentación; *kariyā*—haciendo.

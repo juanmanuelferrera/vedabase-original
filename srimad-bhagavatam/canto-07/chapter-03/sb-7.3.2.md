@@ -1,11 +1,11 @@
 ### SB 7.3.2
 
-> स तेपे मन्दरद्रोण्यां तपः परमदारुणम
+> स तेपे मन्दरद्रोण्यां तपः परमदारुणम\
 > ऊर्ध्वबाहुर्नभोदृष्टिः पादाङ्गुष्ठाश्रितावनिः ॥२॥
 
-> sa tepe mandara-droṇyāṁ
-> tapaḥ parama-dāruṇam
-> ūrdhva-bāhur nabho-dṛṣṭiḥ
+> sa tepe mandara-droṇyāṁ\
+> tapaḥ parama-dāruṇam\
+> ūrdhva-bāhur nabho-dṛṣṭiḥ\
 > pādāṅguṣṭhāśritāvaniḥ
 
 *saḥ*—he (Hiraṇyakaśipu); *tepe*—performed; *mandara-droṇyām*—in a valley of Mandara Hill; *tapaḥ*—austerity; *parama*—most; *dāruṇam*—difficult; *ūrdhva*—raising; *bāhuḥ*—arms; *nabhaḥ*—toward the sky; *dṛṣṭiḥ*—his vision; *pāda-aṅguṣṭha*—with the big toes of his feet; *āśrita*—resting on; *avaniḥ*—the ground.

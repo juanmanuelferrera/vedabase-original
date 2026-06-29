@@ -1,9 +1,9 @@
 ### CC Madhya 18.59
 
-> কিছু দেবমূর্তি হয় পর্বত-উপরে ?
+> কিছু দেবমূর্তি হয় পর্বত-উপরে ?\
 > লোক কহে, — মূর্তি হয় গোফার ভিতরে ॥৫৯॥
 
-> kichu deva-mūrti haya parvata-upare?
+> kichu deva-mūrti haya parvata-upare?\
 > loka kahe,--mūrti haya gophāra bhitare
 
 *kichu*—algunas; *deva-mūrti*—deidades; *haya*—¿hay?; *parvata-upare*—en la cima de la colina; *loka kahe*—la gente dijo; *mūrti haya*—hay deidades; *gophāra bhitare*—dentro de una cueva.

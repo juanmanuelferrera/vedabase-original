@@ -1,14 +1,14 @@
 ### CC Adi 6.58-59
 
-> শুন উদ্ধব, সত্য, কৃষ্ণ — আমার তনয় ।
-> তেঁহো ঈশ্বর — হেন যদি তোমার মনে লয় ॥৫৮॥
-> তথাপি তাঁহাতে রহু মোর মনোবৃত্তি ।
+> শুন উদ্ধব, সত্য, কৃষ্ণ — আমার তনয় ।\
+> তেঁহো ঈশ্বর — হেন যদি তোমার মনে লয় ॥৫৮॥\
+> তথাপি তাঁহাতে রহু মোর মনোবৃত্তি ।\
 > তোমার ঈশ্বর-কৃষ্ণে হউক মোর মতি ॥৫৯॥
 
-> śuna uddhava, satya, kṛṣṇa—āmāra tanaya
+> śuna uddhava, satya, kṛṣṇa—āmāra tanaya\
 > teṅho īśvara—hena yadi tomāra mane laya
 
-> tathāpi tāṅhāte rahu mora mano-vṛtti
+> tathāpi tāṅhāte rahu mora mano-vṛtti\
 > tomāra īśvara-kṛṣṇe hauka mora mati
 
 *śuna uddhava*—mi querido Uddhava, te ruego que me escuches; *satya*—la verdad; *kṛṣṇa*—Śrī Kṛṣṇa; *āmāra tanaya*—mi hijo; *teṅho*—Él; *īśvara*—la Suprema Personalidad de Dios; *hena*—así pues; *yadi*—si; *tomāra*—tu; *mane*—la mente; *laya*—toma; *tathāpi*—aun así; *tāṅhāte*—a Él; *rahu*—que haya; *mora*—mi; *manaḥ-vṛtti*—funciones mentales; *tomāra*—tu; *īśvara-kṛṣṇe*—a Kṛṣṇa, el Señor Supremo; *hauka*—que haya; *mora*—mi; *mati*—atención.

@@ -1,11 +1,11 @@
 ### SB 4.6.33
 
-> तस्मिन्महायोगमये मुमुक्षुशरणे सुराः ।
+> तस्मिन्महायोगमये मुमुक्षुशरणे सुराः ।\
 > ददृशुः शिवमासीनं त्यक्तामर्षमिवान्तकम् ॥३३॥
 
-> tasmin mahā-yogamaye
-> mumukṣu-śaraṇe surāḥ
-> dadṛśuḥ śivam āsīnaṁ
+> tasmin mahā-yogamaye\
+> mumukṣu-śaraṇe surāḥ\
+> dadṛśuḥ śivam āsīnaṁ\
 > tyaktāmarṣam ivāntakam
 
 *tasmin*—bajo aquel árbol; *mahā-yoga-maye*—habiendo muchos sabios ocupados en meditar en el Supremo; *mumukṣu*—de los que desean la liberación; *śaraṇe*—el refugio; *surāḥ*—los semidioses; *dadṛśuḥ*—vieron; *śivam*—al Señor Śiva; *āsīnam*—sentado; *tyakta-amarṣam*—habiendo abandonado la ira; *iva*—como; *antakam*—el tiempo eterno.

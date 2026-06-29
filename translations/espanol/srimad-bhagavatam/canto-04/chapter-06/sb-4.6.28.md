@@ -1,11 +1,11 @@
 ### SB 4.6.28
 
-> हित्वा यक्षेश्वरपुरीं वनं सौगन्धिकं च तत् ।
+> हित्वा यक्षेश्वरपुरीं वनं सौगन्धिकं च तत् ।\
 > द्रुमैः कामदुघैर्हृद्यं चित्रमाल्यफलच्छदैः ॥२८॥
 
-> hitvā yakṣeśvara-purīṁ
-> vanaṁ saugandhikaṁ ca tat
-> drumaiḥ kāma-dughair hṛdyaṁ
+> hitvā yakṣeśvara-purīṁ\
+> vanaṁ saugandhikaṁ ca tat\
+> drumaiḥ kāma-dughair hṛdyaṁ\
 > citra-mālya-phala-cchadaiḥ
 
 *hitvā*—sobrevolar; *yakṣa-īśvara*—el señor de los *yakṣas* (Kuvera); *purīm*—la morada; *vanam*—el bosque; *saugandhikam*—de nombre Saugandhika; *ca*—y; *tat*—ese; *drumaiḥ*—con árboles; *kāma-dughaiḥ*—cumplidores de deseos; *hṛdyam*—atractivas; *citra*—variadas; *mālya*—flores; *phala*—frutas; *chadaiḥ*—hojas.

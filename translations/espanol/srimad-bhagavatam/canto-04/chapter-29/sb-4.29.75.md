@@ -1,11 +1,11 @@
 ### SB 4.29.75
 
-> अनेन पुरुषो देहानुपादत्ते विमुञ्चति ।
+> अनेन पुरुषो देहानुपादत्ते विमुञ्चति ।\
 > हर्षं शोकं भयं दुःखं सुखं चानेन विन्दति ॥७५॥
 
-> anena puruṣo dehān
-> upādatte vimuñcati
-> harṣaṁ śokaṁ bhayaṁ duḥkhaṁ
+> anena puruṣo dehān\
+> upādatte vimuñcati\
+> harṣaṁ śokaṁ bhayaṁ duḥkhaṁ\
 > sukhaṁ cānena vindati
 
 *anena*—con este proceso; *puruṣaḥ*—la entidad viviente; *dehān*—cuerpos densos; *upādatte*—obtiene; *vimuñcati*—abandona; *harṣam*—disfrute; *śokam*—lamentación; *bhayam*—temor; *duḥkham*—desdicha; *sukham*—felicidad; *ca*—también; *anena*—con el cuerpo denso; *vindati*—disfruta.

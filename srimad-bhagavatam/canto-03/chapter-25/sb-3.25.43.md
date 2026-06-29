@@ -1,11 +1,11 @@
 ### SB 3.25.43
 
-> ज्ञानवैराग्ययुक्तेन भक्तियोगेन योगिनः ।
+> ज्ञानवैराग्ययुक्तेन भक्तियोगेन योगिनः ।\
 > क्षेमाय पादमूलं मे प्रविशन्त्यकुतोभयम् ॥४३॥
 
-> jñāna-vairāgya-yuktena
-> bhakti-yogena yoginaḥ
-> kṣemāya pāda-mūlaṁ me
+> jñāna-vairāgya-yuktena\
+> bhakti-yogena yoginaḥ\
+> kṣemāya pāda-mūlaṁ me\
 > praviśanty akuto-bhayam
 
 *jñāna*—with knowledge; *vairāgya*—and renunciation; *yuktena*—equipped; *bhakti-yogena*—by devotional service; *yoginaḥ*—the *yogīs*; *kṣemāya*—for eternal benefit; *pāda-mūlam*—feet; *me*—My; *praviśanti*—take shelter of; *akutaḥ-bhayam*—without fear.

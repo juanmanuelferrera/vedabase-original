@@ -1,11 +1,11 @@
 ### SB 8.20.21
 
-> तद्वामनं रूपमवर्धताद्भुतं हरेरनन्तस्य गुणत्रयात्मकम
+> तद्वामनं रूपमवर्धताद्भुतं हरेरनन्तस्य गुणत्रयात्मकम\
 > भूः खं दिशो द्यौर्विवराः पयोधयस्तिर्यङ्नृदेवा ऋषयो यदासत ॥२१॥
 
-> tad vāmanaṁ rūpam avardhatādbhutaṁ
-> harer anantasya guṇa-trayātmakam
-> bhūḥ khaṁ diśo dyaur vivarāḥ payodhayas
+> tad vāmanaṁ rūpam avardhatādbhutaṁ\
+> harer anantasya guṇa-trayātmakam\
+> bhūḥ khaṁ diśo dyaur vivarāḥ payodhayas\
 > tiryaṅ-nṛ-devā ṛṣayo yad-āsata
 
 *tat*—that; *vāmanam*—incarnation of Lord Vāmana; *rūpam*—form; *avardhata*—began to increase more and more; *adbhutam*—certainly very wonderful; *hareḥ*—of the Supreme Personality of Godhead; *anantasya*—of the unlimited; *guṇa-traya-ātmakam*—whose body is expanded by the material energy, consisting of three modes (goodness, passion and ignorance); *bhūḥ*—the land; *kham*—the sky; *diśaḥ*—all directions; *dyauḥ*—the planetary systems; *vivarāḥ*—different holes of the universe; *payodhayaḥ*—great seas and oceans; *tiryak*—lower animals, birds and beasts; *nṛ*—human beings; *devāḥ*—demigods; *ṛṣayaḥ*—great saintly persons; *yat*—wherein; *āsata*—lived.

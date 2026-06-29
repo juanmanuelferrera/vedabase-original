@@ -1,9 +1,9 @@
 ### CC Madhya 15.12
 
-> এইমত অন্যোন্যে করেন নমস্কার ।
+> এইমত অন্যোন্যে করেন নমস্কার ।\
 > প্রভুরে নিমন্ত্রণ করে আচার্য বার বার ॥১২॥
 
-> ei-mata anyonye karena namaskāra
+> ei-mata anyonye karena namaskāra\
 > prabhure nimantraṇa kare ācārya bāra bāra
 
 *ei-mata*—in this way; *anyonye*—to one another; *karena*—offer; *namaskāra*—obeisances; *prabhure*—unto Lord Caitanya Mahāprabhu; *nimantraṇa*—invitation; *kare*—does; *ācārya*—Advaita Ācārya; *bāra bāra*—again and again.

@@ -1,9 +1,9 @@
 ### CC Adi 5.94
 
-> সেই ত’ পুরুষ অনন্তব্রহ্মাণ্ড সৃজিয়া ।
+> সেই ত’ পুরুষ অনন্তব্রহ্মাণ্ড সৃজিয়া ।\
 > সব অণ্ডে প্রবেশিলা বহু-মূর্তি হঞা ॥৯৪॥
 
-> sei ta' puruṣa ananta-brahmāṇḍa sṛjiyā
+> sei ta' puruṣa ananta-brahmāṇḍa sṛjiyā\
 > saba aṇḍe praveśilā bahu-mūrti hañā
 
 *sei*—that; *ta'*—certainly; *puruṣa*—incarnation; *ananta-brahmāṇḍa*—innumerable universes; *sṛjiyā*—creating; *saba*—all; *aṇḍe*—in the egglike universes; *praveśilā*—entered; *bahu-mūrti hañā*—taking multifarious forms.

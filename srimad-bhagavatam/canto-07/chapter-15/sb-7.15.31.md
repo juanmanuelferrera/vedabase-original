@@ -1,11 +1,11 @@
 ### SB 7.15.31
 
-> देशे शुचौ समे राजन्संस्थाप्यासनमात्मनः
+> देशे शुचौ समे राजन्संस्थाप्यासनमात्मनः\
 > स्थिरं सुखं समं तस्मिन्नासीतर्ज्वङ्ग ओमिति ॥३१॥
 
-> deśe śucau same rājan
-> saṁsthāpyāsanam ātmanaḥ
-> sthiraṁ sukhaṁ samaṁ tasminn
+> deśe śucau same rājan\
+> saṁsthāpyāsanam ātmanaḥ\
+> sthiraṁ sukhaṁ samaṁ tasminn\
 > āsītarjv-aṅga om iti
 
 *deśe*—in a place; *śucau*—very sacred; *same*—level; *rājan*—O King; *saṁsthāpya*—placing; *āsanam*—on the seat; *ātmanaḥ*—one's self; *sthiram*—very steady; *sukham*—comfortably; *samam*—equipoised; *tasmin*—on that sitting place; *āsīta*—one should sit down; *ṛju-aṅgaḥ*—the body perpendicularly straight; *oṁ*—The Vedic *mantra praṇava*; *iti*—in this way.

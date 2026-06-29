@@ -1,11 +1,11 @@
 ### SB 5.10.18
 
-> तद्ब्रूह्यसङ्गो जडवन्निगूढ विज्ञआनवीर्यो विचरस्यपारः
+> तद्ब्रूह्यसङ्गो जडवन्निगूढ विज्ञआनवीर्यो विचरस्यपारः\
 > वचांसि योगग्रथितानि साधो न नः क्षमन्ते मनसापि भेत्तुम ॥१८॥
 
-> tad brūhy asaṅgo jaḍavan nigūḍha-
-> vijñāna-vīryo vicarasy apāraḥ
-> vacāṁsi yoga-grathitāni sādho
+> tad brūhy asaṅgo jaḍavan nigūḍha-\
+> vijñāna-vīryo vicarasy apāraḥ\
+> vacāṁsi yoga-grathitāni sādho\
 > na naḥ kṣamante manasāpi bhettum
 
 *tat*—por lo tanto; *brūhi*—por favor, habla; *asaṅgaḥ*—que no tienes relación con el mundo material; *jaḍa-vat*—con el aspecto de un sordomudo; *nigūḍha*—completamente oculto; *vijñāna-vīryaḥ*—que tienes pleno conocimiento de la ciencia espiritual y que, por lo tanto, eres muy poderoso; *vicarasi*—tú vagas; *apāraḥ*—que posees ilimitadas glorias espirituales; *vacāṁsi*—las palabras que has pronunciado; *yoga-grathitāni*—que llevan el significado completo del *yoga* místico; *sādho*—¡oh, gran persona santa!; *na*—no; *naḥ*—de nosotros; *kṣamante*—podemos; *manasā api*—ni siquiera con la mente; *bhettum*—entender mediante el estudio analítico.

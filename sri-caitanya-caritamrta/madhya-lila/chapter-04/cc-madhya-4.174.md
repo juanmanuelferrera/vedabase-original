@@ -1,9 +1,9 @@
 ### CC Madhya 4.174
 
-> যাঁর লাগি’ গোপীনাথ ক্ষীর কৈল চুরি ।
+> যাঁর লাগি’ গোপীনাথ ক্ষীর কৈল চুরি ।\
 > অতএব নাম হৈল ‘ক্ষীরচোরা’ করি’ ॥১৭৪॥
 
-> yāṅra lāgi' gopīnātha kṣīra kaila curi
+> yāṅra lāgi' gopīnātha kṣīra kaila curi\
 > ataeva nāma haila 'kṣīra-corā' kari'
 
 *yāṅra*—whom; *lāgi'*—on account of; *gopīnātha*—Lord Gopīnātha; *kṣīra*—sweet rice; *kaila*—did; *curi*—steal; *ataeva*—therefore; *nāma*—the name; *haila*—became; *kṣīra-corā*—the thief of sweet rice; *kari'*—making.

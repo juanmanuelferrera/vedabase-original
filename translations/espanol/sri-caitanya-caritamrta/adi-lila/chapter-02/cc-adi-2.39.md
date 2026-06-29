@@ -1,9 +1,9 @@
 ### CC Adi 2.39
 
-> অতএব তুমি হও মূল নারায়ণ ।
+> অতএব তুমি হও মূল নারায়ণ ।\
 > এই এক হেতু, শুন দ্বিতীয় কারণ ॥৩৯॥
 
-> ataeva tumi hao mūla nārāyaṇa
+> ataeva tumi hao mūla nārāyaṇa\
 > ei eka hetu, śuna dvitīya kāraṇa
 
 *ataeva*—por consiguiente; *tumi*—Tú; *hao*—eres; *mūla*—el original; *nārāyaṇa*—Nārāyaṇa; *ei*—esta; *eka*—una; *hetu*—razón; *śuna*—por favor escucha; *dvitīya*—la segunda; *kāraṇa*—razón.

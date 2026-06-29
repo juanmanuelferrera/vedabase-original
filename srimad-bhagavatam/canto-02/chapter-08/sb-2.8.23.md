@@ -1,11 +1,11 @@
 ### SB 2.8.23
 
-> यथात्मतन्त्रो भगवान्विक्रीडत्यात्ममायया ।
+> यथात्मतन्त्रो भगवान्विक्रीडत्यात्ममायया ।\
 > विसृज्य वा यथा मायामुदास्ते साक्षिवद्विभुः ॥२३॥
 
-> yathātma-tantro bhagavān
-> vikrīḍaty ātma-māyayā
-> visṛjya vā yathā māyām
+> yathātma-tantro bhagavān\
+> vikrīḍaty ātma-māyayā\
+> visṛjya vā yathā māyām\
 > udāste sākṣivad vibhuḥ
 
 *yathā*—as; *ātma-tantraḥ*—independent; *bhagavān*—the Personality of Godhead; *vikrīḍati*—enjoys His pastimes; *ātma-māyayā*—by His internal potency; *visṛjya*—giving up; *vā*—as also; *yathā*—as He desires; *māyām*—the external potency; *udāste*—remains; *sākṣivat*—just as the witness; *vibhuḥ*—the almighty.

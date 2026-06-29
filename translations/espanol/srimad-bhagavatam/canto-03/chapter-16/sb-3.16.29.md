@@ -1,11 +1,11 @@
 ### SB 3.16.29
 
-> भगवाननुगावाह यातं मा भैष्टमस्तु शम् ।
+> भगवाननुगावाह यातं मा भैष्टमस्तु शम् ।\
 > ब्रह्मतेजः समर्थोऽपि हन्तुं नेच्छे मतं तु मे ॥२९॥
 
-> bhagavān anugāv āha
-> yātaṁ mā bhaiṣṭam astu śam
-> brahma-tejaḥ samartho 'pi
+> bhagavān anugāv āha\
+> yātaṁ mā bhaiṣṭam astu śam\
+> brahma-tejaḥ samartho 'pi\
 > hantuṁ necche mataṁ tu me
 
 *bhagavān*—la Suprema Personalidad de Dios; *anugau*—a Sus dos asistentes; *āha*—dijo; *yātam*—partan de este lugar; *mā*—que no haya; *bhaiṣṭam*—temor; *astu*—que haya; *śam*—felicidad; *brahma*—de un *brāhmaṇa*; *tejaḥ*—la maldición; *samarthaḥ*—pudiendo; *api*—aunque; *hantum*—anular; *na icche*—no deseo; *matam*—aprobada; *tu*—por el contrario; *me*—por Mí.

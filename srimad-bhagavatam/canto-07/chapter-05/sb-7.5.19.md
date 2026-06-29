@@ -1,11 +1,11 @@
 ### SB 7.5.19
 
-> तत एनं गुरुरज्ञआत्वा ज्ञआतज्ञएयचतुष्टयम
+> तत एनं गुरुरज्ञआत्वा ज्ञआतज्ञएयचतुष्टयम\
 > दैत्येन्द्रं दर्शयामास मातृमृष्टमलङ्कृतम ॥१९॥
 
-> tata enaṁ gurur jñātvā
-> jñāta-jñeya-catuṣṭayam
-> daityendraṁ darśayām āsa
+> tata enaṁ gurur jñātvā\
+> jñāta-jñeya-catuṣṭayam\
+> daityendraṁ darśayām āsa\
 > mātṛ-mṛṣṭam alaṅkṛtam
 
 *tataḥ*—thereafter; *enam*—him (Prahlāda Mahārāja); *guruḥ*—his teachers; *jñātvā*—knowing; *jñāta*—known; *jñeya*—which are to be known; *catuṣṭayam*—the four diplomatic principles (*sāma,* the process of pacifying; *dāna,* the process of giving money in charity; *bheda,* the principle of dividing; and *daṇḍa,* the principle of punishment); *daitya-indram*—unto Hiraṇyakaśipu, the King of the Daityas; *darśayām āsa*—presented; *mātṛ-mṛṣṭam*—being bathed by his mother; *alaṅkṛtam*—decorated with ornaments.

@@ -1,11 +1,11 @@
 ### SB 3.6.40
 
-> यतोऽप्राप्य न्यवर्तन्त वाचश्च मनसा सह ।
+> यतोऽप्राप्य न्यवर्तन्त वाचश्च मनसा सह ।\
 > अहं चान्य इमे देवास्तस्मै भगवते नमः ॥४०॥
 
-> yato 'prāpya nyavartanta
-> vācaś ca manasā saha
-> ahaṁ cānya ime devās
+> yato 'prāpya nyavartanta\
+> vācaś ca manasā saha\
+> ahaṁ cānya ime devās\
 > tasmai bhagavate namaḥ
 
 *yataḥ*—de quien; *aprāpya*—siendo incapaz de medir; *nyavartanta*—cesa de tratar; *vācaḥ*—palabras; *ca*—también; *manasā*—con la mente; *saha*—con; *aham ca*—también el ego; *anye*—otro; *ime*—todos estos; *devāḥ*—semidioses; *tasmai*—a Él; *bhagavate*—a la Personalidad de Dios; *namaḥ*—ofrecen reverencias.

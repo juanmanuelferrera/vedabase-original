@@ -1,11 +1,11 @@
 ### SB 6.17.40
 
-> इतिहासमिमं पुण्यं चित्रकेतोर्महात्मनः
+> इतिहासमिमं पुण्यं चित्रकेतोर्महात्मनः\
 > माहात्म्यं विष्णुभक्तानां श्रुत्वा बन्धाद्विमुच्यते ॥४०॥
 
-> itihāsam imaṁ puṇyaṁ
-> citraketor mahātmanaḥ
-> māhātmyaṁ viṣṇu-bhaktānāṁ
+> itihāsam imaṁ puṇyaṁ\
+> citraketor mahātmanaḥ\
+> māhātmyaṁ viṣṇu-bhaktānāṁ\
 > śrutvā bandhād vimucyate
 
 *itihāsam*—historia; *imam*—esta; *puṇyam*—muy piadosa; *citraketoḥ*—de Citraketu; *mahā-ātmanaḥ*—el excelso devoto; *māhātmyam*—que contiene las glorias; *viṣṇu-bhaktānām*—de los devotos de Viṣṇu; *śrutvā*—escuchar; *bandhāt*—del cautiverio, o la vida condicionada; *vimucyate*—se libera.

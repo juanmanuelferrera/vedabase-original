@@ -1,11 +1,11 @@
 ### SB 9.11.22
 
-> स यैः स्पृष्टोऽभिदृष्टो वा संविष्टोऽनुगतोऽपि वा
+> स यैः स्पृष्टोऽभिदृष्टो वा संविष्टोऽनुगतोऽपि वा\
 > कोसलास्ते ययुः स्थानं यत्र गच्छन्ति योगिनः ॥२२॥
 
-> sa yaiḥ spṛṣṭo 'bhidṛṣṭo vā
-> saṁviṣṭo 'nugato 'pi vā
-> kosalās te yayuḥ sthānaṁ
+> sa yaiḥ spṛṣṭo 'bhidṛṣṭo vā\
+> saṁviṣṭo 'nugato 'pi vā\
+> kosalās te yayuḥ sthānaṁ\
 > yatra gacchanti yoginaḥ
 
 *saḥ*—He, Lord Rāmacandra; *yaiḥ*—by which persons; *spṛṣṭaḥ*—touched; *abhidṛṣṭaḥ*—seen; *vā*—either; *saṁviṣṭaḥ*—eating together, lying together; *anugataḥ*—followed as servants; *api vā*—even; *kosalāḥ*—all those inhabitants of Kosala; *te*—they; *yayuḥ*—departed; *sthānam*—to the place; *yatra*—wherein; *gacchanti*—they go; *yoginaḥ*—all the *bhakti-yogis.*

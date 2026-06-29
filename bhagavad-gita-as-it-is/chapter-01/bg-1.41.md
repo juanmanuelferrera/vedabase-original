@@ -1,11 +1,11 @@
 ### Bg 1.41
 
-> सङ्करो नरकायैव कुलघ्नानां कुलस्य च ।
+> सङ्करो नरकायैव कुलघ्नानां कुलस्य च ।\
 > पतन्ति पितरो ह्येषां लुप्तपिण्डोदकक्रियाः ॥४१॥
 
-> saṅkaro narakāyaiva
-> kula-ghnānāṁ kulasya ca
-> patanti pitaro hy eṣāṁ
+> saṅkaro narakāyaiva\
+> kula-ghnānāṁ kulasya ca\
+> patanti pitaro hy eṣāṁ\
 > lupta-piṇḍodaka-kriyāḥ
 
 *saṅkaraḥ*—such unwanted children; *narakāya*—for hellish life; *eva*—certainly; *kula-ghnānām*—of those who are killers of the family; *kulasya*—of the family; *ca*—also; *patanti*—fall down; *pitaraḥ*—forefathers; *hi*—certainly; *eṣām*—of them; *lupta*—stopped; *piṇḍa*—offerings; *udaka*—water; *kriyāḥ*—performance.

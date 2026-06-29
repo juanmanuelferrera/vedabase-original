@@ -1,9 +1,9 @@
 ### CC Antya 5.20
 
-> সেব্য-বুদ্ধি আরোপিয়া করেন সেবন ।
+> সেব্য-বুদ্ধি আরোপিয়া করেন সেবন ।\
 > স্বাভাবিক দাসীভাব করেন আরোপণ ॥২০॥
 
-> sevya-bujhi āropiyā karena sevana
+> sevya-bujhi āropiyā karena sevana\
 > svābhāvika dāsī-bhāva karena āropaṇa
 
 *sevya-bujhi āropiyā*—considering worshipable; *karena sevana*—engages in service; *svābhāvika*—by his natural position; *dāsī-bhāva*—as a maidservant; *karena āropaṇa*—considers.

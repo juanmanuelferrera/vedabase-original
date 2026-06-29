@@ -1,9 +1,9 @@
 ### CC Madhya 19.138
 
-> এইত ব্রহ্মাণ্ড ভরি’ অনন্ত জীবগণ ।
+> এইত ব্রহ্মাণ্ড ভরি’ অনন্ত জীবগণ ।\
 > চৌরাশী-লক্ষ যোনিতে করয়ে ভ্রমণ ॥১৩৮॥
 
-> eita brahmāṇḍa bhari' ananta jīva-gaṇa
+> eita brahmāṇḍa bhari' ananta jīva-gaṇa\
 > caurāśī-lakṣa yonite karaye bhramaṇa
 
 *ei-ta*—de esta manera; *brahmāṇḍa*—todo el universo; *bhari'*—llenando; *ananta*—ilimitadas; *jīva-gaṇa*—entidades vivientes; *caurāśī-lakṣa*—8.400.000; *yonite*—en especies de vida; *karaye*—hacen; *bhramaṇa*—deambular.

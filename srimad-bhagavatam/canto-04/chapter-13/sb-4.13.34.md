@@ -1,11 +1,11 @@
 ### SB 4.13.34
 
-> तांस्तान्कामान्हरिर्दद्याद्यान्यान्कामयते जनः ।
+> तांस्तान्कामान्हरिर्दद्याद्यान्यान्कामयते जनः ।\
 > आराधितो यथैवैष तथा पुंसां फलोदयः ॥३४॥
 
-> tāṁs tān kāmān harir dadyād
-> yān yān kāmayate janaḥ
-> ārādhito yathaivaiṣa
+> tāṁs tān kāmān harir dadyād\
+> yān yān kāmayate janaḥ\
+> ārādhito yathaivaiṣa\
 > tathā puṁsāṁ phalodayaḥ
 
 *tān tān*—those; *kāmān*—desired objects; *hariḥ*—the Lord; *dadyāt*—will award; *yān yān*—whatsoever; *kāmayate*—desires; *janaḥ*—the person; *ārādhitaḥ*—being worshiped; *yathā*—as; *eva*—certainly; *eṣaḥ*—the Lord; *tathā*—similarly; *puṁsām*—of men; *phala-udayaḥ*—the result.

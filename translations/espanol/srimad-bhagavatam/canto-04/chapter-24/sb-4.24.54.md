@@ -1,11 +1,11 @@
 ### SB 4.24.54
 
-> भवान्भक्तिमता लभ्यो दुर्लभः सर्वदेहिनाम् ।
+> भवान्भक्तिमता लभ्यो दुर्लभः सर्वदेहिनाम् ।\
 > स्वाराज्यस्याप्यभिमत एकान्तेनात्मविद्गतिः ॥५४॥
 
-> bhavān bhaktimatā labhyo
-> durlabhaḥ sarva-dehinām
-> svārājyasyāpy abhimata
+> bhavān bhaktimatā labhyo\
+> durlabhaḥ sarva-dehinām\
+> svārājyasyāpy abhimata\
 > ekāntenātma-vid-gatiḥ
 
 *bhavān*—Tu Gracia; *bhakti-matā*—por el devoto; *labhyaḥ*—que se puede obtener; *durlabhaḥ*—muy difícil de obtener; *sarva-dehinām*—de todas las demás entidades vivientes; *svārājyasya*—del rey del cielo; *api*—incluso; *abhimataḥ*—el objetivo supremo; *ekāntena*—por la unidad; *ātma-vit*—de las almas autorrealizadas; *gatiḥ*—el destino supremo.

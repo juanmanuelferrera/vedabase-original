@@ -1,11 +1,11 @@
 ### SB 9.22.10
 
-> ततो विदूरथस्तस्मात्सार्वभौमस्ततोऽभवत
+> ततो विदूरथस्तस्मात्सार्वभौमस्ततोऽभवत\
 > जयसेनस्तत्तनयो राधिकोऽतोऽयुताय्वभूत ॥१०॥
 
-> tato vidūrathas tasmāt
-> sārvabhaumas tato 'bhavat
-> jayasenas tat-tanayo
+> tato vidūrathas tasmāt\
+> sārvabhaumas tato 'bhavat\
+> jayasenas tat-tanayo\
 > rādhiko 'to 'yutāyv abhūt
 
 *tataḥ*—de él (de Suratha); *vidūrathaḥ*—un hijo llamado Vidūratha; *tasmāt*—de él (de Vidūratha); *sārvabhaumaḥ*—un hijo llamado Sārvabhauma; *tataḥ*—de él (de Sārvabhauma); *abhavat*—nació; *jayasenaḥ*—Jayasena; *tat-tanayaḥ*—el hijo de Jayasena; *rādhikaḥ*—Rādhika; *ataḥ*—y de él (de Rādhika); *ayutāyuḥ*—Ayutāyu; *abhūt*—nació.

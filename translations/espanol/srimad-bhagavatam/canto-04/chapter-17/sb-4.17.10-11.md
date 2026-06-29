@@ -1,18 +1,18 @@
 ### SB 4.17.10-11
 
-> वयं राजञ्जाठरेणाभितप्ता यथाग्निना कोटरस्थेन वृक्षाः ।
-> त्वामद्य याताः शरणं शरण्यं यः साधितो वृत्तिकरः पतिर्नः ॥१०॥
-> तन्नो भवानीहतु रातवेऽन्नं क्षुधार्दितानां नरदेवदेव ।
+> वयं राजञ्जाठरेणाभितप्ता यथाग्निना कोटरस्थेन वृक्षाः ।\
+> त्वामद्य याताः शरणं शरण्यं यः साधितो वृत्तिकरः पतिर्नः ॥१०॥\
+> तन्नो भवानीहतु रातवेऽन्नं क्षुधार्दितानां नरदेवदेव ।\
 > यावन्न नङ्क्ष्यामह उज्झितोर्जा वार्तापतिस्त्वं किल लोकपालः ॥११॥
 
-> vayaṁ rājañ jāṭhareṇābhitaptā
-> yathāgninā koṭara-sthena vṛkṣāḥ
-> tvām adya yātāḥ śaraṇaṁ śaraṇyaṁ
+> vayaṁ rājañ jāṭhareṇābhitaptā\
+> yathāgninā koṭara-sthena vṛkṣāḥ\
+> tvām adya yātāḥ śaraṇaṁ śaraṇyaṁ\
 > yaḥ sādhito vṛtti-karaḥ patir naḥ
 
-> tan no bhavān īhatu rātave 'nnaṁ
-> kṣudhārditānāṁ naradeva-deva
-> yāvan na naṅkṣyāmaha ujjhitorjā
+> tan no bhavān īhatu rātave 'nnaṁ\
+> kṣudhārditānāṁ naradeva-deva\
+> yāvan na naṅkṣyāmaha ujjhitorjā\
 > vārtā-patis tvaṁ kila loka-pālaḥ
 
 *vayam*—nosotros; *rājan*—¡oh, rey!; *jāṭhareṇa*—por el fuego del hambre; *abhitaptāḥ*—muy afligidos; *yathā*—tal como; *agninā*—por el fuego; *koṭara-sthena*—en el hueco de un árbol; *vṛkṣāḥ*—árboles; *tvām*—a ti; *adya*—hoy; *yātāḥ*—hemos venido; *śaraṇam*—refugio; *śaraṇyam*—digno de ser refugio; *yaḥ*—quien; *sādhitaḥ*—designado; *vṛtti-karaḥ*—el que da empleo; *patiḥ*—señor; *naḥ*—nuestro; *tat*—por lo tanto; *naḥ*—a nosotros; *bhavān*—Tu Majestad; *īhatu*—por favor, trata; *rātave*—de dar; *annam*—cereales; *kṣudhā*—con hambre; *arditānām*—sufriendo; *nara-deva-deva*—¡oh, amo supremo de todos los reyes!; *yāvat na*—para que no; *naṅkṣyāmahe*—perezcamos; *ujjhita*—privados de; *ūrjāḥ*—cereales; *vārtā*—de ocupaciones; *patiḥ*—el que concede; *tvam*—tú; *kila*—en verdad; *loka-pālaḥ*—el protector de los ciudadanos.

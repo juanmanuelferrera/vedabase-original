@@ -1,9 +1,9 @@
 ### CC Antya 6.265
 
-> শিবানন্দ যৈছে সেই মনুষ্যে কহিলা ।
+> শিবানন্দ যৈছে সেই মনুষ্যে কহিলা ।\
 > কর্ণপূর সেইরূপে শ্লোক বর্ণিলা ॥২৬৫॥
 
-> śivānanda yaiche sei manuṣye kahilā
+> śivānanda yaiche sei manuṣye kahilā\
 > karṇapūra sei-rūpe śloka varṇilā
 
 *śivānanda*—Śivānanda Sena; *yaiche*—tal como; *sei*—al; *manuṣye*—mensajero; *kahilā*—dijo; *karṇapūra*—el gran poeta Kavi-karṇapūra; *sei rūpe*—de esa manera; *śloka varṇilā*—compuso versos.

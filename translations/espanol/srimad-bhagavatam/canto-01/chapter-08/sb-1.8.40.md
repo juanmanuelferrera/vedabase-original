@@ -1,11 +1,11 @@
 ### SB 1.8.40
 
-> इमे जनपदाः स्वृद्धाः सुपक्वौषधिवीरुधः ।
+> इमे जनपदाः स्वृद्धाः सुपक्वौषधिवीरुधः ।\
 > वनाद्रिनद्युदन्वन्तो ह्येधन्ते तव वीक्षितैः ॥४०॥
 
-> ime jana-padāḥ svṛddhāḥ
-> supakvauṣadhi-vīrudhaḥ
-> vanādri-nady-udanvanto
+> ime jana-padāḥ svṛddhāḥ\
+> supakvauṣadhi-vīrudhaḥ\
+> vanādri-nady-udanvanto\
 > hy edhante tava vīkṣitaiḥ
 
 *ime*—todas estas; *jana-padāḥ*—ciudades y pueblos; *svṛddhāḥ*—florecieron; *supakva*—maduros; *auṣadhi*—hierbas; *vīrudhaḥ*—vegetales; *vana*—bosques; *adri*—colinas; *nadī*—ríos; *udanvantaḥ*—mares; *hi*—ciertamente; *edhante*—aumentando; *tava*—por Ti; *vīkṣitaiḥ*—visto.

@@ -1,9 +1,9 @@
 ### CC Adi 4.253
 
-> অনুকূলবাতে যদি পায় মোর গন্ধ ।
+> অনুকূলবাতে যদি পায় মোর গন্ধ ।\
 > উড়িয়া পড়িতে চাহে, প্রেমে হয় অন্ধ ॥২৫৩॥
 
-> anukūla-vāte yadi pāya mora gandha
+> anukūla-vāte yadi pāya mora gandha\
 > uḍiyā paḍite cāhe, preme haya andha
 
 *anukūla-vāte*—in a favorable breeze; *yadi*—if; *pāya*—there is; *mora*—My; *gandha*—fragrance; *uḍiyā*—flying; *paḍite*—to drop; *cāhe*—She wants; *preme*—in ecstatic love; *haya*—becomes; *andha*—blind.

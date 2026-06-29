@@ -1,9 +1,9 @@
 ### CC Adi 6.34
 
-> যাঁহার তুলসীজলে, যাঁহার হুঙ্কারে ।
+> যাঁহার তুলসীজলে, যাঁহার হুঙ্কারে ।\
 > স্বগণ সহিতে চৈতন্যের অবতারে ॥৩৪॥
 
-> yāṅhāra tulasī-jale, yāṅhāra huṅkāre
+> yāṅhāra tulasī-jale, yāṅhāra huṅkāre\
 > sva-gaṇa sahite caitanyera avatāre
 
 *yāṅhāra*—whose; *tulasī-jale*—by *tulasī* leaves and Ganges water; *yāṅhāra*—of whom; *huṅkāre*—by the loud voice; *sva-gaṇa*—His personal associates; *sahite*—accompanied by; *caitanyera*—of Lord Śrī Caitanya Mahāprabhu; *avatāre*—in the incarnation.

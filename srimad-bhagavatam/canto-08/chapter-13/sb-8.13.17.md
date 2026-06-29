@@ -1,11 +1,11 @@
 ### SB 8.13.17
 
-> देवगुह्यात्सरस्वत्यां सार्वभौम इति प्रभुः
+> देवगुह्यात्सरस्वत्यां सार्वभौम इति प्रभुः\
 > स्थानं पुरन्दराद्धृत्वा बलये दास्यतीश्वरः ॥१७॥
 
-> devaguhyāt sarasvatyāṁ
-> sārvabhauma iti prabhuḥ
-> sthānaṁ purandarād dhṛtvā
+> devaguhyāt sarasvatyāṁ\
+> sārvabhauma iti prabhuḥ\
+> sthānaṁ purandarād dhṛtvā\
 > balaye dāsyatīśvaraḥ
 
 *devaguhyāt*—from His father, Devaguhya; *sarasvatyām*—in the womb of Sarasvatī; *sārvabhaumaḥ*—Sārvabhauma; *iti*—thus; *prabhuḥ*—the master; *sthānam*—place; *purandarāt*—from Lord Indra; *hṛtvā*—taking away by force; *balaye*—unto Bali Mahārāja; *dāsyati*—will give; *īśvaraḥ*—the master.

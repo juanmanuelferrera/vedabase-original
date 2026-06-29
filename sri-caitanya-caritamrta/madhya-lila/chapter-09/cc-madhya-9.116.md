@@ -1,9 +1,9 @@
 ### CC Madhya 9.116
 
-> তার স্পর্শে নাহি যায় পতিব্রতা-ধর্ম ।
+> তার স্পর্শে নাহি যায় পতিব্রতা-ধর্ম ।\
 > কৌতুকে লক্ষ্মী চাহেন কৃষ্ণের সঙ্গম ॥১১৬॥
 
-> tāra sparśe nāhi yāya pativratā-dharma
+> tāra sparśe nāhi yāya pativratā-dharma\
 > kautuke lakṣmī cāhena kṛṣṇera saṅgama
 
 *tāra sparśe*—by the touching of Kṛṣṇa by Lakṣmī; *nāhi*—does not; *yāya*—disappear; *pati-vratā-dharma*—the vow of chastity; *kautuke*—in great fun; *lakṣmī*—the goddess of fortune; *cāhena*—wants; *kṛṣṇera*—of Lord Kṛṣṇa; *saṅgama*—association.

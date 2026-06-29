@@ -1,11 +1,11 @@
 ### SB 3.31.36
 
-> प्रजापतिः स्वां दुहितरं दृष्ट्वा तद्रूपधर्षितः ।
+> प्रजापतिः स्वां दुहितरं दृष्ट्वा तद्रूपधर्षितः ।\
 > रोहिद्भूतां सोऽन्वधावदृक्षरूपी हतत्रपः ॥३६॥
 
-> prajāpatiḥ svāṁ duhitaraṁ
-> dṛṣṭvā tad-rūpa-dharṣitaḥ
-> rohid-bhūtāṁ so 'nvadhāvad
+> prajāpatiḥ svāṁ duhitaraṁ\
+> dṛṣṭvā tad-rūpa-dharṣitaḥ\
+> rohid-bhūtāṁ so 'nvadhāvad\
 > ṛkṣa-rūpī hata-trapaḥ
 
 *prajā-patiḥ*—el Señor Brahmā; *svām*—a su propia; *duhitaram*—hija; *dṛṣṭvā*—habiendo visto; *tat-rūpa*—por sus encantos; *dharṣitaḥ*—confundido; *rohit-bhūtām*—hacia ella en la forma de venado; *saḥ*—él; *anvadhāvat*—corrió; *ṛkṣa-rūpī*—en forma de cierva; *hata*—privado de; *trapaḥ*—vergüenza.

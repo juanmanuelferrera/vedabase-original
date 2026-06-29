@@ -1,11 +1,11 @@
 ### SB 5.20.46
 
-> देवतिर्यङ्मनुष्याणां सरीसृपसवीरुधाम
+> देवतिर्यङ्मनुष्याणां सरीसृपसवीरुधाम\
 > सर्वजीवनिकायानां सूर्य आत्मा दृगीश्वरः ॥४६॥
 
-> deva-tiryaṅ-manuṣyāṇāṁ
-> sarīsṛpa-savīrudhām
-> sarva-jīva-nikāyānāṁ
+> deva-tiryaṅ-manuṣyāṇāṁ\
+> sarīsṛpa-savīrudhām\
+> sarva-jīva-nikāyānāṁ\
 > sūrya ātmā dṛg-īśvaraḥ
 
 *deva*—de los semidioses; *tiryak*—los animales inferiores; *manuṣyāṇām*—y los seres humanos; *sarīsṛpa*—los insectos y serpientes; *sa-vīrudhām*—y las plantas y árboles; *sarva-jīva-nikāyānām*—de todos los grupos de entidades vivientes; *sūryaḥ*—el dios del Sol; *ātmā*—la vida y el alma; *dṛk*—de los ojos; *īśvaraḥ*—la Personalidad de Dios.

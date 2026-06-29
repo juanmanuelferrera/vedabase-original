@@ -1,11 +1,11 @@
 ### SB 1.12.24
 
-> सर्वसद्गुणमाहात्म्ये एष कृष्णमनुव्रतः ।
+> सर्वसद्गुणमाहात्म्ये एष कृष्णमनुव्रतः ।\
 > रन्तिदेव इवोदारो ययातिरिव धार्मिकः ॥२४॥
 
-> sarva-sad-guṇa-māhātmye
-> eṣa kṛṣṇam anuvrataḥ
-> rantideva ivodāro
+> sarva-sad-guṇa-māhātmye\
+> eṣa kṛṣṇam anuvrataḥ\
+> rantideva ivodāro\
 > yayātir iva dhārmikaḥ
 
 *sarva-sat-guṇa-māhātmye*—glorified by all godly attributes; *eṣaḥ*—this child; *kṛṣṇam*—like Lord Kṛṣṇa; *anuvrataḥ*—a follower in His footsteps; *rantidevaḥ*—Rantideva; *iva*—like; *udāraḥ*—in the matter of magnanimity; *yayātiḥ*—Yayāti; *iva*—like; *dhārmikaḥ*—concerning religion.

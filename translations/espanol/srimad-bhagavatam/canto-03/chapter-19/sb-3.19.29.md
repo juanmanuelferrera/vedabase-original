@@ -1,11 +1,11 @@
 ### SB 3.19.29
 
-> एतौ तौ पार्षदावस्य शापाद्यातावसद्गतिम् ।
+> एतौ तौ पार्षदावस्य शापाद्यातावसद्गतिम् ।\
 > पुनः कतिपयैः स्थानं प्रपत्स्येते ह जन्मभिः ॥२९॥
 
-> etau tau pārṣadāv asya
-> śāpād yātāv asad-gatim
-> punaḥ katipayaiḥ sthānaṁ
+> etau tau pārṣadāv asya\
+> śāpād yātāv asad-gatim\
+> punaḥ katipayaiḥ sthānaṁ\
 > prapatsyete ha janmabhiḥ
 
 *etau*—estos dos; *tau*—ambos; *pārṣadau*—asistentes personales; *asya*—de la Personalidad de Dios; *śāpāt*—por haber recibido una maldición; *yātau*—han ido; *asat-gatim*—a nacer en un familia demoníaca; *punaḥ*—de nuevo; *katipayaiḥ*—unos cuantos; *sthānam*—propio lugar; *prapatsyete*—recuperarán; *ha*—en verdad; *janmabhiḥ*—tras nacimientos.

@@ -1,11 +1,11 @@
 ### CC Adi 6.71
 
-> হা নাথ রমণ প্রেষ্ঠ ক্বাসি ক্বাসি মহাভুজ ।
+> হা নাথ রমণ প্রেষ্ঠ ক্বাসি ক্বাসি মহাভুজ ।\
 > দাস্যাস্তে কৃপণায়া মে সখে দর্শয় সন্নিধিম্ ॥৭১॥
 
-> hā nātha ramaṇa preṣṭha
-> kvāsi kvāsi mahā-bhuja
-> dāsyās te kṛpaṇāyā me
+> hā nātha ramaṇa preṣṭha\
+> kvāsi kvāsi mahā-bhuja\
+> dāsyās te kṛpaṇāyā me\
 > sakhe darśaya sannidhim
 
 *hā*—¡oh!; *nātha*—Mi Señor; *ramaṇa*—¡oh, Mi esposo!; *preṣṭha*—¡oh, Mi muy amado!; *kva asi kva asi*—¿dónde estás, dónde estás?; *mahā-bhuja*—¡oh, Señor de brazos poderosos!; *dāsyāḥ*—de la sirvienta; *te*—Tu; *kṛpaṇāyāḥ*—muy afligida por Tu ausencia; *me*—a Mí; *sakhe*—¡oh, Mi amigo!; *darśaya*—muestra; *sannidhim*—cercanía a Ti.

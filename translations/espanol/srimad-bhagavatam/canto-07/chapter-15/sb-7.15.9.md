@@ -1,11 +1,11 @@
 ### SB 7.15.9
 
-> एके कर्ममयान्यज्ञआनज्ञआनिनो यज्ञअवित्तमाः
+> एके कर्ममयान्यज्ञआनज्ञआनिनो यज्ञअवित्तमाः\
 > आत्मसंयमनेऽनीहा जुह्वति ज्ञआनदीपिते ॥९॥
 
-> eke karmamayān yajñān
-> jñānino yajña-vittamāḥ
-> ātma-saṁyamane 'nīhā
+> eke karmamayān yajñān\
+> jñānino yajña-vittamāḥ\
+> ātma-saṁyamane 'nīhā\
 > juhvati jñāna-dīpite
 
 *eke*—algunos; *karma-mayān*—cuyo resultado es una reacción (como la matanza de animales); *yajñān*—sacrificios; *jñāninaḥ*—personas avanzadas en conocimiento; *yajña-vit-tamāḥ*—que conocen perfectamente la finalidad del sacrificio; *ātma-saṁyamane*—con dominio de sí mismos; *anīhāḥ*—que carecen de deseos materiales; *juhvati*—celebran sacrificios; *jñāna-dīpite*—iluminados en el conocimiento perfecto.

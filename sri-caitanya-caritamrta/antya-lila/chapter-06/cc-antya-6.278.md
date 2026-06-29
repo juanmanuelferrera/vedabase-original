@@ -1,9 +1,9 @@
 ### CC Antya 6.278
 
-> “বিষয়ীর অন্ন খাইলে মলিন হয় মন  ।
+> “বিষয়ীর অন্ন খাইলে মলিন হয় মন  ।\
 > মলিন মন হৈলে নহে কৃষ্ণের স্মরণ ॥২৭৮॥
 
-> "viṣayīra anna khāile malina haya mana
+> "viṣayīra anna khāile malina haya mana\
 > malina mana haile nahe kṛṣṇera smaraṇa
 
 *viṣayīra*—of materialistic persons; *anna*—food; *khāile*—if one eats; *malina*—contaminated; *haya mana*—the mind becomes; *malina*—contaminated; *mana haile*—when the mind becomes; *nahe*—is not; *kṛṣṇera*—of Lord Kṛṣṇa; *smaraṇa*—remembrance.

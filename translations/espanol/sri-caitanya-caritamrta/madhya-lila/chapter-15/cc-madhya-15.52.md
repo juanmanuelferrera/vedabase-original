@@ -1,9 +1,9 @@
 ### CC Madhya 15.52
 
-> নীলাচলে আছোঁ মুঞি তাঁহার আজ্ঞাতে  ।
+> নীলাচলে আছোঁ মুঞি তাঁহার আজ্ঞাতে  ।\
 > মধ্যে মধ্যে আসিমু তাঁর চরণ দেখিতে ॥৫২॥
 
-> nīlācale āchoṅ muñi tāṅhāra ājñāte
+> nīlācale āchoṅ muñi tāṅhāra ājñāte\
 > madhye madhye āsimu tāṅra caraṇa dekhite
 
 *nīlācale āchoṅ*—permanezco en Jagannātha Purī, Nīlācala; *muñi*—Yo; *tāṅhāra ājñāte*—bajo su orden; *madhye madhye*—a intervalos; *āsimu*—iré; *tāṅra*—sus; *caraṇa dekhite*—a ver los pies de loto.

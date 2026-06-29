@@ -1,9 +1,9 @@
 ### CC Madhya 24.167
 
-> এহো কৃষ্ণগুণাকৃষ্ট মহামুনি হঞা ।
+> এহো কৃষ্ণগুণাকৃষ্ট মহামুনি হঞা ।\
 > অহৈতুকী ভক্তি করে নির্গ্রন্থ হঞা ॥১৬৭॥
 
-> eho kṛṣṇa-guṇākṛṣṭa mahā-muni hañā
+> eho kṛṣṇa-guṇākṛṣṭa mahā-muni hañā\
 > ahaitukī bhakti kare nirgrantha hañā
 
 *eho*—such *yogīs*; *kṛṣṇa guṇa-ākṛṣṭa*—attracted by the transcendental qualities of Kṛṣṇa; *mahā-muni hañā*—becoming great saintly persons; *ahaitukī bhakti kare*—they perform causeless devotional service; *nirgrantha hañā*—becoming indifferent to the mystic *yoga* process.

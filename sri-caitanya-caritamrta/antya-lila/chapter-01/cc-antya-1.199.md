@@ -1,9 +1,9 @@
 ### CC Antya 1.199
 
-> সবে কৃপা করি’ ইঁহারে দেহ’ এই বর  ।
+> সবে কৃপা করি’ ইঁহারে দেহ’ এই বর  ।\
 > ব্রজলীলা-প্রেমরস যেন বর্ণে নিরন্তর ॥১৯৯॥
 
-> sabe kṛpā kari' iṅhāre deha' ei vara
+> sabe kṛpā kari' iṅhāre deha' ei vara\
 > vraja-līlā-prema-rasa yena varṇe nirantara
 
 *sabe*—all of you; *kṛpā kari'*—showing your mercy; *iṅhāre*—unto Śrīla Rūpa Gosvāmī; *deha'*—give; *ei vara*—this benediction; *vraja-līlā-prema-rasa*—transcendental mellows of the pastimes of Vṛndāvana; *yena*—so that; *varṇe*—he can describe; *nirantara*—without cessation.

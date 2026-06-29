@@ -1,9 +1,9 @@
 ### CC Madhya 3.103
 
-> লবঙ্গ এলাচী-বীজ — উত্তম রসবাস ।
+> লবঙ্গ এলাচী-বীজ — উত্তম রসবাস ।\
 > তুলসী-মঞ্জরী সহ দিল মুখবাস ॥১০৩॥
 
-> lavaṅga elācī-bīja--uttama rasa-vāsa
+> lavaṅga elācī-bīja--uttama rasa-vāsa\
 > tulasī-mañjarī saha dila mukha-vāsa
 
 *lavaṅga*—clavos de olor; *elācī*—cardamomo; *bīja*—semillas; *uttama*—muy buenas; *rasa-vāsa*—especias sabrosas; *tulasī-mañjarī*—las flores de tulasī; *saha*—con; *dila*—dio; *mukha-vāsa*—perfume para la boca.

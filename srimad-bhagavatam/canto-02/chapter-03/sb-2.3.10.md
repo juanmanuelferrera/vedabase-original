@@ -1,11 +1,11 @@
 ### SB 2.3.10
 
-> अकामः सर्वकामो वा मोक्षकाम उदारधीः ।
+> अकामः सर्वकामो वा मोक्षकाम उदारधीः ।\
 > तीव्रेण भक्तियोगेन यजेत पुरुषं परम् ॥१०॥
 
-> akāmaḥ sarva-kāmo vā
-> mokṣa-kāma udāra-dhīḥ
-> tīvreṇa bhakti-yogena
+> akāmaḥ sarva-kāmo vā\
+> mokṣa-kāma udāra-dhīḥ\
+> tīvreṇa bhakti-yogena\
 > yajeta puruṣaṁ param
 
 *akāmaḥ*—one who has transcended all material desires; *sarva-kāmaḥ*—one who has the sum total of material desires; *vā*—either; *mokṣa-kāmaḥ*—one who desires liberation; *udāra-dhīḥ*—with broader intelligence; *tīvreṇa*—with great force; *bhakti-yogena*—by devotional service to the Lord; *yajeta*—should worship; *puruṣam*—the Lord; *param*—the supreme whole.

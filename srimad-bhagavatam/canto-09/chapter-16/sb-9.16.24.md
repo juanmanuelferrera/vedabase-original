@@ -1,11 +1,11 @@
 ### SB 9.16.24
 
-> स्वदेहं जमदग्निस्तु लब्ध्वा संज्ञआनलक्षणम
+> स्वदेहं जमदग्निस्तु लब्ध्वा संज्ञआनलक्षणम\
 > ऋषीणां मण्डले सोऽभूत्सप्तमो रामपूजितः ॥२४॥
 
-> sva-dehaṁ jamadagnis tu
-> labdhvā saṁjñāna-lakṣaṇam
-> ṛṣīṇāṁ maṇḍale so 'bhūt
+> sva-dehaṁ jamadagnis tu\
+> labdhvā saṁjñāna-lakṣaṇam\
+> ṛṣīṇāṁ maṇḍale so 'bhūt\
 > saptamo rāma-pūjitaḥ
 
 *sva-deham*—his own body; *jamadagniḥ*—the great sage Jamadagni; *tu*—but; *labdhvā*—regaining; *saṁjñāna-lakṣaṇam*—showing full symptoms of life, knowledge and remembrance; *ṛṣīṇām*—of the great *ṛṣis*; *maṇḍale*—in the group of seven stars; *saḥ*—he, Jamadagni; *abhūt*—later became; *saptamaḥ*—the seventh; *rāma-pūjitaḥ*—because of being worshiped by Lord Paraśurāma.

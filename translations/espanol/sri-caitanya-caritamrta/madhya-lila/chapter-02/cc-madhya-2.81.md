@@ -1,13 +1,13 @@
 ### CC Madhya 2.81
 
-> আপনে করি’ আস্বাদনে, শিখাইল ভক্তগণে,
-> প্রেমচিন্তামণির প্রভু ধনী ।
-> নাহি জানে স্থানাস্থান, যারে তারে কৈল দান,
+> আপনে করি’ আস্বাদনে, শিখাইল ভক্তগণে,\
+> প্রেমচিন্তামণির প্রভু ধনী ।\
+> নাহি জানে স্থানাস্থান, যারে তারে কৈল দান,\
 > মহাপ্রভু — দাতা-শিরোমণি ॥৮১॥
 
-> āpane kari' āsvādane, śikhāila bhakta-gaṇe,
-> prema-cintāmaṇira prabhu dhanī
-> nāhi jāne sthānāsthāna, yāre tāre kaila dāna,
+> āpane kari' āsvādane, śikhāila bhakta-gaṇe,\
+> prema-cintāmaṇira prabhu dhanī\
+> nāhi jāne sthānāsthāna, yāre tāre kaila dāna,\
 > mahāprabhu--dātā-śiromaṇi
 
 *āpane*—personalmente; *kari'*—haciendo; *āsvādane*—saboreando; *śikhāila*—Él enseñó; *bhakta-gaṇe*—a Sus discípulos directos; *prema-cintāmaṇira*—de la piedra de toque del amor por Dios; *prabhu*—el Señor; *dhanī*—capitalista; *nāhi*—no; *jāne*—sabe; *sthāna-asthāna*—el lugar apropiado o inapropiado; *yāre*—a quienquiera; *tāre*—a él; *kaila*—hizo; *dāna*—caridad; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *dātā-śiromaṇi*—la personalidad más munificente.

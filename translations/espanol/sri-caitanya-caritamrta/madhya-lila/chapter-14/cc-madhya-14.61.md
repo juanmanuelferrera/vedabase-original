@@ -1,9 +1,9 @@
 ### CC Madhya 14.61
 
-> পাণ্ডুবিজয় তবে করে সেবকগণে ।
+> পাণ্ডুবিজয় তবে করে সেবকগণে ।\
 > জগন্নাথ বসিলা গিয়া নিজ সিংহাসনে ॥৬১॥
 
-> pāṇḍu-vijaya tabe kare sevaka-gaṇe
+> pāṇḍu-vijaya tabe kare sevaka-gaṇe\
 > jagannātha vasilā giyā nija-siṁhāsane
 
 *pāṇḍu-vijaya*—el descenso del carro; *tabe*—en ese momento; *kare*—realizan; *sevaka-gaṇe*—todos los sirvientes; *jagannātha*—el Señor Jagannātha; *vasilā*—Se sentó; *giyā*—yendo; *nija-siṁhāsane*—en Su propio trono.

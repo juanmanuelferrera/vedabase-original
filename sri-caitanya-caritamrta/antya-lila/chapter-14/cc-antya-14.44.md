@@ -1,13 +1,13 @@
 ### CC Antya 14.44
 
-> কৃষ্ণলীলা-মণ্ডল, শুদ্ধ শঙ্খকুণ্ডল,
-> গড়িয়াছে শুক কারিকর ।
-> সেই কুণ্ডল কাণে পরি’, তৃষ্ণা-লাউ-থালী ধরি’,
+> কৃষ্ণলীলা-মণ্ডল, শুদ্ধ শঙ্খকুণ্ডল,\
+> গড়িয়াছে শুক কারিকর ।\
+> সেই কুণ্ডল কাণে পরি’, তৃষ্ণা-লাউ-থালী ধরি’,\
 > আশা-ঝুলি কান্ধের উপর ॥৪৪॥
 
-> kṛṣṇa-līlā-maṇḍala, śuddha śaṅkha-kuṇḍala,
-> gaḍiyāche śuka kārikara
-> sei kuṇḍala kāṇe pari', tṛṣṇā-lāu-thālī dhari',
+> kṛṣṇa-līlā-maṇḍala, śuddha śaṅkha-kuṇḍala,\
+> gaḍiyāche śuka kārikara\
+> sei kuṇḍala kāṇe pari', tṛṣṇā-lāu-thālī dhari',\
 > āśā-jhuli kāndhera upara
 
 *kṛṣṇa-līlā-maṇḍala*—the ring of the pastimes of Kṛṣṇa; *śuddha*—pure; *śaṅkha-kuṇḍala*—an earring of conchshell; *gaḍiyāche*—has manufactured; *śuka*—Śukadeva Gosvāmī; *kārikara*—craftsman; *sei kuṇḍala*—that earring; *kāṇe pari*—putting on the ear; *tṛṣṇā*—aspiration; *lāu*—of squash or gourd; *thālī*—the bowl; *dhari'*—taking; *āśā*—expectation; *jhuli*—bag; *kāndhera upara*—on the shoulder.

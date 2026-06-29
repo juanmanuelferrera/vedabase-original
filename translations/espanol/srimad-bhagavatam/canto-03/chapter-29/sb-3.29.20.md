@@ -1,11 +1,11 @@
 ### SB 3.29.20
 
-> यथा वातरथो घ्राणमावृङ्क्ते गन्ध आशयात् ।
+> यथा वातरथो घ्राणमावृङ्क्ते गन्ध आशयात् ।\
 > एवं योगरतं चेत आत्मानमविकारि यत् ॥२०॥
 
-> yathā vāta-ratho ghrāṇam
-> āvṛṅkte gandha āśayāt
-> evaṁ yoga-rataṁ ceta
+> yathā vāta-ratho ghrāṇam\
+> āvṛṅkte gandha āśayāt\
+> evaṁ yoga-rataṁ ceta\
 > ātmānam avikāri yat
 
 *yathā*—como; *vāta*—del aire; *rathaḥ*—el carro; *ghrāṇam*—el sentido del olfato; *āvṛṅkte*—cautiva; *gandhaḥ*—aroma; *āśayāt*—del origen; *evam*—de la misma manera; *yoga-ratam*—ocupada en servicio devocional; *cetaḥ*—la conciencia; *ātmānam*—al Alma Suprema; *avikāri*—inmutable; *yat*—la cual.

@@ -1,9 +1,9 @@
 ### CC Antya 3.212
 
-> যদ্যপি হরিদাস বিপ্রের দোষ না লইলা ।
+> যদ্যপি হরিদাস বিপ্রের দোষ না লইলা ।\
 > তথাপি ঈশ্বর তারে ফল ভুঞ্জাইলা ॥২১২॥
 
-> yadyapi haridāsa viprera doṣa nā la-ilā
+> yadyapi haridāsa viprera doṣa nā la-ilā\
 > tathāpi īśvara tāre phala bhuñjāilā
 
 *yadyapi*—aunque; *haridāsa*—Haridāsa Ṭhākura; *viprera*—del brāhmaṇa; *doṣa*—ofensa; *nā*—no; *la-ilā*—tomó en serio; *tathāpi*—no obstante; *īśvara*—la Suprema Personalidad de Dios; *tāre*—a él; *phala*—el resultado de insultar a un vaiṣṇava; *bhuñjāilā*—hizo sufrir.

@@ -1,11 +1,11 @@
 ### SB 8.19.5
 
-> यतो जातो हिरण्याक्षश्चरन्नेक इमां महीम
+> यतो जातो हिरण्याक्षश्चरन्नेक इमां महीम\
 > प्रतिवीरं दिग्विजये नाविन्दत गदायुधः ॥५॥
 
-> yato jāto hiraṇyākṣaś
-> carann eka imāṁ mahīm
-> prativīraṁ dig-vijaye
+> yato jāto hiraṇyākṣaś\
+> carann eka imāṁ mahīm\
+> prativīraṁ dig-vijaye\
 > nāvindata gadāyudhaḥ
 
 *yataḥ*—en cuya dinastía; *jātaḥ*—nació; *hiraṇyākṣaḥ*—el rey llamado Hiraṇyākṣa; *caran*—recorrer; *ekaḥ*—solo; *imām*—esta; *mahīm*—superficie del globo; *prativīram*—un héroe rival; *dik-vijaye*—para conquistar todas las direcciones; *na avindata*—no pudo obtener; *gadā-āyudhaḥ*—que llevaba su propia maza.

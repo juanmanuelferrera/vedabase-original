@@ -1,11 +1,11 @@
 ### CC Madhya 23.73
 
-> স্থিরো দান্তঃ ক্ষমাশীলো গম্ভীরো ধৃতিমান্ সমঃ ।
+> স্থিরো দান্তঃ ক্ষমাশীলো গম্ভীরো ধৃতিমান্ সমঃ ।\
 > বদান্যো ধার্মিকঃ শূরঃ করুণো মান্যমানকৃৎ ॥৭৩॥
 
-> sthiro dāntaḥ kṣamā-śīlo
-> gambhīro dhṛtimān samaḥ
-> vadānyo dhārmikaḥ śūraḥ
+> sthiro dāntaḥ kṣamā-śīlo\
+> gambhīro dhṛtimān samaḥ\
+> vadānyo dhārmikaḥ śūraḥ\
 > karuṇo mānya-mānakṛt
 
 *sthiraḥ*—steady; *dāntaḥ*—having controlled senses; *kṣamā-śīlaḥ*—forgiving; *gambhīraḥ*—grave; *dhṛtimān*—calm, never bereft of intelligence; *samaḥ*—equal; *vadānyaḥ*—magnanimous; *dhārmikaḥ*—religious; *śūraḥ*—chivalrous; *karuṇaḥ*—kind; *mānya-mānakṛt*—respectful to the respectable.

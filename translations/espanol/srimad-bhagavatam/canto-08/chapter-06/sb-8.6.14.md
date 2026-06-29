@@ -1,11 +1,11 @@
 ### SB 8.6.14
 
-> स त्वं विधत्स्वाखिललोकपाला वयं यदर्थास्तव पादमूलम
+> स त्वं विधत्स्वाखिललोकपाला वयं यदर्थास्तव पादमूलम\
 > समागतास्ते बहिरन्तरात्मन्किं वान्यविज्ञआप्यमशेषसाक्षिणः ॥१४॥
 
-> sa tvaṁ vidhatsvākhila-loka-pālā
-> vayaṁ yad arthās tava pāda-mūlam
-> samāgatās te bahir-antar-ātman
+> sa tvaṁ vidhatsvākhila-loka-pālā\
+> vayaṁ yad arthās tava pāda-mūlam\
+> samāgatās te bahir-antar-ātman\
 > kiṁ vānya-vijñāpyam aśeṣa-sākṣiṇaḥ
 
 *saḥ*—eso; *tvam*—Tu Señoría; *vidhatsva*—por favor, haz lo necesario; *akhila-loka-pālāḥ*—los semidioses, directores de las distintas secciones del universo; *vayam*—todos nosotros; *yat*—el que; *arthāḥ*—objetivo; *tava*—a los de Tu Señoría; *pāda-mūlam*—pies de loto; *samāgatāḥ*—hemos venido; *te*—a Ti; *bahiḥ-antaḥ-ātman*—¡oh, Superalma de todos!, ¡oh, testigo constante, interno y externo!; *kim*—qué; *vā*—o; *anya-vijñāpyam*—tenemos que informarte; *aśeṣa-sākṣiṇaḥ*—el testigo y conocedor de todo.

@@ -1,11 +1,11 @@
 ### SB 3.27.12
 
-> यथा जलस्थ आभासः स्थलस्थेनावदृश्यते ।
+> यथा जलस्थ आभासः स्थलस्थेनावदृश्यते ।\
 > स्वाभासेन तथा सूर्यो जलस्थेन दिवि स्थितः ॥१२॥
 
-> yathā jala-stha ābhāsaḥ
-> sthala-sthenāvadṛśyate
-> svābhāsena tathā sūryo
+> yathā jala-stha ābhāsaḥ\
+> sthala-sthenāvadṛśyate\
+> svābhāsena tathā sūryo\
 > jala-sthena divi sthitaḥ
 
 *yathā*—como; *jala-sthaḥ*—situado en el agua; *ābhāsaḥ*—un reflejo; *sthala-sthena*—situado en la pared; *avadṛśyate*—se percibe; *sva-ābhāsena*—por su reflejo; *tathā*—de esa manera; *sūryaḥ*—el sol; *jala-sthena*—situado en el agua; *divi*—en el cielo; *sthitaḥ*—situado.

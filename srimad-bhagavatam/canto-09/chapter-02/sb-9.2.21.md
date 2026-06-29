@@ -1,11 +1,11 @@
 ### SB 9.2.21
 
-> ततोऽग्निवेश्यो भगवानग्निः स्वयमभूत्सुतः
+> ततोऽग्निवेश्यो भगवानग्निः स्वयमभूत्सुतः\
 > कानीन इति विख्यातो जातूकर्ण्यो महानृषिः ॥२१॥
 
-> tato 'gniveśyo bhagavān
-> agniḥ svayam abhūt sutaḥ
-> kānīna iti vikhyāto
+> tato 'gniveśyo bhagavān\
+> agniḥ svayam abhūt sutaḥ\
+> kānīna iti vikhyāto\
 > jātūkarṇyo mahān ṛṣiḥ
 
 *tataḥ*—from Devadatta; *agniveśyaḥ*—a son named Agniveśya; *bhagavān*—the most powerful; *agniḥ*—the fire-god; *svayam*—personally; *abhūt*—became; *sutaḥ*—the son; *kānīnaḥ*—Kānīna; *iti*—thus; *vikhyātaḥ*—was celebrated; *jātūkarṇyaḥ*—Jātūkarṇya; *mahān ṛṣiḥ*—the great saintly person.

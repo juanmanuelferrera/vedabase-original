@@ -1,9 +1,9 @@
 ### CC Madhya 16.217
 
-> ‘হিরণ্য,’ ‘গোবর্ধন,’-দুই সহোদর ।
+> ‘হিরণ্য,’ ‘গোবর্ধন,’-দুই সহোদর ।\
 > সপ্তগ্রামে বারলক্ষ মুদ্রার ঈশ্বর ॥২১৭॥
 
-> 'hiraṇya', 'govardhana',—dui sahodara
+> 'hiraṇya', 'govardhana',—dui sahodara\
 > saptagrāme bāra-lakṣa mudrāra īśvara
 
 *hiraṇya*—Hiraṇya; *govardhana*—Govardhana; *dui sahodara*—two brothers; *saptagrāme*—in the village named Saptagrāma; *bāra-lakṣa*—1,200,000; *mudrāra*—of coins; *īśvara*—the masters.

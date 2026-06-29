@@ -1,9 +1,9 @@
 ### CC Adi 14.21
 
-> তবে কত দিনে প্রভুর জানু-চংক্রমণ ।
+> তবে কত দিনে প্রভুর জানু-চংক্রমণ ।\
 > নানা চমৎকার তথা করাইল দর্শন ॥২১॥
 
-> tabe kata dine prabhura jānu-caṅkramaṇa
+> tabe kata dine prabhura jānu-caṅkramaṇa\
 > nānā camatkāra tathā karāila darśana
 
 *tabe*—después; *kata*—algunos; *dine*—días; *prabhura*—del Señor; *jānu*—rodillas; *caṅkramaṇa*—el gateo; *nānā*—diversas; *camatkāra*—maravillas; *tathā*—también; *karāila*—hizo ver; *darśana*—la visión.

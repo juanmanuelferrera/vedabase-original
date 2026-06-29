@@ -1,20 +1,20 @@
 ### SB 8.23.11-12
 
-> श्रीशुक उवाच
-> आज्ञआं भगवतो राजन्प्रह्रादो बलिना सह
-> बाढमित्यमलप्रज्ञओ मूर्ध्न्याधाय कृताञ्जलिः ॥११॥
-> परिक्रम्यादिपुरुषं सर्वासुरचमूपतिः
+> श्रीशुक उवाच\
+> आज्ञआं भगवतो राजन्प्रह्रादो बलिना सह\
+> बाढमित्यमलप्रज्ञओ मूर्ध्न्याधाय कृताञ्जलिः ॥११॥\
+> परिक्रम्यादिपुरुषं सर्वासुरचमूपतिः\
 > प्रणतस्तदनुज्ञआतः प्रविवेश महाबिलम ॥१२॥
 
-> śrī-śuka uvāca
-> ājñāṁ bhagavato rājan
-> prahrādo balinā saha
-> bāḍham ity amala-prajño
+> śrī-śuka uvāca\
+> ājñāṁ bhagavato rājan\
+> prahrādo balinā saha\
+> bāḍham ity amala-prajño\
 > mūrdhny ādhāya kṛtāñjaliḥ
 
-> parikramyādi-puruṣaṁ
-> sarvāsura-camūpatiḥ
-> praṇatas tad-anujñātaḥ
+> parikramyādi-puruṣaṁ\
+> sarvāsura-camūpatiḥ\
+> praṇatas tad-anujñātaḥ\
 > praviveśa mahā-bilam
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *ājñām*—la orden; *bhagavataḥ*—de la Suprema Personalidad de Dios; *rājan*—¡oh, rey (Mahārāja Parīkṣit)!; *prahrādaḥ*—Mahārāja Prahlāda; *balinā saha*—acompañado por Bali Mahārāja; *bāḍham*—sí, Señor, lo que Tú dices está bien; *iti*—así; *amala-prajñaḥ*—Prahlāda Mahārāja, el de la inteligencia clara; *mūrdhni*—sobre la cabeza; *ādhāya*—aceptar; *kṛta-añjaliḥ*—con las manos juntas; *parikramya*—después de caminar alrededor de; *ādi-puruṣam*—la persona suprema original, Bhagavān; *sarva-asura-camūpatiḥ*—el señor de todos los jefes de los demonios; *praṇataḥ*—después de ofrecer reverencias; *tat-anujñātaḥ*—con Su permiso (del Señor Vāmana); *praviveśa*—entró; *mahā-bilam*—en el planeta llamado Sutala.

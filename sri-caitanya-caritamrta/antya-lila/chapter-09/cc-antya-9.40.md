@@ -1,9 +1,9 @@
 ### CC Antya 9.40
 
-> পাঁচগণ্ডার পাত্র হয় সন্ন্যাসী ব্রাহ্মণ ।
+> পাঁচগণ্ডার পাত্র হয় সন্ন্যাসী ব্রাহ্মণ ।\
 > মাগিলে বা কেনে দিবে দুইলক্ষ কাহন ?” ॥ ৪০ ॥
 
-> pāṅca-gaṇḍāra pātra haya sannyāsī brāhmaṇa
+> pāṅca-gaṇḍāra pātra haya sannyāsī brāhmaṇa\
 > māgile vā kene dibe dui-lakṣa kāhana?"
 
 *pāṅca-gaṇḍāra*—of five *gaṇḍās*; *pātra*—due recipients; *haya*—are; *sannyāsī brāhmaṇa*—*sannyāsīs* and *brāhmaṇas*; *māgile*—by begging; *vā*—or; *kene*—why; *dibe*—shall give; *dui-lakṣa kāhana*—200,000 *kāhanas* of *kauḍis.*

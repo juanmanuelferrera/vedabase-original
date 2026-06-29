@@ -1,9 +1,9 @@
 ### CC Adi 10.75
 
-> গরুড় পণ্ডিত লয় শ্রীনাম-মঙ্গল ।
+> গরুড় পণ্ডিত লয় শ্রীনাম-মঙ্গল ।\
 > নাম-বলে বিষ যাঁরে না করিল বল ॥৭৫॥
 
-> garuḍa paṇḍita laya śrīnāma-maṅgala
+> garuḍa paṇḍita laya śrīnāma-maṅgala\
 > nāma-bale viṣa yāṅre nā karila bala
 
 *garuḍa paṇḍita*—of the name Garuḍa Paṇḍita; *laya*—takes; *śrī-nāma-maṅgala*—the auspicious Hare Kṛṣṇa *mahā-mantra*; *nāma-bale*—by the strength of this chanting; *viṣa*—poison; *yāṅre*—whom; *nā*—did not; *karila*—affect; *bala*—strength.

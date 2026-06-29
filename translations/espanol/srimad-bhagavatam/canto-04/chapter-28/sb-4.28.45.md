@@ -1,11 +1,11 @@
 ### SB 4.28.45
 
-> अजानती प्रियतमं यदोपरतमङ्गना ।
+> अजानती प्रियतमं यदोपरतमङ्गना ।\
 > सुस्थिरासनमासाद्य यथापूर्वमुपाचरत् ॥४५॥
 
-> ajānatī priyatamaṁ
-> yadoparatam aṅganā
-> susthirāsanam āsādya
+> ajānatī priyatamaṁ\
+> yadoparatam aṅganā\
+> susthirāsanam āsādya\
 > yathā-pūrvam upācarat
 
 *ajānatī*—sin ningún conocimiento; *priya-tamam*—su muy querido esposo; *yadā*—cuando; *uparatam*—haber partido; *aṅganā*—la mujer; *susthira*—firme; *āsanam*—en el asiento; *āsādya*—llegar hasta; *yathā*—como; *pūrvam*—antes; *upācarat*—continuó sirviendo.

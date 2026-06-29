@@ -1,11 +1,11 @@
 ### SB 3.31.8
 
-> उल्बेन संवृतस्तस्मिन्नन्त्रैश्च बहिरावृतः ।
+> उल्बेन संवृतस्तस्मिन्नन्त्रैश्च बहिरावृतः ।\
 > आस्ते कृत्वा शिरः कुक्षौ भुग्नपृष्ठशिरोधरः ॥८॥
 
-> ulbena saṁvṛtas tasminn
-> antraiś ca bahir āvṛtaḥ
-> āste kṛtvā śiraḥ kukṣau
+> ulbena saṁvṛtas tasminn\
+> antraiś ca bahir āvṛtaḥ\
+> āste kṛtvā śiraḥ kukṣau\
 > bhugna-pṛṣṭha-śirodharaḥ
 
 *ulbena*—by the amnion; *saṁvṛtaḥ*—enclosed; *tasmin*—in that place; *antraiḥ*—by the intestines; *ca*—and; *bahiḥ*—outside; *āvṛtaḥ*—covered; *āste*—he lies; *kṛtvā*—having put; *śiraḥ*—the head; *kukṣau*—towards the belly; *bhugna*—bent; *pṛṣṭha*—back; *śiraḥ-dharaḥ*—neck.

@@ -1,11 +1,11 @@
 ### SB 4.27.28
 
-> मया निरूपितस्तुभ्यं पतिरात्मसमाधिना ।
+> मया निरूपितस्तुभ्यं पतिरात्मसमाधिना ।\
 > नाभिनन्दति लोकोऽयं त्वामभद्रामसम्मताम् ॥२८॥
 
-> mayā nirūpitas tubhyaṁ
-> patir ātma-samādhinā
-> nābhinandati loko 'yaṁ
+> mayā nirūpitas tubhyaṁ\
+> patir ātma-samādhinā\
+> nābhinandati loko 'yaṁ\
 > tvām abhadrām asammatām
 
 *mayā*—por mí; *nirūpitaḥ*—arreglado; *tubhyam*—para ti; *patiḥ*—esposo; *ātma*—de la mente; *samādhinā*—con meditación; *na*—nunca; *abhinandati*—bienvenida; *lokaḥ*—la gente; *ayam*—estos; *tvām*—tú; *abhadrām*—desfavorable; *asammatām*—inaceptable.

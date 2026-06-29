@@ -1,13 +1,13 @@
 ### SB 4.29.55
 
-> स त्वं विचक्ष्य मृगचेष्टितमात्मनोऽन्तश्
-> चित्तं नियच्छ हृदि कर्णधुनीं च चित्ते ।
-> जह्यङ्गनाश्रममसत्तमयूथगाथं
+> स त्वं विचक्ष्य मृगचेष्टितमात्मनोऽन्तश्\
+> चित्तं नियच्छ हृदि कर्णधुनीं च चित्ते ।\
+> जह्यङ्गनाश्रममसत्तमयूथगाथं\
 > प्रीणीहि हंसशरणं विरम क्रमेण ॥५५॥
 
-> sa tvaṁ vicakṣya mṛga-ceṣṭitam ātmano 'ntaś
-> cittaṁ niyaccha hṛdi karṇa-dhunīṁ ca citte
-> jahy aṅganāśramam asattama-yūtha-gāthaṁ
+> sa tvaṁ vicakṣya mṛga-ceṣṭitam ātmano 'ntaś\
+> cittaṁ niyaccha hṛdi karṇa-dhunīṁ ca citte\
+> jahy aṅganāśramam asattama-yūtha-gāthaṁ\
 > prīṇīhi haṁsa-śaraṇaṁ virama krameṇa
 
 *saḥ*—that very person; *tvam*—you; *vicakṣya*—considering; *mṛga-ceṣṭitam*—the activities of the deer; *ātmanaḥ*—of the self; *antaḥ*—within; *cittam*—consciousness; *niyaccha*—fix; *hṛdi*—in the heart; *karṇa-dhunīm*—aural reception; *ca*—and; *citte*—unto the consciousness; *jahi*—give up; *aṅganā-āśramam*—household life; *asat-tama*—most abominable; *yūtha-gātham*—full of stories of man and woman; *prīṇīhi*—just accept; *haṁsa-śaraṇam*—the shelter of the liberated souls; *virama*—become detached; *krameṇa*—gradually.

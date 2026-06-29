@@ -1,11 +1,11 @@
 ### SB 9.17.5
 
-> यज्ञअभुग्वासुदेवांशः स्मृतमात्रार्तिनाशनः
+> यज्ञअभुग्वासुदेवांशः स्मृतमात्रार्तिनाशनः\
 > तत्पुत्रः केतुमानस्य जज्ञए भीमरथस्ततः ॥५॥
 
-> tat-putraḥ ketumān asya
-> jajñe bhīmarathas tataḥ
-> divodāso dyumāṁs tasmāt
+> tat-putraḥ ketumān asya\
+> jajñe bhīmarathas tataḥ\
+> divodāso dyumāṁs tasmāt\
 > pratardana iti smṛtaḥ
 
 *tat-putraḥ*—su hijo (el hijo de Dhanvantari); *ketumān*—Ketumān; *asya*—suyo; *jajñe*—nació; *bhīmarathaḥ*—un hijo llamado Bhīmaratha; *tataḥ*—de él; *divodāsaḥ*—un hijo llamado Divodāsa; *dyumān*—Dyumān; *tasmāt*—de él; *pratardanaḥ*—Pratardana; *iti*—así; *smṛtaḥ*—conocido.

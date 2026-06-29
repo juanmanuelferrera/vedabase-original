@@ -1,11 +1,11 @@
 ### CC Adi 6.4
 
-> মহাবিষ্ণুর্জগৎকর্তা মায়য়া যঃ সৃজত্যদঃ ।
+> মহাবিষ্ণুর্জগৎকর্তা মায়য়া যঃ সৃজত্যদঃ ।\
 > তস্যাবতার এবায়মদ্বৈতাচার্য ঈশ্বরঃ ॥৪॥
 
-> mahā-viṣṇur jagat-kartā
-> māyayā yaḥ sṛjaty adaḥ
-> tasyāvatāra evāyam
+> mahā-viṣṇur jagat-kartā\
+> māyayā yaḥ sṛjaty adaḥ\
+> tasyāvatāra evāyam\
 > advaitācārya īśvaraḥ
 
 *mahā-viṣṇuḥ*—de nombre Mahā-Viṣṇu, la morada de la causa eficiente; *jagat-kartā*—el creador del mundo cósmico; *māyayā*—por la energía ilusoria; *yaḥ*—quien; *sṛjati*—crea; *adaḥ*—ese universo; *tasya*—Su; *avatāraḥ*—encarnación; *eva*—ciertamente; *ayam*—esta; *advaita-ācāryaḥ*—de nombre Advaita Ācārya; *īśvaraḥ*—el Señor Supremo, la morada de la causa material.

@@ -1,8 +1,8 @@
 ### SB 2.7.53
 
-> māyāṁ varṇayato 'muṣya
-> īśvarasyānumodataḥ
-> śṛṇvataḥ śraddhayā nityaṁ
+> māyāṁ varṇayato 'muṣya\
+> īśvarasyānumodataḥ\
+> śṛṇvataḥ śraddhayā nityaṁ\
 > māyayātmā na muhyati
 
 *māyām*—assuntos da energia externa; *varṇayataḥ*—enquanto descreve; *amuṣya*—do Senhor; *īśvarasya*—da Personalidade de Deus; *anumodataḥ*—assim apreciando; *śṛṇvataḥ*—assim ouvindo; *śraddhayā*—com devoção; *nityam*—regularmente; *māyayā*—pela energia ilusória; *ātmā*—a entidade viva; *na*—nunca; *muhyati*—fica iludida.

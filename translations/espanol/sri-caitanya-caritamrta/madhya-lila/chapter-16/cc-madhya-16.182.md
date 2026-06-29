@@ -1,9 +1,9 @@
 ### CC Madhya 16.182
 
-> ‘হিন্দু’ হৈলে পাইতাম তোমার চরণ-সন্নিধান  ।
+> ‘হিন্দু’ হৈলে পাইতাম তোমার চরণ-সন্নিধান  ।\
 > ব্যর্থ মোর এই দেহ, যাউক পরাণ ।।” ১৮২ ॥১৮২॥
 
-> 'hindu' haile pāitāma tomāra caraṇa-sannidhāna
+> 'hindu' haile pāitāma tomāra caraṇa-sannidhāna\
 > vyartha mora ei deha, yāuka parāṇa"
 
 *hindu haile*—si hubiese nacido en una familia hindú; *pāitāma*—habría obtenido; *tomāra*—de Vos; *caraṇa*—de los pies de loto; *sannidhāna*—proximidad; *vyartha*—inútil; *mora*—mi; *ei*—este; *deha*—cuerpo; *yāuka parāṇa*—que muera inmediatamente.

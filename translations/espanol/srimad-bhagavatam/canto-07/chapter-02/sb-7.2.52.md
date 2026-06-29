@@ -1,14 +1,14 @@
 ### SB 7.2.52
 
-> आसज्जत सिचस्तन्त्र्यां महिष्यः कालयन्त्रिता
-> कुलिङ्गस्तां तथापन्नां निरीक्ष्य भृशदुःखितः
+> आसज्जत सिचस्तन्त्र्यां महिष्यः कालयन्त्रिता\
+> कुलिङ्गस्तां तथापन्नां निरीक्ष्य भृशदुःखितः\
 > स्नेहादकल्पः कृपणः कृपणां पर्यदेवयत ॥५२॥
 
-> sāsajjata sicas tantryāṁ
-> mahiṣyaḥ kāla-yantritā
-> kuliṅgas tāṁ tathāpannāṁ
-> nirīkṣya bhṛśa-duḥkhitaḥ
-> snehād akalpaḥ kṛpaṇaḥ
+> sāsajjata sicas tantryāṁ\
+> mahiṣyaḥ kāla-yantritā\
+> kuliṅgas tāṁ tathāpannāṁ\
+> nirīkṣya bhṛśa-duḥkhitaḥ\
+> snehād akalpaḥ kṛpaṇaḥ\
 > kṛpaṇāṁ paryadevayat
 
 *sā*—la hembra; *asajjata*—atrapada; *sicaḥ*—en la red; *tantryām*—en la cuerda; *mahiṣyaḥ*—¡oh, reinas!; *kāla-yantritā*—forzada por el tiempo; *kuliṅgaḥ*—el *kuliṅga* macho; *tām*—a ella; *tathā*—en esa condición; *āpannām*—capturada; *nirīkṣya*—al ver; *bhṛśa-duḥkhitaḥ*—muy infeliz; *snehāt*—por cariño; *akalpaḥ*—sin poder hacer nada; *kṛpaṇaḥ*—el pobre pájaro; *kṛpaṇām*—la pobre esposa; *paryadevayat*—comenzó a lamentarse por.

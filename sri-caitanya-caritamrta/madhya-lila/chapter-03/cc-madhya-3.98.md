@@ -1,9 +1,9 @@
 ### CC Madhya 3.98
 
-> আপনার সম মোরে করিবার তরে ।
+> আপনার সম মোরে করিবার তরে ।\
 > ঝুঠা দিলে, বিপ্র বলি’ ভয় না করিলে ॥৯৮॥
 
-> āpanāra sama more karibāra tare
+> āpanāra sama more karibāra tare\
 > jhuṭhā dile, vipra bali' bhaya nā karile
 
 *āpanārasama*—like You; *more*—Me; *karibāra tare*—for making; *jhuṭhā*—remnants of food; *dile*—You have given; *vipra bali'*—considering as a *brāhmaṇa*; *bhaya*—fear; *nā karile*—You did not do.

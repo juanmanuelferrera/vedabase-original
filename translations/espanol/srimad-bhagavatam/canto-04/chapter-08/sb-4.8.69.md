@@ -1,11 +1,11 @@
 ### SB 4.8.69
 
-> सुदुष्करं कर्म कृत्वा लोकपालैरपि प्रभुः ।
+> सुदुष्करं कर्म कृत्वा लोकपालैरपि प्रभुः ।\
 > ऐष्यत्यचिरतो राजन्यशो विपुलयंस्तव ॥६९॥
 
-> suduṣkaraṁ karma kṛtvā
-> loka-pālair api prabhuḥ
-> aiṣyaty acirato rājan
+> suduṣkaraṁ karma kṛtvā\
+> loka-pālair api prabhuḥ\
+> aiṣyaty acirato rājan\
 > yaśo vipulayaṁs tava
 
 *su-duṣkaram*—imposible de realizar; *karma*—actividad; *kṛtvā*—después de realizar; *loka-pālaiḥ*—por grandes personalidades; *api*—incluso; *prabhuḥ*—muy competente; *aiṣyati*—regresará; *acirataḥ*—sin demora; *rājan*—mi querido rey; *yaśaḥ*—fama; *vipulayan*—engrandecer; *tava*—tuya.

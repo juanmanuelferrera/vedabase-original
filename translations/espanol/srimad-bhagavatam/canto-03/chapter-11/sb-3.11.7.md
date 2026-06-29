@@ -1,11 +1,11 @@
 ### SB 3.11.7
 
-> निमेषस्त्रिलवो ज्ञेय आम्नातस्ते त्रयः क्षणः ।
+> निमेषस्त्रिलवो ज्ञेय आम्नातस्ते त्रयः क्षणः ।\
 > क्षणान्पञ्च विदुः काष्ठां लघु ता दश पञ्च च ॥७॥
 
-> nimeṣas tri-lavo jñeya
-> āmnātas te trayaḥ kṣaṇaḥ
-> kṣaṇān pañca viduḥ kāṣṭhāṁ
+> nimeṣas tri-lavo jñeya\
+> āmnātas te trayaḥ kṣaṇaḥ\
+> kṣaṇān pañca viduḥ kāṣṭhāṁ\
 > laghu tā daśa pañca ca
 
 *nimeṣaḥ*—el lapso de tiempo denominado *nimeṣa*; *tri-lavaḥ*—la duración de tres *lavas*; *jñeyaḥ*—ha de ser conocida; *āmnātaḥ*—así se llama; *te*—ellos; *trayaḥ*—tres; *kṣaṇaḥ*—el lapso de tiempo denominado *kṣaṇa*; *kṣaṇān*—dichos *kṣaṇas*; *pañca*—cinco; *viduḥ*—uno debe entender; *kāṣṭhām*—el lapso de tiempo denominado *kāṣṭhā*; *laghu*—el lapso de tiempo denominado *laghu*; *tāḥ*—esos; *daśa pañca*—quince; *ca*—también.

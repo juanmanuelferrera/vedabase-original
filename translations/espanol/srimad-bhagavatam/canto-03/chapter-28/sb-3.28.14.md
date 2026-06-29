@@ -1,11 +1,11 @@
 ### SB 3.28.14
 
-> लसत्पङ्कजकिञ्जल्क पीतकौशेयवाससम् ।
+> लसत्पङ्कजकिञ्जल्क पीतकौशेयवाससम् ।\
 > श्रीवत्सवक्षसं भ्राजत्कौस्तुभामुक्तकन्धरम् ॥१४॥
 
-> lasat-paṅkaja-kiñjalka-
-> pīta-kauśeya-vāsasam
-> śrīvatsa-vakṣasaṁ bhrājat
+> lasat-paṅkaja-kiñjalka-\
+> pīta-kauśeya-vāsasam\
+> śrīvatsa-vakṣasaṁ bhrājat\
 > kaustubhāmukta-kandharam
 
 *lasat*—brillante; *paṅkaja*—de un loto; *kiñjalka*—filamentos; *pīta*—amarilla; *kauśeya*—prenda de seda; *vāsasam*—cuyo vestido; *śrīvatsa*—llevando la marca de Śrīvatsa; *vakṣasam*—pecho; *bhrājat*—brillante; *kaustubha*—joya Kaustubha; *āmukta*—puesta en; *kandharam*—Su cuello.

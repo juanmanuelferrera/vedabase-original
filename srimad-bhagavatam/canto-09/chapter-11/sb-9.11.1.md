@@ -1,13 +1,13 @@
 ### SB 9.11.1
 
-> श्रीशुक उवाच
-> भगवानात्मनात्मानं राम उत्तमकल्पकैः
+> श्रीशुक उवाच\
+> भगवानात्मनात्मानं राम उत्तमकल्पकैः\
 > सर्वदेवमयं देवमीजेऽथाचार्यवान्मखैः ॥१॥
 
-> śrī-śuka uvāca
-> bhagavān ātmanātmānaṁ
-> rāma uttama-kalpakaiḥ
-> sarva-devamayaṁ devam
+> śrī-śuka uvāca\
+> bhagavān ātmanātmānaṁ\
+> rāma uttama-kalpakaiḥ\
+> sarva-devamayaṁ devam\
 > īje 'thācāryavān makhaiḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *bhagavān*—the Supreme Personality of Godhead; *ātmanā*—by Himself; *ātmānam*—Himself; *rāmaḥ*—Lord Rāmacandra; *uttama-kalpakaiḥ*—with very opulent paraphernalia; *sarva-deva-mayam*—the heart and soul of all the demigods; *devam*—the Supreme Lord Himself; *īje*—worshiped; *atha*—thus; *ācāryavān*—under the guidance of an *ācārya*; *makhaiḥ*—by performing sacrifices.

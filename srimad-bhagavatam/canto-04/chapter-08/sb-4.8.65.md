@@ -1,13 +1,13 @@
 ### SB 4.8.65
 
-> राजोवाच
-> सुतो मे बालको ब्रह्मन्स्त्रैणेनाकरुणात्मना ।
+> राजोवाच\
+> सुतो मे बालको ब्रह्मन्स्त्रैणेनाकरुणात्मना ।\
 > निर्वासितः पञ्चवर्षः सह मात्रा महान्कविः ॥६५॥
 
-> rājovāca
-> suto me bālako brahman
-> straiṇenākaruṇātmanā
-> nirvāsitaḥ pañca-varṣaḥ
+> rājovāca\
+> suto me bālako brahman\
+> straiṇenākaruṇātmanā\
+> nirvāsitaḥ pañca-varṣaḥ\
 > saha mātrā mahān kaviḥ
 
 *rājā uvāca*—the King replied; *sutaḥ*—son; *me*—my; *bālakaḥ*—tender boy; *brahman*—my dear *brāhmaṇa*; *straiṇena*—one who is too addicted to his wife; *akaruṇā-ātmanā*—one who is very hard of heart and without mercy; *nirvāsitaḥ*—is banished; *pañca-varṣaḥ*—although the boy is five years old; *saha*—with; *mātrā*—mother; *mahān*—great personality; *kaviḥ*—devotee.

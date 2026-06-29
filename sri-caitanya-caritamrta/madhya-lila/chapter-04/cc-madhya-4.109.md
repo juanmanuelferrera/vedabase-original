@@ -1,9 +1,9 @@
 ### CC Madhya 4.109
 
-> সেবার নির্বন্ধ — লোক করিল স্থাপন ।
+> সেবার নির্বন্ধ — লোক করিল স্থাপন ।\
 > আজ্ঞা মাগি’ গৌড়-দেশে করিল গমন ॥১০৯॥
 
-> sevāra nirbandha—loka karila sthāpana
+> sevāra nirbandha—loka karila sthāpana\
 > ājñā māgi' gauḍa-deśe karila gamana
 
 *sevāranirbandha*—the arrangements for executing the daily routine of the worship of the Lord; *loka*—the people; *karila*—did; *sthāpana*—establish; *ājñā māgi'*—taking the order; *gauḍa-deśe*—toward Bengal; *karila*—did; *gamana*—going.

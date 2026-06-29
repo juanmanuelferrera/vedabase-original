@@ -1,13 +1,13 @@
 ### CC Madhya 2.28
 
-> শ্রীকৃষ্ণরূপাদিনিষেবণং বিনা
-> ব্যর্থানি মেঽহান্যখিলেন্দ্রিয়াণ্যলম্ ।
-> পাষাণশুষ্কেন্ধনভারকাণ্যহো
+> শ্রীকৃষ্ণরূপাদিনিষেবণং বিনা\
+> ব্যর্থানি মেঽহান্যখিলেন্দ্রিয়াণ্যলম্ ।\
+> পাষাণশুষ্কেন্ধনভারকাণ্যহো\
 > বিভর্মি বা তানি কথং হতত্রপঃ ॥২৮॥
 
-> śrī-kṛṣṇa-rūpādi-niṣevaṇaṁ vinā
-> vyarthāni me 'hāny akhilendriyāṇy alam
-> pāṣāṇa-śuṣkendhana-bhārakāṇy aho
+> śrī-kṛṣṇa-rūpādi-niṣevaṇaṁ vinā\
+> vyarthāni me 'hāny akhilendriyāṇy alam\
+> pāṣāṇa-śuṣkendhana-bhārakāṇy aho\
 > bibharmi vā tāni kathaṁ hata-trapaḥ
 
 *śrī-kṛṣṇa-rūpa-ādi*—de la forma trascendental y los pasatiempos del Señor Śrī Kṛṣṇa; *niṣevaṇam*—el servicio; *vinā*—sin; *vyarthāni*—inútiles; *me*—Mis; *ahāni*—días; *akhila*—todos; *indriyāṇi*—sentidos; *alam*—por completo; *pāṣāṇa*—piedras muertas; *śuṣka*—seca; *indhana*—madera; *bhārakāṇi*—cargas; *aho*—¡ay!; *bibharmi*—cargo; *vā*—o; *tāni*—todos ellos; *katham*—cómo; *hata-trapaḥ*—sin vergüenza.

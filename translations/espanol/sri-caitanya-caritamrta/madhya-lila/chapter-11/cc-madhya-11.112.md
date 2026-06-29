@@ -1,9 +1,9 @@
 ### CC Madhya 11.112
 
-> ভট্ট কহে, — তুমি যেই কহ, সেই বিধি-ধর্ম ৷
+> ভট্ট কহে, — তুমি যেই কহ, সেই বিধি-ধর্ম ৷\
 > এই রাগমার্গে আছে সূক্ষ্মধর্ম-মর্ম ৷৷ ১১২ ৷৷ ॥১১২॥
 
-> bhaṭṭa kahe,-tumi yei kaha, sei vidhi-dharma
+> bhaṭṭa kahe,-tumi yei kaha, sei vidhi-dharma\
 > ei rāga-mārge āche sūkṣma-dharma-marma
 
 *bhaṭṭa kahe*—el Bhaṭṭācārya dijo; *tumi yei kaha*—lo que dices; *sei vidhi-dharma*—eso es un principio regulativo; *ei rāga-mārge*—en este amor espontáneo; *āche*—hay; *sūkṣma-dharma-marma*—sutiles complejidades del sistema religioso.

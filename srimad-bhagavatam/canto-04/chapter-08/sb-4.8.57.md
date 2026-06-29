@@ -1,11 +1,11 @@
 ### SB 4.8.57
 
-> स्वेच्छावतारचरितैरचिन्त्यनिजमायया ।
+> स्वेच्छावतारचरितैरचिन्त्यनिजमायया ।\
 > करिष्यत्युत्तमश्लोकस्तद्ध्यायेद्धृदयङ्गमम् ॥५७॥
 
-> svecchāvatāra-caritair
-> acintya-nija-māyayā
-> kariṣyaty uttamaślokas
+> svecchāvatāra-caritair\
+> acintya-nija-māyayā\
+> kariṣyaty uttamaślokas\
 > tad dhyāyed dhṛdayaṅ-gamam
 
 *sva-icchā*—by His own supreme will; *avatāra*—incarnation; *caritaiḥ*—activities; *acintya*—inconceivable; *nija-māyayā*—by His own potency; *kariṣyati*—performs; *uttama-ślokaḥ*—the Supreme Personality of Godhead; *tat*—that; *dhyāyet*—one should meditate; *hṛdayam-gamam*—very attractive.

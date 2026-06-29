@@ -1,9 +1,9 @@
 ### CC Madhya 10.176
 
-> কৃষ্ণনাম স্ফুরে মুখে, মনে নেত্রে কৃষ্ণ ।
+> কৃষ্ণনাম স্ফুরে মুখে, মনে নেত্রে কৃষ্ণ ।\
 > তোমাকে তদ্রূপ দেখি’ হৃদয় — সতৃষ্ণ ॥১৭৬॥
 
-> kṛṣṇa-nāma sphure mukhe, mane netre kṛṣṇa
+> kṛṣṇa-nāma sphure mukhe, mane netre kṛṣṇa\
 > tomāke tad-rūpa dekhi' hṛdaya-satṛṣṇa
 
 *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *sphure*—is manifest; *mukhe*—in the mouth; *mane*—in the mind; *netre*—before the eyes; *kṛṣṇa*—the presence of Lord Kṛṣṇa; *tomāke*—You; *tat-rūpa*—His form; *dekhi'*—I see; *hṛdaya*—my heart; *sa-tṛṣṇa*—very eager.

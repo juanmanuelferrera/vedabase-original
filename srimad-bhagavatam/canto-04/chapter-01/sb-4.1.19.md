@@ -1,11 +1,11 @@
 ### SB 4.1.19
 
-> प्राणायामेन संयम्य मनो वर्षशतं मुनिः ।
+> प्राणायामेन संयम्य मनो वर्षशतं मुनिः ।\
 > अतिष्ठदेकपादेन निर्द्वन्द्वोऽनिलभोजनः ॥१९॥
 
-> prāṇāyāmena saṁyamya
-> mano varṣa-śataṁ muniḥ
-> atiṣṭhad eka-pādena
+> prāṇāyāmena saṁyamya\
+> mano varṣa-śataṁ muniḥ\
+> atiṣṭhad eka-pādena\
 > nirdvandvo 'nila-bhojanaḥ
 
 *prāṇāyāmena*—by practice of the breathing exercise; *saṁyamya*—controlling; *manaḥ*—mind; *varṣa-śatam*—one hundred years; *muniḥ*—the great sage; *atiṣṭhat*—remained there; *eka-pādena*—standing on one leg; *nirdvandvaḥ*—without duality; *anila*—air; *bhojanaḥ*—eating.

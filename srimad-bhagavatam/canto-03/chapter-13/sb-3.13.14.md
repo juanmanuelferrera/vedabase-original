@@ -1,13 +1,13 @@
 ### SB 3.13.14
 
-> मनुरुवाच
-> आदेशेऽहं भगवतो वर्तेयामीवसूदन ।
+> मनुरुवाच\
+> आदेशेऽहं भगवतो वर्तेयामीवसूदन ।\
 > स्थानं त्विहानुजानीहि प्रजानां मम च प्रभो ॥१४॥
 
-> manur uvāca
-> ādeśe 'haṁ bhagavato
-> varteyāmīva-sūdana
-> sthānaṁ tv ihānujānīhi
+> manur uvāca\
+> ādeśe 'haṁ bhagavato\
+> varteyāmīva-sūdana\
+> sthānaṁ tv ihānujānīhi\
 > prajānāṁ mama ca prabho
 
 *manuḥ uvāca*—Śrī Manu said; *ādeśe*—under the order; *aham*—I; *bhagavataḥ*—of your powerful self; *varteya*—shall stay; *amīva-sūdana*—O killer of all sins; *sthānam*—the place; *tu*—but; *iha*—in this world; *anujānīhi*—please let me know; *prajānām*—of the living entities born from me; *mama*—my; *ca*—also; *prabho*—O lord.

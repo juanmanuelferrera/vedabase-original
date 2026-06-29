@@ -1,9 +1,9 @@
 ### CC Madhya 8.253
 
-> ‘ধ্যেয়-মধ্যে জীবের কর্তব্য কোন্ ধ্যান?’
+> ‘ধ্যেয়-মধ্যে জীবের কর্তব্য কোন্ ধ্যান?’\
 > ‘রাধাকৃষ্ণপদাম্বুজ-ধ্যান — প্রধান ৷৷’ ২৫৩ ৷৷ ॥২৫৩॥
 
-> 'dhyeya-madhye jīvera kartavya kon dhyāna?'
+> 'dhyeya-madhye jīvera kartavya kon dhyāna?'\
 > 'rādhā-kṛṣṇa-padāmbuja-dhyāna--pradhāna'
 
 *dhyeya-madhye*—de todos los tipos de meditación; *jīvera*—de la entidad viviente; *kartavya*—el deber; *kon*—cuál; *dhyāna*—meditación; *rādhā-kṛṣṇa-pada-ambuja*—en los pies de loto de Rādhā y Kṛṣṇa; *dhyāna*—meditación; *pradhāna*—es la principal.

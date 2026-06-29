@@ -1,9 +1,9 @@
 ### CC Madhya 6.172
 
-> ব্যাস — ভ্রান্ত বলি’ সেই সূত্রে দোষ দিয়া ।
+> ব্যাস — ভ্রান্ত বলি’ সেই সূত্রে দোষ দিয়া ।\
 > ‘বিবর্তবাদ’ স্থাপিয়াছে কল্পনা করিয়া ॥১৭২॥
 
-> vyāsa--bhrānta bali' sei sūtre doṣa diyā
+> vyāsa--bhrānta bali' sei sūtre doṣa diyā\
 > 'vivarta-vāda' sthāpiyāche kalpanā kariyā
 
 *vyāsa*—Śrīla Vyāsadeva; *bhrānta*—equivocado; *bali'*—diciendo; *sei*—ese; *sūtre*—en el Vedānta-sūtra; *doṣa*—defecto; *diyā*—acusando; *vivarta-vāda*—la teoría de la ilusión; *sthāpiyāche*—ha establecido; *kalpanā*—imaginación; *kariyā*—haciendo.

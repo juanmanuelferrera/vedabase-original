@@ -1,9 +1,9 @@
 ### CC Madhya 6.140
 
-> সর্বৈশ্বর্যপরিপূর্ণ স্বয়ং ভগবান্ ।
+> সর্বৈশ্বর্যপরিপূর্ণ স্বয়ং ভগবান্ ।\
 > তাঁরে নিরাকার করি’ করহ ব্যাখ্যান ॥১৪০॥
 
-> sarvaiśvarya-paripūrṇa svayaṁ bhagavān
+> sarvaiśvarya-paripūrṇa svayaṁ bhagavān\
 > tāṅre nirākāra kari' karaha vyākhyāna
 
 *sarva-aiśvarya-paripūrṇa*—full with all opulences; *svayam*—personally; *bhagavān*—the Supreme Personality of Godhead; *tāṅre*—Him; *nirākāra*—impersonal; *kari'*—making; *karaha*—you make; *vyākhyāna*—explanation.

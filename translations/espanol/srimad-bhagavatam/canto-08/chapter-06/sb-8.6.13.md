@@ -1,11 +1,11 @@
 ### SB 8.6.13
 
-> तं त्वां वयं नाथ समुज्जिहानं सरोजनाभातिचिरेप्सितार्थम
+> तं त्वां वयं नाथ समुज्जिहानं सरोजनाभातिचिरेप्सितार्थम\
 > दृष्ट्वा गता निर्वृतमद्य सर्वे गजा दवार्ता इव गाङ्गमम्भः ॥१३॥
 
-> taṁ tvāṁ vayaṁ nātha samujjihānaṁ
-> saroja-nābhāticirepsitārtham
-> dṛṣṭvā gatā nirvṛtam adya sarve
+> taṁ tvāṁ vayaṁ nātha samujjihānaṁ\
+> saroja-nābhāticirepsitārtham\
+> dṛṣṭvā gatā nirvṛtam adya sarve\
 > gajā davārtā iva gāṅgam ambhaḥ
 
 *tam*—¡oh, Señor!; *tvām*—Tu Señoría; *vayam*—todos nosotros; *nātha*—¡oh, amo y señor!; *samujjihānam*—que apareces ahora ante nosotros en toda Tu gloria; *saroja-nābha*—¡oh, Señor, cuyo ombligo es como una flor de loto, o de cuyo ombligo crece una flor de loto!; *ati-cira*—durante muchísimo tiempo; *īpsita*—deseando; *artham*—para el objetivo supremo de la vida; *dṛṣṭvā*—ver; *gatāḥ*—en nuestra visión; *nirvṛtam*—felicidad trascendental; *adya*—hoy; *sarve*—todos nosotros; *gajāḥ*—elefantes; *dava-artāḥ*—afligidos en un incendio forestal; *iva*—como; *gāṅgam ambhaḥ*—con agua del Ganges.

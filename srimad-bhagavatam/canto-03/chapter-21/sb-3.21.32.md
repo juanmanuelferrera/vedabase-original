@@ -1,11 +1,11 @@
 ### SB 3.21.32
 
-> सहाहं स्वांशकलया त्वद्वीर्येण महामुने ।
+> सहाहं स्वांशकलया त्वद्वीर्येण महामुने ।\
 > तव क्षेत्रे देवहूत्यां प्रणेष्ये तत्त्वसंहिताम् ॥३२॥
 
-> sahāhaṁ svāṁśa-kalayā
-> tvad-vīryeṇa mahā-mune
-> tava kṣetre devahūtyāṁ
+> sahāhaṁ svāṁśa-kalayā\
+> tvad-vīryeṇa mahā-mune\
+> tava kṣetre devahūtyāṁ\
 > praṇeṣye tattva-saṁhitām
 
 *saha*—with; *aham*—I; *sva-aṁśa-kalayā*—My own plenary portion; *tvat-vīryeṇa*—by your semen; *mahā-mune*—O great sage; *tava kṣetre*—in your wife; *devahūtyām*—in Devahūti; *praṇeṣye*—I shall instruct; *tattva*—of the ultimate principles; *saṁhitām*—the doctrine.

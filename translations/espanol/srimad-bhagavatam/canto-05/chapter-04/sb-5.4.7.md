@@ -1,11 +1,11 @@
 ### SB 5.4.7
 
-> ब्रह्मण्योऽन्यः कुतो नाभेर्विप्रा मङ्गलपूजिताः
+> ब्रह्मण्योऽन्यः कुतो नाभेर्विप्रा मङ्गलपूजिताः\
 > यस्य बर्हिषि यज्ञएशं दर्शयामासुरोजसा ॥७॥
 
-> brahmaṇyo 'nyaḥ kuto nābher
-> viprā maṅgala-pūjitāḥ
-> yasya barhiṣi yajñeśaṁ
+> brahmaṇyo 'nyaḥ kuto nābher\
+> viprā maṅgala-pūjitāḥ\
+> yasya barhiṣi yajñeśaṁ\
 > darśayām āsur ojasā
 
 *brahmaṇyaḥ*—devoto de los *brāhmaṇas*; *anyaḥ*—algún otro; *kutaḥ*—dónde hay; *nābheḥ*—además de Mahārāja Nābhi; *viprāḥ*—los *brāhmaṇas*; *maṅgala-pūjitāḥ*—bien adorados y satisfechos; *yasya*—de quien; *barhiṣi*—en el recinto del sacrificio; *yajña-īśam*—a la Suprema Personalidad de Dios, el disfrutador de todas las ceremonias de sacrificio; *darśayām āsuḥ*—mostraron; *ojasā*—con su poder brahmínico.

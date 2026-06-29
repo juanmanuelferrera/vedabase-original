@@ -1,11 +1,11 @@
 ### SB 8.11.21
 
-> हरीन्दशशतान्याजौ हर्यश्वस्य बलः शरैः
+> हरीन्दशशतान्याजौ हर्यश्वस्य बलः शरैः\
 > तावद्भिरर्दयामास युगपल्लघुहस्तवान ॥२१॥
 
-> harīn daśa-śatāny ājau
-> haryaśvasya balaḥ śaraiḥ
-> tāvadbhir ardayām āsa
+> harīn daśa-śatāny ājau\
+> haryaśvasya balaḥ śaraiḥ\
+> tāvadbhir ardayām āsa\
 > yugapal laghu-hastavān
 
 *harīn*—horses; *daśa-śatāni*—ten times one hundred (one thousand); *ājau*—on the battlefield; *haryaśvasya*—of King Indra; *balaḥ*—the demon Bala; *śaraiḥ*—with arrows; *tāvadbhiḥ*—with so many; *ardayām āsa*—put into tribulation; *yugapat*—simultaneously; *laghu-hastavān*—with quick handling.

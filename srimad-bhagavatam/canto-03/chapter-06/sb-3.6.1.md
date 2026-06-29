@@ -1,13 +1,13 @@
 ### SB 3.6.1
 
-> ऋषिरुवाच
-> इति तासां स्वशक्तीनां सतीनामसमेत्य सः ।
+> ऋषिरुवाच\
+> इति तासां स्वशक्तीनां सतीनामसमेत्य सः ।\
 > प्रसुप्तलोकतन्त्राणां निशाम्य गतिमीश्वरः ॥१॥
 
-> ṛṣir uvāca
-> iti tāsāṁ sva-śaktīnāṁ
-> satīnām asametya saḥ
-> prasupta-loka-tantrāṇāṁ
+> ṛṣir uvāca\
+> iti tāsāṁ sva-śaktīnāṁ\
+> satīnām asametya saḥ\
+> prasupta-loka-tantrāṇāṁ\
 > niśāmya gatim īśvaraḥ
 
 *ṛṣiḥ uvāca*—the Ṛṣi Maitreya said; *iti*—thus; *tāsām*—their; *sva-śaktīnām*—own potency; *satīnām*—so situated; *asametya*—without combination; *saḥ*—He (the Lord); *prasupta*—suspended; *loka-tantrāṇām*—in the universal creations; *niśāmya*—hearing; *gatim*—progress; *īśvaraḥ*—the Lord.

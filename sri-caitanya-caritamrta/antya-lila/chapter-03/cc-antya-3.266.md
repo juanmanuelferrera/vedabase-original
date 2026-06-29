@@ -1,9 +1,9 @@
 ### CC Antya 3.266
 
-> মায়া-দাসী ‘প্রেম’ মাগে, — ইথে কি বিস্ময় ?
+> মায়া-দাসী ‘প্রেম’ মাগে, — ইথে কি বিস্ময় ?\
 > ‘সাধুকৃপা’-‘নাম’ বিনা ‘প্রেম’ না জন্মায় ॥২৬৬॥
 
-> māyā-dāsī 'prema' māge,—ithe ki vismaya?
+> māyā-dāsī 'prema' māge,—ithe ki vismaya?\
 > 'sādhu-kṛpā-'nāma' vinā 'prema' nā janmaya
 
 *māyā-dāsī*—the external energy is a maidservant; *prema māge*—she wants love of Godhead; *ithe*—in this; *ki vismaya*—what is the wonder; *sādhu-kṛpā*—the mercy of the devotee; *nāma*—chanting of the holy name; *vinā*—without; *prema*—love of Godhead; *nā janmaya*—is not possible.

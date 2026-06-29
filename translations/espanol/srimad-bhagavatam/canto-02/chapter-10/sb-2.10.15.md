@@ -1,11 +1,11 @@
 ### SB 2.10.15
 
-> अन्तः शरीर आकाशात्पुरुषस्य विचेष्टतः ।
+> अन्तः शरीर आकाशात्पुरुषस्य विचेष्टतः ।\
 > ओजः सहो बलं जज्ञे ततः प्राणो महानसुः ॥१५॥
 
-> antaḥ śarīra ākāśāt
-> puruṣasya viceṣṭataḥ
-> ojaḥ saho balaṁ jajñe
+> antaḥ śarīra ākāśāt\
+> puruṣasya viceṣṭataḥ\
+> ojaḥ saho balaṁ jajñe\
 > tataḥ prāṇo mahān asuḥ
 
 *antaḥ śarīre*—dentro del cuerpo; *ākāśāt*—del cielo; *puruṣasya*—de Mahā-Viṣṇu; *viceṣṭataḥ*—mientras así se está tratando o deseando; *ojaḥ*—la energía de los sentidos; *sahaḥ*—fuerza mental; *balam*—fuerza corporal; *jajñe*—generadas; *tataḥ*—después; *prāṇaḥ*—la fuerza viviente; *mahān asuḥ*—el manantial de la vida de todos.

@@ -1,9 +1,9 @@
 ### CC Adi 7.168
 
-> এই ত’ কহিল পঞ্চতত্ত্বের ব্যাখ্যান ।
+> এই ত’ কহিল পঞ্চতত্ত্বের ব্যাখ্যান ।\
 > ইহার শ্রবণে হয় চৈতন্যতত্ত্ব-জ্ঞান ॥১৬৮॥
 
-> ei ta' kahila pañca-tattvera vyākhyāna
+> ei ta' kahila pañca-tattvera vyākhyāna\
 > ihāra śravaṇe haya caitanya-tattva jñāna
 
 *ei ta'*—esto; *kahila*—he descrito; *pañca-tattvera*—del Pañca-tattva; *vyākhyāna*—explicación; *ihāra*—de esto; *śravaṇe*—al escuchar; *haya*—surge; *caitanya-tattva*—la verdad de Śrī Caitanya Mahāprabhu; *jñāna*—conocimiento.

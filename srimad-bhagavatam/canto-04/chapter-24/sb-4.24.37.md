@@ -1,11 +1,11 @@
 ### SB 4.24.37
 
-> स्वर्गापवर्गद्वाराय नित्यं शुचिषदे नमः ।
+> स्वर्गापवर्गद्वाराय नित्यं शुचिषदे नमः ।\
 > नमो हिरण्यवीर्याय चातुर्होत्राय तन्तवे ॥३७॥
 
-> svargāpavarga-dvārāya
-> nityaṁ śuci-ṣade namaḥ
-> namo hiraṇya-vīryāya
+> svargāpavarga-dvārāya\
+> nityaṁ śuci-ṣade namaḥ\
+> namo hiraṇya-vīryāya\
 > cātur-hotrāya tantave
 
 *svarga*—the heavenly planets; *apavarga*—the path of liberation; *dvārāya*—unto the door of; *nityam*—eternally; *śuci-sade*—unto the most purified; *namaḥ*—my obeisances unto You; *namaḥ*—my obeisances; *hiraṇya*—gold; *vīryāya*—semen; *cātuḥ-hotrāya*—the Vedic sacrifices of the name; *tantave*—unto one who expands.

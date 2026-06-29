@@ -1,11 +1,11 @@
 ### SB 6.2.3
 
-> प्रजानां पितरो ये च शास्तारः साधवः समाः
+> प्रजानां पितरो ये च शास्तारः साधवः समाः\
 > यदि स्यात्तेषु वैषम्यं कं यान्ति शरणं प्रजाः ॥३॥
 
-> prajānāṁ pitaro ye ca
-> śāstāraḥ sādhavaḥ samāḥ
-> yadi syāt teṣu vaiṣamyaṁ
+> prajānāṁ pitaro ye ca\
+> śāstāraḥ sādhavaḥ samāḥ\
+> yadi syāt teṣu vaiṣamyaṁ\
 > kaṁ yānti śaraṇaṁ prajāḥ
 
 *prajānām*—de los súbditos; *pitaraḥ*—protectores, guardianes (reyes o sirvientes del gobierno); *ye*—aquellos que; *ca*—y; *śāstāraḥ*—dan instrucciones acerca de la ley y el orden; *sādhavaḥ*—dotados de todas las buenas cualidades; *samāḥ*—ecuánimes con todos; *yadi*—si; *syāt*—hay; *teṣu*—entre ellos; *vaiṣamyam*—parcialidad; *kam*—a qué; *yānti*—irán; *śaraṇam*—refugio; *prajāḥ*—los súbditos.

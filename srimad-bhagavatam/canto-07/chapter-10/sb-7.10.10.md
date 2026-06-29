@@ -1,11 +1,11 @@
 ### SB 7.10.10
 
-> ओं नमो भगवते तुभ्यं पुरुषाय महात्मने
+> ओं नमो भगवते तुभ्यं पुरुषाय महात्मने\
 > हरयेऽद्भुतसिंहाय ब्रह्मणे परमात्मने ॥१०॥
 
-> oṁ namo bhagavate tubhyaṁ
-> puruṣāya mahātmane
-> haraye 'dbhuta-siṁhāya
+> oṁ namo bhagavate tubhyaṁ\
+> puruṣāya mahātmane\
+> haraye 'dbhuta-siṁhāya\
 > brahmaṇe paramātmane
 
 *oṁ*—O my Lord, O Supreme Personality of Godhead; *namaḥ*—I offer my respectful obeisances; *bhagavate*—unto the Supreme Person; *tubhyam*—unto You; *puruṣāya*—unto the Supreme Person; *mahā-ātmane*—unto the Supreme Soul, or the Supersoul; *haraye*—unto the Lord, who vanquishes all the miseries of devotees; *adbhuta-siṁhāya*—unto Your wonderful lionlike form as Nṛsiṁhadeva; *brahmaṇe*—unto the Supreme Brahman; *parama-ātmane*—unto the Supreme Soul.

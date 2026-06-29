@@ -1,11 +1,11 @@
 ### SB 1.6.7
 
-> सास्वतन्त्रा न कल्पासीद्योगक्षेमं ममेच्छती ।
+> सास्वतन्त्रा न कल्पासीद्योगक्षेमं ममेच्छती ।\
 > ईशस्य हि वशे लोको योषा दारुमयी यथा ॥७॥
 
-> sāsvatantrā na kalpāsīd
-> yoga-kṣemaṁ mamecchatī
-> īśasya hi vaśe loko
+> sāsvatantrā na kalpāsīd\
+> yoga-kṣemaṁ mamecchatī\
+> īśasya hi vaśe loko\
 > yoṣā dārumayī yathā
 
 *sā*—she; *asvatantrā*—was dependent; *na*—not; *kalpā*—able; *āsīt*—was; *yoga-kṣemam*—maintenance; *mama*—my; *icchatī*—although desirous; *īśasya*—of providence; *hi*—for; *vaśe*—under the control of; *lokaḥ*—everyone; *yoṣā*—doll; *dāru-mayī*—made of wood; *yathā*—as much as.

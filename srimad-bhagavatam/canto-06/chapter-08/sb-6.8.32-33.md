@@ -1,18 +1,18 @@
 ### SB 6.8.32-33
 
-> यथैकात्म्यानुभावानां विकल्परहितः स्वयम
-> भूषणायुधलिङ्गाख्या धत्ते शक्तीः स्वमायया ॥३२॥
-> तेनैव सत्यमानेन सर्वज्ञओ भगवान्हरिः
+> यथैकात्म्यानुभावानां विकल्परहितः स्वयम\
+> भूषणायुधलिङ्गाख्या धत्ते शक्तीः स्वमायया ॥३२॥\
+> तेनैव सत्यमानेन सर्वज्ञओ भगवान्हरिः\
 > पातु सर्वैः स्वरूपैर्नः सदा सर्वत्र सर्वगः ॥३३॥
 
-> yathaikātmyānubhāvānāṁ
-> vikalpa-rahitaḥ svayam
-> bhūṣaṇāyudha-liṅgākhyā
+> yathaikātmyānubhāvānāṁ\
+> vikalpa-rahitaḥ svayam\
+> bhūṣaṇāyudha-liṅgākhyā\
 > dhatte śaktīḥ sva-māyayā
 
-> tenaiva satya-mānena
-> sarva-jño bhagavān hariḥ
-> pātu sarvaiḥ svarūpair naḥ
+> tenaiva satya-mānena\
+> sarva-jño bhagavān hariḥ\
+> pātu sarvaiḥ svarūpair naḥ\
 > sadā sarvatra sarva-gaḥ
 
 *yathā*—just as; *aikātmya*—in terms of oneness manifested in varieties; *anubhāvānām*—of those thinking; *vikalpa-rahitaḥ*—the absence of difference; *svayam*—Himself; *bhūṣaṇa*—decorations; *āyudha*—weapons; *liṅga-ākhyāḥ*—characteristics and different names; *dhatte*—possesses; *śaktīḥ*—potencies like wealth, influence, power, knowledge, beauty and renunciation; *sva-māyayā*—by expanding His spiritual energy; *tena eva*—by that; *satya-mānena*—true understanding; *sarva-jñaḥ*—omniscient; *bhagavān*—the Supreme Personality of Godhead; *hariḥ*—who can take away all the illusion of the living entities; *pātu*—may He protect; *sarvaiḥ*—with all; *sva-rūpaiḥ*—His forms; *naḥ*—us; *sadā*—always; *sarvatra*—everywhere; *sarva-gaḥ*—who is all-pervasive.

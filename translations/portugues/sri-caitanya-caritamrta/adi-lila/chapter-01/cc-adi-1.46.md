@@ -1,8 +1,8 @@
 ### CC Adi 1.46
 
-> ācāryaṁ māṁ vijānīyān
-> nāvamanyeta karhicit
-> na martya-buddhyāsūyeta
+> ācāryaṁ māṁ vijānīyān\
+> nāvamanyeta karhicit\
+> na martya-buddhyāsūyeta\
 > sarva-deva-mayo guruḥ
 
 *ācāryam*—o mestre espiritual; *mām*—a Mim mesmo; *vijānīyāt*—deve-se conhecer; *na avamanyeta*—jamais se deve desrespeitar; *karhicit*—em tempo algum; *na*—nunca; *martya-buddhyā*—com a ideia de que ele seja um homem comum; *asūyeta*—deve-se invejar; *sarva-deva*—de todos os semideuses; *mayaḥ*—representante; *guruḥ*—o mestre espiritual.

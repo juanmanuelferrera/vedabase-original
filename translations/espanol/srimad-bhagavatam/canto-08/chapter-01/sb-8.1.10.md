@@ -1,11 +1,11 @@
 ### SB 8.1.10
 
-> आत्मावास्यमिदं विश्वं यत्किञ्चिज्जगत्यां जगत
+> आत्मावास्यमिदं विश्वं यत्किञ्चिज्जगत्यां जगत\
 > तेन त्यक्तेन भुञ्जीथा मा गृधः कस्य स्विद्धनम ॥१०॥
 
-> ātmāvāsyam idaṁ viśvaṁ
-> yat kiñcij jagatyāṁ jagat
-> tena tyaktena bhuñjīthā
+> ātmāvāsyam idaṁ viśvaṁ\
+> yat kiñcij jagatyāṁ jagat\
+> tena tyaktena bhuñjīthā\
 > mā gṛdhaḥ kasya svid dhanam
 
 *ātma*—la Superalma; *āvāsyam*—que vive en todas partes; *idam*—este universo; *viśvam*—todos los universos, todos los lugares; *yat*—todo lo que; *kiñcit*—todo lo que existe; *jagatyām*—en este mundo, en todas partes; *jagat*—todo, lo animado y lo inanimado; *tena*—por Él; *tyaktena*—asignado; *bhuñjīthāḥ*—pueden disfrutar; *mā*—no; *gṛdhaḥ*—aceptar; *kasya svit*—de ningún otro; *dhanam*—la propiedad.

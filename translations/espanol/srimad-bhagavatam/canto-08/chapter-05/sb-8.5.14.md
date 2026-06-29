@@ -1,13 +1,13 @@
 ### SB 8.5.14
 
-> श्रीसूत उवाच
-> सम्पृष्टो भगवानेवं द्वैपायनसुतो द्विजाः
+> श्रीसूत उवाच\
+> सम्पृष्टो भगवानेवं द्वैपायनसुतो द्विजाः\
 > अभिनन्द्य हरेर्वीर्यमभ्याचष्टुं प्रचक्रमे ॥१४॥
 
-> śrī-sūta uvāca
-> sampṛṣṭo bhagavān evaṁ
-> dvaipāyana-suto dvijāḥ
-> abhinandya harer vīryam
+> śrī-sūta uvāca\
+> sampṛṣṭo bhagavān evaṁ\
+> dvaipāyana-suto dvijāḥ\
+> abhinandya harer vīryam\
 > abhyācaṣṭuṁ pracakrame
 
 *śrī-śūtaḥ uvāca*—Śrī Sūta Gosvāmī dijo; *sampṛṣṭaḥ*—ante la pregunta; *bhagavān*—Śukadeva Gosvāmī; *evam*—así; *dvaipāyana-sutaḥ*—el hijo de Vyāsadeva; *dvi-jāḥ*—¡oh, *brāhmaṇas* aquí reunidos!; *abhinandya*—felicitar a Mahārāja Parīkṣit; *hareḥ vīryam*—las glorias de la Suprema Personalidad de Dios; *abhyācaṣṭum*—por explicar; *pracakrame*—se esforzó.

@@ -1,11 +1,11 @@
 ### SB 1.13.22
 
-> अन्धः पुरैव वधिरो मन्दप्रज्ञाश्च साम्प्रतम् ।
+> अन्धः पुरैव वधिरो मन्दप्रज्ञाश्च साम्प्रतम् ।\
 > विशीर्णदन्तो मन्दाग्निः सरागः कफमुद्वहन् ॥२२॥
 
-> andhaḥ puraiva vadhiro
-> manda-prajñāś ca sāmpratam
-> viśīrṇa-danto mandāgniḥ
+> andhaḥ puraiva vadhiro\
+> manda-prajñāś ca sāmpratam\
+> viśīrṇa-danto mandāgniḥ\
 > sarāgaḥ kapham udvahan
 
 *andhaḥ*—blind; *purā*—from the beginning; *eva*—certainly; *vadhiraḥ*—hard of hearing; *manda-prajñāḥ*—memory shortened; *ca*—and; *sāmpratam*—recently; *viśīrṇa*—loosened; *dantaḥ*—teeth; *manda-agniḥ*—liver action decreased; *sa-rāgaḥ*—with sound; *kapham*—coughing much mucus; *udvahan*—coming out.

@@ -1,13 +1,13 @@
 ### SB 1.15.5
 
-> अर्जुन उवाच
-> वञ्चितोऽहं महाराज हरिणा बन्धुरूपिणा ।
+> अर्जुन उवाच\
+> वञ्चितोऽहं महाराज हरिणा बन्धुरूपिणा ।\
 > येन मेऽपहृतं तेजो देवविस्मापनं महत् ॥५॥
 
-> arjuna uvāca
-> vañcito 'haṁ mahā-rāja
-> hariṇā bandhu-rūpiṇā
-> yena me 'pahṛtaṁ tejo
+> arjuna uvāca\
+> vañcito 'haṁ mahā-rāja\
+> hariṇā bandhu-rūpiṇā\
+> yena me 'pahṛtaṁ tejo\
 > deva-vismāpanaṁ mahat
 
 *arjunaḥ uvāca*—Arjuna said; *vañcitaḥ*—left by Him; *aham*—myself; *mahā-rāja*—O King; *hariṇā*—by the Personality of Godhead; *bandhu-rūpiṇā*—as if an intimate friend; *yena*—by whom; *me*—my; *apahṛtam*—I have been bereft; *tejaḥ*—power; *deva*—the demigods; *vismāpanam*—astonishing; *mahat*—astounding.

@@ -1,9 +1,9 @@
 ### CC Madhya 10.137
 
-> প্রভু কহে, — ঈশ্বর হয় পরম স্বতন্ত্র ।
+> প্রভু কহে, — ঈশ্বর হয় পরম স্বতন্ত্র ।\
 > ঈশ্বরের কৃপা নহে বেদ-পরতন্ত্র ॥১৩৭॥
 
-> prabhu kahe,-īśvara haya parama svatantra
+> prabhu kahe,-īśvara haya parama svatantra\
 > īśvarera kṛpā nahe veda-paratantra
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *īśvara*—the Supreme Personality of Godhead or Īśvara Purī; *haya*—is; *parama*—supremely; *svatantra*—independent; *īśvarera*—of the Supreme Personality of Godhead or of Īśvara Purī; *kṛpā*—the mercy; *nahe*—is not; *veda-paratantra*—subject to the Vedic rules.

@@ -1,12 +1,12 @@
 ### CC Antya 14.120
 
-> সমীপে নীলাদ্রেবর্ধনগিরিপতিং লোকিতুমিতঃ ।
-> ব্রজন্নস্মীত্যুক্ত্বা প্রমদ ইব ধাবন্নবধৃতো
+> সমীপে নীলাদ্রেবর্ধনগিরিপতিং লোকিতুমিতঃ ।\
+> ব্রজন্নস্মীত্যুক্ত্বা প্রমদ ইব ধাবন্নবধৃতো\
 > গণৈঃ স্বৈর্গৌরাঙ্গো হৃদয় উদয়ন্মাং মদয়তি ॥১২০॥
 
-> samīpe nīlādreś caṭaka-giri-rājasya kalanād
-> aye goṣṭhe govardhana-giri-patiṁ lokitum itaḥ
-> vrajann asmīty uktvā pramada iva dhāvann avadhṛto
+> samīpe nīlādreś caṭaka-giri-rājasya kalanād\
+> aye goṣṭhe govardhana-giri-patiṁ lokitum itaḥ\
+> vrajann asmīty uktvā pramada iva dhāvann avadhṛto\
 > gaṇaiḥ svair gaurāṅgo hṛdaya udayan māṁ madayati
 
 *samīpe*—near; *nīlādreḥ*—Jagannātha Purī; *caṭaka*—named Caṭaka; *giri-rājasya*—the king of sand hills; *kalanāt*—account of seeing; *aye*—oh; *goṣṭhe*—to the place for pasturing cows; *govardhana-giri-patim*—Govardhana, the king of hills; *lokitum*—to see; *itaḥ*—from here; *vrajan*—going; *asmi*—I am; *iti*—thus; *uktvā*—saying; *pramadaḥ*—maddened; *iva*—as if; *dhāvan*—running; *avadhṛtaḥ*—being followed; *gaṇaiḥ*—by the devotees; *svaiḥ*—own; *gaurāṅgaḥ*—Lord Śrī Caitanya Mahāprabhu; *hṛdaye*—in the heart; *udayan*—awakening; *mām*—me; *madayati*—maddens.

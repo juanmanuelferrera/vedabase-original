@@ -1,11 +1,11 @@
 ### CC Madhya 14.187
 
-> গতিস্থানাসনাদীনাং মুখনেত্রাদিকর্মণাম্ ।
+> গতিস্থানাসনাদীনাং মুখনেত্রাদিকর্মণাম্ ।\
 > তাৎকালিকন্তু বৈশিষ্ট্যং বিলাসঃ প্রিয়সঙ্গজম্ ॥১৮৭॥
 
-> gati-sthānāsanādīnāṁ
-> mukha-netrādi-karmaṇām
-> tātkālikaṁ tu vaiśiṣṭyaṁ
+> gati-sthānāsanādīnāṁ\
+> mukha-netrādi-karmaṇām\
+> tātkālikaṁ tu vaiśiṣṭyaṁ\
 > vilāsaḥ priya-saṅgajam
 
 *gati*—moverse; *sthāna*—estar de pie; *āsana-ādīnām*—y de sentarse y demás; *mukha*—del rostro; *netra*—de los ojos; *ādi*—y demás; *karmaṇām*—de las actividades; *tāt-kālikam*—relativo a ese momento; *tu*—entonces; *vaiśiṣṭyam*—diversos síntomas; *vilāsaḥ*—de nombre vilāsa; *priya-saṅga-jam*—producido por el encuentro con su amado.

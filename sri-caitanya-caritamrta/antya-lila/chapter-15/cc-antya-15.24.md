@@ -1,13 +1,13 @@
 ### CC Antya 15.24
 
-> এত কহি’ গৌরহরি, দুইজনার কণ্ঠ ধরি’,
-> কহে, — ‘শুন, স্বরূপ-রামরায় ।
-> কাহাঁ করোঁ, কাহাঁ যাঙ, কাহাঁ গেলে কৃষ্ণ পাঙ,
+> এত কহি’ গৌরহরি, দুইজনার কণ্ঠ ধরি’,\
+> কহে, — ‘শুন, স্বরূপ-রামরায় ।\
+> কাহাঁ করোঁ, কাহাঁ যাঙ, কাহাঁ গেলে কৃষ্ণ পাঙ,\
 > দুঁহে মোরে কহ সে উপায়’ ॥২৪॥
 
-> eta kahi' gaurahari, dui-janāra kaṇṭha dhari',
-> kahe,—'śuna, svarūpa-rāmarāya
-> kāhāṅ karoṅ, kāhāṅ yāṅa, kāhāṅ gele kṛṣṇa pāṅa,
+> eta kahi' gaurahari, dui-janāra kaṇṭha dhari',\
+> kahe,—'śuna, svarūpa-rāmarāya\
+> kāhāṅ karoṅ, kāhāṅ yāṅa, kāhāṅ gele kṛṣṇa pāṅa,\
 > duṅhe more kaha se upāya'
 
 *eta kahi'*—saying this; *gaurahari*—Śrī Caitanya Mahāprabhu; *dui-janāra*—of the two persons; *kaṇṭha dhari'*—catching the necks; *kahe*—said; *śuna*—please hear; *svarūpa-rāma-rāya*—Svarūpa Dāmodara and Rāmānanda Rāya; *kāhāṅ karoṅ*—what shall I do; *kāhāṅ yāṅa*—where shall I go; *kāhāṅ gele*—going where; *kṛṣṇa pāṅa*—I can get Kṛṣṇa; *duṅhe*—both of you; *more*—unto Me; *kaha*—please say; *se upāya*—such a means.

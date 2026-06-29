@@ -1,11 +1,11 @@
 ### SB 3.6.33
 
-> पद्भ्यां भगवतो जज्ञे शुश्रूषा धर्मसिद्धये ।
+> पद्भ्यां भगवतो जज्ञे शुश्रूषा धर्मसिद्धये ।\
 > तस्यां जातः पुरा शूद्रो यद्वृत्त्या तुष्यते हरिः ॥३३॥
 
-> padbhyāṁ bhagavato jajñe
-> śuśrūṣā dharma-siddhaye
-> tasyāṁ jātaḥ purā śūdro
+> padbhyāṁ bhagavato jajñe\
+> śuśrūṣā dharma-siddhaye\
+> tasyāṁ jātaḥ purā śūdro\
 > yad-vṛttyā tuṣyate hariḥ
 
 *padbhyām*—from the legs; *bhagavataḥ*—of the Personality of Godhead; *jajñe*—became manifested; *śuśrūṣā*—service; *dharma*—occupational duty; *siddhaye*—for the matter of; *tasyām*—in that; *jātaḥ*—being generated; *purā*—formerly; *śūdraḥ*—the servitors; *yat-vṛttyā*—the occupation by which; *tuṣyate*—becomes satisfied; *hariḥ*—the Supreme Personality of Godhead.

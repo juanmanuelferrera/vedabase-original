@@ -1,9 +1,9 @@
 ### CC Antya 4.10
 
-> তাতে যদি এই দেহ, ভাল-স্থানে দিয়ে ।
+> তাতে যদি এই দেহ, ভাল-স্থানে দিয়ে ।\
 > দুঃখ-শান্তি হয় আর সদ্গতি পাইয়ে ॥১০॥
 
-> tāte yadi ei deha bhāla-sthāne diye
+> tāte yadi ei deha bhāla-sthāne diye\
 > duḥkha-śānti haya āra sad-gati pāiye
 
 *tāte*—therefore; *yadi*—if; *ei*—this; *deha*—body; *bhāla-sthāne*—in a good place; *diye*—I sacrifice; *duḥkha-śānti*—appeasement of unhappiness; *haya*—there is; *āra*—and; *sat-gati*—good destination; *pāiye*—I get.

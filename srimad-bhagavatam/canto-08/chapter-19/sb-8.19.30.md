@@ -1,13 +1,13 @@
 ### SB 8.19.30
 
-> श्रीशुक्र उवाच
-> एष वैरोचने साक्षाद्भगवान्विष्णुरव्ययः
+> श्रीशुक्र उवाच\
+> एष वैरोचने साक्षाद्भगवान्विष्णुरव्ययः\
 > कश्यपाददितेर्जातो देवानां कार्यसाधकः ॥३०॥
 
-> śrī-śukra uvāca
-> eṣa vairocane sākṣād
-> bhagavān viṣṇur avyayaḥ
-> kaśyapād aditer jāto
+> śrī-śukra uvāca\
+> eṣa vairocane sākṣād\
+> bhagavān viṣṇur avyayaḥ\
+> kaśyapād aditer jāto\
 > devānāṁ kārya-sādhakaḥ
 
 *śrī-śukraḥ uvāca*—Śukrācārya said; *eṣaḥ*—this (boy in the form of a dwarf); *vairocane*—O son of Virocana; *sākṣāt*—directly; *bhagavān*—the Supreme Personality of Godhead; *viṣṇuḥ*—Lord Viṣṇu; *avyayaḥ*—without deterioration; *kaśyapāt*—from His father, Kaśyapa; *aditeḥ*—in the womb of His mother, Aditi; *jātaḥ*—was born; *devānām*—of the demigods; *kārya-sādhakaḥ*—working in the interest.

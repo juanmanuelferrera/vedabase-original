@@ -1,9 +1,9 @@
 ### CC Madhya 9.325
 
-> রায়ের আনন্দ হৈল পুস্তক পাইয়া ।
+> রায়ের আনন্দ হৈল পুস্তক পাইয়া ।\
 > প্রভু-সহ আস্বাদিল, রাখিল লিখিয়া ॥৩২৫॥
 
-> rāyera ānanda haila pustaka pāiyā
+> rāyera ānanda haila pustaka pāiyā\
 > prabhu-saha āsvādila, rākhila likhiyā
 
 *rāyera*—of Rāya Rāmānanda; *ānanda*—happiness; *haila*—there was; *pustaka pāiyā*—getting those two books; *prabhu-saha*—with the Lord; *āsvādila*—tasted; *rākhila*—kept; *likhiyā*—writing.

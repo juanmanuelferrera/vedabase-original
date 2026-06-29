@@ -1,9 +1,9 @@
 ### SB 2.7.48
 
-> सध्र्यङ्नियम्य यतयो यमकर्तहेतिं ।
+> सध्र्यङ्नियम्य यतयो यमकर्तहेतिं ।\
 > जह्युः स्वराडिव निपानखनित्रमिन्द्रः ॥४८॥
 
-> sadhryaṅ niyamya yatayo yama-karta-hetiṁ
+> sadhryaṅ niyamya yatayo yama-karta-hetiṁ\
 > jahyuḥ svarāḍ iva nipāna-khanitram indraḥ
 
 *sadhryak*—artificial mental speculation or meditation; *niyamya*—controlling; *yatayaḥ*—the mystics; *yama-karta-hetim*—the process of spiritual culture; *jahyuḥ*—are given up; *svarāṭ*—fully independent; *iva*—as; *nipāna*—well; *khanitram*—trouble for digging; *indraḥ*—the controlling demigod supplying rains.

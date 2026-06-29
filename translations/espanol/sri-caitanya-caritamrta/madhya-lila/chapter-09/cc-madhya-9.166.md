@@ -1,9 +1,9 @@
 ### CC Madhya 9.166
 
-> ঋষভ-পর্বতে চলি’ আইলা গৌরহরি ৷
+> ঋষভ-পর্বতে চলি’ আইলা গৌরহরি ৷\
 > নারায়ণ দেখিলা তাঁহা নতি-স্তুতি করি’ ৷৷ ১৬৬ ৷৷ ॥১৬৬॥
 
-> ṛṣabha-parvate cali' āilā gaurahari
+> ṛṣabha-parvate cali' āilā gaurahari\
 > nārāyaṇa dekhilā tāṅhā nati-stuti kari'
 
 *ṛṣabha-parvate*—a la colina Ṛṣabha; *cali'*—caminando; *āilā*—llegó; *gaurahari*—el Señor Śrī Caitanya Mahāprabhu; *nārāyaṇa*—la Deidad del Señor Nārāyaṇa; *dekhilā*—vio; *tāṅhā*—allí; *nati-stuti kari'*—ofreciendo reverencias y oraciones.

@@ -1,11 +1,11 @@
 ### SB 7.5.13
 
-> स एष आत्मा स्वपरेत्यबुद्धिभिर्दुरत्ययानुक्रमणो निरूप्यते
+> स एष आत्मा स्वपरेत्यबुद्धिभिर्दुरत्ययानुक्रमणो निरूप्यते\
 > मुह्यन्ति यद्वर्त्मनि वेदवादिनो ब्रह्मादयो ह्येष भिनत्ति मे मतिम ॥१३॥
 
-> sa eṣa ātmā sva-parety abuddhibhir
-> duratyayānukramaṇo nirūpyate
-> muhyanti yad-vartmani veda-vādino
+> sa eṣa ātmā sva-parety abuddhibhir\
+> duratyayānukramaṇo nirūpyate\
+> muhyanti yad-vartmani veda-vādino\
 > brahmādayo hy eṣa bhinatti me matim
 
 *saḥ*—He; *eṣaḥ*—this; *ātmā*—Supersoul situated in everyone's heart; *sva-para*—this is my own business, and that is someone else's; *iti*—thus; *abuddhibhiḥ*—by those who have such bad intelligence; *duratyaya*—very difficult to follow; *anukramaṇaḥ*—whose devotional service; *nirūpyate*—is ascertained (by scriptures or the instructions of the spiritual master); *muhyanti*—are bewildered; *yat*—of whom; *vartmani*—on the path; *veda-vādinaḥ*—the followers of Vedic instructions; *brahma-ādayaḥ*—the demigods, beginning from Lord Brahmā; *hi*—indeed; *eṣaḥ*—this one; *bhinatti*—changes; *me*—my; *matim*—intelligence.

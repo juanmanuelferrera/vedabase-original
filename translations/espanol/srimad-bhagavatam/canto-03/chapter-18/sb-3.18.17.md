@@ -1,11 +1,11 @@
 ### SB 3.18.17
 
-> ततश्च गदयारातिं दक्षिणस्यां भ्रुवि प्रभुः ।
+> ततश्च गदयारातिं दक्षिणस्यां भ्रुवि प्रभुः ।\
 > आजघ्ने स तु तां सौम्य गदया कोविदोऽहनत् ॥१७॥
 
-> tataś ca gadayārātiṁ
-> dakṣiṇasyāṁ bhruvi prabhuḥ
-> ājaghne sa tu tāṁ saumya
+> tataś ca gadayārātiṁ\
+> dakṣiṇasyāṁ bhruvi prabhuḥ\
+> ājaghne sa tu tāṁ saumya\
 > gadayā kovido 'hanat
 
 *tataḥ*—entonces; *ca*—y; *gadayā*—con Su maza; *arātim*—al enemigo; *dakṣiṇasyām*—al lado derecho; *bhruvi*—en la ceja; *prabhuḥ*—el Señor; *ājaghne*—golpeó; *saḥ*—el Señor; *tu*—pero; *tām*—la maza; *saumya*—¡oh, gentil Vidura!; *gadayā*—con su maza; *kovidaḥ*—experto; *ahanat*—se salvó.

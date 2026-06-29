@@ -1,9 +1,9 @@
 ### CC Adi 11.50
 
-> বসন্ত, নবনী হোড়, গোপাল, সনাতন ।
+> বসন্ত, নবনী হোড়, গোপাল, সনাতন ।\
 > বিষ্ণাই হাজরা, কৃষ্ণানন্দ, সুলোচন ॥৫০॥
 
-> vasanta, navanī hoḍa, gopāla, sanātana
+> vasanta, navanī hoḍa, gopāla, sanātana\
 > viṣṇāi hājarā, kṛṣṇānanda, sulocana
 
 *vasanta*—de nombre Vasanta; *navanī hoḍa*—de nombre Navanī Hoḍa; *gopāla*—de nombre Gopāla; *sanātana*—de nombre Sanātana; *viṣṇāi hājarā*—de nombre Viṣṇāi Hājarā; *kṛṣṇānanda*—de nombre Kṛṣṇānanda; *sulocana*—de nombre Sulocana.

@@ -1,9 +1,9 @@
 ### CC Madhya 4.76
 
-> অনেক ঘট ভরি’ দিল সুবাসিত জল ।
+> অনেক ঘট ভরি’ দিল সুবাসিত জল ।\
 > বহুদিনের ক্ষুধায় গোপাল খাইল সকল ॥৭৬॥
 
-> aneka ghaṭa bhari' dila suvāsita jala
+> aneka ghaṭa bhari' dila suvāsita jala\
 > bahu-dinera kṣudhāya gopāla khāila sakala
 
 *aneka ghaṭa*—muchos cántaros; *bhari'*—llenados; *dila*—ofreció; *suvāsita*—perfumada; *jala*—agua; *bahu-dinera*—de muchos días; *kṣudhāya*—por el hambre; *gopāla*—Gopāla; *khāila*—comió; *sakala*—todo.

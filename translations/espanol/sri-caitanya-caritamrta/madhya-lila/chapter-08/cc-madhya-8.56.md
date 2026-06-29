@@ -1,9 +1,9 @@
 ### CC Madhya 8.56
 
-> নমস্কার কৈল রায়, প্রভু কৈল আলিঙ্গনে ৷
+> নমস্কার কৈল রায়, প্রভু কৈল আলিঙ্গনে ৷\
 > দুই জনে কৃষ্ণ-কথা কয় রহঃস্থানে ৷৷ ৫৬ ৷৷ ॥৫৬॥
 
-> namaskāra kaila rāya, prabhu kaila āliṅgane
+> namaskāra kaila rāya, prabhu kaila āliṅgane\
 > dui jane kṛṣṇa-kathā kaya rahaḥ-sthāne
 
 *namaskāra*—reverencias; *kaila*—ofreció; *rāya*—Rāmānanda Rāya; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *kaila*—hizo; *āliṅgane*—abrazar; *dui*—dos; *jane*—las personas; *kṛṣṇa-kathā*—temas sobre Kṛṣṇa; *kaya*—conversaron; *rahaḥ-sthāne*—en un lugar apartado.

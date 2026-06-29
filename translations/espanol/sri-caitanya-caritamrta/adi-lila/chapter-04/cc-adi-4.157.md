@@ -1,9 +1,9 @@
 ### CC Adi 4.157
 
-> অপূর্ব মাধুরী কৃষ্ণের, অপূর্ব তার বল ।
+> অপূর্ব মাধুরী কৃষ্ণের, অপূর্ব তার বল ।\
 > যাহার শ্রবণে মন হয় টলমল ॥১৫৭॥
 
-> apūrva mādhurī kṛṣṇera, apūrva tāra bala
+> apūrva mādhurī kṛṣṇera, apūrva tāra bala\
 > yāhāra śravaṇe mana haya ṭalamala
 
 *apūrva*—sin precedente; *mādhurī*—dulzura; *kṛṣṇera*—del Señor Kṛṣṇa; *apūrva*—sin precedente; *tāra*—de esa; *bala*—la fuerza; *yāhāra*—de la cual; *śravaṇe*—al oír; *mana*—la mente; *haya*—se vuelve; *ṭalamala*—inestable.

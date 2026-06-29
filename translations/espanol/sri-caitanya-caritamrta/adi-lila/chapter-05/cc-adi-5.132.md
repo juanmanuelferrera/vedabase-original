@@ -1,9 +1,9 @@
 ### CC Adi 5.132
 
-> যেই যেই রূপে জানে, সেই তাহা কহে ।
+> যেই যেই রূপে জানে, সেই তাহা কহে ।\
 > সকল সম্ভবে কৃষ্ণে, কিছু মিথ্যা নহে ॥১৩২॥
 
-> yei yei rūpe jāne, sei tāhā kahe
+> yei yei rūpe jāne, sei tāhā kahe\
 > sakala sambhave kṛṣṇe, kichu mithyā nahe
 
 *yei yei*—cualquier; *rūpe*—en la forma; *jāne*—uno conoce; *sei*—esa persona; *tāhā*—eso; *kahe*—dice; *sakala sambhave kṛṣṇe*—todo es posible en Kṛṣṇa; *kichu mithyā nahe*—no hay falsedad.

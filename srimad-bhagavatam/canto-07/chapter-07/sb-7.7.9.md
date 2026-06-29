@@ -1,13 +1,13 @@
 ### SB 7.7.9
 
-> श्रीइन्द्र उवाच
-> आस्तेऽस्या जठरे वीर्यमविषह्यं सुरद्विषः
+> श्रीइन्द्र उवाच\
+> आस्तेऽस्या जठरे वीर्यमविषह्यं सुरद्विषः\
 > आस्यतां यावत्प्रसवं मोक्ष्येऽर्थपदवीं गतः ॥९॥
 
-> śrī-indra uvāca
-> āste 'syā jaṭhare vīryam
-> aviṣahyaṁ sura-dviṣaḥ
-> āsyatāṁ yāvat prasavaṁ
+> śrī-indra uvāca\
+> āste 'syā jaṭhare vīryam\
+> aviṣahyaṁ sura-dviṣaḥ\
+> āsyatāṁ yāvat prasavaṁ\
 > mokṣye 'rtha-padavīṁ gataḥ
 
 *śrī-indraḥ uvāca*—King Indra said; *āste*—there is; *asyāḥ*—of her; *jaṭhare*—within the abdomen; *vīryam*—the seed; *aviṣahyam*—intolerable; *sura-dviṣaḥ*—of the enemy of the demigods; *āsyatām*—let her remain (in our prison); *yāvat*—until; *prasavam*—the delivery of the child; *mokṣye*—I shall release; *artha-padavīm*—the path of my object; *gataḥ*—obtained.

@@ -1,11 +1,11 @@
 ### SB 9.5.6
 
-> नमः सुनाभाखिलधर्मसेतवे ह्यधर्मशीलासुरधूमकेतवे
+> नमः सुनाभाखिलधर्मसेतवे ह्यधर्मशीलासुरधूमकेतवे\
 > त्रैलोक्यगोपाय विशुद्धवर्चसे मनोजवायाद्भुतकर्मणे गृणे ॥६॥
 
-> namaḥ sunābhākhila-dharma-setave
-> hy adharma-śīlāsura-dhūma-ketave
-> trailokya-gopāya viśuddha-varcase
+> namaḥ sunābhākhila-dharma-setave\
+> hy adharma-śīlāsura-dhūma-ketave\
+> trailokya-gopāya viśuddha-varcase\
 > mano-javāyādbhuta-karmaṇe gṛṇe
 
 *namaḥ*—all respectful obeisances unto you; *su-nābha*—O you who have an auspicious hub; *akhila-dharma-setave*—whose spokes are considered to be a breech of the entire universe; *hi*—indeed; *adharma-śīla*—who are irreligious; *asura*—for the demons; *dhūma-ketave*—unto you who are like fire or an inauspicious comet; *trailokya*—of the three material worlds; *gopāya*—the maintainer; *viśuddha*—transcendental; *varcase*—whose effulgence; *manaḥ-javāya*—as speedy as the mind; *adbhuta*—wonderful; *karmaṇe*—so active; *gṛṇe*—I simply utter.

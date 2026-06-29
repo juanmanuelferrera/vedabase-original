@@ -1,11 +1,11 @@
 ### SB 3.26.2
 
-> ज्ञानं निःश्रेयसार्थाय पुरुषस्यात्मदर्शनम् ।
+> ज्ञानं निःश्रेयसार्थाय पुरुषस्यात्मदर्शनम् ।\
 > यदाहुर्वर्णये तत्ते हृदयग्रन्थिभेदनम् ॥२॥
 
-> jñānaṁ niḥśreyasārthāya
-> puruṣasyātma-darśanam
-> yad āhur varṇaye tat te
+> jñānaṁ niḥśreyasārthāya\
+> puruṣasyātma-darśanam\
+> yad āhur varṇaye tat te\
 > hṛdaya-granthi-bhedanam
 
 *jñānam*—knowledge; *niḥśreyasa-arthāya*—for the ultimate perfection; *puruṣasya*—of a man; *ātma-darśanam*—self-realization; *yat*—which; *āhuḥ*—they said; *varṇaye*—I shall explain; *tat*—that; *te*—to you; *hṛdaya*—in the heart; *granthi*—the knots; *bhedanam*—cuts.

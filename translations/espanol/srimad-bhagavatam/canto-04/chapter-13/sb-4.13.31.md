@@ -1,13 +1,13 @@
 ### SB 4.13.31
 
-> सदसस्पतय ऊचुः
-> नरदेवेह भवतो नाघं तावन्मनाक्स्थितम् ।
+> सदसस्पतय ऊचुः\
+> नरदेवेह भवतो नाघं तावन्मनाक्स्थितम् ।\
 > अस्त्येकं प्राक्तनमघं यदिहेदृक्त्वमप्रजः ॥३१॥
 
-> sadasas-pataya ūcuḥ
-> nara-deveha bhavato
-> nāghaṁ tāvan manāk sthitam
-> asty ekaṁ prāktanam aghaṁ
+> sadasas-pataya ūcuḥ\
+> nara-deveha bhavato\
+> nāghaṁ tāvan manāk sthitam\
+> asty ekaṁ prāktanam aghaṁ\
 > yad ihedṛk tvam aprajaḥ
 
 *sadasaḥ-patayaḥ ūcuḥ*—los sumos sacerdotes dijeron; *nara-deva*—¡oh, rey!; *iha*—en esta vida; *bhavataḥ*—de ti; *na*—no; *agham*—actividad pecaminosa; *tāvat manāk*—incluso muy leve; *sthitam*—situado; *asti*—hay; *ekam*—una; *prāktanam*—en el nacimiento anterior; *agham*—actividad pecaminosa; *yat*—por la cual; *iha*—en esta vida; *īdṛk*—de este modo; *tvam*—tú; *aprajaḥ*—sin ningún hijo varón.

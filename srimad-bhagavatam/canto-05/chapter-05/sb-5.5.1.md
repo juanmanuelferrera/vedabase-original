@@ -1,13 +1,13 @@
 ### SB 5.5.1
 
-> ऋषभ उवाच
-> नायं देहो देहभाजां नृलोके कष्टान्कामानर्हते विड्भुजां ये
+> ऋषभ उवाच\
+> नायं देहो देहभाजां नृलोके कष्टान्कामानर्हते विड्भुजां ये\
 > तपो दिव्यं पुत्रका येन सत्त्वं शुद्ध्येद्यस्माद्ब्रह्मसौख्यं त्वनन्तम ॥१॥
 
-> ṛṣabha uvāca
-> nāyaṁ deho deha-bhājāṁ nṛloke
-> kaṣṭān kāmān arhate viḍ-bhujāṁ ye
-> tapo divyaṁ putrakā yena sattvaṁ
+> ṛṣabha uvāca\
+> nāyaṁ deho deha-bhājāṁ nṛloke\
+> kaṣṭān kāmān arhate viḍ-bhujāṁ ye\
+> tapo divyaṁ putrakā yena sattvaṁ\
 > śuddhyed yasmād brahma-saukhyaṁ tv anantam
 
 *ṛṣabhaḥ uvāca*—Lord Ṛṣabhadeva said; *na*—not; *ayam*—this; *dehaḥ*—body; *deha-bhājām*—of all living entities who have accepted material bodies; *nṛ-loke*—in this world; *kaṣṭān*—troublesome; *kāmān*—sense gratification; *arhate*—deserves; *viṭ-bhujām*—of stool-eaters; *ye*—which; *tapaḥ*—austerities and penances; *divyam*—divine; *putrakāḥ*—My dear sons; *yena*—by which; *sattvam*—the heart; *śuddhyet*—becomes purified; *yasmāt*—from which; *brahma-saukhyam*—spiritual happiness; *tu*—certainly; *anantam*—unending.

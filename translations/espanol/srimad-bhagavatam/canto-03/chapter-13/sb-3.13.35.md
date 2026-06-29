@@ -1,11 +1,11 @@
 ### SB 3.13.35
 
-> रूपं तवैतन्ननु दुष्कृतात्मनां दुर्दर्शनं देव यदध्वरात्मकम् ।
+> रूपं तवैतन्ननु दुष्कृतात्मनां दुर्दर्शनं देव यदध्वरात्मकम् ।\
 > छन्दांसि यस्य त्वचि बर्हिरोमस्वाज्यं दृशि त्वङ्घ्रिषु चातुर्होत्रम् ॥३५॥
 
-> rūpaṁ tavaitan nanu duṣkṛtātmanāṁ
-> durdarśanaṁ deva yad adhvarātmakam
-> chandāṁsi yasya tvaci barhi-romasv
+> rūpaṁ tavaitan nanu duṣkṛtātmanāṁ\
+> durdarśanaṁ deva yad adhvarātmakam\
+> chandāṁsi yasya tvaci barhi-romasv\
 > ājyaṁ dṛśi tv aṅghriṣu cātur-hotram
 
 *rūpam*—forma; *tava*—Tu; *etat*—esta; *nanu*—pero; *duṣkṛta-ātmanām*—de aquellas almas que no son más que malvados; *durdarśanam*—muy difícil de ver; *deva*—¡oh, Señor!; *yat*—eso; *adhvara-ātmakam*—digno de adoración mediante la ejecución de sacrificios; *chandāṁsi*—el *mantra gāyatrī* y otros; *yasya*—cuyo; *tvaci*—tacto de la piel; *barhiḥ*—hierba sagrada llamada *kuśa*; *romasu*—pelos en el cuerpo; *ājyam*—mantequilla clarificada; *dṛśi*—en los ojos; *tu*—también; *aṅghriṣu*—en las cuatro patas; *cātuḥ-hotram*—cuatro tipos de actividades fruitivas.

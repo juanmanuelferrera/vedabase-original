@@ -1,9 +1,9 @@
 ### CC Madhya 6.37
 
-> উচ্চ করি’ করে সবে নাম-সংকীর্তন ।
+> উচ্চ করি’ করে সবে নাম-সংকীর্তন ।\
 > তৃতীয় প্রহরে হৈল প্রভুর চেতন ॥৩৭॥
 
-> ucca kari' kare sabe nāma-saṅkīrtana
+> ucca kari' kare sabe nāma-saṅkīrtana\
 > tṛtīya prahare haila prabhura cetana
 
 *ucca*—very loudly; *kari'*—doing; *kare*—began; *sabe*—all; *nāma-saṅkīrtana*—chanting of the Hare Kṛṣṇa *mahā-mantra*; *tṛtīya prahare*—in the forenoon; *haila*—there was; *prabhura*—of Lord Caitanya; *cetana*—consciousness.

@@ -1,9 +1,9 @@
 ### CC Antya 1.40
 
-> উড়িয়া-দেশে ‘সত্যভামাপুর’-নামে গ্রাম ।
+> উড়িয়া-দেশে ‘সত্যভামাপুর’-নামে গ্রাম ।\
 > এক রাত্রি সেই গ্রামে করিলা বিশ্রাম ॥৪০॥
 
-> uḍiyā-deśe 'satyabhāmā-pura'-nāme grāma
+> uḍiyā-deśe 'satyabhāmā-pura'-nāme grāma\
 > eka rātri sei grāme karilā viśrāma
 
 *uḍiyā-deśe*—en el estado de Orissa; *satyabhāmā-pura*—Satyabhāmā-pura; *nāme*—llamado; *grāma*—una aldea; *eka rātri*—una noche; *sei grāme*—en esa aldea; *karilā viśrāma*—descansó.

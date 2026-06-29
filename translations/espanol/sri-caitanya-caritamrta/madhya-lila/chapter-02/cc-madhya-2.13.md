@@ -1,9 +1,9 @@
 ### CC Madhya 2.13
 
-> হস্ত, পদ, শির, সব শরীর-ভিতরে ।
+> হস্ত, পদ, শির, সব শরীর-ভিতরে ।\
 > প্রবিষ্ট হয় — কূর্মরূপ দেখিয়ে প্রভুরে ॥১৩॥
 
-> hasta, pada, śira saba śarīra-bhitare
+> hasta, pada, śira saba śarīra-bhitare\
 > praviṣṭa haya--kūrma-rūpa dekhiye prabhure
 
 *hasta*—las manos; *pada*—las piernas; *śira*—la cabeza; *saba*—todo; *śarīra*—el cuerpo; *bhitare*—dentro; *praviṣṭa*—entrado; *haya*—ha; *kūrma-rūpa*—como una tortuga; *dekhiye*—uno ve; *prabhure*—al Señor.

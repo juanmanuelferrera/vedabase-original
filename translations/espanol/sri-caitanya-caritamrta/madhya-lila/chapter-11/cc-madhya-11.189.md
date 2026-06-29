@@ -1,9 +1,9 @@
 ### CC Madhya 11.189
 
-> প্রভু কহে, — তোমা স্পর্শি পবিত্র হইতে ৷
+> প্রভু কহে, — তোমা স্পর্শি পবিত্র হইতে ৷\
 > তোমার পবিত্র ধর্ম নাহিক আমাতে ৷৷ ১৮৯ ৷৷ ॥১৮৯॥
 
-> prabhu kahe,-tomā sparśi pavitra ha-ite
+> prabhu kahe,-tomā sparśi pavitra ha-ite\
 > tomāra pavitra dharma nāhika āmāte
 
 *prabhu kahe*—el Señor dijo; *tomā sparśi*—te toco; *pavitra ha-ite*—solo para purificarme; *tomāra*—tus; *pavitra*—purificadas; *dharma*—actividades; *nāhika*—no existen; *āmāte*—en Mí.

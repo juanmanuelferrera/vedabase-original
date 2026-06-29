@@ -1,11 +1,11 @@
 ### SB 8.1.29
 
-> देवा वैधृतयो नाम विधृतेस्तनया नृप
+> देवा वैधृतयो नाम विधृतेस्तनया नृप\
 > नष्टाः कालेन यैर्वेदा विधृताः स्वेन तेजसा ॥२९॥
 
-> devā vaidhṛtayo nāma
-> vidhṛtes tanayā nṛpa
-> naṣṭāḥ kālena yair vedā
+> devā vaidhṛtayo nāma\
+> vidhṛtes tanayā nṛpa\
+> naṣṭāḥ kālena yair vedā\
 > vidhṛtāḥ svena tejasā
 
 *devāḥ*—los semidioses; *vaidhṛtayaḥ*—los Vaidhṛtis; *nāma*—con el nombre; *vidhṛteḥ*—de Vidhṛti; *tanayāḥ*—que eran los hijos; *nṛpa*—¡oh, rey!; *naṣṭāḥ*—se habían perdido; *kālena*—por la influencia del tiempo; *yaiḥ*—por quienes; *vedāḥ*—los *Vedas*; *vidhṛtāḥ*—fueron protegidos; *svena*—con su propio; *tejasā*—poder.

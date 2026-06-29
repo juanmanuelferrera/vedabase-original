@@ -1,9 +1,9 @@
 ### CC Adi 10.116
 
-> রামদাস অভিরাম — সখ্য-প্রেমরাশি ।
+> রামদাস অভিরাম — সখ্য-প্রেমরাশি ।\
 > ষোলসাঙ্গের কাষ্ঠ তুলি’ যে করিল বাঁশী ॥১১৬॥
 
-> rāmadāsa abhirāma—sakhya-premarāśi
+> rāmadāsa abhirāma—sakhya-premarāśi\
 > ṣolasāṅgera kāṣṭha tuli' ye karila vāṅśī
 
 *rāmadāsaabhirāma*—of the name Rāmadāsa Abhirāma; *sakhya-prema*—friendship; *rāśi*—great volume; *ṣolasa-aṅgera*—of sixteen knots; *kaṣṭha*—wood; *tuli'*—lifting; *ye*—one who; *karila*—made; *vāṅśī*—flute.

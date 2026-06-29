@@ -1,11 +1,11 @@
 ### SB 4.27.8
 
-> स पञ्चालपतिः पुत्रान्पितृवंशविवर्धनान् ।
+> स पञ्चालपतिः पुत्रान्पितृवंशविवर्धनान् ।\
 > दारैः संयोजयामास दुहितॄः सदृशैर्वरैः ॥८॥
 
-> sa pañcāla-patiḥ putrān
-> pitṛ-vaṁśa-vivardhanān
-> dāraiḥ saṁyojayām āsa
+> sa pañcāla-patiḥ putrān\
+> pitṛ-vaṁśa-vivardhanān\
+> dāraiḥ saṁyojayām āsa\
 > duhitṝḥ sadṛśair varaiḥ
 
 *saḥ*—él; *pañcāla-patiḥ*—el rey de Pañcāla; *putrān*—hijos; *pitṛ-vaṁśa*—familia paterna; *vivardhanān*—aumentar; *dāraiḥ*—con esposas; *saṁyojayām āsa*—casó; *duhitṝḥ*—hijas; *sadṛśaiḥ*—cualificados; *varaiḥ*—con esposos.

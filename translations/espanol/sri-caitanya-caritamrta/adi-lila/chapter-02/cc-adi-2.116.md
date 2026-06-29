@@ -1,9 +1,9 @@
 ### CC Adi 2.116
 
-> সব শ্রোতাগণের করি চরণ বন্দন ।
+> সব শ্রোতাগণের করি চরণ বন্দন ।\
 > এ সব সিদ্ধান্ত শুন, করি’ এক মন ॥১১৬॥
 
-> saba śrotā-gaṇera kari caraṇa vandana
+> saba śrotā-gaṇera kari caraṇa vandana\
 > e saba siddhānta śuna, kari' eka mana
 
 *saba*—todos; *śrotā-gaṇera*—de los oyentes; *kari*—hago; *caraṇa*—a los pies de loto; *vandana*—oración; *e*—estas; *saba*—todas; *siddhānta*—conclusiones; *śuna*—oíd, por favor; *kari'*—haciendo; *eka*—una; *mana*—mente.

@@ -1,9 +1,9 @@
 ### CC Madhya 8.90
 
-> কৃষ্ণের প্রতিজ্ঞা দৃঢ় সর্বকালে আছে ।
+> কৃষ্ণের প্রতিজ্ঞা দৃঢ় সর্বকালে আছে ।\
 > যে যৈছে ভজে, কৃষ্ণ তারে ভজে তৈছে ॥৯০॥
 
-> kṛṣṇera pratijñā dṛḍha sarva-kāle āche
+> kṛṣṇera pratijñā dṛḍha sarva-kāle āche\
 > ye yaiche bhaje, kṛṣṇa tāre bhaje taiche
 
 *kṛṣṇera*—of Lord Kṛṣṇa; *pratijñā*—the promise; *dṛḍha*—firm; *sarva-kāle*—in all times; *āche*—there is; *ye*—anyone; *yaiche*—just as; *bhaje*—renders service; *kṛṣṇa*—Lord Kṛṣṇa; *tāre*—him; *bhaje*—reciprocates with; *taiche*—so for all time.

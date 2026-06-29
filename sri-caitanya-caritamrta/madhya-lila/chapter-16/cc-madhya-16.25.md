@@ -1,9 +1,9 @@
 ### CC Madhya 16.25
 
-> সব ঠাকুরাণী মহাপ্রভুকে ভিক্ষা দিতে ।
+> সব ঠাকুরাণী মহাপ্রভুকে ভিক্ষা দিতে ।\
 > প্রভুর নানা প্রিয় দ্রব্য নিল ঘর হৈতে ॥২৫॥
 
-> saba ṭhākurāṇī mahāprabhuke bhikṣā dite
+> saba ṭhākurāṇī mahāprabhuke bhikṣā dite\
 > prabhura nānā priya dravya nila ghara haite
 
 *saba ṭhākurāṇī*—all the wives of the great devotees; *mahāprabhuke*—to Śrī Caitanya Mahāprabhu; *bhikṣā dite*—to offer food; *prabhura*—of Śrī Caitanya Mahāprabhu; *nānā*—various; *priya dravya*—pleasing foods; *nila*—took; *ghara haite*—from home.

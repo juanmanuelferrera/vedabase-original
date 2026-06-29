@@ -1,11 +1,11 @@
 ### SB 1.13.7
 
-> तं भुक्तवन्तं विश्रान्तमासीनं सुखमासने ।
+> तं भुक्तवन्तं विश्रान्तमासीनं सुखमासने ।\
 > प्रश्रयावनतो राजा प्राह तेषां च शृण्वताम् ॥७॥
 
-> taṁ bhuktavantaṁ viśrāntam
-> āsīnaṁ sukham āsane
-> praśrayāvanato rājā
+> taṁ bhuktavantaṁ viśrāntam\
+> āsīnaṁ sukham āsane\
+> praśrayāvanato rājā\
 > prāha teṣāṁ ca śṛṇvatām
 
 *tam*—him (Vidura); *bhuktavantam*—after feeding him sumptuously; *viśrāntam*—and having taken rest; *āsīnam*—being seated; *sukham āsane*—on a comfortable seat; *praśraya-avanataḥ*—naturally very gentle and meek; *rājā*—King Yudhiṣṭhira; *prāha*—began to speak; *teṣām ca*—and by them; *śṛṇvatām*—being heard.

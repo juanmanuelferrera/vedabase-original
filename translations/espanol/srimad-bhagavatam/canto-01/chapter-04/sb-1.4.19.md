@@ -1,11 +1,11 @@
 ### SB 1.4.19
 
-> चातुर्होत्रं कर्म शुद्धं प्रजानां वीक्ष्य वैदिकम् ।
+> चातुर्होत्रं कर्म शुद्धं प्रजानां वीक्ष्य वैदिकम् ।\
 > व्यदधाद्यज्ञसन्तत्यै वेदमेकं चतुर्विधम् ॥१९॥
 
-> cātur-hotraṁ karma śuddhaṁ
-> prajānāṁ vīkṣya vaidikam
-> vyadadhād yajña-santatyai
+> cātur-hotraṁ karma śuddhaṁ\
+> prajānāṁ vīkṣya vaidikam\
+> vyadadhād yajña-santatyai\
 > vedam ekaṁ catur-vidham
 
 *cātuḥ*—cuatro; *hotram*—fuegos de sacrificio; *karma śuddham*—purificación del trabajo; *prajānām*—de la gente en general; *vīkṣya*—luego de ver; *vaidikam*—conforme a los ritos védicos; *vyadadhāt*—convertido en; *yajña*—sacrificio; *santatyai*—para expandir; *vedam ekam*—solo un *Veda*; *catuḥ-vidham*—en cuatro divisiones.

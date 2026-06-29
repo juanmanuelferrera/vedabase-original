@@ -1,11 +1,11 @@
 ### SB 4.19.12
 
-> तमत्रिर्भगवानैक्षत्त्वरमाणं विहायसा ।
+> तमत्रिर्भगवानैक्षत्त्वरमाणं विहायसा ।\
 > आमुक्तमिव पाखण्डं योऽधर्मे धर्मविभ्रमः ॥१२॥
 
-> tam atrir bhagavān aikṣat
-> tvaramāṇaṁ vihāyasā
-> āmuktam iva pākhaṇḍaṁ
+> tam atrir bhagavān aikṣat\
+> tvaramāṇaṁ vihāyasā\
+> āmuktam iva pākhaṇḍaṁ\
 > yo 'dharme dharma-vibhramaḥ
 
 *tam*—King Indra; *atriḥ*—the sage Atri; *bhagavān*—most powerful; *aikṣat*—could see; *tvaramāṇam*—moving very hastily; *vihāyasā*—in outer space; *āmuktam iva*—like a liberated person; *pākhaṇḍam*—imposter; *yaḥ*—one who; *adharme*—in irreligion; *dharma*—religion; *vibhramaḥ*—mistaking.

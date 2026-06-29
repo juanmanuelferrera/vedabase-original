@@ -1,11 +1,11 @@
 ### CC Madhya 20.400
 
-> প্রকাশিতাখিলগুণঃ স্মৃতঃ পূর্ণতমো বুধৈঃ ।
+> প্রকাশিতাখিলগুণঃ স্মৃতঃ পূর্ণতমো বুধৈঃ ।\
 > অসর্বব্যঞ্জকঃ পূর্ণতরঃ পূর্ণোঽল্পদর্শকঃ ॥৪০০॥
 
-> prakāśitākhila-guṇaḥ
-> smṛtaḥ pūrṇatamo budhaiḥ
-> asarva-vyañjakaḥ pūrṇa-
+> prakāśitākhila-guṇaḥ\
+> smṛtaḥ pūrṇatamo budhaiḥ\
+> asarva-vyañjakaḥ pūrṇa-\
 > taraḥ pūrṇo 'lpa-darśakaḥ
 
 *prakāśita-akhila-guṇaḥ*—teniendo todas las cualidades trascendentales manifestadas; *smṛtaḥ*—se entiende; *pūrṇa-tamaḥ*—lo más perfecto; *budhaiḥ*—por eruditos; *asarva-vyañjakaḥ*—teniendo cualidades no plenamente manifestadas; *pūrṇa-taraḥ*—más perfecto; *pūrṇaḥ*—perfecto; *alpa-darśakaḥ*—aún menos plenamente manifestado.

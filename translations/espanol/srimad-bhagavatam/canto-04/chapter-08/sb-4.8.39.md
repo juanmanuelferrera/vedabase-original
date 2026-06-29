@@ -1,13 +1,13 @@
 ### SB 4.8.39
 
-> मैत्रेय उवाच
-> इत्युदाहृतमाकर्ण्य भगवान्नारदस्तदा ।
+> मैत्रेय उवाच\
+> इत्युदाहृतमाकर्ण्य भगवान्नारदस्तदा ।\
 > प्रीतः प्रत्याह तं बालं सद्वाक्यमनुकम्पया ॥३९॥
 
-> maitreya uvāca
-> ity udāhṛtam ākarṇya
-> bhagavān nāradas tadā
-> prītaḥ pratyāha taṁ bālaṁ
+> maitreya uvāca\
+> ity udāhṛtam ākarṇya\
+> bhagavān nāradas tadā\
+> prītaḥ pratyāha taṁ bālaṁ\
 > sad-vākyam anukampayā
 
 *maitreyaḥ uvāca*—el sabio Maitreya continuó; *iti*—de este modo; *udāhṛtam*—siendo hablado; *ākarṇya*—escuchar; *bhagavān nāradaḥ*—Nārada, la gran personalidad; *tadā*—después; *prītaḥ*—estando complacido; *pratyāha*—contestó; *tam*—a él; *bālam*—al niño; *sat-vākyam*—buen consejo; *anukampayā*—siendo compasivo.

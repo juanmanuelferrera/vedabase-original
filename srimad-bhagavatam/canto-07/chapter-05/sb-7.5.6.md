@@ -1,13 +1,13 @@
 ### SB 7.5.6
 
-> श्रीनारद उवाच
-> श्रुत्वा पुत्रगिरो दैत्यः परपक्षसमाहिताः
+> श्रीनारद उवाच\
+> श्रुत्वा पुत्रगिरो दैत्यः परपक्षसमाहिताः\
 > जहास बुद्धिर्बालानां भिद्यते परबुद्धिभिः ॥६॥
 
-> śrī-nārada uvāca
-> śrutvā putra-giro daityaḥ
-> para-pakṣa-samāhitāḥ
-> jahāsa buddhir bālānāṁ
+> śrī-nārada uvāca\
+> śrutvā putra-giro daityaḥ\
+> para-pakṣa-samāhitāḥ\
+> jahāsa buddhir bālānāṁ\
 > bhidyate para-buddhibhiḥ
 
 *śrī-nāradaḥ uvāca*—Nārada Muni said; *śrutvā*—hearing; *putra-giraḥ*—the instructive words of his son; *daityaḥ*—Hiraṇyakaśipu; *para-pakṣa*—on the side of the enemy; *samāhitāḥ*—full of faith; *jahāsa*—laughed; *buddhiḥ*—the intelligence; *bālānām*—of small boys; *bhidyate*—is polluted; *para-buddhibhiḥ*—by instructions from the enemy's camp.

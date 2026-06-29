@@ -1,9 +1,9 @@
 ### CC Madhya 6.212
 
-> তবে ভট্টাচার্যে প্রভু সুস্থির করিল ।
+> তবে ভট্টাচার্যে প্রভু সুস্থির করিল ।\
 > স্থির হঞা ভট্টাচার্য বহু স্তুতি কৈল ॥২১২॥
 
-> tabe bhaṭṭācārye prabhu susthira karila
+> tabe bhaṭṭācārye prabhu susthira karila\
 > sthira hañā bhaṭṭācārya bahu stuti kaila
 
 *tabe*—entonces; *bhaṭṭācārye*—a Sārvabhauma Bhaṭṭācārya; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *su-sthira*—pacificación; *karila*—hizo; *sthira hañā*—una vez calmado; *bhaṭṭācārya*—Sārvabhauma Bhaṭṭācārya; *bahu*—muchas; *stuti*—oraciones; *kaila*—ofreció.

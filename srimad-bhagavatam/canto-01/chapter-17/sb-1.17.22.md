@@ -1,13 +1,13 @@
 ### SB 1.17.22
 
-> राजोवाच
-> धर्मं ब्रवीषि धर्मज्ञ धर्मोऽसि वृषरूपधृक् ।
+> राजोवाच\
+> धर्मं ब्रवीषि धर्मज्ञ धर्मोऽसि वृषरूपधृक् ।\
 > यदधर्मकृतः स्थानं सूचकस्यापि तद्भवेत् ॥२२॥
 
-> rājovāca
-> dharmaṁ bravīṣi dharma-jña
-> dharmo 'si vṛṣa-rūpa-dhṛk
-> yad adharma-kṛtaḥ sthānaṁ
+> rājovāca\
+> dharmaṁ bravīṣi dharma-jña\
+> dharmo 'si vṛṣa-rūpa-dhṛk\
+> yad adharma-kṛtaḥ sthānaṁ\
 > sūcakasyāpi tad bhavet
 
 *rājā uvāca*—the King said; *dharmam*—religion; *bravīṣi*—as you speak; *dharma-jña*—O one who knows the codes of religion; *dharmaḥ*—the personality of religion; *asi*—you are; *vṛṣa-rūpa-dhṛk*—in the disguise of a bull; *yat*—whatever; *adharma-kṛtaḥ*—one who acts irreligiously; *sthānam*—place; *sūcakasya*—of the identifier; *api*—also; *tat*—that; *bhavet*—becomes.

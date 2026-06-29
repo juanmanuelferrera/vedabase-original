@@ -1,11 +1,11 @@
 ### SB 1.14.8
 
-> अपि देवर्षिणादिष्टः स कालोऽयमुपस्थितः ।
+> अपि देवर्षिणादिष्टः स कालोऽयमुपस्थितः ।\
 > यदात्मनोऽङ्गमाक्रीडं भगवानुत्सिसृक्षति ॥८॥
 
-> api devarṣiṇādiṣṭaḥ
-> sa kālo 'yam upasthitaḥ
-> yadātmano 'ṅgam ākrīḍaṁ
+> api devarṣiṇādiṣṭaḥ\
+> sa kālo 'yam upasthitaḥ\
+> yadātmano 'ṅgam ākrīḍaṁ\
 > bhagavān utsisṛkṣati
 
 *api*—whether; *deva-ṛṣiṇā*—by the demigod-saint (Nārada); *ādiṣṭaḥ*—instructed; *saḥ*—that; *kālaḥ*—eternal time; *ayam*—this; *upasthitaḥ*—arrived; *yadā*—when; *ātmanaḥ*—of His own self; *aṅgam*—plenary portion; *ākrīḍam*—manifestation; *bhagavān*—the Personality of Godhead; *utsisṛkṣati*—is going to quit.

@@ -1,9 +1,9 @@
 ### CC Antya 4.191
 
-> প্রভু কহে, — “বৈষ্ণব-দেহ ‘প্রাকৃত’ কভু নয় ।
+> প্রভু কহে, — “বৈষ্ণব-দেহ ‘প্রাকৃত’ কভু নয় ।\
 > ‘অপ্রাকৃত’ দেহ ভক্তের ‘চিদানন্দময়’ ॥১৯১॥
 
-> prabhu kahe,—"vaiṣṇava-deha 'prākṛta' kabhu naya
+> prabhu kahe,—"vaiṣṇava-deha 'prākṛta' kabhu naya\
 > 'aprākṛta' deha bhaktera 'cid-ānanda-maya'
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *vaiṣṇava deha*—the body of a Vaiṣṇava; *prākṛta*—material; *kabhu naya*—is never; *aprākṛta*—transcendental; *deha*—body; *bhaktera*—of a devotee; *cit-ānanda-maya*—full of transcendental bliss.

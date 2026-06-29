@@ -1,11 +1,11 @@
 ### CC Adi 4.215
 
-> যথা রাধা প্রিয়া বিষ্ণোস্তস্যাঃ কুণ্ডং প্রিয়ং তথা ।
+> যথা রাধা প্রিয়া বিষ্ণোস্তস্যাঃ কুণ্ডং প্রিয়ং তথা ।\
 > সর্বগোপীষু সৈবৈকা বিষ্ণোরত্যন্তবল্লভা ॥২১৫॥
 
-> yathā rādhā priyā viṣṇos
-> tasyāḥ kuṇḍaṁ priyaṁ tathā
-> sarva-gopīṣu saivaikā
+> yathā rādhā priyā viṣṇos\
+> tasyāḥ kuṇḍaṁ priyaṁ tathā\
+> sarva-gopīṣu saivaikā\
 > viṣṇor atyanta-vallabhā
 
 *yathā*—así como; *rādhā*—Śrīmatī Rādhārāṇī; *priyā*—muy querida; *viṣṇoḥ*—del Señor Kṛṣṇa; *tasyāḥ*—Su; *kuṇḍam*—lugar de baño; *priyam*—muy querido; *tathā*—así también; *sarva-gopīṣu*—entre todas las gopīs; *sā*—Ella; *eva*—ciertamente; *ekā*—la única; *viṣṇoḥ*—del Señor Kṛṣṇa; *atyanta-vallabhā*—la más querida.

@@ -1,9 +1,9 @@
 ### CC Madhya 6.9
 
-> শ্বাস-প্রশ্বাস নাহি উদর-স্পন্দন ।
+> শ্বাস-প্রশ্বাস নাহি উদর-স্পন্দন ।\
 > দেখিয়া চিন্তিত হৈল ভট্টাচার্যের মন ॥৯॥
 
-> śvāsa-praśvāsa nāhi udara-spandana
+> śvāsa-praśvāsa nāhi udara-spandana\
 > dekhiyā cintita haila bhaṭṭācāryera mana
 
 *śvāsa-praśvāsa*—respiración; *nāhi*—no había; *udara*—del abdomen; *spandana*—movimiento; *dekhiyā*—al ver; *cintita*—lleno de ansiedad; *haila*—se volvió; *bhaṭṭācāryera*—de Sārvabhauma Bhaṭṭācārya; *mana*—la mente.

@@ -1,11 +1,11 @@
 ### SB 8.3.11
 
-> सत्त्वेन प्रतिलभ्याय नैष्कर्म्येण विपश्चिता
+> सत्त्वेन प्रतिलभ्याय नैष्कर्म्येण विपश्चिता\
 > नमः कैवल्यनाथाय निर्वाणसुखसंविदे ॥११॥
 
-> sattvena pratilabhyāya
-> naiṣkarmyeṇa vipaścitā
-> namaḥ kaivalya-nāthāya
+> sattvena pratilabhyāya\
+> naiṣkarmyeṇa vipaścitā\
+> namaḥ kaivalya-nāthāya\
 > nirvāṇa-sukha-saṁvide
 
 *sattvena*—by pure devotional service; *prati-labhyāya*—unto the Supreme Personality of Godhead, who is achieved by such devotional activities; *naiṣkarmyeṇa*—by transcendental activities; *vipaścitā*—by persons who are sufficiently learned; *namaḥ*—I offer my respectful obeisances; *kaivalya-nāthāya*—unto the master of the transcendental world; *nirvāṇa*—for one completely freed from material activities; *sukha*—of happiness; *saṁvide*—who is the bestower.

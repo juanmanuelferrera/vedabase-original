@@ -1,9 +1,9 @@
 ### CC Antya 20.135
 
-> তাহাঁই দেখিলা কৃষ্ণের বন্য-ভোজন ।
+> তাহাঁই দেখিলা কৃষ্ণের বন্য-ভোজন ।\
 > জালিয়া উঠাইল, প্রভু আইলা স্ব-ভবন ॥১৩৫॥
 
-> tāhāṅi dekhilā kṛṣṇera vanya-bhojana
+> tāhāṅi dekhilā kṛṣṇera vanya-bhojana\
 > jāliyā uṭhāila, prabhu āilā sva-bhavana
 
 *tāhāṅi*—there; *dekhilā*—He saw; *kṛṣṇera*—of Kṛṣṇa; *vanya-bhojana*—a picnic in the forest; *jāliyā*—a fisherman; *uṭhāila*—caught Him; *prabhu*—the Lord; *āilā*—returned; *sva-bhavana*—to His own residence.

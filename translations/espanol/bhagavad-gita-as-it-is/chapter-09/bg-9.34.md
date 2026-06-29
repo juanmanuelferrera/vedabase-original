@@ -1,11 +1,11 @@
 ### Bg 9.34
 
-> मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु ।
+> मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु ।\
 > मामेवैष्यसि युक्त्वैवमात्मानं मत्परायणः ॥३४॥
 
-> man-manā bhava mad-bhakto
-> mad-yājī māṁ namaskuru
-> mām evaiṣyasi yuktvaivam
+> man-manā bhava mad-bhakto\
+> mad-yājī māṁ namaskuru\
+> mām evaiṣyasi yuktvaivam\
 > ātmānaṁ mat-parāyaṇaḥ
 
 *mat-manāḥ*—siempre pensando en Mí; *bhava*—vuélvete; *mat*—Mí; *bhaktaḥ*—devoto; *mat*—Mí; *yājī*—adorador; *mām*—a Mí; *namaskuru*—ofrece reverencias; *mām*—a Mí; *eva*—completamente; *eṣyasi*—ven; *yuktvā evam*—estando absorto; *ātmānam*—tu alma; *mat-parāyaṇaḥ*—consagrado a Mí.

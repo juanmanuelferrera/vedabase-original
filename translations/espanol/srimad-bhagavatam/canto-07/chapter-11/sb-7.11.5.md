@@ -1,13 +1,13 @@
 ### SB 7.11.5
 
-> श्रीनारद उवाच
-> नत्वा भगवतेऽजाय लोकानां धर्मसेतवे
+> श्रीनारद उवाच\
+> नत्वा भगवतेऽजाय लोकानां धर्मसेतवे\
 > वक्ष्ये सनातनं धर्मं नारायणमुखाच्छ्रुतम ॥५॥
 
-> śrī-nārada uvāca
-> natvā bhagavate 'jāya
-> lokānāṁ dharma-setave
-> vakṣye sanātanaṁ dharmaṁ
+> śrī-nārada uvāca\
+> natvā bhagavate 'jāya\
+> lokānāṁ dharma-setave\
+> vakṣye sanātanaṁ dharmaṁ\
 > nārāyaṇa-mukhāc chrutam
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni dijo; *natvā*—ofrecer mis reverencias; *bhagavate*—a la Suprema Personalidad de Dios; *ajāya*—de existencia eterna, sin nacimiento; *lokānām*—por todo el universo; *dharma-setave*—que protege los principios religiosos; *vakṣye*—explicaré; *sanātanam*—eterno; *dharmam*—deber prescrito; *nārāyaṇa-mukhāt*—de la boca de Nārāyaṇa; *śrutam*—que he escuchado.

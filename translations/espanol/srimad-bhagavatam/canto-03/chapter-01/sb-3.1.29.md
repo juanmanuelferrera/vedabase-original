@@ -1,11 +1,11 @@
 ### SB 3.1.29
 
-> कच्चित्सुखं सात्वतवृष्णिभोज दाशार्हकाणामधिपः स आस्ते ।
+> कच्चित्सुखं सात्वतवृष्णिभोज दाशार्हकाणामधिपः स आस्ते ।\
 > यमभ्यषिञ्चच्छतपत्रनेत्रो नृपासनाशां परिहृत्य दूरात् ॥२९॥
 
-> kaccit sukhaṁ sātvata-vṛṣṇi-bhoja-
-> dāśārhakāṇām adhipaḥ sa āste
-> yam abhyaṣiñcac chata-patra-netro
+> kaccit sukhaṁ sātvata-vṛṣṇi-bhoja-\
+> dāśārhakāṇām adhipaḥ sa āste\
+> yam abhyaṣiñcac chata-patra-netro\
 > nṛpāsanāśāṁ parihṛtya dūrāt
 
 *kaccit*—si; *sukham*—todo va bien; *sātvata*—la raza Sātvata; *vṛṣṇi*—la dinastía Vṛṣṇi; *bhoja*—la dinastía Bhoja; *dāśārhakāṇām*—la raza Dāśārha; *adhipaḥ*—el rey Ugrasena; *saḥ*—él; *āste*—existe; *yam*—a quien; *abhyaṣiñcat*—entronó; *śata-patra-netraḥ*—Śrī Kṛṣṇa; *nṛpa-āsana-āśām*—esperanza del trono real; *parihṛtya*—abandonando; *dūrāt*—en un lugar lejano.

@@ -1,11 +1,11 @@
 ### SB 1.6.26
 
-> नामान्यनन्तस्य हतत्रपः पठन्गुह्यानि भद्राणि कृतानि च स्मरन् ।
+> नामान्यनन्तस्य हतत्रपः पठन्गुह्यानि भद्राणि कृतानि च स्मरन् ।\
 > गां पर्यटंस्तुष्टमना गतस्पृहः कालं प्रतीक्षन्विमदो विमत्सरः ॥२६॥
 
-> nāmāny anantasya hata-trapaḥ paṭhan
-> guhyāni bhadrāṇi kṛtāni ca smaran
-> gāṁ paryaṭaṁs tuṣṭa-manā gata-spṛhaḥ
+> nāmāny anantasya hata-trapaḥ paṭhan\
+> guhyāni bhadrāṇi kṛtāni ca smaran\
+> gāṁ paryaṭaṁs tuṣṭa-manā gata-spṛhaḥ\
 > kālaṁ pratīkṣan vimado vimatsaraḥ
 
 *nāmāni*—the holy name, fame, etc.; *anantasya*—of the unlimited; *hata-trapaḥ*—being freed from all formalities of the material world; *paṭhan*—by recitation, repeated reading, etc.; *guhyāni*—mysterious; *bhadrāṇi*—all benedictory; *kṛtāni*—activities; *ca*—and; *smaran*—constantly remembering; *gām*—on the earth; *paryaṭan*—traveling all through; *tuṣṭa-manāḥ*—fully satisfied; *gata-spṛhaḥ*—completely freed from all material desires; *kālam*—time; *pratīkṣan*—awaiting; *vimadaḥ*—without being proud; *vimatsaraḥ*—without being envious.

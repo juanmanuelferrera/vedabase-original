@@ -1,9 +1,9 @@
 ### CC Madhya 8.57
 
-> প্রভু কহে, — “পড় শ্লোক সাধ্যের নির্ণয় ।”
+> প্রভু কহে, — “পড় শ্লোক সাধ্যের নির্ণয় ।”\
 > রায় কহে, — “স্বধর্মাচরণে বিষ্ণুভক্তি হয় ।।” ॥৫৭॥
 
-> prabhu kahe,—"paḍa śloka sādhyera nirṇaya"
+> prabhu kahe,—"paḍa śloka sādhyera nirṇaya"\
 > rāya kahe,—"sva-dharmācaraṇe viṣṇu-bhakti haya"
 
 *prabhu kahe*—Lord Śrī Caitanya Mahāprabhu said; *paḍa*—just recite; *śloka*—a verse from the revealed scriptures; *sādhyera*—of the aim of life; *nirṇaya*—an ascertainment; *rāya kahe*—Rāmānanda Rāya replied; *sva-dharma-ācaraṇe*—by executing one's occupational duty; *viṣṇu-bhakti*—devotional service to Lord Viṣṇu; *haya*—there is.

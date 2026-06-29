@@ -1,11 +1,11 @@
 ### SB 9.4.55
 
-> प्रत्याख्यातो विरिञ्चेन विष्णुचक्रोपतापितः
+> प्रत्याख्यातो विरिञ्चेन विष्णुचक्रोपतापितः\
 > दुर्वासाः शरणं यातः शर्वं कैलासवासिनम ॥५५॥
 
-> pratyākhyāto viriñcena
-> viṣṇu-cakropatāpitaḥ
-> durvāsāḥ śaraṇaṁ yātaḥ
+> pratyākhyāto viriñcena\
+> viṣṇu-cakropatāpitaḥ\
+> durvāsāḥ śaraṇaṁ yātaḥ\
 > śarvaṁ kailāsa-vāsinam
 
 *pratyākhyātaḥ*—being refused; *viriñcena*—by Lord Brahmā; *viṣṇu-cakra-upatāpitaḥ*—being scorched by the blazing fire of Lord Viṣṇu's disc; *durvāsāḥ*—the great mystic named Durvāsā; *śaraṇam*—f or shelter; *yātaḥ*—went; *śarvam*—unto Lord Śiva; *kailāsa-vāsinam*—the resident of the place known as Kailāsa.

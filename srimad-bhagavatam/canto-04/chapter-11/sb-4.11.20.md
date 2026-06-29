@@ -1,11 +1,11 @@
 ### SB 4.11.20
 
-> न वै स्वपक्षोऽस्य विपक्ष एव वा परस्य मृत्योर्विशतः समं प्रजाः ।
+> न वै स्वपक्षोऽस्य विपक्ष एव वा परस्य मृत्योर्विशतः समं प्रजाः ।\
 > तं धावमानमनुधावन्त्यनीशा यथा रजांस्यनिलं भूतसङ्घाः ॥२०॥
 
-> na vai sva-pakṣo 'sya vipakṣa eva vā
-> parasya mṛtyor viśataḥ samaṁ prajāḥ
-> taṁ dhāvamānam anudhāvanty anīśā
+> na vai sva-pakṣo 'sya vipakṣa eva vā\
+> parasya mṛtyor viśataḥ samaṁ prajāḥ\
+> taṁ dhāvamānam anudhāvanty anīśā\
 > yathā rajāṁsy anilaṁ bhūta-saṅghāḥ
 
 *na*—not; *vai*—however; *sva-pakṣaḥ*—ally; *asya*—of the Supreme Personality of Godhead; *vipakṣaḥ*—enemy; *eva*—certainly; *vā*—or; *parasya*—of the Supreme; *mṛtyoḥ*—in the form of time; *viśataḥ*—entering; *samam*—equally; *prajāḥ*—living entities; *tam*—Him; *dhāvamānam*—moving; *anudhāvanti*—follow behind; *anīśāḥ*—dependent living entities; *yathā*—as; *rajāṁsi*—particles of dust; *anilam*—the wind; *bhūta-saṅghāḥ*—other material elements.

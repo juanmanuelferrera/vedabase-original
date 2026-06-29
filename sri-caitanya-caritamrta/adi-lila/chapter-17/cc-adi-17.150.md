@@ -1,9 +1,9 @@
 ### CC Adi 17.150
 
-> ভাগিনার ক্রোধ মামা অবশ্য সহয় ।
+> ভাগিনার ক্রোধ মামা অবশ্য সহয় ।\
 > মাতুলের অপরাধ ভাগিনা না লয় ॥১৫০॥
 
-> bhāgināra krodha māmā avaśya sahaya
+> bhāgināra krodha māmā avaśya sahaya\
 > mātulera aparādha bhāginā nā laya
 
 *bhāgināra*—of the nephew; *krodha*—anger; *māmā*—maternal uncle; *avaśya*—certainly; *sahaya*—tolerates; *mātulera*—of the maternal uncle; *aparādha*—offense; *bhāginā*—the nephew; *nā*—does not; *laya*—accept.

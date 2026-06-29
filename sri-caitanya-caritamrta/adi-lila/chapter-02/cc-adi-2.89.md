@@ -1,9 +1,9 @@
 ### CC Adi 2.89
 
-> দীপ হৈতে যৈছে বহু দীপের জ্বলন ।
+> দীপ হৈতে যৈছে বহু দীপের জ্বলন ।\
 > মূল এক দীপ তাহা করিয়ে গণন ॥৮৯॥
 
-> dīpa haite yaiche bahu dīpera jvalana
+> dīpa haite yaiche bahu dīpera jvalana\
 > mūla eka dīpa tāhā kariye gaṇana
 
 *dīpa*—a lamp; *haite*—from; *yaiche*—just as; *bahu*—many; *dīpera*—of lamps; *jvalana*—lighting; *mūla*—the original; *eka*—one; *dīpa*—lamp; *tāhā*—that; *kariye*—I make; *gaṇana*—consideration.

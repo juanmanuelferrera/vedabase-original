@@ -1,18 +1,18 @@
 ### CC Madhya 11.29-30
 
-> ādaraḥ paricaryāyāṁ
-> sarvāṅgair abhivandanam
-> mad-bhakta-pūjābhyadhikā
+> ādaraḥ paricaryāyāṁ\
+> sarvāṅgair abhivandanam\
+> mad-bhakta-pūjābhyadhikā\
 > sarva-bhūteṣu man-matiḥ
 
-> ādaraḥ paricaryāyāṁ
-> sarvāṅgair abhivandanam
-> mad-bhakta-pūjābhyadhikā
+> ādaraḥ paricaryāyāṁ\
+> sarvāṅgair abhivandanam\
+> mad-bhakta-pūjābhyadhikā\
 > sarva-bhūteṣu man-matiḥ
 
-> mad-artheṣv aṅga-ceṣṭā ca
-> vacasā mad-guṇeraṇam
-> mayy arpaṇaṁ ca manasaḥ
+> mad-artheṣv aṅga-ceṣṭā ca\
+> vacasā mad-guṇeraṇam\
+> mayy arpaṇaṁ ca manasaḥ\
 > sarva-kāma-vivarjanam
 
 *ādaraḥ*—respeto, atención; *paricaryāyām*—en servicio; *sarva-aṅgaiḥ*—con todas las partes del cuerpo; *abhivandanam*—ofrecer reverencias; *mat-bhakta*—de Mis devotos; *pūjā*—adorar; *abhyadhikā*—muy alta; *sarva-bhūteṣu*—en todas las entidades vivientes; *mat-matiḥ*—comprensión de que tienen una relación conmigo; *mat-artheṣu*—por Mi servicio; *aṅga-ceṣṭāḥ*—ocupar la energía del cuerpo; *ca*—y; *vacasā*—con palabras; *mat-guṇa-īraṇam*—explicar Mis glorias; *mayi*—a Mí; *arpaṇam*—dedicar; *ca*—y; *manasaḥ*—de la mente; *sarva-kāma*—todos los deseos materiales; *vivarjanam*—abandonando.

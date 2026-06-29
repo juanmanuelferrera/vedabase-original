@@ -1,9 +1,9 @@
 ### CC Madhya 11.37
 
-> রায় কহে, চরণ — রথ, হৃদয় — সারথি ৷
+> রায় কহে, চরণ — রথ, হৃদয় — সারথি ৷\
 > যাহাঁ লঞা যায়, তাহাঁ যায় জীব-রথী ৷৷ ৩৭ ৷৷ ॥৩৭॥
 
-> rāya kahe, caraṇa-ratha, hṛdaya-sārathi
+> rāya kahe, caraṇa-ratha, hṛdaya-sārathi\
 > yāhāṅ lañā yāya, tāhāṅ yāya jīva-rathī
 
 *rāya kahe*—Rāmānanda Rāya respondió; *caraṇa*—las piernas; *ratha*—cuadriga; *hṛdaya*—el corazón; *sārathi*—auriga; *yāhāṅ*—adondequiera; *lañā*—llevando; *yāya*—va; *tāhāṅ*—allí; *yāya*—va; *jīva-rathī*—la entidad viviente en la cuadriga.

@@ -1,11 +1,11 @@
 ### SB 6.6.14
 
-> अग्नेर्भार्या वसोर्धारा पुत्रा द्रविणकादयः
+> अग्नेर्भार्या वसोर्धारा पुत्रा द्रविणकादयः\
 > स्कन्दश्च कृत्तिकापुत्रो ये विशाखादयस्ततः ॥१४॥
 
-> skandaś ca kṛttikā-putro
-> ye viśākhādayas tataḥ
-> doṣasya śarvarī-putraḥ
+> skandaś ca kṛttikā-putro\
+> ye viśākhādayas tataḥ\
+> doṣasya śarvarī-putraḥ\
 > śiśumāro hareḥ kalā
 
 *skandaḥ*—Skanda; *ca*—also; *kṛttikā-putraḥ*—the son of Kṛttikā; *ye*—all of whom; *viśākha-ādayaḥ*—headed by Viśākha; *tataḥ*—from him (Skanda); *doṣasya*—of Doṣa; *śarvarī-putraḥ*—the son of his wife Śarvarī; *śiśumāraḥ*—Śiśumāra; *hareḥ kalā*—an expansion of the Supreme Personality of Godhead.

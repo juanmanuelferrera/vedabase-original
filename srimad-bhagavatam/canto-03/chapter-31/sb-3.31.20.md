@@ -1,13 +1,13 @@
 ### SB 3.31.20
 
-> सोऽहं वसन्नपि विभो बहुदुःखवासं
-> गर्भान्न निर्जिगमिषे बहिरन्धकूपे ।
-> यत्रोपयातमुपसर्पति देवमाया
+> सोऽहं वसन्नपि विभो बहुदुःखवासं\
+> गर्भान्न निर्जिगमिषे बहिरन्धकूपे ।\
+> यत्रोपयातमुपसर्पति देवमाया\
 > मिथ्या मतिर्यदनु संसृतिचक्रमेतत् ॥२०॥
 
-> so 'haṁ vasann api vibho bahu-duḥkha-vāsaṁ
-> garbhān na nirjigamiṣe bahir andha-kūpe
-> yatropayātam upasarpati deva-māyā
+> so 'haṁ vasann api vibho bahu-duḥkha-vāsaṁ\
+> garbhān na nirjigamiṣe bahir andha-kūpe\
+> yatropayātam upasarpati deva-māyā\
 > mithyā matir yad-anu saṁsṛti-cakram etat
 
 *saḥ aham*—I myself; *vasan*—living; *api*—although; *vibho*—O Lord; *bahu-duḥkha*—with many miseries; *vāsam*—in a condition; *garbhāt*—from the abdomen; *na*—not; *nirjigamiṣe*—I wish to depart; *bahiḥ*—outside; *andha-kūpe*—in the blind well; *yatra*—where; *upayātam*—one who goes there; *upasarpati*—she captures; *deva-māyā*—the external energy of the Lord; *mithyā*—false; *matiḥ*—identification; *yat*—which *māyā*; *anu*—according to; *saṁsṛti*—of continual birth and death; *cakram*—cycle; *etat*—this.

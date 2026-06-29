@@ -1,11 +1,11 @@
 ### SB 4.17.27
 
-> त्वां स्तब्धां दुर्मदां नीत्वा मायागां तिलशः शरैः ।
+> त्वां स्तब्धां दुर्मदां नीत्वा मायागां तिलशः शरैः ।\
 > आत्मयोगबलेनेमा धारयिष्याम्यहं प्रजाः ॥२७॥
 
-> tvāṁ stabdhāṁ durmadāṁ nītvā
-> māyā-gāṁ tilaśaḥ śaraiḥ
-> ātma-yoga-balenemā
+> tvāṁ stabdhāṁ durmadāṁ nītvā\
+> māyā-gāṁ tilaśaḥ śaraiḥ\
+> ātma-yoga-balenemā\
 > dhārayiṣyāmy ahaṁ prajāḥ
 
 *tvām*—tú; *stabdhām*—muy engreída; *durmadām*—loca; *nītvā*—causando semejante condición; *māyā-gām*—falsa vaca; *tilaśaḥ*—en partículas pequeñas como semillas; *śaraiḥ*—con mis flechas; *ātma*—persona; *yoga-balena*—con poder místico; *imāḥ*—a todos estos; *dhārayiṣyāmi*—sostendré; *aham*—yo; *prajāḥ*—a todos los ciudadanos, o a todas las entidades vivientes.

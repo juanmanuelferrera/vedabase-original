@@ -1,9 +1,9 @@
 ### CC Adi 10.97
 
-> মহাপ্রভুর লীলা যত বাহির-অন্তর ।
+> মহাপ্রভুর লীলা যত বাহির-অন্তর ।\
 > দুই ভাই তাঁর মুখে শুনে নিরন্তর ॥৯৭॥
 
-> mahāprabhura līlā yata bāhira-antara
+> mahāprabhura līlā yata bāhira-antara\
 > dui bhāi tāṅra mukhe śune nirantara
 
 *mahāprabhura*—del Señor Śrī Caitanya Mahāprabhu; *līlā*—pasatiempos; *yata*—todos; *bāhira*—externos; *antara*—internos; *dui bhāi*—los dos hermanos; *tāṅra*—de él; *mukhe*—de sus labios; *śune*—escuchan; *nirantara*—siempre.

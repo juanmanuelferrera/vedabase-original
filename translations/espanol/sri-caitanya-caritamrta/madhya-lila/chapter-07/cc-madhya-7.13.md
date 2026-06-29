@@ -1,9 +1,9 @@
 ### CC Madhya 7.13
 
-> বিশ্বরূপ-সিদ্ধি-প্রাপ্তি জানেন সকল ৷
+> বিশ্বরূপ-সিদ্ধি-প্রাপ্তি জানেন সকল ৷\
 > দক্ষিণ-দেশ উদ্ধারিতে করেন এই ছল ৷৷ ১৩ ৷৷ ॥১৩॥
 
-> viśvarūpa-siddhi-prāpti jānena sakala
+> viśvarūpa-siddhi-prāpti jānena sakala\
 > dakṣiṇa-deśa uddhārite karena ei chala
 
 *viśvarūpa*—de Viśvarūpa; *siddhi*—de perfección; *prāpti*—logro; *jānena*—el Señor sabe; *sakala*—todo; *dakṣiṇa-deśa*—el sur de la India; *uddhārite*—simplemente para liberar; *karena*—hace; *ei*—este; *chala*—pretexto.

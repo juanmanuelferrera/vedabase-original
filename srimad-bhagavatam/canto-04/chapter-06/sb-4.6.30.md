@@ -1,11 +1,11 @@
 ### SB 4.6.30
 
-> वनकुञ्जरसङ्घृष्ट हरिचन्दनवायुना ।
+> वनकुञ्जरसङ्घृष्ट हरिचन्दनवायुना ।\
 > अधि पुण्यजनस्त्रीणां मुहुरुन्मथयन्मनः ॥३०॥
 
-> vana-kuñjara-saṅghṛṣṭa-
-> haricandana-vāyunā
-> adhi puṇyajana-strīṇāṁ
+> vana-kuñjara-saṅghṛṣṭa-\
+> haricandana-vāyunā\
+> adhi puṇyajana-strīṇāṁ\
 > muhur unmathayan manaḥ
 
 *vana-kuñjara*—by wild elephants; *saṅghṛṣṭa*—rubbed against; *haricandana*—the sandalwood trees; *vāyunā*—by the breeze; *adhi*—further; *puṇyajana-strīṇām*—of the wives of the Yakṣas; *muhuḥ*—again and again; *unmathayat*—agitating; *manaḥ*—the minds.

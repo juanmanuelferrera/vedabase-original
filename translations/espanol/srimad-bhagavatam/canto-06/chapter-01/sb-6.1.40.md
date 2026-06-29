@@ -1,13 +1,13 @@
 ### SB 6.1.40
 
-> यमदूता ऊचुः
-> वेदप्रणिहितो धर्मो ह्यधर्मस्तद्विपर्ययः
+> यमदूता ऊचुः\
+> वेदप्रणिहितो धर्मो ह्यधर्मस्तद्विपर्ययः\
 > वेदो नारायणः साक्षात्स्वयम्भूरिति शुश्रुम ॥४०॥
 
-> yamadūtā ūcuḥ
-> veda-praṇihito dharmo
-> hy adharmas tad-viparyayaḥ
-> vedo nārāyaṇaḥ sākṣāt
+> yamadūtā ūcuḥ\
+> veda-praṇihito dharmo\
+> hy adharmas tad-viparyayaḥ\
+> vedo nārāyaṇaḥ sākṣāt\
 > svayambhūr iti śuśruma
 
 *yamadūtāḥ ūcuḥ*—los mensajeros de Yamarāja dijeron; *veda*—por los cuatro *Vedas* (*Sāma, Yajur, Ṛg* y *Atharva*); *praṇihitaḥ*—prescritos; *dharmaḥ*—principios religiosos; *hi*—en verdad; *adharmaḥ*—principios irreligiosos; *tat-viparyayaḥ*—lo contrario de eso (lo que no viene respaldado por los mandamientos de los *Vedas*); *vedaḥ*—los *Vedas*, libros de conocimiento; *nārāyaṇaḥ sākṣāt*—directamente la Suprema Personalidad de Dios (al ser las palabras de Nārāyaṇa); *svayam-bhūḥ*—que nacen por sí solos, autosuficientes (cuyo único origen es la respiración de Nārāyaṇa, y que no han sido aprendidos de nadie); *iti*—así; *śuśruma*—hemos escuchado.

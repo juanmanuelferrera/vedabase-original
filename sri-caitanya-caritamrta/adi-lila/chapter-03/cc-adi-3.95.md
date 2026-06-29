@@ -1,9 +1,9 @@
 ### CC Adi 3.95
 
-> মাধব-ঈশ্বর-পুরী, শচী, জগন্নাথ ।
+> মাধব-ঈশ্বর-পুরী, শচী, জগন্নাথ ।\
 > অদ্বৈত আচার্য প্রকট হৈলা সেই সাথ ॥৯৫॥
 
-> mādhava-īśvara-purī, śacī, jagannātha
+> mādhava-īśvara-purī, śacī, jagannātha\
 > advaita ācārya prakaṭa hailā sei sātha
 
 *mādhava*—Mādhavendra Purī; *īśvara-purī*—Īśvara Purī; *śacī*—Śacīmātā; *jagannātha*—Jagannātha Miśra; *advaita ācārya*—Advaita Ācārya; *prakaṭa*—manifested; *hailā*—were; *sei*—this; *sātha*—with.

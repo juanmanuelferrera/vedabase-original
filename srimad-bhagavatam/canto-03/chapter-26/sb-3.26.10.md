@@ -1,13 +1,13 @@
 ### SB 3.26.10
 
-> श्रीभगवानुवाच
-> यत्तत्त्रिगुणमव्यक्तं नित्यं सदसदात्मकम् ।
+> श्रीभगवानुवाच\
+> यत्तत्त्रिगुणमव्यक्तं नित्यं सदसदात्मकम् ।\
 > प्रधानं प्रकृतिं प्राहुरविशेषं विशेषवत् ॥१०॥
 
-> śrī-bhagavān uvāca
-> yat tat tri-guṇam avyaktaṁ
-> nityaṁ sad-asad-ātmakam
-> pradhānaṁ prakṛtiṁ prāhur
+> śrī-bhagavān uvāca\
+> yat tat tri-guṇam avyaktaṁ\
+> nityaṁ sad-asad-ātmakam\
+> pradhānaṁ prakṛtiṁ prāhur\
 > aviśeṣaṁ viśeṣavat
 
 *śrī-bhagavān uvāca*—the Supreme Personality of Godhead said; *yat*—now further; *tat*—that; *tri-guṇam*—combination of the three modes; *avyaktam*—unmanifested; *nityam*—eternal; *sat-asat-ātmakam*—consisting of cause and effect; *pradhānam*—the *pradhāna*; *prakṛtim*—*prakṛti*; *prāhuḥ*—they call; *aviśeṣam*—undifferentiated; *viśeṣa-vat*—possessing differentiation.

@@ -1,11 +1,11 @@
 ### SB 1.7.34
 
-> शिबिराय निनीषन्तं रज्ज्वा बद्ध्वा रिपुं बलात् ।
+> शिबिराय निनीषन्तं रज्ज्वा बद्ध्वा रिपुं बलात् ।\
 > प्राहार्जुनं प्रकुपितो भगवानम्बुजेक्षणः ॥३४॥
 
-> śibirāya ninīṣantaṁ
-> rajjvā baddhvā ripuṁ balāt
-> prāhārjunaṁ prakupito
+> śibirāya ninīṣantaṁ\
+> rajjvā baddhvā ripuṁ balāt\
+> prāhārjunaṁ prakupito\
 > bhagavān ambujekṣaṇaḥ
 
 *śibirāya*—on the way to the military camp; *ninīṣantam*—while bringing him; *rajjvā*—by the ropes; *baddhvā*—bound up; *ripum*—the enemy; *balāt*—by force; *prāha*—said; *arjunam*—unto Arjuna; *prakupitaḥ*—in an angry mood; *bhagavān*—the Personality of Godhead; *ambuja-īkṣaṇaḥ*—who looks with His lotus eyes.

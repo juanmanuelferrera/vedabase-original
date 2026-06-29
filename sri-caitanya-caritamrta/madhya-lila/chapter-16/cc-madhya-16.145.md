@@ -1,13 +1,13 @@
 ### CC Madhya 16.145
 
-> স্বনিগমমপহায় মৎপ্রতিজ্ঞা-
-> মৃতমধিকর্তুমবপ্লুতো রথস্থঃ ।
-> ধৃতরথচরণোঽভ্যয়াচ্চলদ্গু-
+> স্বনিগমমপহায় মৎপ্রতিজ্ঞা-\
+> মৃতমধিকর্তুমবপ্লুতো রথস্থঃ ।\
+> ধৃতরথচরণোঽভ্যয়াচ্চলদ্গু-\
 > র্হরিরিব হন্তুমিভং গতোত্তরীয়ঃ ॥১৪৫॥
 
-> svanigamam apahāya mat-pratijñām
-> ṛtam adhikartum avapluto ratha-sthaḥ
-> dhṛta-ratha-caraṇo 'bhyayāc caladgur
+> svanigamam apahāya mat-pratijñām\
+> ṛtam adhikartum avapluto ratha-sthaḥ\
+> dhṛta-ratha-caraṇo 'bhyayāc caladgur\
 > harir iva hantum ibhaṁ gatottarīyaḥ
 
 *sva-nigamam*—His own promise not to take a weapon and fight on behalf of the Pāṇḍavas; *apahāya*—giving up; *mat-pratijñām*—my promise; *ṛtam*—true; *adhikartum*—to make more; *avaplutaḥ*—having jumped down; *ratha-sthaḥ*—who was on the chariot (Lord Kṛṣṇa); *dhṛta*—who took up; *ratha-caraṇaḥ*—the wheel of the chariot; *abhyayāt*—ran forward; *calat-guḥ*—making the entire planet tremble; *hariḥ*—a lion; *iva*—like; *hantum*—to kill; *ibham*—an elephant; *gata-uttarīyaḥ*—losing the outer garment.

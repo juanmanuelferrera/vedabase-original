@@ -1,11 +1,11 @@
 ### SB 1.6.30
 
-> सहस्रयुगपर्यन्ते उत्थायेदं सिसृक्षतः ।
+> सहस्रयुगपर्यन्ते उत्थायेदं सिसृक्षतः ।\
 > मरीचिमिश्रा ऋषयः प्राणेभ्योऽहं च जज्ञिरे ॥३०॥
 
-> sahasra-yuga-paryante
-> utthāyedaṁ sisṛkṣataḥ
-> marīci-miśrā ṛṣayaḥ
+> sahasra-yuga-paryante\
+> utthāyedaṁ sisṛkṣataḥ\
+> marīci-miśrā ṛṣayaḥ\
 > prāṇebhyo 'haṁ ca jajñire
 
 *sahasra*—mil; *yuga*—4 300 000 años; *paryante*—al final de la duración; *utthāya*—habiendo expirado; *idam*—este; *sisṛkṣataḥ*—deseó crear de nuevo; *marīci-miśrāḥ*—*ṛṣis* como Marīci; *ṛṣayaḥ*—todos los *ṛṣis*; *prāṇebhyaḥ*—de Sus sentidos; *aham*—yo; *ca*—también; *jajñire*—aparecí.

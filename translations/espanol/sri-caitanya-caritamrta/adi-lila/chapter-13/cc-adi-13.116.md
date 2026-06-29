@@ -1,13 +1,13 @@
 ### CC Adi 13.116
 
-> সর্ব অঙ্গ — সুনির্মাণ, সুবর্ণ-প্রতিমা-ভান,
-> সর্ব অঙ্গ — সুলক্ষণময় ।
-> বালকের দিব্য জ্যোতি, দেখি’ পাইল বহু প্রীতি,
+> সর্ব অঙ্গ — সুনির্মাণ, সুবর্ণ-প্রতিমা-ভান,\
+> সর্ব অঙ্গ — সুলক্ষণময় ।\
+> বালকের দিব্য জ্যোতি, দেখি’ পাইল বহু প্রীতি,\
 > বাৎসল্যেতে দ্রবিল হৃদয় ॥১১৬॥
 
-> sarva aṅga--sunirmāṇa, suvarṇa-pratimā-bhāna,
-> sarva aṅga--sulakṣaṇamaya
-> bālakera divya jyoti, dekhi' pāila bahu prīti,
+> sarva aṅga--sunirmāṇa, suvarṇa-pratimā-bhāna,\
+> sarva aṅga--sulakṣaṇamaya\
+> bālakera divya jyoti, dekhi' pāila bahu prīti,\
 > vātsalyete dravila hṛdaya
 
 *sarva aṅga*—todas las distintas partes del cuerpo; *sunirmāṇa*—bien formadas; *suvarṇa*—de oro; *pratimā*—forma; *bhāna*—semejanza; *sarva*—todas; *aṅga*—las partes del cuerpo; *sulakṣaṇa-maya*—llenas de signos auspiciosos; *bālakera*—del niño; *divya*—trascendental; *jyoti*—fulgor; *dekhi'*—al ver; *pāila*—obtuvo; *bahu*—mucha; *prīti*—satisfacción; *vātsalyete*—por afecto maternal; *dravila*—se derritió; *hṛdaya*—su corazón.

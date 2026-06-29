@@ -1,11 +1,11 @@
 ### SB 8.18.23
 
-> इत्थं सशिष्येषु भृगुष्वनेकधा वितर्क्यमाणो भगवान्स वामनः
+> इत्थं सशिष्येषु भृगुष्वनेकधा वितर्क्यमाणो भगवान्स वामनः\
 > छत्रं सदण्डं सजलं कमण्डलुं विवेश बिभ्रद्धयमेधवाटम ॥२३॥
 
-> itthaṁ saśiṣyeṣu bhṛguṣv anekadhā
-> vitarkyamāṇo bhagavān sa vāmanaḥ
-> chatraṁ sadaṇḍaṁ sajalaṁ kamaṇḍaluṁ
+> itthaṁ saśiṣyeṣu bhṛguṣv anekadhā\
+> vitarkyamāṇo bhagavān sa vāmanaḥ\
+> chatraṁ sadaṇḍaṁ sajalaṁ kamaṇḍaluṁ\
 > viveśa bibhrad dhayamedha-vāṭam
 
 *ittham*—in this way; *sa-śiṣyeṣu*—with their disciples; *bhṛguṣu*—among the Bhṛgus; *anekadhā*—in many ways; *vitarkyamāṇaḥ*—being talked and argued about; *bhagavān*—the Supreme Personality of Godhead; *saḥ*—that; *vāmanaḥ*—Lord Vāmana; *chatram*—umbrella; *sadaṇḍam*—with the rod; *sa-jalam*—filled with water; *kamaṇḍalum*—waterpot; *viveśa*—entered; *bibhrat*—taking in hand; *hayamedha*—of the *aśvamedha* sacrifice; *vāṭam*—the arena.

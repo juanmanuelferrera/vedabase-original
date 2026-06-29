@@ -1,13 +1,13 @@
 ### SB 7.9.43
 
-> नैवोद्विजे पर दुरत्ययवैतरण्यास
-> त्वद्वीर्यगायनमहामृतमग्नचित्तः
-> शोचे ततो विमुखचेतस इन्द्रियार्थ
+> नैवोद्विजे पर दुरत्ययवैतरण्यास\
+> त्वद्वीर्यगायनमहामृतमग्नचित्तः\
+> शोचे ततो विमुखचेतस इन्द्रियार्थ\
 > मायासुखाय भरमुद्वहतो विमूढान ॥४३॥
 
-> naivodvije para duratyaya-vaitaraṇyās
-> tvad-vīrya-gāyana-mahāmṛta-magna-cittaḥ
-> śoce tato vimukha-cetasa indriyārtha-
+> naivodvije para duratyaya-vaitaraṇyās\
+> tvad-vīrya-gāyana-mahāmṛta-magna-cittaḥ\
+> śoce tato vimukha-cetasa indriyārtha-\
 > māyā-sukhāya bharam udvahato vimūḍhān
 
 *na*—not; *eva*—certainly; *udvije*—I am disturbed or afraid; *para*—O Supreme; *duratyaya*—insurmountable or very difficult to cross; *vaitaraṇyāḥ*—of the Vaitaraṇī, the river of the material world; *tvat-vīrya*—of Your Lordship's glories and activities; *gāyana*—from chanting or distributing; *mahā-amṛta*—in the great ocean of nectarean spiritual bliss; *magna-cittaḥ*—whose consciousness is absorbed; *śoce*—I am simply lamenting; *tataḥ*—from that; *vimukha-cetasaḥ*—the fools and rascals who are bereft of Kṛṣṇa consciousness; *indriya-artha*—in sense gratification; *māyā-sukhāya*—for temporary, illusory happiness; *bharam*—the false burden or responsibility (of maintaining one's family, society and nation and elaborate arrangements for that purpose); *udvahataḥ*—who are lifting (by making grand plans for this arrangement); *vimūḍhān*—although all of them are nothing but fools and rascals (I am thinking of them also).

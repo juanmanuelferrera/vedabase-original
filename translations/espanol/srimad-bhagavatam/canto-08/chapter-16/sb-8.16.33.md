@@ -1,11 +1,11 @@
 ### SB 8.16.33
 
-> नमो हिरण्यगर्भाय प्राणाय जगदात्मने
+> नमो हिरण्यगर्भाय प्राणाय जगदात्मने\
 > योगैश्वर्यशरीराय नमस्ते योगहेतवे ॥३३॥
 
-> namo hiraṇyagarbhāya
-> prāṇāya jagad-ātmane
-> yogaiśvarya-śarīrāya
+> namo hiraṇyagarbhāya\
+> prāṇāya jagad-ātmane\
+> yogaiśvarya-śarīrāya\
 > namas te yoga-hetave
 
 *namaḥ*—yo Te ofrezco respetuosas reverencias; *hiraṇyagarbhāya*—en la forma del Hiraṇyagarbha de cuatro cabezas, Brahmā; *prāṇāya*—la fuente de la vida de todos; *jagat-ātmane*—la Superalma del universo entero; *yoga-aiśvarya-śarīrāya*—cuyo cuerpo está lleno de opulencias y de poder místico; *namaḥ te*—yo Te ofrezco respetuosas reverencias; *yoga-hetave*—el amo original de todo poder místico.

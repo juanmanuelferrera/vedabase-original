@@ -1,11 +1,11 @@
 ### SB 4.13.28
 
-> न विदामेह देवानां हेलनं वयमण्वपि ।
+> न विदामेह देवानां हेलनं वयमण्वपि ।\
 > यन्न गृह्णन्ति भागान्स्वान्ये देवाः कर्मसाक्षिणः ॥२८॥
 
-> na vidāmeha devānāṁ
-> helanaṁ vayam aṇv api
-> yan na gṛhṇanti bhāgān svān
+> na vidāmeha devānāṁ\
+> helanaṁ vayam aṇv api\
+> yan na gṛhṇanti bhāgān svān\
 > ye devāḥ karma-sākṣiṇaḥ
 
 *na*—no; *vidāma*—podemos encontrar; *iha*—en relación con esto; *devānām*—de los semidioses; *helanam*—insulto, desconsideración; *vayam*—nosotros; *aṇu*—diminuto; *api*—incluso; *yat*—por lo cual; *na*—no; *gṛhṇanti*—acepten; *bhāgān*—partes; *svān*—propias; *ye*—quienes; *devāḥ*—los semidioses; *karma-sākṣiṇaḥ*—testigos del sacrificio.

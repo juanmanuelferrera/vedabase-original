@@ -1,11 +1,11 @@
 ### SB 7.13.7
 
-> नासच्छास्त्रेषु सज्जेत नोपजीवेत जीविकाम
+> नासच्छास्त्रेषु सज्जेत नोपजीवेत जीविकाम\
 > वादवादांस्त्यजेत्तर्कान्पक्षं कंच न संश्रयेत ॥७॥
 
-> nāsac-chāstreṣu sajjeta
-> nopajīveta jīvikām
-> vāda-vādāṁs tyajet tarkān
+> nāsac-chāstreṣu sajjeta\
+> nopajīveta jīvikām\
+> vāda-vādāṁs tyajet tarkān\
 > pakṣaṁ kaṁca na saṁśrayet
 
 *na*—not; *asat-śāstreṣu*—literature like newspapers, novels, dramas and fiction; *sajjeta*—one should be attached or should indulge in reading; *na*—nor; *upajīveta*—one should try to live; *jīvikām*—upon some professional literary career; *vāda-vādān*—unnecessary arguments on different aspects of philosophy; *tyajet*—one should give up; *tarkān*—arguments and counterarguments; *pakṣam*—faction; *kaṁca*—any; *na*—not; *saṁśrayet*—should take shelter of.

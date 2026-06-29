@@ -1,11 +1,11 @@
 ### CC Adi 1.54
 
-> ঋতেঽর্থং যৎ প্রতীয়েত ন প্রতীয়েত চাত্মনি ।
+> ঋতেঽর্থং যৎ প্রতীয়েত ন প্রতীয়েত চাত্মনি ।\
 > তদ্বিদ্যাদাত্মনো মায়াং যথাভাসো যথা তমঃ ॥৫৪॥
 
-> ṛte 'rthaṁ yat pratīyeta
-> na pratīyeta cātmani
-> tad vidyād ātmano māyāṁ
+> ṛte 'rthaṁ yat pratīyeta\
+> na pratīyeta cātmani\
+> tad vidyād ātmano māyāṁ\
 > yathābhāso yathā tamaḥ
 
 *ṛte*—without; *artham*—value; *yat*—that which; *pratīyeta*—appears to be; *na*—not; *pratīyeta*—appears to be; *ca*—certainly; *ātmani*—in relation to Me; *tat*—that; *vidyāt*—you must know; *ātmanaḥ*—My; *māyām*—illusory energy; *yathā*—just as; *ābhāsaḥ*—the reflection; *yathā*—just as; *tamaḥ*—the darkness.

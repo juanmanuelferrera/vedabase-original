@@ -1,11 +1,11 @@
 ### SB 1.17.3
 
-> गां च धर्मदुघां दीनां भृशं शूद्रपदाहताम् ।
+> गां च धर्मदुघां दीनां भृशं शूद्रपदाहताम् ।\
 > विवत्सामाश्रुवदनां क्षामां यवसमिच्छतीम् ॥३॥
 
-> gāṁ ca dharma-dughāṁ dīnāṁ
-> bhṛśaṁ śūdra-padāhatām
-> vivatsām āśru-vadanāṁ
+> gāṁ ca dharma-dughāṁ dīnāṁ\
+> bhṛśaṁ śūdra-padāhatām\
+> vivatsām āśru-vadanāṁ\
 > kṣāmāṁ yavasam icchatīm
 
 *gām*—the cow; *ca*—also; *dharma-dughām*—beneficial because one can draw religion from her; *dīnām*—now rendered poor; *bhṛśam*—distressed; *śūdra*—the lower caste; *pada-āhatām*—beaten on the legs; *vivatsām*—without any calf; *āśru-vadanām*—with tears in her eyes; *kṣāmām*—very weak; *yavasam*—grass; *icchatīm*—as if desiring to have some grass to eat.

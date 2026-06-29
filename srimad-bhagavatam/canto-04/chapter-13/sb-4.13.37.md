@@ -1,11 +1,11 @@
 ### SB 4.13.37
 
-> स विप्रानुमतो राजा गृहीत्वाञ्जलिनौदनम् ।
+> स विप्रानुमतो राजा गृहीत्वाञ्जलिनौदनम् ।\
 > अवघ्राय मुदा युक्तः प्रादात्पत्न्या उदारधीः ॥३७॥
 
-> sa viprānumato rājā
-> gṛhītvāñjalinaudanam
-> avaghrāya mudā yuktaḥ
+> sa viprānumato rājā\
+> gṛhītvāñjalinaudanam\
+> avaghrāya mudā yuktaḥ\
 > prādāt patnyā udāra-dhīḥ
 
 *saḥ*—he; *vipra*—of the *brāhmaṇas*; *anumataḥ*—taking permission; *rājā*—the King; *gṛhītvā*—taking; *añjalinā*—in his joined palms; *odanam*—rice boiled in milk; *avaghrāya*—after smelling; *mudā*—with great delight; *yuktaḥ*—fixed; *prādāt*—offered; *patnyai*—to his wife; *udāra-dhīḥ*—liberal-minded.

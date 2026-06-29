@@ -1,9 +1,9 @@
 ### CC Madhya 6.121
 
-> বেদান্ত-শ্রবণ, — এই সন্ন্যাসীর ধর্ম ।
+> বেদান্ত-শ্রবণ, — এই সন্ন্যাসীর ধর্ম ।\
 > নিরন্তর কর তুমি বেদান্ত শ্রবণ ॥১২১॥
 
-> vedānta-śravaṇa,--ei sannyāsīra dharma
+> vedānta-śravaṇa,--ei sannyāsīra dharma\
 > nirantara kara tumi vedānta śravaṇa
 
 *vedānta-śravaṇa*—escuchar la filosofía Vedānta; *ei*—esta; *sannyāsīra*—de una persona en la orden de renuncia; *dharma*—ocupación real; *nirantara*—incesantemente; *kara*—haz; *tumi*—Tú; *vedānta*—de la filosofía Vedānta; *śravaṇa*—escucha.

@@ -1,18 +1,18 @@
 ### SB 6.15.18-19
 
-> इत्थं त्वां पुत्रशोकेन मग्नं तमसि दुस्तरे
-> अतदर्हमनुस्मृत्य महापुरुषगोचरम ॥१८॥
-> अनुग्रहाय भवतः प्राप्तावावामिह प्रभो
+> इत्थं त्वां पुत्रशोकेन मग्नं तमसि दुस्तरे\
+> अतदर्हमनुस्मृत्य महापुरुषगोचरम ॥१८॥\
+> अनुग्रहाय भवतः प्राप्तावावामिह प्रभो\
 > ब्रह्मण्यो भगवद्भक्तो नावासादितुमर्हसि ॥१९॥
 
-> itthaṁ tvāṁ putra-śokena
-> magnaṁ tamasi dustare
-> atad-arham anusmṛtya
+> itthaṁ tvāṁ putra-śokena\
+> magnaṁ tamasi dustare\
+> atad-arham anusmṛtya\
 > mahāpuruṣa-gocaram
 
-> anugrahāya bhavataḥ
-> prāptāv āvām iha prabho
-> brahmaṇyo bhagavad-bhakto
+> anugrahāya bhavataḥ\
+> prāptāv āvām iha prabho\
+> brahmaṇyo bhagavad-bhakto\
 > nāvāsāditum arhasi
 
 *ittham*—de este modo; *tvām*—tú; *putra-śokena*—por el dolor ante la muerte de tu hijo; *magnam*—sumido; *tamasi*—en la oscuridad; *dustare*—insuperable; *a-tat-arham*—impropio de una persona como tú; *anusmṛtya*—recordar; *mahā-puruṣa*—la Suprema Personalidad de Dios; *gocaram*—que son avanzados en comprensión; *anugrahāya*—para dar misericordia; *bhavataḥ*—hacia ti; *prāptau*—llegados; *āvām*—nosotros dos; *iha*—a este lugar; *prabho*—¡oh, rey!; *brahmaṇyaḥ*—aquel que está situado en la Verdad Absoluta Suprema; *bhagavat-bhaktaḥ*—un devoto avanzado de la Suprema Personalidad de Dios; *na*—no; *avāsāditum*—lamentar; *arhasi*—tú mereces.

@@ -1,11 +1,11 @@
 ### SB 5.1.41
 
-> भौमं दिव्यं मानुषं च महित्वं कर्मयोगजम
+> भौमं दिव्यं मानुषं च महित्वं कर्मयोगजम\
 > यश्चक्रे निरयौपम्यं पुरुषानुजनप्रियः ॥४०॥
 
-> bhaumaṁ divyaṁ mānuṣaṁ ca
-> mahitvaṁ karma-yogajam
-> yaś cakre nirayaupamyaṁ
+> bhaumaṁ divyaṁ mānuṣaṁ ca\
+> mahitvaṁ karma-yogajam\
+> yaś cakre nirayaupamyaṁ\
 > puruṣānujana-priyaḥ
 
 *bhaumam*—de los planetas inferiores; *divyam*—celestiales; *mānuṣam*—de seres humanos; *ca*—también; *mahitvam*—todas las opulencias; *karma*—con actividades fruitivas; *yoga*—con poder místico; *jam*—nacidas; *yaḥ*—aquel que; *cakre*—hizo; *niraya*—con infierno; *aupamyam*—comparación o igualdad; *puruṣa*—de la Suprema Personalidad de Dios; *anujana*—al devoto; *priyaḥ*—muy querido.

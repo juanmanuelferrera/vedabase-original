@@ -1,11 +1,11 @@
 ### SB 1.6.23
 
-> सत्सेवयादीर्घयापि जाता मयि दृढा मतिः ।
+> सत्सेवयादीर्घयापि जाता मयि दृढा मतिः ।\
 > हित्वावद्यमिमं लोकं गन्ता मज्जनतामसि ॥२३॥
 
-> sat-sevayādīrghayāpi
-> jātā mayi dṛḍhā matiḥ
-> hitvāvadyam imaṁ lokaṁ
+> sat-sevayādīrghayāpi\
+> jātā mayi dṛḍhā matiḥ\
+> hitvāvadyam imaṁ lokaṁ\
 > gantā maj-janatām asi
 
 *sat-sevayā*—mediante el servicio a la Verdad Absoluta; *adīrghayā*—por algunos días; *api*—aun; *jātā*—habiendo alcanzado; *mayi*—a Mí; *dṛḍhā*—firme; *matiḥ*—inteligencia; *hitvā*—habiendo abandonado; *avadyam*—deplorable; *imam*—este; *lokam*—mundos materiales; *gantā*—yendo a; *mat-janatām*—Mis asociados; *asi*—convertirse.

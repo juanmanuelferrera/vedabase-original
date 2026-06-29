@@ -1,11 +1,11 @@
 ### SB 4.21.49
 
-> अहो वयं ह्यद्य पवित्रकीर्ते त्वयैव नाथेन मुकुन्दनाथाः ।
+> अहो वयं ह्यद्य पवित्रकीर्ते त्वयैव नाथेन मुकुन्दनाथाः ।\
 > य उत्तमश्लोकतमस्य विष्णोर्ब्रह्मण्यदेवस्य कथां व्यनक्ति ॥४९॥
 
-> aho vayaṁ hy adya pavitra-kīrte
-> tvayaiva nāthena mukunda-nāthāḥ
-> ya uttamaślokatamasya viṣṇor
+> aho vayaṁ hy adya pavitra-kīrte\
+> tvayaiva nāthena mukunda-nāthāḥ\
+> ya uttamaślokatamasya viṣṇor\
 > brahmaṇya-devasya kathāṁ vyanakti
 
 *aho*—oh, goodness; *vayam*—we; *hi*—certainly; *adya*—today; *pavitra-kīrte*—O supreme purity; *tvayā*—by you; *eva*—certainly; *nāthena*—by the Lord; *mukunda*—the Supreme Personality of Godhead; *nāthāḥ*—being the subject of the Supreme; *ye*—one who; *uttama-śloka-tamasya*—of the Supreme Personality of Godhead, who is praised by the nicest verses; *viṣṇoḥ*—of Viṣṇu; *brahmaṇya-devasya*—of the worshipable Lord of the *brāhmaṇas*; *kathām*—words; *vyanakti*—expressed.

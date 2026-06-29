@@ -1,9 +1,9 @@
 ### CC Madhya 18.56
 
-> প্রভুর গমন-রীতি পূর্বে যে লিখিল ।
+> প্রভুর গমন-রীতি পূর্বে যে লিখিল ।\
 > সেইমত বৃন্দাবনে তাবৎ দেখিল ॥৫৬॥
 
-> prabhura gamana-rīti pūrve ye likhila
+> prabhura gamana-rīti pūrve ye likhila\
 > sei-mata vṛndāvane tāvat dekhila
 
 *prabhura*—de Śrī Caitanya Mahāprabhu; *gamana-rīti*—forma de viajar; *pūrve*—anteriormente; *ye*—la cual; *likhila*—he descrito; *sei-mata*—de la misma manera; *vṛndāvane*—en Vṛndāvana; *tāvat dekhila*—visitó todos los lugares.

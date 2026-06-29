@@ -1,11 +1,11 @@
 ### CC Madhya 9.114
 
-> কস্যানুভাবোঽস্য ন দেব বিদ্মহে, তবাঙ্ঘ্র রেণুস্পরশাধিকারঃ
+> কস্যানুভাবোঽস্য ন দেব বিদ্মহে, তবাঙ্ঘ্র রেণুস্পরশাধিকারঃ\
 > যদ্বাঞ্ছয়া শ্রীর্ললনাচরত্তপো, বিহায় কামান্ সুচিরং ধৃতব্রতা ৷৷ ১১৪ ৷৷ ॥১১৪॥
 
-> kasyānubhāvo 'sya na deva vidmahe
-> tavāṅghri-reṇu-sparaśādhikāraḥ
-> yad-vāñchayā śrīr lalanācarat tapo
+> kasyānubhāvo 'sya na deva vidmahe\
+> tavāṅghri-reṇu-sparaśādhikāraḥ\
+> yad-vāñchayā śrīr lalanācarat tapo\
 > vihāya kāmān su-ciraṁ dhṛta-vratā
 
 *kasya*—de qué; *anubhāvaḥ*—resultado; *asya*—de la serpiente (Kāliya); *na*—no; *deva*—¡oh, Señor!; *vidmahe*—sabemos; *tava aṅghri*—de Tus pies de loto; *reṇu*—del polvo; *sparaśa*—para tocar; *adhikāraḥ*—cualificación; *yat*—la cual; *vāñchayā*—por desear; *śrīḥ*—la diosa de la fortuna; *lalanā*—la mujer suprema; *acarat*—realizó; *tapaḥ*—austeridad; *vihāya*—abandonando; *kāmān*—todos los deseos; *su-ciram*—durante mucho tiempo; *dhṛta*—mantenido; *vratā*—como voto.

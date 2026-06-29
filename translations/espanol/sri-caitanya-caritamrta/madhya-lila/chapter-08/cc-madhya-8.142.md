@@ -1,13 +1,13 @@
 ### CC Madhya 8.142
 
-> অখিলরসামৃতমূর্তিঃ
-> প্রসৃমর-রুচিরুদ্ধ-তারকা-পালিঃ ৷
-> কলিত-শ্যামা-ললিতো
+> অখিলরসামৃতমূর্তিঃ\
+> প্রসৃমর-রুচিরুদ্ধ-তারকা-পালিঃ ৷\
+> কলিত-শ্যামা-ললিতো\
 > রাধাপ্রেয়ান্ বিধুর্জয়তি ৷৷ ১৪২ ৷৷ ॥১৪২॥
 
-> akhila-rasāmṛta-mūrtiḥ
-> prasṛmara-ruci-ruddha-tārakā-pāliḥ
-> kalita-śyāmā-lalito
+> akhila-rasāmṛta-mūrtiḥ\
+> prasṛmara-ruci-ruddha-tārakā-pāliḥ\
+> kalita-śyāmā-lalito\
 > rādhā-preyān vidhur jayati
 
 *akhila-rasa-amṛta-mūrtiḥ*—el reservorio de todo placer, en el cual existen todos los rasas del servicio devocional, a saber, śānta, dāsya, sakhya, vātsalya y mādhurya; *prasṛmara*—que se expande; *ruci*—mediante Su resplandor corporal; *ruddha*—que ha subyugado; *tārakā*—la gopī llamada Tārakā; *pāliḥ*—la gopī llamada Pāli; *kalita*—que ha absorbido las mentes de; *śyāmā*—la gopī llamada Śyāmā; *lalitaḥ*—y la gopī llamada Lalitā; *rādhā-preyān*—el más querido de Śrīmatī Rādhārāṇī; *vidhuḥ*—Kṛṣṇa, la Suprema Personalidad de Dios; *jayati*—¡todas las glorias!.

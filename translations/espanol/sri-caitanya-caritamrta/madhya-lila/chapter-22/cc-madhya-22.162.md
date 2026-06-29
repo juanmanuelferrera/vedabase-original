@@ -1,13 +1,13 @@
 ### CC Madhya 22.162
 
-> ন কর্হিচিন্মৎপরাঃ শান্তরূপে
-> নঙ্ক্ষ্যন্তি নো মেঽনিমিষো লেঢ়ি হেতিঃ ।
-> যেষামহং প্রিয় আত্মা সুতশ্চ
+> ন কর্হিচিন্মৎপরাঃ শান্তরূপে\
+> নঙ্ক্ষ্যন্তি নো মেঽনিমিষো লেঢ়ি হেতিঃ ।\
+> যেষামহং প্রিয় আত্মা সুতশ্চ\
 > সখা গুরুঃ সুহৃদো দৈবমিষ্টম্ ॥১৬২॥
 
-> na karhicin mat-parāḥ śānta-rūpe
-> naṅkṣyanti no me 'nimiṣo leḍhi hetiḥ
-> yeṣām ahaṁ priya ātmā sutaś ca
+> na karhicin mat-parāḥ śānta-rūpe\
+> naṅkṣyanti no me 'nimiṣo leḍhi hetiḥ\
+> yeṣām ahaṁ priya ātmā sutaś ca\
 > sakhā guruḥ suhṛdo daivam iṣṭam
 
 *na*—no; *karhicit*—en ningún momento; *mat-parāḥ*—devotos Míos; *śānta-rūpe*—¡oh madre, símbolo de paz!; *naṅkṣyanti*—perecerán; *no*—ni; *me*—Mi; *animiṣaḥ*—el tiempo; *leḍhi*—lame (destruye); *hetiḥ*—arma; *yeṣām*—de quienes; *aham*—Yo; *priyaḥ*—querido; *ātmā*—la Superalma; *sutaḥ*—el hijo; *ca*—y; *sakhā*—amigo; *guruḥ*—maestro espiritual; *suhṛdaḥ*—bienqueriente; *daivam*—la Deidad; *iṣṭam*—meta escogida.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.252
 
-> শুনি’ ষাঠীর মাতা শিরে-বুকে ঘাত মারে ।
+> শুনি’ ষাঠীর মাতা শিরে-বুকে ঘাত মারে ।\
 > ‘ষাঠী রাণ্ডী হউক’ — ইহা বলে বারে বারে ॥২৫২॥
 
-> śuni' ṣāṭhīra mātā śire-buke ghāta māre
+> śuni' ṣāṭhīra mātā śire-buke ghāta māre\
 > 'ṣāṭhī rāṇḍī ha-uka'--ihā bale bāre bāre
 
 *śuni'*—al oír; *ṣāṭhīra mātā*—la madre de Ṣāṭhī; *śire*—en la cabeza; *buke*—en el pecho; *ghāta māre*—se golpea; *ṣāṭhī rāṇḍī ha-uka*—que Ṣāṭhī se quede viuda; *ihā bale*—dice esto; *bāre bāre*—una y otra vez.

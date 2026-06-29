@@ -1,9 +1,9 @@
 ### CC Madhya 14.196
 
-> বাহিরে বামতা-ক্রোধ, ভিতরে সুখ মনে ।
+> বাহিরে বামতা-ক্রোধ, ভিতরে সুখ মনে ।\
 > ‘কুট্টমিত’-নাম এই ভাব-বিভূষণে ॥১৯৬॥
 
-> bāhire vāmatā-krodha, bhitare sukha mane
+> bāhire vāmatā-krodha, bhitare sukha mane\
 > 'kuṭṭamita'-nāma ei bhāva-vibhūṣaṇe
 
 *bāhire*—externamente; *vāmatā*—oposición; *krodha*—ira; *bhitare*—por dentro; *sukha*—felicidad; *mane*—en la mente; *kuṭṭamita*—kuṭṭamita; *nāma*—llamado; *ei*—este; *bhāva-vibhūṣaṇe*—ornamento de una actitud extática.

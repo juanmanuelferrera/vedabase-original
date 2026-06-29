@@ -1,11 +1,11 @@
 ### SB 1.18.48
 
-> तिरस्कृता विप्रलब्धाः शप्ताः क्षिप्ता हता अपि ।
+> तिरस्कृता विप्रलब्धाः शप्ताः क्षिप्ता हता अपि ।\
 > नास्य तत्प्रतिकुर्वन्ति तद्भक्ताः प्रभवोऽपि हि ॥४८॥
 
-> tiraskṛtā vipralabdhāḥ
-> śaptāḥ kṣiptā hatā api
-> nāsya tat pratikurvanti
+> tiraskṛtā vipralabdhāḥ\
+> śaptāḥ kṣiptā hatā api\
+> nāsya tat pratikurvanti\
 > tad-bhaktāḥ prabhavo 'pi hi
 
 *tiraḥ-kṛtāḥ*—being defamed; *vipralabdhāḥ*—being cheated; *śaptāḥ*—being cursed; *kṣiptāḥ*—disturbed by negligence; *hatāḥ*—or even being killed; *api*—also; *na*—never; *asya*—for all these acts; *tat*—them; *pratikurvanti*—counteract; *tat*—the Lord's; *bhaktāḥ*—devotees; *prabhavaḥ*—powerful; *api*—although; *hi*—certainly.

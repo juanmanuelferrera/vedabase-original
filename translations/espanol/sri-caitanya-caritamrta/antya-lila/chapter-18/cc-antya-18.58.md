@@ -1,9 +1,9 @@
 ### CC Antya 18.58
 
-> এই ভূত নৃসিংহ-নামে চাপয়ে দ্বিগুণে ।
+> এই ভূত নৃসিংহ-নামে চাপয়ে দ্বিগুণে ।\
 > তাহার আকার দেখিতে ভয় লাগে মনে ॥৫৮॥
 
-> ei bhūta nṛsiṁha-nāme cāpaye dviguṇe
+> ei bhūta nṛsiṁha-nāme cāpaye dviguṇe\
 > tāhāra ākāra dekhite bhaya lāge mane
 
 *ei bhūta*—este fantasma; *nṛsiṁha-nāme*—al cantar el santo nombre del Señor Nṛsiṁha; *cāpaye*—se apodera de mí; *dvi-guṇe*—con el doble de fuerza; *tāhāra*—su; *ākāra*—forma; *dekhite*—al ver; *bhaya*—miedo; *lāge mane*—surge en la mente.

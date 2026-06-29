@@ -1,11 +1,11 @@
 ### Bg 2.49
 
-> दूरेण ह्यवरं कर्म बुद्धियोगाद्धनञ्जय ।
+> दूरेण ह्यवरं कर्म बुद्धियोगाद्धनञ्जय ।\
 > बुद्धौ शरणमन्विच्छ कृपणाः फलहेतवः ॥४९॥
 
-> dūreṇa hy avaraṁ karma
-> buddhi-yogād dhanañjaya
-> buddhau śaraṇam anviccha
+> dūreṇa hy avaraṁ karma\
+> buddhi-yogād dhanañjaya\
+> buddhau śaraṇam anviccha\
 > kṛpaṇāḥ phala-hetavaḥ
 
 *dūreṇa*—desechando a gran distancia; *hi*—ciertamente; *avaram*—abominable; *karma*—actividades; *buddhi-yogāt*—por la fuerza de la conciencia de Kṛṣṇa; *dhanañjaya*—¡oh, conquistador de riquezas!; *buddhau*—con semejante conciencia; *śaraṇam*—entrega completa; *anviccha*—deseo; *kṛpaṇāḥ*—los avaros; *phala-hetavaḥ*—aquellos que desean acción fruitiva.

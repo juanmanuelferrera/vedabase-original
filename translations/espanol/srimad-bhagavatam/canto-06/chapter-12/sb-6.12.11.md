@@ -1,11 +1,11 @@
 ### SB 6.12.11
 
-> पुरुषः प्रकृतिर्व्यक्तमात्मा भूतेन्द्रियाशयाः
+> पुरुषः प्रकृतिर्व्यक्तमात्मा भूतेन्द्रियाशयाः\
 > शक्नुवन्त्यस्य सर्गादौ न विना यदनुग्रहात ॥११॥
 
-> puruṣaḥ prakṛtir vyaktam
-> ātmā bhūtendriyāśayāḥ
-> śaknuvanty asya sargādau
+> puruṣaḥ prakṛtir vyaktam\
+> ātmā bhūtendriyāśayāḥ\
+> śaknuvanty asya sargādau\
 > na vinā yad-anugrahāt
 
 *puruṣaḥ*—el generador del conjunto de toda la energía material; *prakṛtiḥ*—la energía material o naturaleza material; *vyaktam*—los principios de manifestación (*mahat-tattva*); *ātmā*—el ego falso; *bhūta*—los cinco elementos materiales; *indriya*—los diez sentidos; *āśayāḥ*—la mente, la inteligencia y la conciencia; *śaknuvanti*—pueden; *asya*—del universo; *sarga-ādau*—en la creación, etc.; *na*—no; *vinā*—sin; *yat*—de quien; *anugrahāt*—la misericordia.

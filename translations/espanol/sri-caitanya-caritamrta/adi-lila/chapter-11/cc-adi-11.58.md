@@ -1,9 +1,9 @@
 ### CC Adi 11.58
 
-> এই সর্বশাখা পূর্ণ — পক্ব প্রেমফলে ।
+> এই সর্বশাখা পূর্ণ — পক্ব প্রেমফলে ।\
 > যারে দেখে, তারে দিয়া ভাসাইল সকলে ॥৫৮॥
 
-> ei sarva-śākhā pūrṇa--pakva prema-phale
+> ei sarva-śākhā pūrṇa--pakva prema-phale\
 > yāre dekhe, tāre diyā bhāsāila sakale
 
 *ei*—estas; *sarva-śākhā*—todas las ramas; *pūrṇa*—llenas; *pakva prema-phale*—de frutos maduros de amor por Dios; *yāre dekhe*—a quienquiera que ven; *tāre diyā*—distribuyéndoles; *bhāsāila*—inundaron; *sakale*—todos ellos.

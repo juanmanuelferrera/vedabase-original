@@ -2,7 +2,7 @@
 
 > দড়ির বন্ধনে তাঁরে রাখিবা কেমতে ? জন্মদাতা পিতা নারে ‘প্রারব্ধ’ খণ্ডাইতে ॥৪০॥
 
-> daḍira bandhane tāṅre rākhibā ke-mate?
+> daḍira bandhane tāṅre rākhibā ke-mate?\
 > janma-dātā-pitā nāre 'prārabdha' khaṇḍāite
 
 *daḍira bandhane*—con ataduras de cuerdas; *tāṅre*—a él; *rākhibā*—lo retendrás; *ke mate*—cómo; *janma-dātā pitā*—el padre que engendra al hijo; *nāre*—no es capaz; *prārabdha*—la reacción de actividades previas; *khaṇḍāite*—de anular.

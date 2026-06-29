@@ -1,9 +1,9 @@
 ### CC Madhya 3.166
 
-> যে কালে নিমাঞি পড়ে ধরণী-উপরে  ।
+> যে কালে নিমাঞি পড়ে ধরণী-উপরে  ।\
 > ব্যথা যেন নাহি লাগে নিমাঞি-শরীরে ॥১৬৬॥
 
-> ye kāle nimāñi paḍe dharaṇī-upare
+> ye kāle nimāñi paḍe dharaṇī-upare\
 > vyathā yena nāhi lāge nimāñi-śarīre
 
 *ye kāle*—cuando quiera que; *nimāñi*—mi hijo Nimāi; *paḍe*—caiga; *dharaṇī-upare*—sobre la superficie de la tierra; *vyathā*—dolor; *yena*—como si; *nāhi*—no; *lāge*—toque; *nimāñi-śarīre*—el cuerpo de mi hijo Nimāi.

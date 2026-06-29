@@ -1,11 +1,11 @@
 ### SB 8.8.13
 
-> ऋषयः कल्पयां चक्रुराभिषेकं यथाविधि
+> ऋषयः कल्पयां चक्रुराभिषेकं यथाविधि\
 > जगुर्भद्राणि गन्धर्वा नट्यश्च ननृतुर्जगुः ॥१३॥
 
-> meghā mṛdaṅga-paṇava-
-> murajānaka-gomukhān
-> vyanādayan śaṅkha-veṇu-
+> meghā mṛdaṅga-paṇava-\
+> murajānaka-gomukhān\
+> vyanādayan śaṅkha-veṇu-\
 > vīṇās tumula-niḥsvanān
 
 *meghāḥ*—las personificaciones de las nubes; *mṛdaṅga*—tambores; *paṇava*—timbales; *muraja*—otro tipo de tambor; *ānaka*—otro tipo de tambor; *gomukhān*—un tipo de trompa; *vyanādayan*—hicieron sonar; *śaṅkha*—caracolas; *veṇu*—flautas; *vīṇāḥ*—instrumentos de cuerda; *tumula*—resonante; *niḥsvanān*—vibración.

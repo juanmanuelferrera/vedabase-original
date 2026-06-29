@@ -1,9 +1,9 @@
 ### CC Madhya 22.71
 
-> রতি-প্রেম-তারতম্যে ভক্ত — তর-তম ।
+> রতি-প্রেম-তারতম্যে ভক্ত — তর-তম ।\
 > একাদশ স্কন্ধে তার করিয়াছে লক্ষণ ॥৭১॥
 
-> rati-prema-tāratamye bhakta--tara-tama
+> rati-prema-tāratamye bhakta--tara-tama\
 > ekādaśa skandhe tāra kariyāche lakṣaṇa
 
 *rati*—del apego; *prema*—y del amor; *tāratamye*—por comparación; *bhakta*—devoto; *tara-tama*—superior y superlativo; *ekādaśa skandhe*—en el Undécimo Canto del *Śrīmad-Bhāgavatam*; *tāra*—de él; *kariyāche*—ha establecido; *lakṣaṇa*—los síntomas.

@@ -1,9 +1,9 @@
 ### CC Madhya 13.28
 
-> ক্ষণে স্থির হঞা রহে, টানিলেহ না চলে ৷
+> ক্ষণে স্থির হঞা রহে, টানিলেহ না চলে ৷\
 > ঈশ্বর-ইচ্ছায় চলে, না চলে কারো বলে ॥২৮॥
 
-> kṣaṇe sthira hañā rahe, ṭānileha nā cale
+> kṣaṇe sthira hañā rahe, ṭānileha nā cale\
 > īśvara-icchāya cale, nā cale kāro bale
 
 *kṣaṇe*—a veces; *sthira*—inmóvil; *hañā*—volviéndose; *rahe*—permanece; *ṭāṅileha*—a pesar de ser tirado; *nā cale*—no avanza; *īśvara-icchāya*—por la voluntad del Señor; *cale*—avanza; *nā cale*—no avanza; *kāro*—de nadie; *bale*—por la fuerza.

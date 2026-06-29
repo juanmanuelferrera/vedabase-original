@@ -1,9 +1,9 @@
 ### CC Madhya 6.123
 
-> সাত দিন পর্যন্ত ঐছে করেন শ্রবণে ।
+> সাত দিন পর্যন্ত ঐছে করেন শ্রবণে ।\
 > ভাল-মন্দ নাহি কহে, বসি’ মাত্র শুনে ॥১২৩॥
 
-> sāta dina paryanta aiche karena śravaṇe
+> sāta dina paryanta aiche karena śravaṇe\
 > bhāla-manda nāhi kahe, vasi' mātra śune
 
 *sāta dina*—seven days; *paryanta*—up to; *aiche*—in this way; *karena*—does; *śravaṇe*—hearing; *bhāla*—right; *manda*—wrong; *nāhi*—not; *kahe*—says; *vasi'*—sitting; *mātra*—only; *śune*—hears.

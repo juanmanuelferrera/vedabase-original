@@ -1,11 +1,11 @@
 ### SB 9.9.31
 
-> तस्य साधोरपापस्य भ्रूणस्य ब्रह्मवादिनः
+> तस्य साधोरपापस्य भ्रूणस्य ब्रह्मवादिनः\
 > कथं वधं यथा बभ्रोर्मन्यते सन्मतो भवान ॥३१॥
 
-> tasya sādhor apāpasya
-> bhrūṇasya brahma-vādinaḥ
-> kathaṁ vadhaṁ yathā babhror
+> tasya sādhor apāpasya\
+> bhrūṇasya brahma-vādinaḥ\
+> kathaṁ vadhaṁ yathā babhror\
 > manyate san-mato bhavān
 
 *tasya*—de él; *sādhoḥ*—de la gran persona santa; *apāpasya*—de quien no tiene vida pecaminosa; *bhrūṇasya*—del embrión; *brahma-vādinaḥ*—de quien está bien versado en el conocimiento védico; *katham*—cómo; *vadham*—matar; *yathā*—como; *babhroḥ*—de una vaca; *manyate*—estás pensando; *sat-mataḥ*—bien considerado en los círculos más elevados; *bhavān*—Tu Gracia.

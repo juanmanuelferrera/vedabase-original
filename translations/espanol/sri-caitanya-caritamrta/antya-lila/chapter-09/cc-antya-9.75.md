@@ -1,9 +1,9 @@
 ### CC Antya 9.75
 
-> সেই ‘শুদ্ধভক্ত’, যে তোমা ভজে তোমা লাগি’ ।
+> সেই ‘শুদ্ধভক্ত’, যে তোমা ভজে তোমা লাগি’ ।\
 > আপনার সুখ-দুঃখে হয় ভোগ-ভাগী’ ॥৭৫॥
 
-> sei 'śuddha-bhakta', ye tomā bhaje tomā lāgi'
+> sei 'śuddha-bhakta', ye tomā bhaje tomā lāgi'\
 > āpanāra sukha-duḥkhe haya bhoga-bhogī'
 
 *sei*—él; *śuddha-bhakta*—un devoto puro; *ye*—quien; *tomā bhaje*—Te adora; *tomā lāgi'*—para Tu satisfacción; *āpanāra sukha-duḥkhe*—por la felicidad y la aflicción personales; *haya*—es; *bhoga-bhogī*—alguien que quiere disfrutar de este mundo material.

@@ -1,9 +1,9 @@
 ### CC Madhya 19.91
 
-> প্রভু পাঠাইল তাঁরে করিতে ভোজনে ।
+> প্রভু পাঠাইল তাঁরে করিতে ভোজনে ।\
 > ভোজন করি’ আইলা তেঁহো প্রভুর চরণে ॥৯১॥
 
-> prabhu pāṭhāila tāṅre karite bhojane
+> prabhu pāṭhāila tāṅre karite bhojane\
 > bhojana kari' āilā teṅho prabhura caraṇe
 
 *prabhu*—Śrī Caitanya Mahāprabhu; *pāṭhāila*—sent; *tāṅre*—him (Vallabha Bhaṭṭācārya); *karite bhojane*—to take his lunch; *bhojana kari'*—after taking lunch; *āilā*—came; *teṅho*—he; *prabhura caraṇe*—to the lotus feet of Śrī Caitanya Mahāprabhu.

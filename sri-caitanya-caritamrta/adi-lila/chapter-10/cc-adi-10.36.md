@@ -1,9 +1,9 @@
 ### CC Adi 10.36
 
-> নারায়ণ-পণ্ডিত এক বড়ই উদার ।
+> নারায়ণ-পণ্ডিত এক বড়ই উদার ।\
 > চৈতন্যচরণ বিনু নাহি জানে আর ॥৩৬॥
 
-> nārāyaṇa-paṇḍita eka baḍa-i udāra
+> nārāyaṇa-paṇḍita eka baḍa-i udāra\
 > caitanya-caraṇa vinu nāhi jāne āra
 
 *nārāyaṇa-paṇḍita*—of the name Nārāyaṇa Paṇḍita; *eka*—one; *baḍai*—very; *udāra*—liberal; *caitanya-caraṇa*—the lotus feet of Lord Caitanya; *vinu*—except; *nāhi*—not; *jāne*—know; *āra*—anything else.

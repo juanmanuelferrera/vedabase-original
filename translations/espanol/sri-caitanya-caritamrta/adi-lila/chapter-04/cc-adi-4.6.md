@@ -1,9 +1,9 @@
 ### CC Adi 4.6
 
-> সত্য এই হেতু, কিন্তু এহো বহিরঙ্গ ।
+> সত্য এই হেতু, কিন্তু এহো বহিরঙ্গ ।\
 > আর এক হেতু, শুন, আছে অন্তরঙ্গ ॥৬॥
 
-> satya ei hetu, kintu eho bahiraṅga
+> satya ei hetu, kintu eho bahiraṅga\
 > āra eka hetu, śuna, āche antaraṅga
 
 *satya*—verdadero; *ei*—esta; *hetu*—razón; *kintu*—pero; *eho*—esta; *bahiraṅga*—externa; *āra*—otra; *eka*—una; *hetu*—razón; *śuna*—por favor, oíd; *āche*—hay; *antaraṅga*—interna.

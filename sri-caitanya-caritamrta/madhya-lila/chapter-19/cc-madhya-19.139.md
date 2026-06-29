@@ -1,9 +1,9 @@
 ### CC Madhya 19.139
 
-> কেশাগ্র-শতেক-ভাগ পুনঃ শতাংশ করি ।
+> কেশাগ্র-শতেক-ভাগ পুনঃ শতাংশ করি ।\
 > তার সম সূক্ষ্ম জীবের ‘স্বরূপ’ বিচারি ॥১৩৯॥
 
-> keśāgra-śateka-bhāga punaḥ śatāṁśa kari
+> keśāgra-śateka-bhāga punaḥ śatāṁśa kari\
 > tāra sama sūkṣma jīvera 'svarūpa' vicāri
 
 *keśa-agra*—from the tip of a hair; *śata-eka*—one hundred; *bhāga*—divisions; *punaḥ*—again; *śata-aṁśa*—one hundred divisions; *kari*—making; *tāra sama*—equal to that; *sūkṣma*—very fine; *jīvera*—of the living entity; *sva-rūpa*—the actual form; *vicāri*—I consider.

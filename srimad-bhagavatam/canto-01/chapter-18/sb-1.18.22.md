@@ -1,11 +1,11 @@
 ### SB 1.18.22
 
-> यत्रानुरक्ताः सहसैव धीरा व्यपोह्य देहादिषु सङ्गमूढम् ।
+> यत्रानुरक्ताः सहसैव धीरा व्यपोह्य देहादिषु सङ्गमूढम् ।\
 > व्रजन्ति तत्पारमहंस्यमन्त्यं यस्मिन्नहिंसोपशमः स्वधर्मः ॥२२॥
 
-> yatrānuraktāḥ sahasaiva dhīrā
-> vyapohya dehādiṣu saṅgam ūḍham
-> vrajanti tat pārama-haṁsyam antyaṁ
+> yatrānuraktāḥ sahasaiva dhīrā\
+> vyapohya dehādiṣu saṅgam ūḍham\
+> vrajanti tat pārama-haṁsyam antyaṁ\
 > yasminn ahiṁsopaśamaḥ sva-dharmaḥ
 
 *yatra*—unto whom; *anuraktāḥ*—firmly attached; *sahasā*—all of a sudden; *eva*—certainly; *dhīrāḥ*—self-controlled; *vyapohya*—leaving aside; *deha*—the gross body and subtle mind; *ādiṣu*—relating to; *saṅgam*—attachment; *ūḍham*—taken to; *vrajanti*—go away; *tat*—that; *pārama-haṁsyam*—the highest stage of perfection; *antyam*—and beyond that; *yasmin*—in which; *ahiṁsā*—nonviolence; *upaśamaḥ*—and renunciation; *sva-dharmaḥ*—consequential occupation.

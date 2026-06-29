@@ -1,11 +1,11 @@
 ### SB 8.18.8
 
-> प्रीताश्चाप्सरसोऽनृत्यन्गन्धर्वप्रवरा जगुः
+> प्रीताश्चाप्सरसोऽनृत्यन्गन्धर्वप्रवरा जगुः\
 > तुष्टुवुर्मुनयो देवा मनवः पितरोऽग्नयः ॥८॥
 
-> prītāś cāpsaraso 'nṛtyan
-> gandharva-pravarā jaguḥ
-> tuṣṭuvur munayo devā
+> prītāś cāpsaraso 'nṛtyan\
+> gandharva-pravarā jaguḥ\
+> tuṣṭuvur munayo devā\
 > manavaḥ pitaro 'gnayaḥ
 
 *prītāḥ*—being very pleased; *ca*—also; *apsarasaḥ*—the celestial dancing girls; *anṛtyan*—danced; *gandharva-pravarāḥ*—the best of the Gandharvas; *jaguḥ*—sang; *tuṣṭuvuḥ*—satisfied the Lord by offering prayers; *munayaḥ*—the great sages; *devāḥ*—the demigods; *manavaḥ*—the Manus; *pitaraḥ*—the inhabitants of Pitṛloka; *agnayaḥ*—the fire-gods.

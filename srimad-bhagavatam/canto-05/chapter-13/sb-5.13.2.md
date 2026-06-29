@@ -1,11 +1,11 @@
 ### SB 5.13.2
 
-> यस्यामिमे षण्नरदेव दस्यवः सार्थं विलुम्पन्ति कुनायकं बलात
+> यस्यामिमे षण्नरदेव दस्यवः सार्थं विलुम्पन्ति कुनायकं बलात\
 > गोमायवो यत्र हरन्ति सार्थिकं प्रमत्तमाविश्य यथोरणं वृकाः ॥२॥
 
-> yasyām ime ṣaṇ nara-deva dasyavaḥ
-> sārthaṁ vilumpanti kunāyakaṁ balāt
-> gomāyavo yatra haranti sārthikaṁ
+> yasyām ime ṣaṇ nara-deva dasyavaḥ\
+> sārthaṁ vilumpanti kunāyakaṁ balāt\
+> gomāyavo yatra haranti sārthikaṁ\
 > pramattam āviśya yathoraṇaṁ vṛkāḥ
 
 *yasyām*—in which (in the forest of material existence); *ime*—these; *ṣaṭ*—six; *nara-deva*—O King; *dasyavaḥ*—the plunderers; *sa-artham*—the conditioned souls, who are interested in false ideas; *vilumpanti*—plunder, regularly taking away all the possessions; *ku-nāyakam*—who are always misguided by so-called *gurus,* or spiritual masters; *balāt*—by force; *gomāyavaḥ*—exactly like foxes; *yatra*—in which forest; *haranti*—they take away; *sa-arthikam*—the conditioned soul who is seeking material profits to maintain the body and soul; *pramattam*—who is a crazy man not knowing his self-interest; *āviśya*—entering the heart; *yathā*—just as; *uraṇam*—nicely protected lambs; *vṛkāḥ*—the tigers.

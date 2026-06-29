@@ -1,9 +1,9 @@
 ### CC Madhya 23.116
 
-> হরিবংশে কহিয়াছে গোলোকে নিত্যস্থিতি ।
+> হরিবংশে কহিয়াছে গোলোকে নিত্যস্থিতি ।\
 > ইন্দ্র আসি’ করিল যবে শ্রীকৃষ্ণেরে স্তুতি ॥১১৬॥
 
-> hari-vaṁśe kahiyāche goloke nitya-sthiti
+> hari-vaṁśe kahiyāche goloke nitya-sthiti\
 > indra āsi' karila yabe śrī-kṛṣṇere stuti
 
 *hari-vaṁśe*—la escritura revelada conocida como Hari-vaṁśa; *kahiyāche*—ha narrado; *goloke*—sobre el planeta llamado Goloka; *nitya-sthiti*—la situación eterna; *indra*—el rey Indra del planeta celestial; *āsi'*—acudiendo; *karila*—ofreció; *yabe*—cuando; *śrī-kṛṣṇere stuti*—oraciones al Señor Śrī Kṛṣṇa.

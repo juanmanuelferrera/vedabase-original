@@ -1,11 +1,11 @@
 ### SB 1.3.5
 
-> एतन्नानावताराणां निधानं बीजमव्ययम् ।
+> एतन्नानावताराणां निधानं बीजमव्ययम् ।\
 > यस्यांशांशेन सृज्यन्ते देवतिर्यङ्नरादयः ॥५॥
 
-> etan nānāvatārāṇāṁ
-> nidhānaṁ bījam avyayam
-> yasyāṁśāṁśena sṛjyante
+> etan nānāvatārāṇāṁ\
+> nidhānaṁ bījam avyayam\
+> yasyāṁśāṁśena sṛjyante\
 > deva-tiryaṅ-narādayaḥ
 
 *etat*—this (form); *nānā*—multifarious; *avatārāṇām*—of the incarnations; *nidhānam*—source; *bījam*—seed; *avyayam*—indestructible; *yasya*—whose; *aṁśa*—plenary portion; *aṁśena*—part of the plenary portion; *sṛjyante*—create; *deva*—demigods; *tiryak*—animals; *nara-ādayaḥ*—human beings and others.

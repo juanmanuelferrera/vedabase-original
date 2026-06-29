@@ -1,11 +1,11 @@
 ### SB 6.18.8
 
-> उरुक्रमस्य देवस्य मायावामनरूपिणः
+> उरुक्रमस्य देवस्य मायावामनरूपिणः\
 > कीर्तौ पत्न्यां बृहच्छ्लोकस्तस्यासन्सौभगादयः ॥८॥
 
-> urukramasya devasya
-> māyā-vāmana-rūpiṇaḥ
-> kīrtau patnyāṁ bṛhacchlokas
+> urukramasya devasya\
+> māyā-vāmana-rūpiṇaḥ\
+> kīrtau patnyāṁ bṛhacchlokas\
 > tasyāsan saubhagādayaḥ
 
 *urukramasya*—of Urukrama; *devasya*—the Lord; *māyā*—by His internal potency; *vāmana-rūpiṇaḥ*—having the form of a dwarf; *kīrtau*—in Kīrti; *patnyām*—His wife; *bṛhacchlokaḥ*—Bṛhatśloka; *tasya*—of him; *āsan*—were; *saubhaga-ādayaḥ*—sons beginning with Saubhaga.

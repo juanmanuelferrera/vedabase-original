@@ -1,14 +1,14 @@
 ### SB 9.10.2
 
-> तस्यापि भगवानेष साक्षाद्ब्रह्ममयो हरिः
-> अंशांशेन चतुर्धागात्पुत्रत्वं प्रार्थितः सुरैः
+> तस्यापि भगवानेष साक्षाद्ब्रह्ममयो हरिः\
+> अंशांशेन चतुर्धागात्पुत्रत्वं प्रार्थितः सुरैः\
 > रामलक्ष्मणभरत शत्रुघ्ना इति संज्ञअया ॥२॥
 
-> tasyāpi bhagavān eṣa
-> sākṣād brahmamayo hariḥ
-> aṁśāṁśena caturdhāgāt
-> putratvaṁ prārthitaḥ suraiḥ
-> rāma-lakṣmaṇa-bharata-
+> tasyāpi bhagavān eṣa\
+> sākṣād brahmamayo hariḥ\
+> aṁśāṁśena caturdhāgāt\
+> putratvaṁ prārthitaḥ suraiḥ\
+> rāma-lakṣmaṇa-bharata-\
 > śatrughnā iti saṁjñayā
 
 *tasya*—of him, Mahārāja Daśaratha; *api*—also; *bhagavān*—the Supreme Personality of Godhead; *eṣaḥ*—all of them; *sākṣāt*—directly; *brahma-mayaḥ*—the Supreme Parabrahman, the Absolute Truth; *hariḥ*—the Supreme Personality of Godhead; *aṁśa-aṁśena*—by an expansion of a plenary portion; *caturdhā*—by fourfold expansions; *agāt*—accepted; *putratvam*—sonhood; *prārthitaḥ*—being prayed for; *suraiḥ*—by the demigods; *rāma*—Lord Rāmacandra; *lakṣmaṇa*—Lord Lakṣmaṇa; *bharata*—Lord Bharata; *śatrughnāḥ*—and Lord Śatrughna; *iti*—thus; *saṁjñayā*—by different names.

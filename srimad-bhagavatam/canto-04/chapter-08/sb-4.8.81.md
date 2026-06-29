@@ -1,13 +1,13 @@
 ### SB 4.8.81
 
-> देवा ऊचुः
-> नैवं विदामो भगवन्प्राणरोधं चराचरस्याखिलसत्त्वधाम्नः ।
+> देवा ऊचुः\
+> नैवं विदामो भगवन्प्राणरोधं चराचरस्याखिलसत्त्वधाम्नः ।\
 > विधेहि तन्नो वृजिनाद्विमोक्षं प्राप्ता वयं त्वां शरणं शरण्यम् ॥८१॥
 
-> devā ūcuḥ
-> naivaṁ vidāmo bhagavan prāṇa-rodhaṁ
-> carācarasyākhila-sattva-dhāmnaḥ
-> vidhehi tan no vṛjinād vimokṣaṁ
+> devā ūcuḥ\
+> naivaṁ vidāmo bhagavan prāṇa-rodhaṁ\
+> carācarasyākhila-sattva-dhāmnaḥ\
+> vidhehi tan no vṛjinād vimokṣaṁ\
 > prāptā vayaṁ tvāṁ śaraṇaṁ śaraṇyam
 
 *devāḥ ūcuḥ*—all the demigods said; *na*—not; *evam*—thus; *vidāmaḥ*—we can understand; *bhagavan*—O Personality of Godhead; *prāṇa-rodham*—how we feel our breathing choked; *cara*—moving; *acarasya*—not moving; *akhila*—universal; *sattva*—existence; *dhāmnaḥ*—the reservoir of; *vidhehi*—kindly do the needful; *tat*—therefore; *naḥ*—our; *vṛjināt*—from the danger; *vimokṣam*—liberation; *prāptāḥ*—approaching; *vayam*—all of us; *tvām*—unto You; *śaraṇam*—shelter; *śaraṇyam*—worthy to be taken shelter of.

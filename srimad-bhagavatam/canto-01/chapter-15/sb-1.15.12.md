@@ -1,11 +1,11 @@
 ### SB 1.15.12
 
-> यत्तेजसाथ भगवान्युधि शूलपाणिर्विस्मापितः सगिरिजोऽस्त्रमदान्निजं मे ।
+> यत्तेजसाथ भगवान्युधि शूलपाणिर्विस्मापितः सगिरिजोऽस्त्रमदान्निजं मे ।\
 > अन्येऽपि चाहममुनैव कलेवरेण प्राप्तो महेन्द्रभवने महदासनार्धम् ॥१२॥
 
-> yat-tejasātha bhagavān yudhi śūla-pāṇir
-> vismāpitaḥ sagirijo 'stram adān nijaṁ me
-> anye 'pi cāham amunaiva kalevareṇa
+> yat-tejasātha bhagavān yudhi śūla-pāṇir\
+> vismāpitaḥ sagirijo 'stram adān nijaṁ me\
+> anye 'pi cāham amunaiva kalevareṇa\
 > prāpto mahendra-bhavane mahad-āsanārdham
 
 *yat*—by whose; *tejasā*—by influence; *atha*—at one time; *bhagavān*—the personality of god (Lord Śiva); *yudhi*—in the battle; *śūla-pāṇiḥ*—one who has a trident in his hand; *vismāpitaḥ*—astonished; *sa-girijaḥ*—along with the daughter of the Himalaya Mountains; *astram*—weapon; *adāt*—awarded; *nijam*—of his own; *me*—unto me; *anye api*—so also others; *ca*—and; *aham*—myself; *amunā*—by this; *eva*—definitely; *kalevareṇa*—by the body; *prāptaḥ*—obtained; *mahā-indra-bhavane*—in the house of Indradeva; *mahat*—great; *āsana-ardham*—half-elevated seat.

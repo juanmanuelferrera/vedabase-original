@@ -1,13 +1,13 @@
 ### SB 8.22.1
 
-> श्रीशुक उवाच
-> एवं विप्रकृतो राजन्बलिर्भगवतासुरः
+> श्रीशुक उवाच\
+> एवं विप्रकृतो राजन्बलिर्भगवतासुरः\
 > भिद्यमानोऽप्यभिन्नात्मा प्रत्याहाविक्लवं वचः ॥१॥
 
-> śrī-śuka uvāca
-> evaṁ viprakṛto rājan
-> balir bhagavatāsuraḥ
-> bhidyamāno 'py abhinnātmā
+> śrī-śuka uvāca\
+> evaṁ viprakṛto rājan\
+> balir bhagavatāsuraḥ\
+> bhidyamāno 'py abhinnātmā\
 > pratyāhāviklavaṁ vacaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—thus, as aforementioned; *viprakṛtaḥ*—having been put into difficulty; *rājan*—O King; *baliḥ*—Mahārāja Bali; *bhagavatā*—by the Personality of Godhead Vāmanadeva; *asuraḥ*—the King of the *asuras*; *bhidyamānaḥ api*—although situated in this uncomfortable position; *abhinna-ātmā*—without being disturbed in body or mind; *pratyāha*—replied; *aviklavam*—undisturbed; *vacaḥ*—the following words.

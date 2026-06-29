@@ -1,11 +1,11 @@
 ### SB 9.11.23
 
-> पुरुषो रामचरितं श्रवणैरुपधारयन
+> पुरुषो रामचरितं श्रवणैरुपधारयन\
 > आनृशंस्यपरो राजन्कर्मबन्धैर्विमुच्यते ॥२३॥
 
-> puruṣo rāma-caritaṁ
-> śravaṇair upadhārayan
-> ānṛśaṁsya-paro rājan
+> puruṣo rāma-caritaṁ\
+> śravaṇair upadhārayan\
+> ānṛśaṁsya-paro rājan\
 > karma-bandhair vimucyate
 
 *puruṣaḥ*—toda persona; *rāma-caritam*—la narración de las actividades de la Suprema Personalidad de Dios, el Señor Rāmacandra; *śravaṇaiḥ*—mediante la recepción auditiva; *upadhārayan*—simplemente mediante ese proceso de escuchar; *ānṛśaṁsya-paraḥ*—se libera de todo rastro de envidia; *rājan*—¡oh, rey Parīkṣit!; *karma-bandhaiḥ*—por el cautiverio de las actividades fruitivas; *vimucyate*—se libera.

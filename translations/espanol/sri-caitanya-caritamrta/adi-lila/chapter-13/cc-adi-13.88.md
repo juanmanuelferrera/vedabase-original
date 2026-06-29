@@ -1,9 +1,9 @@
 ### CC Adi 13.88
 
-> নীলাম্বর চক্রবর্তী কহিল গণিয়া ।
+> নীলাম্বর চক্রবর্তী কহিল গণিয়া ।\
 > এই মাসে পুত্র হবে শুভক্ষণ পাঞা ॥৮৮॥
 
-> nīlāmbara cakravartī kahila gaṇiyā
+> nīlāmbara cakravartī kahila gaṇiyā\
 > ei māse putra habe śubha-kṣaṇa pāñā
 
 *nīlāmbara cakravartī*—de nombre Nīlāmbara Cakravartī; *kahila*—dijo; *gaṇiyā*—mediante cálculo astrológico; *ei māse*—en este mes; *putra*—hijo; *habe*—nacerá; *śubha-kṣaṇa*—momento auspicioso; *pāñā*—aprovechando.

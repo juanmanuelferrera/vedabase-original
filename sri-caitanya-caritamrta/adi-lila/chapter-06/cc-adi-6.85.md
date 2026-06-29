@@ -1,9 +1,9 @@
 ### CC Adi 6.85
 
-> কেহ মানে, কেহ না মানে, সব তাঁর দাস ।
+> কেহ মানে, কেহ না মানে, সব তাঁর দাস ।\
 > যে না মানে, তার হয় সেই পাপে নাশ ॥৮৫॥
 
-> keha māne, keha nā māne, saba tāṅra dāsa
+> keha māne, keha nā māne, saba tāṅra dāsa\
 > ye nā māne, tāra haya sei pāpe nāśa
 
 *kehamāne*—someone accepts; *kehanāmāne*—someone does not accept; *sabatāṅradāsa*—all His servants; *yenāmāne*—one who does not accept; *tāra*—of him; *haya*—there is; *sei*—that; *pāpe*—in sinful activity; *nāśa*—annihilation.

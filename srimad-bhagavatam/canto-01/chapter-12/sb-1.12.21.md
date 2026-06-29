@@ -1,11 +1,11 @@
 ### SB 1.12.21
 
-> धन्विनामग्रणीरेष तुल्यश्चार्जुनयोर्द्वयोः ।
+> धन्विनामग्रणीरेष तुल्यश्चार्जुनयोर्द्वयोः ।\
 > हुताश इव दुर्धर्षः समुद्र इव दुस्तरः ॥२१॥
 
-> dhanvinām agraṇīr eṣa
-> tulyaś cārjunayor dvayoḥ
-> hutāśa iva durdharṣaḥ
+> dhanvinām agraṇīr eṣa\
+> tulyaś cārjunayor dvayoḥ\
+> hutāśa iva durdharṣaḥ\
 > samudra iva dustaraḥ
 
 *dhanvinām*—of the great bowmen; *agraṇīḥ*—the foreman; *eṣaḥ*—this child; *tulyaḥ*—equally good; *ca*—and; *arjunayoḥ*—of the Arjunas; *dvayoḥ*—of the two; *hutāśaḥ*—fire; *iva*—like; *durdharṣaḥ*—irresistible; *samudraḥ*—ocean; *iva*—like; *dustaraḥ*—unsurpassable.

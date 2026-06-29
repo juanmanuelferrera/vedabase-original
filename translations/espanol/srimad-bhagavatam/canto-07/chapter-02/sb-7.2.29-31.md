@@ -1,25 +1,25 @@
 ### SB 7.2.29-31
 
-> विशीर्णरत्नकवचं विभ्रष्टाभरणस्रजम
-> शरनिर्भिन्नहृदयं शयानमसृगाविलम ॥२९॥
-> प्रकीर्णकेशं ध्वस्ताक्षं रभसा दष्टदच्छदम
-> रजःकुण्ठमुखाम्भोजं छिन्नायुधभुजं मृधे ॥३०॥
-> उशीनरेन्द्रं विधिना तथा कृतं पतिं महिष्यः प्रसमीक्ष्य दुःखिताः
+> विशीर्णरत्नकवचं विभ्रष्टाभरणस्रजम\
+> शरनिर्भिन्नहृदयं शयानमसृगाविलम ॥२९॥\
+> प्रकीर्णकेशं ध्वस्ताक्षं रभसा दष्टदच्छदम\
+> रजःकुण्ठमुखाम्भोजं छिन्नायुधभुजं मृधे ॥३०॥\
+> उशीनरेन्द्रं विधिना तथा कृतं पतिं महिष्यः प्रसमीक्ष्य दुःखिताः\
 > हताः स्म नाथेति करैरुरो भृशं घ्नन्त्यो मुहुस्तत्पदयोरुपापतन ॥३१॥
 
-> viśīrṇa-ratna-kavacaṁ
-> vibhraṣṭābharaṇa-srajam
-> śara-nirbhinna-hṛdayaṁ
+> viśīrṇa-ratna-kavacaṁ\
+> vibhraṣṭābharaṇa-srajam\
+> śara-nirbhinna-hṛdayaṁ\
 > śayānam asṛg-āvilam
 
-> prakīrṇa-keśaṁ dhvastākṣaṁ
-> rabhasā daṣṭa-dacchadam
-> rajaḥ-kuṇṭha-mukhāmbhojaṁ
+> prakīrṇa-keśaṁ dhvastākṣaṁ\
+> rabhasā daṣṭa-dacchadam\
+> rajaḥ-kuṇṭha-mukhāmbhojaṁ\
 > chinnāyudha-bhujaṁ mṛdhe
 
-> uśīnarendraṁ vidhinā tathā kṛtaṁ
-> patiṁ mahiṣyaḥ prasamīkṣya duḥkhitāḥ
-> hatāḥ sma nātheti karair uro bhṛśaṁ
+> uśīnarendraṁ vidhinā tathā kṛtaṁ\
+> patiṁ mahiṣyaḥ prasamīkṣya duḥkhitāḥ\
+> hatāḥ sma nātheti karair uro bhṛśaṁ\
 > ghnantyo muhus tat-padayor upāpatan
 
 *viśīrṇa*—esparcidos por todas partes; *ratna*—hecha de joyas; *kavacam*—armadura protectora; *vibhraṣṭa*—desprendidos; *ābharaṇa*—adornos; *srajam*—collares de flores; *śara-nirbhinna*—herido con flechas; *hṛdayam*—el corazón; *śayānam*—yaciendo; *asṛk-āvilam*—lleno de sangre; *prakīrṇa-keśam*—con los cabellos sueltos y despeinados; *dhvasta-akṣam*—con los ojos sin brillo; *rabhasā*—con ira; *daṣṭa*—mordidos; *dacchadam*—sus labios; *rajaḥ-kuṇṭha*—cubierta de tierra; *mukha-ambhojam*—su cara, que antes era como una flor de loto; *chinna*—seccionados; *āyudha-bhujam*—los brazos y las armas; *mṛdhe*—en el campo de batalla; *uśinara-indram*—el señor del estado de Uśīnara; *vidhinā*—por la providencia; *tathā*—así; *kṛtam*—forzado a caer en esa condición; *patim*—al esposo; *mahiṣyaḥ*—las reinas; *prasamīkṣya*—al ver; *duḥkhitāḥ*—muy afligidas; *hatāḥ*—matadas; *sma*—ciertamente; *nātha*—¡oh, esposo!; *iti*—así; *karaiḥ*—con las manos; *uraḥ*—el pecho; *bhṛśam*—constantemente; *ghnantyaḥ*—golpeando; *muhuḥ*—una y otra vez; *tat-padayoḥ*—a los pies del rey; *upāpatan*—cayeron.

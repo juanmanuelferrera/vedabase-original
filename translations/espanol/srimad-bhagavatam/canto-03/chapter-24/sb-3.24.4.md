@@ -1,11 +1,11 @@
 ### SB 3.24.4
 
-> स त्वयाराधितः शुक्लो वितन्वन्मामकं यशः ।
+> स त्वयाराधितः शुक्लो वितन्वन्मामकं यशः ।\
 > छेत्ता ते हृदयग्रन्थिमौदर्यो ब्रह्मभावनः ॥४॥
 
-> sa tvayārādhitaḥ śuklo
-> vitanvan māmakaṁ yaśaḥ
-> chettā te hṛdaya-granthim
+> sa tvayārādhitaḥ śuklo\
+> vitanvan māmakaṁ yaśaḥ\
+> chettā te hṛdaya-granthim\
 > audaryo brahma-bhāvanaḥ
 
 *saḥ*—Él; *tvayā*—por ti; *ārādhitaḥ*—adorado; *śuklaḥ*—la Personalidad de Dios; *vitanvan*—difundiendo; *māmakam*—mi; *yaśaḥ*—fama; *chettā*—Él cortará; *te*—tu; *hṛdaya*—del corazón; *granthim*—nudo; *audaryaḥ*—tu hijo; *brahma*—conocimiento del Brahman; *bhāvanaḥ*—enseñando.

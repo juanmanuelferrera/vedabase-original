@@ -1,11 +1,11 @@
 ### SB 3.27.26
 
-> एवं विदिततत्त्वस्य प्रकृतिर्मयि मानसम् ।
+> एवं विदिततत्त्वस्य प्रकृतिर्मयि मानसम् ।\
 > युञ्जतो नापकुरुत आत्मारामस्य कर्हिचित् ॥२६॥
 
-> evaṁ vidita-tattvasya
-> prakṛtir mayi mānasam
-> yuñjato nāpakuruta
+> evaṁ vidita-tattvasya\
+> prakṛtir mayi mānasam\
+> yuñjato nāpakuruta\
 > ātmārāmasya karhicit
 
 *evam*—de este modo; *vidita-tattvasya*—para el que conoce la Verdad Absoluta; *prakṛtiḥ*—naturaleza material; *mayi*—en Mí; *mānasam*—la mente; *yuñjataḥ*—fijando; *na*—no; *apakurute*—puede hacer daño; *ātma-ārāmasya*—al que se regocija en el ser; *karhicit*—en ningún momento.

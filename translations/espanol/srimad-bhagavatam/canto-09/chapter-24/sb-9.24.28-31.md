@@ -1,32 +1,32 @@
 ### SB 9.24.28-31
 
-> तस्यां स जनयामास दश पुत्रानकल्मषान
-> वसुदेवं देवभागं देवश्रवसमानकम ॥२८॥
-> सृञ्जयं श्यामकं कङ्कं शमीकं वत्सकं वृकम
-> देवदुन्दुभयो नेदुरानका यस्य जन्मनि ॥२९॥
-> वसुदेवं हरेः स्थानं वदन्त्यानकदुन्दुभिम
-> पृथा च श्रुतदेवा च श्रुतकीर्तिः श्रुतश्रवाः ॥३०॥
-> राजाधिदेवी चैतेषां भगिन्यः पञ्च कन्यकाः
+> तस्यां स जनयामास दश पुत्रानकल्मषान\
+> वसुदेवं देवभागं देवश्रवसमानकम ॥२८॥\
+> सृञ्जयं श्यामकं कङ्कं शमीकं वत्सकं वृकम\
+> देवदुन्दुभयो नेदुरानका यस्य जन्मनि ॥२९॥\
+> वसुदेवं हरेः स्थानं वदन्त्यानकदुन्दुभिम\
+> पृथा च श्रुतदेवा च श्रुतकीर्तिः श्रुतश्रवाः ॥३०॥\
+> राजाधिदेवी चैतेषां भगिन्यः पञ्च कन्यकाः\
 > कुन्तेः सख्युः पिता शूरो ह्यपुत्रस्य पृथामदात ॥३१॥
 
-> tasyāṁ sa janayām āsa
-> daśa putrān akalmaṣān
-> vasudevaṁ devabhāgaṁ
+> tasyāṁ sa janayām āsa\
+> daśa putrān akalmaṣān\
+> vasudevaṁ devabhāgaṁ\
 > devaśravasam ānakam
 
-> sṛñjayaṁ śyāmakaṁ kaṅkaṁ
-> śamīkaṁ vatsakaṁ vṛkam
-> deva-dundubhayo nedur
+> sṛñjayaṁ śyāmakaṁ kaṅkaṁ\
+> śamīkaṁ vatsakaṁ vṛkam\
+> deva-dundubhayo nedur\
 > ānakā yasya janmani
 
-> vasudevaṁ hareḥ sthānaṁ
-> vadanty ānakadundubhim
-> pṛthā ca śrutadevā ca
+> vasudevaṁ hareḥ sthānaṁ\
+> vadanty ānakadundubhim\
+> pṛthā ca śrutadevā ca\
 > śrutakīrtiḥ śrutaśravāḥ
 
-> rājādhidevī caiteṣāṁ
-> bhaginyaḥ pañca kanyakāḥ
-> kunteḥ sakhyuḥ pitā śūro
+> rājādhidevī caiteṣāṁ\
+> bhaginyaḥ pañca kanyakāḥ\
+> kunteḥ sakhyuḥ pitā śūro\
 > hy aputrasya pṛthām adāt
 
 *tasyām*—en ella (en Māriṣā); *saḥ*—él (Śūra); *janayām āsa*—engendró; *daśa*—diez; *putrān*—hijos; *akalmaṣān*—inmaculados; *vasudevam*—Vasudeva; *devabhāgam*—Devabhāga; *devaśravasam*—Devaśravā; *ānakam*—Ānaka; *sṛñjayam*—Sṛñjaya; *śyāmakam*—Śyāmaka; *kaṅkam*—Kaṅka; *śamīkam*—Samīka; *vatsakam*—Vatsaka; *vṛkam*—Vṛka; *deva-dundubhayaḥ*—batir de timbales de los semidioses; *neduḥ*—fueron hechos sonar; *ānakāḥ*—un tipo de timbal; *yasya*—cuyo; *janmani*—en el momento del nacimiento; *vasudevam*—a Vasudeva; *hareḥ*—de la Suprema Personalidad de Dios; *sthānam*—ese lugar; *vadanti*—llaman; *ānakadundubhim*—Ānakadundubhi; *pṛthā*—Pṛthā; *ca*—y; *śrutadevā*—Śrutadevā; *ca*—también; *śrutakīrtiḥ*—Śrutakīrti; *śrutaśravāḥ*—Śrutaśravā; *rājādhidevī*—Rājādhidevī; *ca*—también; *eteṣām*—de todos ellos; *bhaginyaḥ*—hermanas; *pañca*—cinco; *kanyakāḥ*—hijas (de Śūra); *kunteḥ*—de Kunti; *sakhyuḥ*—un amigo; *pitā*—padre; *śūraḥ*—Śūra; *hi*—en verdad; *aputrasya*—(de Kunti) que no tenía hijos; *pṛthām*—a Pṛthā; *adāt*—entregó.

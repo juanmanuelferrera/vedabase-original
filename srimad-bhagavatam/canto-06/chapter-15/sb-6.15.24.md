@@ -1,11 +1,11 @@
 ### SB 6.15.24
 
-> दृश्यमाना विनार्थेन न दृश्यन्ते मनोभवाः
+> दृश्यमाना विनार्थेन न दृश्यन्ते मनोभवाः\
 > कर्मभिर्ध्यायतो नाना कर्माणि मनसोऽभवन ॥२४॥
 
-> dṛśyamānā vinārthena
-> na dṛśyante manobhavāḥ
-> karmabhir dhyāyato nānā-
+> dṛśyamānā vinārthena\
+> na dṛśyante manobhavāḥ\
+> karmabhir dhyāyato nānā-\
 > karmāṇi manaso 'bhavan
 
 *dṛśyamānāḥ*—being perceived; *vinā*—without; *arthena*—substance or reality; *na*—not; *dṛśyante*—are seen; *manobhavāḥ*—creations of mental concoction; *karmabhiḥ*—by fruitive activities; *dhyāyataḥ*—meditating upon; *nānā*—various; *karmāṇi*—fruitive activities; *manasaḥ*—from the mind; *abhavan*—appear.

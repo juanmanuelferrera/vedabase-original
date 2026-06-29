@@ -1,11 +1,11 @@
 ### SB 7.7.12
 
-> ततो मे मातरमृषिः समानीय निजाश्रमे
+> ततो मे मातरमृषिः समानीय निजाश्रमे\
 > आश्वास्येहोष्यतां वत्से यावत्ते भर्तुरागमः ॥१२॥
 
-> tato me mātaram ṛṣiḥ
-> samānīya nijāśrame
-> āśvāsyehoṣyatāṁ vatse
+> tato me mātaram ṛṣiḥ\
+> samānīya nijāśrame\
+> āśvāsyehoṣyatāṁ vatse\
 > yāvat te bhartur āgamaḥ
 
 *tataḥ*—a continuación; *me*—mía; *mātaram*—a la madre; *ṛṣiḥ*—el gran santo Nārada Ṛṣi; *samānīya*—llevar; *nija-āśrame*—a su propio *āśrama*; *āśvāsya*—garantizándole seguridad; *iha*—aquí; *uṣyatām*—quédate; *vatse*—mi querida hija; *yāvat*—hasta que; *te*—tuyo; *bhartuḥ*—del esposo; *āgamaḥ*—la venida.

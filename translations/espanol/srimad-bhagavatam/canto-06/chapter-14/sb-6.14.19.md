@@ -1,11 +1,11 @@
 ### SB 6.14.19
 
-> अपि दाराः प्रजामात्या भृत्याः श्रेण्योऽथ मन्त्रिणः
+> अपि दाराः प्रजामात्या भृत्याः श्रेण्योऽथ मन्त्रिणः\
 > पौरा जानपदा भूपा आत्मजा वशवर्तिनः ॥१९॥
 
-> api dārāḥ prajāmātyā
-> bhṛtyāḥ śreṇyo 'tha mantriṇaḥ
-> paurā jānapadā bhūpā
+> api dārāḥ prajāmātyā\
+> bhṛtyāḥ śreṇyo 'tha mantriṇaḥ\
+> paurā jānapadā bhūpā\
 > ātmajā vaśa-vartinaḥ
 
 *api*—si; *dārāḥ*—esposas; *prajā*—súbditos; *amātyāḥ*—y secretarios; *bhṛtyāḥ*—sirvientes; *śreṇyaḥ*—comerciantes; *atha*—así como; *mantriṇaḥ*—ministros; *paurāḥ*—habitantes del palacio; *jānapadāḥ*—los gobernadores de las provincias; *bhūpāḥ*—terratenientes; *ātma-jāḥ*—hijos; *vaśa-vartinaḥ*—bajo tu completo control.

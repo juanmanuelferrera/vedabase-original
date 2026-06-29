@@ -1,9 +1,9 @@
 ### CC Madhya 9.280
 
-> গোকর্ণে শিব দেখি’ আইলা দ্বৈপায়নি ৷
+> গোকর্ণে শিব দেখি’ আইলা দ্বৈপায়নি ৷\
 > সূর্পারক-তীর্থে আইলা ন্যাসিশিরোমণি ৷৷ ২৮০ ৷৷ ॥২৮০॥
 
-> gokarṇe śiva dekhi' āilā dvaipāyani
+> gokarṇe śiva dekhi' āilā dvaipāyani\
 > sūrpāraka-tīrthe āilā nyāsi-śiromaṇi
 
 *gokarṇe*—en el lugar llamado Gokarṇa; *śiva*—el templo del Señor Śiva; *dekhi'*—al ver; *āilā*—llegó; *dvaipāyani*—a Dvaipāyani; *sūrpāraka-tīrthe*—al lugar sagrado llamado Sūrpāraka; *āilā*—llegó; *nyāsi-śiromaṇi*—la joya suprema de todos los sannyāsīs, Śrī Caitanya Mahāprabhu.

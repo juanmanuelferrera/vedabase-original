@@ -1,18 +1,18 @@
 ### SB 1.11.4-5
 
-> तत्रोपनीतबलयो रवेर्दीपमिवादृताः ।
-> आत्मारामं पूर्णकामं निजलाभेन नित्यदा ॥४॥
-> प्रीत्युत्फुल्लमुखाः प्रोचुर्हर्षगद्गदया गिरा ।
+> तत्रोपनीतबलयो रवेर्दीपमिवादृताः ।\
+> आत्मारामं पूर्णकामं निजलाभेन नित्यदा ॥४॥\
+> प्रीत्युत्फुल्लमुखाः प्रोचुर्हर्षगद्गदया गिरा ।\
 > पितरं सर्वसुहृदमवितारमिवार्भकाः ॥५॥
 
-> tatropanīta-balayo
-> raver dīpam ivādṛtāḥ
-> ātmārāmaṁ pūrṇa-kāmaṁ
+> tatropanīta-balayo\
+> raver dīpam ivādṛtāḥ\
+> ātmārāmaṁ pūrṇa-kāmaṁ\
 > nija-lābhena nityadā
 
-> prīty-utphulla-mukhāḥ procur
-> harṣa-gadgadayā girā
-> pitaraṁ sarva-suhṛdam
+> prīty-utphulla-mukhāḥ procur\
+> harṣa-gadgadayā girā\
+> pitaraṁ sarva-suhṛdam\
 > avitāram ivārbhakāḥ
 
 *tatra*—thereupon; *upanīta*—having offered; *balayaḥ*—presentations; *raveḥ*—up to the sun; *dīpam*—lamp; *iva*—like; *ādṛtāḥ*—being evaluated; *ātma-ārāmam*—unto the self-sufficient; *pūrṇa-kāmam*—fully satisfied; *nija-lābhena*—by His own potencies; *nitya-dā*—one who supplies incessantly; *prīti*—affection; *utphulla-mukhāḥ*—cheerful faces; *procuḥ*—said; *harṣa*—gladdened; *gadgadayā*—ecstatic; *girā*—speeches; *pitaram*—unto the father; *sarva*—all; *suhṛdam*—friends; *avitāram*—the guardian; *iva*—like; *arbhakāḥ*—wards.

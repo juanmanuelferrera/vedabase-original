@@ -1,9 +1,9 @@
 ### CC Madhya 5.61
 
-> সব ধন লঞা কহে — ‘চোরে লইল ধন ।’
+> সব ধন লঞা কহে — ‘চোরে লইল ধন ।’\
 > ‘কন্যা দিতে চাহিয়াছে’ — উঠাইল বচন ॥৬১॥
 
-> saba dhana lañā kahe--'core la-ila dhana'
+> saba dhana lañā kahe--'core la-ila dhana'\
 > 'kanyā dite cāhiyāche'--uṭhāila vacana
 
 *saba*—todo; *dhana*—dinero; *lañā*—tomando; *kahe*—dice; *core*—un ladrón; *la-ila*—se llevó; *dhana*—todo el dinero; *kanyā*—la hija; *dite*—dar en caridad; *cāhiyāche*—ha prometido; *uṭhāila*—ha levantado; *vacana*—un eslogan.

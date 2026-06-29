@@ -1,9 +1,9 @@
 ### CC Madhya 18.13
 
-> এইমত স্তুতি করে প্রেমাবিষ্ট হঞা ৷
+> এইমত স্তুতি করে প্রেমাবিষ্ট হঞা ৷\
 > তীরে নৃত্য করে কুণ্ডলীলা সঙরিয়া ॥১৩॥
 
-> ei-mata stuti kare premāviṣṭa hañā
+> ei-mata stuti kare premāviṣṭa hañā\
 > tīre nṛtya kare kuṇḍa-līlā saṅariyā
 
 *ei-mata*—de esta manera; *stuti kare*—ofrece oraciones; *prema-āviṣṭa*—abrumado por el amor extático; *hañā*—habiéndose; *tīre*—en la ribera; *nṛtya kare*—danza; *kuṇḍa-līlā*—pasatiempos de Rādhā-kuṇḍa; *saṅariyā*—recordando.

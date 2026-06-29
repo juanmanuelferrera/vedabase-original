@@ -1,11 +1,11 @@
 ### SB 8.13.20
 
-> आयुष्मतोऽम्बुधारायामृषभो भगवत्कला
+> आयुष्मतोऽम्बुधारायामृषभो भगवत्कला\
 > भविता येन संराद्धां त्रिलोकीं भोक्ष्यतेऽद्भुतः ॥२०॥
 
-> āyuṣmato 'mbudhārāyām
-> ṛṣabho bhagavat-kalā
-> bhavitā yena saṁrāddhāṁ
+> āyuṣmato 'mbudhārāyām\
+> ṛṣabho bhagavat-kalā\
+> bhavitā yena saṁrāddhāṁ\
 > tri-lokīṁ bhokṣyate 'dbhutaḥ
 
 *āyuṣmataḥ*—of the father, Āyuṣmān; *ambudhārāyām*—in the womb of the mother, Ambudhārā; *ṛṣabhaḥ*—Ṛṣabha; *bhagavat-kalā*—a partial incarnation of the Supreme Personality of Godhead; *bhavitā*—will be; *yena*—by whom; *saṁrāddhām*—all-opulent; *tri-lokīm*—the three worlds; *bhokṣyate*—will enjoy; *adbhutaḥ*—the Indra of the name Adbhuta.

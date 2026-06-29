@@ -1,13 +1,13 @@
 ### CC Madhya 22.52
 
-> রহূগণৈতত্তপসা ন যাতি
-> ন চেজ্যয়া নির্বপণাদ্গৃহাদ্বা ।
-> ন চ্ছন্দসা নৈব জলাগ্নিসূর্যৈ-
+> রহূগণৈতত্তপসা ন যাতি\
+> ন চেজ্যয়া নির্বপণাদ্গৃহাদ্বা ।\
+> ন চ্ছন্দসা নৈব জলাগ্নিসূর্যৈ-\
 > র্বিনা মহৎপাদরজোঽভিষেকম্ ॥৫২॥
 
-> rahūgaṇaitat tapasā na yāti
-> na cejyayā nirvapaṇād gṛhād vā
-> na cchandasā naiva jalāgni-sūryair
+> rahūgaṇaitat tapasā na yāti\
+> na cejyayā nirvapaṇād gṛhād vā\
+> na cchandasā naiva jalāgni-sūryair\
 > vinā mahat-pāda-rajo-'bhiṣekam
 
 *rahūgaṇa*—O King Rahūgaṇa; *etat*—this; *tapasā*—by severe austerities and penances; *na yāti*—one does not obtain; *na*—neither; *ca*—also; *ijyayā*—by gorgeous worship; *nirvapaṇāt*—by renounced order of life; *gṛhāt*—by sacrifices while living in the home; *vā*—or; *na chandasā*—nor by scholarly study of the *Vedas*; *na*—nor; *eva*—certainly; *jala-agni-sūryaiḥ*—by those who worship water, fire or scorching sunshine; *vinā*—without; *mahat-pāda-rajaḥ*—of the dust of the lotus feet of a *mahātmā*; *abhiṣekam*—the sprinkling.

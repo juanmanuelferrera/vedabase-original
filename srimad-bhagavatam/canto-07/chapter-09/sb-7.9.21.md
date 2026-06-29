@@ -1,13 +1,13 @@
 ### SB 7.9.21
 
-> माया मनः सृजति कर्ममयं बलीयः
-> कालेन चोदितगुणानुमतेन पुंसः
-> छन्दोमयं यदजयार्पितषोडशारं
+> माया मनः सृजति कर्ममयं बलीयः\
+> कालेन चोदितगुणानुमतेन पुंसः\
+> छन्दोमयं यदजयार्पितषोडशारं\
 > संसारचक्रमज कोऽतितरेत्त्वदन्यः ॥२१॥
 
-> māyā manaḥ sṛjati karmamayaṁ balīyaḥ
-> kālena codita-guṇānumatena puṁsaḥ
-> chandomayaṁ yad ajayārpita-ṣoḍaśāraṁ
+> māyā manaḥ sṛjati karmamayaṁ balīyaḥ\
+> kālena codita-guṇānumatena puṁsaḥ\
+> chandomayaṁ yad ajayārpita-ṣoḍaśāraṁ\
 > saṁsāra-cakram aja ko 'titaret tvad-anyaḥ
 
 *māyā*—the external energy of the Supreme Personality of Godhead; *manaḥ*—the mind; *sṛjati*—creates; *karma-mayam*—producing hundreds and thousands of desires and acting accordingly; *balīyaḥ*—extremely powerful, insurmountable; *kālena*—by time; *codita-guṇa*—whose three modes of material nature are agitated; *anumatena*—permitted by the mercy of the glance (time); *puṁsaḥ*—of the plenary portion, Lord Viṣṇu, the expansion of Lord Kṛṣṇa; *chandaḥ-mayam*—chiefly influenced by the directions in the *Vedas*; *yat*—which; *ajayā*—because of dark ignorance; *arpita*—offered; *ṣoḍaśa*—sixteen; *aram*—the spokes; *saṁsāra-cakram*—the wheel of repeated birth and death in different species of life; *aja*—O unborn Lord; *kaḥ*—who (is there); *atitaret*—able to get out; *tvat-anyaḥ*—without taking shelter at Your lotus feet.

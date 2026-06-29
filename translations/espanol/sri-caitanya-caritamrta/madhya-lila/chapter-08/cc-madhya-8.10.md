@@ -1,9 +1,9 @@
 ### CC Madhya 8.10
 
-> পূর্ববৎ ‘বৈষ্ণব’ করি’ সর্ব লোকগণে ৷
+> পূর্ববৎ ‘বৈষ্ণব’ করি’ সর্ব লোকগণে ৷\
 > গোদাবরী-তীরে প্রভু আইলা কতদিনে ৷৷ ১০ ৷৷ ॥১০॥
 
-> pūrvavat 'vaiṣṇava' kari' sarva loka-gaṇe
+> pūrvavat 'vaiṣṇava' kari' sarva loka-gaṇe\
 > godāvarī-tīre prabhu āilā kata-dine
 
 *pūrva-vat*—como anteriormente; *vaiṣṇava*—devotos; *kari'*—haciendo; *sarva*—a toda; *loka-gaṇe*—la gente; *godāvarī-tīre*—a la ribera del río Godāvarī; *prabhu*—el Señor; *āilā*—llegó; *kata-dine*—al cabo de algunos días.

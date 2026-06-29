@@ -1,9 +1,9 @@
 ### CC Antya 19.106
 
-> অলৌকিক প্রভুর ‘চেষ্টা’, ‘প্রলাপ’ শুনিয়া ।
+> অলৌকিক প্রভুর ‘চেষ্টা’, ‘প্রলাপ’ শুনিয়া ।\
 > তর্ক না করিহ, শুন বিশ্বাস করিয়া ॥১০৬॥
 
-> alaukika prabhura 'ceṣṭā', 'pralāpa' śuniyā
+> alaukika prabhura 'ceṣṭā', 'pralāpa' śuniyā\
 > tarka nā kariha, śuna viśvāsa kariyā
 
 *alaukika*—extraordinarias; *prabhura*—de Śrī Caitanya Mahāprabhu; *ceṣṭā*—las actividades; *pralāpa*—hablar con locura; *śuniyā*—al escuchar; *tarka*—argumentos innecesarios; *nā kariha*—no hagáis; *śuna*—simplemente escuchad; *viśvāsa kariyā*—con plena fe.

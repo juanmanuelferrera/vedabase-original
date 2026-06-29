@@ -1,13 +1,13 @@
 ### SB 7.14.2
 
-> श्रीनारद उवाच
-> गृहेष्ववस्थितो राजन्क्रियाः कुर्वन्यथोचिताः
+> श्रीनारद उवाच\
+> गृहेष्ववस्थितो राजन्क्रियाः कुर्वन्यथोचिताः\
 > वासुदेवार्पणं साक्षादुपासीत महामुनीन ॥२॥
 
-> śrī-nārada uvāca
-> gṛheṣv avasthito rājan
-> kriyāḥ kurvan yathocitāḥ
-> vāsudevārpaṇaṁ sākṣād
+> śrī-nārada uvāca\
+> gṛheṣv avasthito rājan\
+> kriyāḥ kurvan yathocitāḥ\
+> vāsudevārpaṇaṁ sākṣād\
 > upāsīta mahā-munīn
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni dijo; *gṛheṣu*—en el hogar; *avasthitaḥ*—permanecer (el casado generalmente permanece en su hogar con su esposa e hijos); *rājan*—¡oh, rey!; *kriyāḥ*—actividades; *kurvan*—realizar; *yathocitāḥ*—adecuadas (conforme a la instrucción del *guru* y el *śāstra*); *vāsudeva*—al Señor Vāsudeva; *arpaṇam*—dedicar; *sākṣāt*—directamente; *upāsīta*—debe adorar; *mahā-munīn*—a los grandes devotos.

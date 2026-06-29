@@ -1,11 +1,11 @@
 ### SB 4.30.42
 
-> नमः समाय शुद्धाय पुरुषाय पराय च ।
+> नमः समाय शुद्धाय पुरुषाय पराय च ।\
 > वासुदेवाय सत्त्वाय तुभ्यं भगवते नमः ॥४२॥
 
-> namaḥ samāya śuddhāya
-> puruṣāya parāya ca
-> vāsudevāya sattvāya
+> namaḥ samāya śuddhāya\
+> puruṣāya parāya ca\
+> vāsudevāya sattvāya\
 > tubhyaṁ bhagavate namaḥ
 
 *namaḥ*—ofrecemos nuestras respetuosas reverencias; *samāya*—que es ecuánime con todos; *śuddhāya*—que nunca Se contamina con actividades pecaminosas; *puruṣāya*—a la Persona Suprema; *parāya*—trascendental; *ca*—también; *vāsudevāya*—que vive en todas partes; *sattvāya*—que está en la posición trascendental; *tubhyam*—a Ti; *bhagavate*—a la Suprema Personalidad de Dios; *namaḥ*—reverencias.

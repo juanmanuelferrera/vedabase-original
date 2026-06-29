@@ -1,13 +1,13 @@
 ### SB 7.5.11
 
-> श्रीप्रह्राद उवाच
-> परः स्वश्चेत्यसद्ग्राहः पुंसां यन्मायया कृतः
+> श्रीप्रह्राद उवाच\
+> परः स्वश्चेत्यसद्ग्राहः पुंसां यन्मायया कृतः\
 > विमोहितधियां दृष्टस्तस्मै भगवते नमः ॥११॥
 
-> śrī-prahrāda uvāca
-> paraḥ svaś cety asad-grāhaḥ
-> puṁsāṁ yan-māyayā kṛtaḥ
-> vimohita-dhiyāṁ dṛṣṭas
+> śrī-prahrāda uvāca\
+> paraḥ svaś cety asad-grāhaḥ\
+> puṁsāṁ yan-māyayā kṛtaḥ\
+> vimohita-dhiyāṁ dṛṣṭas\
 > tasmai bhagavate namaḥ
 
 *śrī-prahrādaḥ uvāca*—Prahlāda Mahārāja replied; *paraḥ*—an enemy; *svaḥ*—a kinsman or friend; *ca*—also; *iti*—thus; *asat-grāhaḥ*—material conception of life; *puṁsām*—of persons; *yat*—of whom; *māyayā*—by the external energy; *kṛtaḥ*—created; *vimohita*—bewildered; *dhiyām*—of those whose intelligence; *dṛṣṭaḥ*—practically experienced; *tasmai*—unto Him; *bhagavate*—the Supreme Personality of Godhead; *namaḥ*—my respectful obeisances.

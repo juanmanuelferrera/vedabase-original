@@ -1,11 +1,11 @@
 ### SB 3.24.13
 
-> एतावत्येव शुश्रूषा कार्या पितरि पुत्रकैः ।
+> एतावत्येव शुश्रूषा कार्या पितरि पुत्रकैः ।\
 > बाढमित्यनुमन्येत गौरवेण गुरोर्वचः ॥१३॥
 
-> etāvaty eva śuśrūṣā
-> kāryā pitari putrakaiḥ
-> bāḍham ity anumanyeta
+> etāvaty eva śuśrūṣā\
+> kāryā pitari putrakaiḥ\
+> bāḍham ity anumanyeta\
 > gauraveṇa guror vacaḥ
 
 *etāvatī*—to this extent; *eva*—exactly; *śuśrūṣā*—service; *kāryā*—ought to be rendered; *pitari*—to the father; *putrakaiḥ*—by the sons; *bāḍham iti*—accepting, "Yes, sir"; *anumanyeta*—he should obey; *gauraveṇa*—with due deference; *guroḥ*—of the *guru*; *vacaḥ*—commands.

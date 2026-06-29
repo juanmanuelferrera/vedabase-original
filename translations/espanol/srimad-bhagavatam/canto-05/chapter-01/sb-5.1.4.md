@@ -1,11 +1,11 @@
 ### SB 5.1.4
 
-> संशयोऽयं महान्ब्रह्मन्दारागारसुतादिषु
+> संशयोऽयं महान्ब्रह्मन्दारागारसुतादिषु\
 > सक्तस्य यत्सिद्धिरभूत्कृष्णे च मतिरच्युता ॥४॥
 
-> saṁśayo 'yaṁ mahān brahman
-> dārāgāra-sutādiṣu
-> saktasya yat siddhir abhūt
+> saṁśayo 'yaṁ mahān brahman\
+> dārāgāra-sutādiṣu\
+> saktasya yat siddhir abhūt\
 > kṛṣṇe ca matir acyutā
 
 *saṁśayaḥ*—duda; *ayam*—esta; *mahān*—grande; *brahman*—¡oh, *brāhmaṇa*!; *dāra*—a la esposa; *āgāra*—el hogar; *suta*—los hijos; *ādiṣu*—y demás; *saktasya*—de una persona apegada; *yat*—debido a; *siddhiḥ*—perfección; *abhūt*—se volviese; *kṛṣṇe*—a Kṛṣṇa; *ca*—también; *matiḥ*—apego; *acyutā*—infalible.

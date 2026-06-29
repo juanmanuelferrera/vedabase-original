@@ -1,11 +1,11 @@
 ### SB 4.23.6
 
-> ग्रीष्मे पञ्चतपा वीरो वर्षास्वासारषाण्मुनिः ।
+> ग्रीष्मे पञ्चतपा वीरो वर्षास्वासारषाण्मुनिः ।\
 > आकण्ठमग्नः शिशिरे उदके स्थण्डिलेशयः ॥६॥
 
-> grīṣme pañca-tapā vīro
-> varṣāsv āsāraṣāṇ muniḥ
-> ākaṇṭha-magnaḥ śiśire
+> grīṣme pañca-tapā vīro\
+> varṣāsv āsāraṣāṇ muniḥ\
+> ākaṇṭha-magnaḥ śiśire\
 > udake sthaṇḍile-śayaḥ
 
 *grīṣme*—in the summer season; *pañca-tapāḥ*—five kinds of heating; *vīraḥ*—the hero; *varṣāsu*—in the rainy season; *āsāraṣāṭ*—being situated within the torrents of rain; *muniḥ*—like the great sages; *ākaṇṭha*—up to the neck; *magnaḥ*—drowned; *śiśire*—in winter; *udake*—within water; *sthaṇḍile-śayaḥ*—lying down on the floor.

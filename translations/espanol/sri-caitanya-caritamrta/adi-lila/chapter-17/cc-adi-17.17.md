@@ -1,9 +1,9 @@
 ### CC Adi 17.17
 
-> তবে শচী দেখিল, রামকৃষ্ণ — দুই ভাই ।
+> তবে শচী দেখিল, রামকৃষ্ণ — দুই ভাই ।\
 > তবে নিস্তারিল প্রভু জগাই-মাধাই ॥১৭॥
 
-> tabe śacī dekhila, rāma-kṛṣṇa--dui bhāi
+> tabe śacī dekhila, rāma-kṛṣṇa--dui bhāi\
 > tabe nistārila prabhu jagāi-mādhāi
 
 *tabe*—después de eso; *śacī*—madre Śacīdevī; *dekhila*—vio; *rāma-kṛṣṇa*—el Señor Kṛṣṇa y el Señor Balarāma; *dui bhāi*—dos hermanos; *tabe*—después de eso; *nistārila*—liberó; *prabhu*—el Señor; *jagāi-mādhāi*—los dos hermanos Jagāi y Mādhāi.

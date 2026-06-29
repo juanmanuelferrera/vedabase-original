@@ -1,9 +1,9 @@
 ### CC Madhya 16.153
 
-> এইমত চলি’ প্রভু ‘রেমুণা’ আইলা ।
+> এইমত চলি’ প্রভু ‘রেমুণা’ আইলা ।\
 > তথা হৈতে রামানন্দ-রায়ে বিদায় দিলা ॥১৫৩॥
 
-> ei-mata cali' prabhu 'remuṇā' āilā
+> ei-mata cali' prabhu 'remuṇā' āilā\
 > tathā haite rāmānanda-rāye vidāya dilā
 
 *ei-mata*—in this way; *cali'*—walking; *prabhu*—Śrī Caitanya Mahāprabhu; *remuṇā āilā*—came to Remuṇā; *tathā haite*—from there; *rāmānanda-rāye*—unto Rāmānanda Rāya; *vidāya dilā*—bade farewell.

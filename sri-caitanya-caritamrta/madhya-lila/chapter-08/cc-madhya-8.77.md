@@ -1,11 +1,11 @@
 ### CC Madhya 8.77
 
-> নন্দঃ কিমকরোদ্ব্রহ্মন্ শ্রেয় এবং মহোদয়ম্ ।
+> নন্দঃ কিমকরোদ্ব্রহ্মন্ শ্রেয় এবং মহোদয়ম্ ।\
 > যশোদা বা মহাভাগা পপৌ যস্যাঃ স্তনং হরিঃ ॥৭৭॥
 
-> nandaḥ kim akarod brahman
-> śreya evaṁ mahodayam
-> yaśodā vā mahā-bhāgā
+> nandaḥ kim akarod brahman\
+> śreya evaṁ mahodayam\
+> yaśodā vā mahā-bhāgā\
 > papau yasyāḥ stanaṁ hariḥ
 
 *nandaḥ*—Nanda Mahārāja; *kim*—what; *akarot*—has performed; *brahman*—O *brāhmaṇa*; *śreyaḥ*—auspicious activities; *evam*—thus; *mahā-udayam*—rising to such an exalted position as the father of Kṛṣṇa; *yaśodā*—mother Yaśodā; *vā*—or; *mahā-bhāgā*—most fortunate; *papau*—drank; *yasyāḥ*—of whom; *stanam*—by the breasts; *hariḥ*—the Supreme Personality of Godhead.

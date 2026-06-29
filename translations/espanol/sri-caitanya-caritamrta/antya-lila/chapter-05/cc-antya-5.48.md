@@ -1,13 +1,13 @@
 ### CC Antya 5.48
 
-> বিক্রীড়িতং ব্রজবধূভিরিদঞ্চ বিষ্ণোঃ
-> শ্রদ্ধান্বিতোঽনুশৃণুয়াদথ বর্ণয়েদ্যঃ ।
-> ভক্তিং পরাং ভগবতি প্রতিলভ্য কামং
+> বিক্রীড়িতং ব্রজবধূভিরিদঞ্চ বিষ্ণোঃ\
+> শ্রদ্ধান্বিতোঽনুশৃণুয়াদথ বর্ণয়েদ্যঃ ।\
+> ভক্তিং পরাং ভগবতি প্রতিলভ্য কামং\
 > হৃদ্রোগমাশ্বপহিনোত্যচিরেণ ধীরঃ ॥৪৮॥
 
-> vikrīḍitaṁ vraja-vadhūbhir idaṁ ca viṣṇoḥ
-> śraddhānvito 'nuśṛṇuyād atha varṇayed yaḥ
-> bhaktiṁ parāṁ bhagavati pratilabhya kāmaṁ
+> vikrīḍitaṁ vraja-vadhūbhir idaṁ ca viṣṇoḥ\
+> śraddhānvito 'nuśṛṇuyād atha varṇayed yaḥ\
+> bhaktiṁ parāṁ bhagavati pratilabhya kāmaṁ\
 > hṛd-rogam āśv apahinoty acireṇa dhīraḥ
 
 *vikrīḍitam*—la actividad de la danza del rāsa; *vraja-vadhūbhiḥ*—las doncellas de Vraja, las gopīs; *idam*—esto; *ca*—y; *viṣṇoḥ*—del Señor Kṛṣṇa; *śraddhā-anvitaḥ*—con fe trascendental; *anuśṛṇuyāt*—escucha continuamente en el sistema de paramparā; *atha*—también; *varṇayet*—describe; *yaḥ*—aquel que; *bhaktim*—servicio devocional; *parām*—trascendental; *bhagavati*—a la Suprema Personalidad de Dios; *pratilabhya*—alcanzando; *kāmam*—deseos materiales lujuriosos; *hṛt-rogam*—la enfermedad del corazón; *āśu*—muy pronto; *apahinoti*—abandona; *acireṇa*—sin demora; *dhīraḥ*—aquel que es sobrio por su avanzado servicio devocional.

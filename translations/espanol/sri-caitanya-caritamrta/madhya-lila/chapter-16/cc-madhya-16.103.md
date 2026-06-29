@@ -1,9 +1,9 @@
 ### CC Madhya 16.103
 
-> শুনি’ আনন্দিত রাজা অতিশীঘ্র আইলা ।
+> শুনি’ আনন্দিত রাজা অতিশীঘ্র আইলা ।\
 > প্রভু দেখি’ দণ্ডবৎ ভূমেতে পড়িলা ॥১০৩॥
 
-> śuni' ānandita rājā ati-śīghra āilā
+> śuni' ānandita rājā ati-śīghra āilā\
 > prabhu dekhi' daṇḍavat bhūmete padilā
 
 *śuni'*—al oír; *ānandita*—muy complacido; *rājā*—el rey; *ati-śīghra*—apresuradamente; *āilā*—vino; *prabhu dekhi'*—al ver al Señor Śrī Caitanya Mahāprabhu; *daṇḍavat*—reverencias ofrecidas postrándose por completo; *bhūmete*—en el suelo; *padilā*—cayó.

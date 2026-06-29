@@ -1,11 +1,11 @@
 ### SB 3.12.44
 
-> आन्वीक्षिकी त्रयी वार्ता दण्डनीतिस्तथैव च ।
+> आन्वीक्षिकी त्रयी वार्ता दण्डनीतिस्तथैव च ।\
 > एवं व्याहृतयश्चासन्प्रणवो ह्यस्य दह्रतः ॥४४॥
 
-> ānvīkṣikī trayī vārtā
-> daṇḍa-nītis tathaiva ca
-> evaṁ vyāhṛtayaś cāsan
+> ānvīkṣikī trayī vārtā\
+> daṇḍa-nītis tathaiva ca\
+> evaṁ vyāhṛtayaś cāsan\
 > praṇavo hy asya dahrataḥ
 
 *ānvīkṣikī*—logic; *trayī*—the three goals, namely religion, economy and salvation; *vārtā*—sense gratification; *daṇḍa*—law and order; *nītiḥ*—moral codes; *tathā*—as also; *eva ca*—respectively; *evam*—thus; *vyāhṛtayaḥ*—the celebrated hymns *bhūḥ, bhuvaḥ* and *svaḥ*; *ca*—also; *āsan*—came into existence; *praṇavaḥ*—the *oṁkāra*; *hi*—certainly; *asya*—of him (Brahmā); *dahrataḥ*—from the heart.

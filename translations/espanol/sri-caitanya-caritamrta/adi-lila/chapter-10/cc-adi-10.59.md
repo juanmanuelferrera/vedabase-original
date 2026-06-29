@@ -1,9 +1,9 @@
 ### CC Adi 10.59
 
-> তাঁহাতে হইল চৈতন্যের ‘আবির্ভাব’ ।
+> তাঁহাতে হইল চৈতন্যের ‘আবির্ভাব’ ।\
 > অলৌকিক ঐছে প্রভুর অনেক স্বভাব ॥৫৯॥
 
-> tāṅhāte ha-ila caitanyera 'āvirbhāva'
+> tāṅhāte ha-ila caitanyera 'āvirbhāva'\
 > alaukika aiche prabhura aneka svabhāva
 
 *tāṅhāte*—en él; *ha-ila*—hubo; *caitanyera*—del Señor Śrī Caitanya Mahāprabhu; *āvirbhāva*—aparición; *alaukika*—extraordinario; *aiche*—como eso; *prabhura*—del Señor Caitanya Mahāprabhu; *aneka*—diversos; *svabhāva*—rasgos.

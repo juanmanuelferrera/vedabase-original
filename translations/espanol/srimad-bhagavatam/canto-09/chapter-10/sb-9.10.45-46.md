@@ -1,18 +1,18 @@
 ### SB 9.10.45-46
 
-> पुष्पकस्थो नुतः स्त्रीभिः स्तूयमानश्च वन्दिभिः
-> विरेजे भगवान्राजन्ग्रहैश्चन्द्र इवोदितः ॥४५॥
-> भ्रात्राभिनन्दितः सोऽथ सोत्सवां प्राविशत्पुरीम
+> पुष्पकस्थो नुतः स्त्रीभिः स्तूयमानश्च वन्दिभिः\
+> विरेजे भगवान्राजन्ग्रहैश्चन्द्र इवोदितः ॥४५॥\
+> भ्रात्राभिनन्दितः सोऽथ सोत्सवां प्राविशत्पुरीम\
 > प्रविश्य राजभवनं गुरुपत्नीः स्वमातरम ॥४६॥
 
-> bhrātrābhinanditaḥ so 'tha
-> sotsavāṁ prāviśat purīm
-> praviśya rāja-bhavanaṁ
+> bhrātrābhinanditaḥ so 'tha\
+> sotsavāṁ prāviśat purīm\
+> praviśya rāja-bhavanaṁ\
 > guru-patnīḥ sva-mātaram
 
-> gurūn vayasyāvarajān
-> pūjitaḥ pratyapūjayat
-> vaidehī lakṣmaṇaś caiva
+> gurūn vayasyāvarajān\
+> pūjitaḥ pratyapūjayat\
+> vaidehī lakṣmaṇaś caiva\
 > yathāvat samupeyatuḥ
 
 *bhrātrā*—por Su hermano (Bharata); *abhinanditaḥ*—recibir una adecuada bienvenida; *saḥ*—Él, el Señor Rāmacandra; *atha*—a continuación; *sa-utsavām*—en medio de un festival; *prāviśat*—entró; *purīm*—en la ciudad de Ayodhyā; *praviśya*—una vez dentro; *rāja-bhavanam*—del palacio real; *guru-patnīḥ*—Kaikeyī y otras madrastras; *sva-mātaram*—a Su propia madre (Kauśalyā); *gurūn*—los maestros espirituales (Śrī Vasiṣṭha y otros); *vayasya*—a amigos de Su misma edad; *avara-jān*—y a los que eran más jóvenes que Él; *pūjitaḥ*—ser adorado por ellos; *pratyapūjayat*—ofreció reverencias a Su vez; *vaidehī*—madre Sītā; *lakṣmaṇaḥ*—Lakṣmaṇa; *ca eva*—y; *yathā-vat*—del modo adecuado; *samupeyatuḥ*—siendo recibido, entró en el palacio.

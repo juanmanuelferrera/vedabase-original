@@ -1,9 +1,9 @@
 ### CC Adi 10.45
 
-> প্রহ্লাদ-সমান তাঁর গুণের তরঙ্গ ।
+> প্রহ্লাদ-সমান তাঁর গুণের তরঙ্গ ।\
 > যবন-তাড়নেও যাঁর নাহিক ভ্রূভঙ্গ ॥৪৫॥
 
-> prahlāda-samāna tāṅra guṇera taraṅga
+> prahlāda-samāna tāṅra guṇera taraṅga\
 > yavana-tāḍaneo yāṅra nāhika bhrū-bhaṅga
 
 *prahlāda-samāna*—exactamente como Prahlāda Mahārāja; *tāṅra*—sus; *guṇera*—cualidades; *taraṅga*—oleajes; *yavana*—de los musulmanes; *tāḍaneo*—incluso con la persecución; *yāṅra*—cuyas; *nāhika*—no había; *bhrū-bhaṅga*—ni la más leve agitación de una ceja.

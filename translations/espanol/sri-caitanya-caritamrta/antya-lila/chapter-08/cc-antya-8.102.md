@@ -1,9 +1,9 @@
 ### CC Antya 8.102
 
-> চৈতন্যচরিত্র লিখি, শুন একমনে ।
+> চৈতন্যচরিত্র লিখি, শুন একমনে ।\
 > অনায়াসে পাবে প্রেম শ্রীকৃষ্ণচরণে ॥১০২॥
 
-> caitanya-caritra likhi, śuna eka-mane
+> caitanya-caritra likhi, śuna eka-mane\
 > anāyāse pābe prema śrī-kṛṣṇa-caraṇe
 
 *caitanya-caritra*—el carácter de Śrī Caitanya Mahāprabhu; *likhi*—escribo; *śuna*—por favor oíd; *eka-mane*—con atención; *anāyāse*—fácilmente; *pābe*—obtendréis; *prema*—amor extático; *śrī-kṛṣṇa-caraṇe*—a los pies de loto del Señor Śrī Kṛṣṇa.

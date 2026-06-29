@@ -1,11 +1,11 @@
 ### SB 8.12.13
 
-> येन सम्मोहिता दैत्याः पायिताश्चामृतं सुराः
+> येन सम्मोहिता दैत्याः पायिताश्चामृतं सुराः\
 > तद्दिदृक्षव आयाताः परं कौतूहलं हि नः ॥१३॥
 
-> yena sammohitā daityāḥ
-> pāyitāś cāmṛtaṁ surāḥ
-> tad didṛkṣava āyātāḥ
+> yena sammohitā daityāḥ\
+> pāyitāś cāmṛtaṁ surāḥ\
+> tad didṛkṣava āyātāḥ\
 > paraṁ kautūhalaṁ hi naḥ
 
 *yena*—by such an incarnation; *sammohitāḥ*—were captivated; *daityāḥ*—the demons; *pāyitāḥ*—were fed; *ca*—also; *amṛtam*—nectar; *surāḥ*—the demigods; *tat*—that form; *didṛkṣavaḥ*—desiring to see; *āyātāḥ*—we have come here; *param*—very much; *kautūhalam*—great eagerness; *hi*—indeed; *naḥ*—of ourselves.

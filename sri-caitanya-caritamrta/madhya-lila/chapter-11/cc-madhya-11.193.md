@@ -1,9 +1,9 @@
 ### CC Madhya 11.193
 
-> এত বলি তাঁরে লঞা গেলা পুষ্পোদ্যানে ।
+> এত বলি তাঁরে লঞা গেলা পুষ্পোদ্যানে ।\
 > অতি নিভৃতে তাঁরে দিলা বাসা-স্থানে ॥১৯৩॥
 
-> eta bali tāṅre lañā gelā puṣpodyāne
+> eta bali tāṅre lañā gelā puṣpodyāne\
 > ati nibhṛte tāṅre dilā vāsā-sthāne
 
 *eta bali*—saying this; *tāṅre lañā*—taking him; *gelā*—went; *puṣpa-udyāne*—in the flower garden; *ati nibhṛte*—in a very much secluded place; *tāṅre*—unto him; *dilā*—delivered; *vāsā-sthāne*—a place to remain.

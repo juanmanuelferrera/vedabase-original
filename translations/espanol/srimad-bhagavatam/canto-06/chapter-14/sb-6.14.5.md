@@ -1,11 +1,11 @@
 ### SB 6.14.5
 
-> मुक्तानामपि सिद्धानां नारायणपरायणः
+> मुक्तानामपि सिद्धानां नारायणपरायणः\
 > सुदुर्लभः प्रशान्तात्मा कोटिष्वपि महामुने ॥५॥
 
-> muktānām api siddhānāṁ
-> nārāyaṇa-parāyaṇaḥ
-> su-durlabhaḥ praśāntātmā
+> muktānām api siddhānāṁ\
+> nārāyaṇa-parāyaṇaḥ\
+> su-durlabhaḥ praśāntātmā\
 > koṭiṣv api mahā-mune
 
 *muktānām*—de aquellos que están liberados durante esta vida (desapegados de los placeres corporales de la sociedad, la amistad y el amor); *api*—incluso; *siddhānām*—que son perfectos (pues comprenden que el bienestar del cuerpo es algo insignificante); *nārāyaṇa-parāyaṇaḥ*—la persona que ha llegado a la conclusión de que Nārāyaṇa es el Supremo; *su-durlabhaḥ*—que muy rara vez se halla; *praśānta*—completamente pacífica; *ātmā*—cuya mente; *koṭiṣu*—de millones y trillones (*koti* significa diez millones; en plural significa millones y trillones); *api*—incluso; *mahā-mune*—¡oh, gran sabio!.

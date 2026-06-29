@@ -1,11 +1,11 @@
 ### SB 8.20.15
 
-> दृढं पण्डितमान्यज्ञअः स्तब्धोऽस्यस्मदुपेक्षया
+> दृढं पण्डितमान्यज्ञअः स्तब्धोऽस्यस्मदुपेक्षया\
 > मच्छासनातिगो यस्त्वमचिराद्भ्रश्यसे श्रियः ॥१५॥
 
-> dṛḍhaṁ paṇḍita-māny ajñaḥ
-> stabdho 'sy asmad-upekṣayā
-> mac-chāsanātigo yas tvam
+> dṛḍhaṁ paṇḍita-māny ajñaḥ\
+> stabdho 'sy asmad-upekṣayā\
+> mac-chāsanātigo yas tvam\
 > acirād bhraśyase śriyaḥ
 
 *dṛḍham*—tan firmemente convencido o fijo en tu decisión; *paṇḍita-mānī*—considerándote muy erudito; *ajñaḥ*—a la vez que necio; *stabdhaḥ*—insolente; *asi*—te has vuelto; *asmat*—de nosotros; *upekṣayā*—por faltar al respeto; *mat-śāsana-atigaḥ*—poniéndote por encima de mi autoridad; *yaḥ*—una persona así (como tú); *tvam*—tú mismo; *acirāt*—muy pronto; *bhraśyase*—caerás; *śriyaḥ*—de toda opulencia.

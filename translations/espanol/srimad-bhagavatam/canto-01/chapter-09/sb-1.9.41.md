@@ -1,11 +1,11 @@
 ### SB 1.9.41
 
-> मुनिगणनृपवर्यसङ्कुलेऽन्तः सदसि युधिष्ठिरराजसूय एषाम् ।
+> मुनिगणनृपवर्यसङ्कुलेऽन्तः सदसि युधिष्ठिरराजसूय एषाम् ।\
 > अर्हणमुपपेद ईक्षणीयो मम दृशिगोचर एष आविरात्मा ॥४१॥
 
-> muni-gaṇa-nṛpa-varya-saṅkule 'ntaḥ-
-> sadasi yudhiṣṭhira-rājasūya eṣām
-> arhaṇam upapeda īkṣaṇīyo
+> muni-gaṇa-nṛpa-varya-saṅkule 'ntaḥ-\
+> sadasi yudhiṣṭhira-rājasūya eṣām\
+> arhaṇam upapeda īkṣaṇīyo\
 > mama dṛśi-gocara eṣa āvir ātmā
 
 *muni-gaṇa*—los grandes sabios eruditos; *nṛpa-varya*—los grandes reyes gobernantes; *saṅkule*—en la gran asamblea de; *antaḥ-sadasi*—conferencia; *yudhiṣṭhira*—del emperador Yudhiṣṭhira; *rāja-sūye*—un sacrificio realizado al estilo real; *eṣām*—de todas las grandes élites; *arhaṇam*—adoración respetuosa; *upapeda*—recibió; *īkṣaṇīyaḥ*—el objeto de atracción; *mama*—mi; *dṛśi*—vista; *gocaraḥ*—al alcance de la vista de; *eṣaḥ āviḥ*—presente personalmente; *ātmā*—el alma.

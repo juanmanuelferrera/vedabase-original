@@ -1,9 +1,9 @@
 ### CC Madhya 20.392
 
-> সওয়াশত বৎসর কৃষ্ণের প্রকট-প্রকাশ ।
+> সওয়াশত বৎসর কৃষ্ণের প্রকট-প্রকাশ ।\
 > তাহা যৈছে ব্রজ-পুরে করিলা বিলাস ॥৩৯২॥
 
-> saoyāśata vatsara kṛṣṇera prakaṭa-prakāśa
+> saoyāśata vatsara kṛṣṇera prakaṭa-prakāśa\
 > tāhā yaiche vraja-pure karilā vilāsa
 
 *saoyāśata*—125; *vatsara*—years; *kṛṣṇera*—of Lord Kṛṣṇa; *prakaṭa-prakāśa*—manifestation of the appearance; *tāhā*—that; *yaiche*—like; *vraja-pure*—in Vṛndāvana and Dvārakā; *karilā vilāsa*—enjoys the pastimes.

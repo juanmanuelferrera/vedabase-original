@@ -1,9 +1,9 @@
 ### CC Adi 17.44
 
-> হাড়িকে আনিয়া সব দূর করাইল ।
+> হাড়িকে আনিয়া সব দূর করাইল ।\
 > জল-গোময় দিয়া সেই স্থান লেপাইল ॥৪৪॥
 
-> hāḍike āniyā saba dūra karāila
+> hāḍike āniyā saba dūra karāila\
 > jala-gomaya diyā sei sthāna lepāila
 
 *hāḍike*—un barrendero; *āniyā*—llamando; *saba*—todo; *dūra karāila*—hizo retirar lejos; *jala*—agua; *gomaya*—estiércol de vaca; *diyā*—mezclando; *sei*—ese; *sthāna*—lugar; *lepāila*—mandó untar.

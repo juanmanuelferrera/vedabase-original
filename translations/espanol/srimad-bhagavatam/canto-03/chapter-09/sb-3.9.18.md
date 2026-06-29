@@ -1,13 +1,13 @@
 ### SB 3.9.18
 
-> यस्माद्बिभेम्यहमपि द्विपरार्धधिष्ण्यम्
-> अध्यासितः सकललोकनमस्कृतं यत् ।
-> तेपे तपो बहुसवोऽवरुरुत्समानस्
+> यस्माद्बिभेम्यहमपि द्विपरार्धधिष्ण्यम्\
+> अध्यासितः सकललोकनमस्कृतं यत् ।\
+> तेपे तपो बहुसवोऽवरुरुत्समानस्\
 > तस्मै नमो भगवतेऽधिमखाय तुभ्यम् ॥१८॥
 
-> yasmād bibhemy aham api dviparārdha-dhiṣṇyam
-> adhyāsitaḥ sakala-loka-namaskṛtaṁ yat
-> tepe tapo bahu-savo 'varurutsamānas
+> yasmād bibhemy aham api dviparārdha-dhiṣṇyam\
+> adhyāsitaḥ sakala-loka-namaskṛtaṁ yat\
+> tepe tapo bahu-savo 'varurutsamānas\
 > tasmai namo bhagavate 'dhimakhāya tubhyam
 
 *yasmāt*—de quien; *bibhemi*—temor; *aham*—yo; *api*—también; *dvi-para-ardha*—hasta el límite de 4 300 000 000 x 2 x 30 x 12 x 100 años solares; *dhiṣṇyam*—lugar; *adhyāsitaḥ*—situado en; *sakala-loka*—todos los demás planetas; *namaskṛtam*—honrado por; *yat*—eso; *tepe*—me sometí; *tapaḥ*—penitencias; *bahu-savaḥ*—muchísimos años; *avarurutsamānaḥ*—deseando obtenerte; *tasmai*—a Él; *namaḥ*—ofrezco mis reverencias; *bhagavate*—a la Suprema Personalidad de Dios; *adhimakhāya*—a aquel que es el disfrutador de todo sacrificio; *tubhyam*—a Tu Señoría.

@@ -1,11 +1,11 @@
 ### SB 4.23.15
 
-> उत्सर्पयंस्तु तं मूर्ध्नि क्रमेणावेश्य निःस्पृहः ।
+> उत्सर्पयंस्तु तं मूर्ध्नि क्रमेणावेश्य निःस्पृहः ।\
 > वायुं वायौ क्षितौ कायं तेजस्तेजस्ययूयुजत् ॥१५॥
 
-> utsarpayaṁs tu taṁ mūrdhni
-> krameṇāveśya niḥspṛhaḥ
-> vāyuṁ vāyau kṣitau kāyaṁ
+> utsarpayaṁs tu taṁ mūrdhni\
+> krameṇāveśya niḥspṛhaḥ\
+> vāyuṁ vāyau kṣitau kāyaṁ\
 > tejas tejasy ayūyujat
 
 *utsarpayan*—thus placing; *tu*—but; *tam*—the air; *mūrdhni*—on the head; *krameṇa*—gradually; *āveśya*—placing; *niḥspṛhaḥ*—being freed from all material desires; *vāyum*—the air portion of the body; *vāyau*—in the total air covering the universe; *kṣitau*—in the total covering of earth; *kāyam*—this material body; *tejaḥ*—the fire in the body; *tejasi*—in the total fire of the material covering; *ayūyujat*—mixed.

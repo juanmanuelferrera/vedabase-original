@@ -1,9 +1,9 @@
 ### CC Madhya 15.56
 
-> প্রসাদ লঞা কোলে করেন ক্রন্দন ৷
+> প্রসাদ লঞা কোলে করেন ক্রন্দন ৷\
 > নিমাইর প্রিয় মোর — এসব ব্যঞ্জন ॥৫৬॥
 
-> prasāda lañā kole karena krandana
+> prasāda lañā kole karena krandana\
 > nimāira priya mora--e-saba vyañjana
 
 *prasāda lañā*—tomando los remanentes del alimento; *kole*—sobre su regazo; *karena krandana*—lloraba; *nimāira*—de Nimāi; *priya*—favorito; *mora*—Mi; *e-saba vyañjana*—todas estas variedades de alimento preparado.

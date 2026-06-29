@@ -1,9 +1,9 @@
 ### CC Madhya 24.218
 
-> দেহারামী, সর্বকাম — সব আত্মারাম ।
+> দেহারামী, সর্বকাম — সব আত্মারাম ।\
 > কৃষ্ণকৃপায় কৃষ্ণ ভজে ছাড়ি’ সব কাম ॥২১৮॥
 
-> dehārāmī, sarva-kāma—saba ātmārāma
+> dehārāmī, sarva-kāma—saba ātmārāma\
 > kṛṣṇa-kṛpāya kṛṣṇa bhaje chāḍi' saba kāma
 
 *dehārāmī*—persons who are in the bodily concept of life; *sarva-kāma*—full of all material desires; *saba*—all; *ātmārāma*—enjoying self-satisfaction; *kṛṣṇa-kṛpāya*—by the mercy of Kṛṣṇa; *kṛṣṇa bhaje*—become engaged in the devotional service of Lord Kṛṣṇa; *chāḍi' saba kāma*—giving up all sorts of material desire.

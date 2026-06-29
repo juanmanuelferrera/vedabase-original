@@ -1,13 +1,13 @@
 ### CC Madhya 2.67
 
-> তুমি দেব — ক্রীড়া-রত, ভুবনের নারী যত,
-> তাহে কর অভীষ্ট ক্রীড়ন ।
-> তুমি মোর দয়িত, মোতে বৈসে তোমার চিত,
+> তুমি দেব — ক্রীড়া-রত, ভুবনের নারী যত,\
+> তাহে কর অভীষ্ট ক্রীড়ন ।\
+> তুমি মোর দয়িত, মোতে বৈসে তোমার চিত,\
 > মোর ভাগ্যে কৈলে আগমন ॥৬৭॥
 
-> tumi deva—krīḍā-rata, bhuvanera nārī yata,
-> tāhe kara abhīṣṭa krīḍana
-> tumi mora dayita, mote vaise tomāra cita,
+> tumi deva—krīḍā-rata, bhuvanera nārī yata,\
+> tāhe kara abhīṣṭa krīḍana\
+> tumi mora dayita, mote vaise tomāra cita,\
 > mora bhāgye kaile āgamana
 
 *tumi*—You; *deva*—the Supreme Lord; *krīḍā-rata*—engaged in Your pastimes; *bhuvanera*—of all the universes; *nārī*—women; *yata*—all; *tāhe*—in those pastimes; *kara*—You do; *abhīṣṭa*—desired; *krīḍana*—acting; *tumi*—You; *mora*—My; *dayita*—merciful; *mote*—to Me; *vaise*—rest; *tomāra*—Your; *cita*—mind; *mora*—My; *bhāgye*—by fortune; *kaile*—You have made; *āgamana*—appearance.

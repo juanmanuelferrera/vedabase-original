@@ -1,9 +1,9 @@
 ### CC Madhya 4.115
 
-> যৈছে ইহা ভোগ লাগে, সকলই পুছিব ।
+> যৈছে ইহা ভোগ লাগে, সকলই পুছিব ।\
 > তৈছে ভিয়ানে ভোগ গোপালে লাগাইব ॥১১৫॥
 
-> yaiche ihā bhoga lāge, sakala-i puchiba
+> yaiche ihā bhoga lāge, sakala-i puchiba\
 > taiche bhiyāne bhoga gopāle lāgāiba
 
 *yaiche*—just like; *ihā*—here; *bhoga*—foods; *lāge*—they offer; *sakala-i*—all; *puchiba*—I shall inquire; *taiche*—similarly; *bhiyāne*—in the kitchen; *bhoga*—foods; *gopāle*—to Śrī Gopāla; *lāgāiba*—I shall arrange.

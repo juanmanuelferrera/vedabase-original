@@ -1,13 +1,13 @@
 ### SB 3.9.2
 
-> रूपं यदेतदवबोधरसोदयेन
-> शश्वन्निवृत्ततमसः सदनुग्रहाय ।
-> आदौ गृहीतमवतारशतैकबीजं
+> रूपं यदेतदवबोधरसोदयेन\
+> शश्वन्निवृत्ततमसः सदनुग्रहाय ।\
+> आदौ गृहीतमवतारशतैकबीजं\
 > यन्नाभिपद्मभवनादहमाविरासम् ॥२॥
 
-> rūpaṁ yad etad avabodha-rasodayena
-> śaśvan-nivṛtta-tamasaḥ sad-anugrahāya
-> ādau gṛhītam avatāra-śataika-bījaṁ
+> rūpaṁ yad etad avabodha-rasodayena\
+> śaśvan-nivṛtta-tamasaḥ sad-anugrahāya\
+> ādau gṛhītam avatāra-śataika-bījaṁ\
 > yan-nābhi-padma-bhavanād aham āvirāsam
 
 *rūpam*—forma; *yat*—la cual; *etat*—esa; *avabodha-rasa*—de Tu potencia interna; *udayena*—con la manifestación; *śaśvat*—para siempre; *nivṛtta*—libre de; *tamasaḥ*—contaminación material; *sat-anugrahāya*—por el bien de los devotos; *ādau*—original en la energía creativa de la materia; *gṛhītam*—aceptó; *avatāra*—de encarnaciones; *śata-eka-bījam*—la causa raíz de cientos; *yat*—aquello que; *nābhi-padma*—la flor de loto umbilical; *bhavanāt*—del hogar; *aham*—yo; *āvirāsam*—generado.

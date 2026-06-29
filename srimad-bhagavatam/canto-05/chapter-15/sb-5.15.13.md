@@ -1,11 +1,11 @@
 ### SB 5.15.13
 
-> यत्प्रीणनाद्बर्हिषि देवतिर्यङ् मनुष्यवीरुत्तृणमाविरिञ्चात
+> यत्प्रीणनाद्बर्हिषि देवतिर्यङ् मनुष्यवीरुत्तृणमाविरिञ्चात\
 > प्रीयेत सद्यः स ह विश्वजीवः प्रीतः स्वयं प्रीतिमगाद्गयस्य ॥१३॥
 
-> yat-prīṇanād barhiṣi deva-tiryaṅ-
-> manuṣya-vīrut-tṛṇam āviriñcāt
-> prīyeta sadyaḥ sa ha viśva-jīvaḥ
+> yat-prīṇanād barhiṣi deva-tiryaṅ-\
+> manuṣya-vīrut-tṛṇam āviriñcāt\
+> prīyeta sadyaḥ sa ha viśva-jīvaḥ\
 > prītaḥ svayaṁ prītim agād gayasya
 
 *yat-prīṇanāt*—because of pleasing the Supreme Personality of Godhead; *barhiṣi*—in the sacrificial arena; *deva-tiryak*—the demigods and lower animals; *manuṣya*—human society; *vīrut*—the plants and trees; *tṛṇam*—the grass; *ā-viriñcāt*—beginning from Lord Brahmā; *prīyeta*—becomes satisfied; *sadyaḥ*—immediately; *saḥ*—that Supreme Personality of Godhead; *ha*—indeed; *viśva-jīvaḥ*—maintains the living entities all over the universe; *prītaḥ*—although naturally satisfied; *svayam*—personally; *prītim*—satisfaction; *agāt*—he obtained; *gayasya*—of Mahārāja Gaya.

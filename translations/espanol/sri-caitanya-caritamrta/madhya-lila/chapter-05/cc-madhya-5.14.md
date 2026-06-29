@@ -1,9 +1,9 @@
 ### CC Madhya 5.14
 
-> কেশীতীর্থ, কালীয়-হ্রদাদিকে কৈল স্নান ।
+> কেশীতীর্থ, কালীয়-হ্রদাদিকে কৈল স্নান ।\
 > শ্রীগোপাল দেখি’ তাহাঁ করিলা বিশ্রাম ॥১৪॥
 
-> keśī-tīrtha, kālīya-hradādike kaila snāna
+> keśī-tīrtha, kālīya-hradādike kaila snāna\
 > śrī-gopāla dekhi' tāhāṅ karilā viśrāma
 
 *keśī-tīrtha*—el lugar de baño a la orilla del Yamunā conocido como Keśī-ghāṭa; *kālīya-hrada*—el lugar de baño a la orilla del Yamunā conocido como Kāliya-ghāṭa; *ādike*—en esos diferentes lugares de baño; *kaila*—se bañaron; *snāna*—bañándose; *śrī-gopāla dekhi'*—visitando el templo de Gopāla; *tāhāṅ*—allí; *karilā*—tomaron; *viśrāma*—descanso.

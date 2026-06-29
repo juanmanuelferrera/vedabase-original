@@ -1,9 +1,9 @@
 ### CC Madhya 12.210
 
-> দর্শন-লোভেতে করি’ মর্যাদা লঙ্ঘন ।
+> দর্শন-লোভেতে করি’ মর্যাদা লঙ্ঘন ।\
 > ভোগ-মণ্ডপে যাঞা করে শ্রীমুখ দর্শন ॥২১০॥
 
-> darśana-lobhete kari' maryādā laṅghana
+> darśana-lobhete kari' maryādā laṅghana\
 > bhoga-maṇḍape yāñā kare śrī-mukha darśana
 
 *darśana-lobhete*—being very anxious to see; *kari'*—doing; *maryādā laṅghana*—transgressions of regulative principles; *bhoga-maṇḍape*—in the room for offering food; *yāñā*—going; *kare*—do; *śrī-mukha darśana*—seeing the lotus face.

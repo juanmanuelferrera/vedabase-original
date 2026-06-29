@@ -1,14 +1,14 @@
 ### SB 3.22.33
 
-> सभार्यः सप्रजः कामान्बुभुजेऽन्याविरोधतः ।
-> सङ्गीयमानसत्कीर्तिः सस्त्रीभिः सुरगायकैः ।
+> सभार्यः सप्रजः कामान्बुभुजेऽन्याविरोधतः ।\
+> सङ्गीयमानसत्कीर्तिः सस्त्रीभिः सुरगायकैः ।\
 > प्रत्यूषेष्वनुबद्धेन हृदा शृण्वन्हरेः कथाः ॥३३॥
 
-> sabhāryaḥ saprajaḥ kāmān
-> bubhuje 'nyāvirodhataḥ
-> saṅgīyamāna-sat-kīrtiḥ
-> sastrībhiḥ sura-gāyakaiḥ
-> praty-ūṣeṣv anubaddhena
+> sabhāryaḥ saprajaḥ kāmān\
+> bubhuje 'nyāvirodhataḥ\
+> saṅgīyamāna-sat-kīrtiḥ\
+> sastrībhiḥ sura-gāyakaiḥ\
+> praty-ūṣeṣv anubaddhena\
 > hṛdā śṛṇvan hareḥ kathāḥ
 
 *sa-bhāryaḥ*—con su esposa; *sa-prajaḥ*—con sus súbditos; *kāmān*—de las necesidades de la vida; *bubhuje*—disfrutó; *anya*—de otros; *avirodhataḥ*—sin perturbación; *saṅgīyamāna*—siendo alabado; *sat-kīrtiḥ*—fama por actividades piadosas; *sa-strībhiḥ*—con sus esposas; *sura-gāyakaiḥ*—por músicos celestiales; *prati-ūṣeṣu*—cada amanecer; *anubaddhena*—estando apegado; *hṛdā*—con el corazón; *śṛṇvan*—escuchando; *hareḥ*—del Señor Hari; *kathāḥ*—los temas.

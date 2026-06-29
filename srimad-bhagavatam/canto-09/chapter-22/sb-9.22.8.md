@@ -1,13 +1,13 @@
 ### SB 9.22.8
 
-> ये मात्रा बहिरुत्सृष्टे जरया चाभिसन्धिते
+> ये मात्रा बहिरुत्सृष्टे जरया चाभिसन्धिते\
 > जीव जीवेति क्रीडन्त्या जरासन्धोऽभवत्सुतः ॥८॥
 
-> anyasyām api bhāryāyāṁ
-> śakale dve bṛhadrathāt
-> ye mātrā bahir utsṛṣṭe
-> jarayā cābhisandhite
-> jīva jīveti krīḍantyā
+> anyasyām api bhāryāyāṁ\
+> śakale dve bṛhadrathāt\
+> ye mātrā bahir utsṛṣṭe\
+> jarayā cābhisandhite\
+> jīva jīveti krīḍantyā\
 > jarāsandho 'bhavat sutaḥ
 
 *anyasyām*—in another; *api*—also; *bhāryāyām*—wife; *śakale*—parts; *dve*—two; *bṛhadrathāt*—from Bṛhadratha; *ye*—which two parts; *mātrā*—by the mother; *bahiḥ utsṛṣṭe*—because of rejection; *jarayā*—by the demoness named Jarā; *ca*—and; *abhisandhite*—when they were joined together; *jīva jīva iti*—O living entity, be alive; *krīḍantyā*—playing like that; *jarāsandhaḥ*—Jarāsandha; *abhavat*—was generated; *sutaḥ*—a son.

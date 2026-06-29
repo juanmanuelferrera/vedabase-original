@@ -1,12 +1,12 @@
 ### SB 7.8.6
 
-> श्रीहिरण्यकशिपुरुवाच
-> हे दुर्विनीत मन्दात्मन्कुलभेदकराधम
+> श्रीहिरण्यकशिपुरुवाच\
+> हे दुर्विनीत मन्दात्मन्कुलभेदकराधम\
 > स्तब्धं मच्छासनोद्वृत्तं नेष्ये त्वाद्य यमक्षयम ॥६॥
 
-> kruddhasya yasya kampante
-> trayo lokāḥ saheśvarāḥ
-> tasya me 'bhītavan mūḍha
+> kruddhasya yasya kampante\
+> trayo lokāḥ saheśvarāḥ\
+> tasya me 'bhītavan mūḍha\
 > śāsanaṁ kiṁ balo 'tyagāḥ
 
 *kruddhasya*—when angered; *yasya*—he who; *kampante*—tremble; *trayaḥ lokāḥ*—the three worlds; *saha-īśvarāḥ*—with their leaders; *tasya*—of that; *me*—of me (Hiraṇyakaśipu); *abhīta-vat*—without fear; *mūḍha*—rascal; *śāsanam*—ruling order; *kim*—what; *balaḥ*—strength; *atyagāḥ*—have overstepped.

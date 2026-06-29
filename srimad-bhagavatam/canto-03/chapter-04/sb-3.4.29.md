@@ -1,13 +1,13 @@
 ### SB 3.4.29
 
-> श्रीशुक उवाच
-> ब्रह्मशापापदेशेन कालेनामोघवाञ्छितः ।
+> श्रीशुक उवाच\
+> ब्रह्मशापापदेशेन कालेनामोघवाञ्छितः ।\
 > संहृत्य स्वकुलं स्फीतं त्यक्ष्यन्देहमचिन्तयत् ॥२९॥
 
-> śrī-śuka uvāca
-> brahma-śāpāpadeśena
-> kālenāmogha-vāñchitaḥ
-> saṁhṛtya sva-kulaṁ sphītaṁ
+> śrī-śuka uvāca\
+> brahma-śāpāpadeśena\
+> kālenāmogha-vāñchitaḥ\
+> saṁhṛtya sva-kulaṁ sphītaṁ\
 > tyakṣyan deham acintayat
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *brahma-śāpa*—cursing by the *brāhmaṇas*; *apadeśena*—on the plea, by such a show; *kālena*—by the eternal time; *amogha*—unfailing; *vāñchitaḥ*—one who so desires; *saṁhṛtya*—closing; *sva-kulam*—own family; *sphītam*—excessively numerous; *tyakṣyan*—after giving up; *deham*—the universal form; *acintayat*—thought to Himself.

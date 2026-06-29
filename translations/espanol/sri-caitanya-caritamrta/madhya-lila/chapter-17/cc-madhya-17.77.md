@@ -1,9 +1,9 @@
 ### CC Madhya 17.77
 
-> তেঁহো কহেন, — “তুমি ‘কৃষ্ণ’, তুমি ‘দয়াময়’ ।
+> তেঁহো কহেন, — “তুমি ‘কৃষ্ণ’, তুমি ‘দয়াময়’ ।\
 > অধম জীব মুঞি, মোরে হইলা সদয় ॥৭৭॥
 
-> teṅho kahena,--"tumi 'kṛṣṇa', tumi 'dayāmaya'
+> teṅho kahena,--"tumi 'kṛṣṇa', tumi 'dayāmaya'\
 > adhama jīva muñi, more ha-ilā sadaya
 
 *teṅho kahena*—Bhaṭṭācārya dijo; *tumi kṛṣṇa*—Tú eres Kṛṣṇa mismo; *tumi*—Tú; *dayā-maya*—misericordioso; *adhama*—el más bajo de los bajos; *jīva*—entidad viviente; *muñi*—yo; *more*—conmigo; *ha-ilā*—has sido; *sa-daya*—favorable.

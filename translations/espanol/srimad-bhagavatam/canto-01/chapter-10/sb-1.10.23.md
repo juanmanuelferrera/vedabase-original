@@ -1,11 +1,11 @@
 ### SB 1.10.23
 
-> स वा अयं यत्पदमत्र सूरयो जितेन्द्रिया निर्जितमातरिश्वनः ।
+> स वा अयं यत्पदमत्र सूरयो जितेन्द्रिया निर्जितमातरिश्वनः ।\
 > पश्यन्ति भक्त्युत्कलितामलात्मना नन्वेष सत्त्वं परिमार्ष्टुमर्हति ॥२३॥
 
-> sa vā ayaṁ yat padam atra sūrayo
-> jitendriyā nirjita-mātariśvanaḥ
-> paśyanti bhakty-utkalitāmalātmanā
+> sa vā ayaṁ yat padam atra sūrayo\
+> jitendriyā nirjita-mātariśvanaḥ\
+> paśyanti bhakty-utkalitāmalātmanā\
 > nanv eṣa sattvaṁ parimārṣṭum arhati
 
 *saḥ*—Él; *vai*—por la providencia; *ayam*—esto; *yat*—aquello que; *padam atra*—he aquí a la misma Personalidad de Dios, Śrī Kṛṣṇa; *sūrayaḥ*—grandes devotos; *jita-indriyāḥ*—que han superado la influencia de los sentidos; *nirjita*—completamente controlada; *mātariśvanaḥ*—vida; *paśyanti*—puede ver; *bhakti*—a fuerza de servicio devocional; *utkalita*—desarrollado; *amala-ātmanā*—aquellos que tienen la mente completamente limpia; *nanu eṣaḥ*—ciertamente solo con esto; *sattvam*—existencia; *parimārṣṭum*—para purificar la mente por completo; *arhati*—merecen.

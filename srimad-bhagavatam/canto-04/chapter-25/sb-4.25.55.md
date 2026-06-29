@@ -1,11 +1,11 @@
 ### SB 4.25.55
 
-> स यर्ह्यन्तःपुरगतो विषूचीनसमन्वितः ।
+> स यर्ह्यन्तःपुरगतो विषूचीनसमन्वितः ।\
 > मोहं प्रसादं हर्षं वा याति जायात्मजोद्भवम् ॥५५॥
 
-> sa yarhy antaḥpura-gato
-> viṣūcīna-samanvitaḥ
-> mohaṁ prasādaṁ harṣaṁ vā
+> sa yarhy antaḥpura-gato\
+> viṣūcīna-samanvitaḥ\
+> mohaṁ prasādaṁ harṣaṁ vā\
 > yāti jāyātmajodbhavam
 
 *saḥ*—he; *yarhi*—when; *antaḥ-pura*—to his private home; *gataḥ*—used to go; *viṣūcīna*—by the mind; *samanvitaḥ*—accompanied; *moham*—illusion; *prasādam*—satisfaction; *harṣam*—happiness; *vā*—or; *yāti*—used to enjoy; *jāyā*—wife; *ātma-ja*—children; *udbhavam*—produced by them.

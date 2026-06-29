@@ -1,9 +1,9 @@
 ### CC Antya 13.61
 
-> রক্তবস্ত্র ‘বৈষ্ণবের’ পরিতে না যুয়ায় ।
+> রক্তবস্ত্র ‘বৈষ্ণবের’ পরিতে না যুয়ায় ।\
 > কোন প্রবাসীরে দিমু, কি কায উহায় ? ॥ ৬১ ॥
 
-> rakta-vastra 'vaiṣṇavera' parite nā yuyāya
+> rakta-vastra 'vaiṣṇavera' parite nā yuyāya\
 > kona pravāsīre dimu, ki kāya uhāya?
 
 *rakta-vastra*—saffron clothing; *vaiṣṇavera*—for a Vaiṣṇava; *parite nā yuyāya*—is not fit to put on; *kona pravāsīre*—to some outsider; *dimu*—I shall give; *ki*—what; *kāya*—business; *uhāya*—with that.

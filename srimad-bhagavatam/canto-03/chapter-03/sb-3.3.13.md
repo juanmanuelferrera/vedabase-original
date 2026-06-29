@@ -1,11 +1,11 @@
 ### SB 3.3.13
 
-> स कर्णदुःशासनसौबलानां कुमन्त्रपाकेन हतश्रियायुषम् ।
+> स कर्णदुःशासनसौबलानां कुमन्त्रपाकेन हतश्रियायुषम् ।\
 > सुयोधनं सानुचरं शयानं भग्नोरुमूर्व्यां न ननन्द पश्यन् ॥१३॥
 
-> sa karṇa-duḥśāsana-saubalānāṁ
-> kumantra-pākena hata-śriyāyuṣam
-> suyodhanaṁ sānucaraṁ śayānaṁ
+> sa karṇa-duḥśāsana-saubalānāṁ\
+> kumantra-pākena hata-śriyāyuṣam\
+> suyodhanaṁ sānucaraṁ śayānaṁ\
 > bhagnorum ūrvyāṁ na nananda paśyan
 
 *saḥ*—He (the Lord); *karṇa*—Karṇa; *duḥśāsana*—Duḥśāsana; *saubalānām*—Saubala; *kumantra-pākena*—by the intricacy of ill advice; *hata-śriya*—bereft of fortune; *āyuṣam*—duration of life; *suyodhanam*—Duryodhana; *sa-anucaram*—with followers; *śayānam*—lying down; *bhagna*—broken; *ūrum*—thighs; *ūrvyām*—very powerful; *na*—did not; *nananda*—take pleasure; *paśyan*—seeing like that.

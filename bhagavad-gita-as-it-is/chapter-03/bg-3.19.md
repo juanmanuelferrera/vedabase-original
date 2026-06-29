@@ -1,11 +1,11 @@
 ### Bg 3.19
 
-> तस्मादसक्तः सततं कार्यं कर्म समाचर ।
+> तस्मादसक्तः सततं कार्यं कर्म समाचर ।\
 > असक्तो ह्याचरन्कर्म परमाप्नोति पूरुषः ॥१९॥
 
-> tasmād asaktaḥ satataṁ
-> kāryaṁ karma samācara
-> asakto hy ācaran karma
+> tasmād asaktaḥ satataṁ\
+> kāryaṁ karma samācara\
+> asakto hy ācaran karma\
 > param āpnoti pūruṣaḥ
 
 *tasmāt*—therefore; *asaktaḥ*—without attachment; *satatam*—constantly; *kāryam*—as duty; *karma*—work; *samācara*—perform; *asaktaḥ*—nonattachment; *hi*—certainly; *ācaran*—performing; *karma*—work; *param*—the Supreme; *āpnoti*—achieves; *pūruṣaḥ*—a man.

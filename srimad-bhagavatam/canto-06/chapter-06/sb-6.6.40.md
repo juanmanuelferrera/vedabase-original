@@ -1,14 +1,14 @@
 ### SB 6.6.40
 
-> विवस्वतः श्राद्धदेवं संज्ञआसूयत वै मनुम
-> मिथुनं च महाभागा यमं देवं यमीं तथा
+> विवस्वतः श्राद्धदेवं संज्ञआसूयत वै मनुम\
+> मिथुनं च महाभागा यमं देवं यमीं तथा\
 > सैव भूत्वाथ वडवा नासत्यौ सुषुवे भुवि ॥४०॥
 
-> vivasvataḥ śrāddhadevaṁ
-> saṁjñāsūyata vai manum
-> mithunaṁ ca mahā-bhāgā
-> yamaṁ devaṁ yamīṁ tathā
-> saiva bhūtvātha vaḍavā
+> vivasvataḥ śrāddhadevaṁ\
+> saṁjñāsūyata vai manum\
+> mithunaṁ ca mahā-bhāgā\
+> yamaṁ devaṁ yamīṁ tathā\
+> saiva bhūtvātha vaḍavā\
 > nāsatyau suṣuve bhuvi
 
 *vivasvataḥ*—of the sun-god; *śrāddhadevam*—named Śrāddhadeva; *saṁjñā*—Saṁjñā; *asūyata*—gave birth; *vai*—indeed; *manum*—to Manu; *mithunam*—twins; *ca*—and; *mahā-bhāgā*—the fortunate Saṁjñā; *yamam*—to Yamarāja; *devam*—the demigod; *yamīm*—to his sister named Yamī; *tathā*—as well as; *sā*—she; *eva*—also; *bhūtvā*—becoming; *atha*—then; *vaḍavā*—a mare; *nāsatyau*—to the Aśvinī-kumāras; *suṣuve*—gave birth; *bhuvi*—on this earth.

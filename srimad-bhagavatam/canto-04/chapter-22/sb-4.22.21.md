@@ -1,11 +1,11 @@
 ### SB 4.22.21
 
-> शास्त्रेष्वियानेव सुनिश्चितो नृणां क्षेमस्य सध्र्यग्विमृशेषु हेतुः ।
+> शास्त्रेष्वियानेव सुनिश्चितो नृणां क्षेमस्य सध्र्यग्विमृशेषु हेतुः ।\
 > असङ्ग आत्मव्यतिरिक्त आत्मनि दृढा रतिर्ब्रह्मणि निर्गुणे च या ॥२१॥
 
-> śāstreṣv iyān eva suniścito nṛṇāṁ
-> kṣemasya sadhryag-vimṛśeṣu hetuḥ
-> asaṅga ātma-vyatirikta ātmani
+> śāstreṣv iyān eva suniścito nṛṇāṁ\
+> kṣemasya sadhryag-vimṛśeṣu hetuḥ\
+> asaṅga ātma-vyatirikta ātmani\
 > dṛḍhā ratir brahmaṇi nirguṇe ca yā
 
 *śāstreṣu*—in the scriptures; *iyān eva*—this is only; *su-niścitaḥ*—positively concluded; *nṛṇām*—of human society; *kṣemasya*—of the ultimate welfare; *sadhryak*—perfectly; *vimṛśeṣu*—by full consideration; *hetuḥ*—cause; *asaṅgaḥ*—detachment; *ātma-vyatirikte*—the bodily concept of life; *ātmani*—unto the Supreme Soul; *dṛḍhā*—strong; *ratiḥ*—attachment; *brahmaṇi*—transcendence; *nirguṇe*—in the Supreme, who is beyond the material modes; *ca*—and; *yā*—which.

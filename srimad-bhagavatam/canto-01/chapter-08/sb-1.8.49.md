@@ -1,11 +1,11 @@
 ### SB 1.8.49
 
-> बालद्विजसुहृन्मित्र पितृभ्रातृगुरुद्रुहः ।
+> बालद्विजसुहृन्मित्र पितृभ्रातृगुरुद्रुहः ।\
 > न मे स्यान्निरयान्मोक्षो ह्यपि वर्षायुतायुतैः ॥४९॥
 
-> bāla-dvija-suhṛn-mitra-
-> pitṛ-bhrātṛ-guru-druhaḥ
-> na me syān nirayān mokṣo
+> bāla-dvija-suhṛn-mitra-\
+> pitṛ-bhrātṛ-guru-druhaḥ\
+> na me syān nirayān mokṣo\
 > hy api varṣāyutāyutaiḥ
 
 *bāla*—boys; *dvi-ja*—the twice-born; *suhṛt*—well-wishers; *mitra*—friends; *pitṛ*—parents; *bhrātṛ*—brothers; *guru*—preceptors; *druhaḥ*—one who has killed; *na*—never; *me*—my; *syāt*—there shall be; *nirayāt*—from hell; *mokṣaḥ*—liberation; *hi*—certainly; *api*—although; *varṣa*—years; *ayuta*—millions; *āyutaiḥ*—being added.

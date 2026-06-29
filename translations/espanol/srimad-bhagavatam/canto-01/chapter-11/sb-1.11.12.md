@@ -1,11 +1,11 @@
 ### SB 1.11.12
 
-> सर्वर्तुसर्वविभवपुण्यवृक्षलताश्रमैः ।
+> सर्वर्तुसर्वविभवपुण्यवृक्षलताश्रमैः ।\
 > उद्यानोपवनारामैर्वृतपद्माकरश्रियम् ॥१२॥
 
-> sarvartu-sarva-vibhava-
-> puṇya-vṛkṣa-latāśramaiḥ
-> udyānopavanārāmair
+> sarvartu-sarva-vibhava-\
+> puṇya-vṛkṣa-latāśramaiḥ\
+> udyānopavanārāmair\
 > vṛta-padmākara-śriyam
 
 *sarva*—todas; *ṛtu*—estaciones; *sarva*—todas; *vibhava*—opulencias; *puṇya*—piadosos; *vṛkṣa*—árboles; *latā*—enredaderas; *āśramaiḥ*—con ermitas; *udyāna*—huertos; *upavana*—jardines de flores; *ārāmaiḥ*—jardines de recreo y hermosos parques; *vṛta*—rodeados de; *padma-ākara*—los lugares donde nacen los lotos, o bellos estanques de agua; *śriyam*—aumentando la belleza.

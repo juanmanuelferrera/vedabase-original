@@ -1,9 +1,9 @@
 ### CC Adi 13.32
 
-> নগরে নগরে ভ্রমে কীর্তন করিয়া ।
+> নগরে নগরে ভ্রমে কীর্তন করিয়া ।\
 > ভাসাইল ত্রিভুবন প্রেমভক্তি দিয়া ॥৩২॥
 
-> nagare nagare bhrame kīrtana kariyā
+> nagare nagare bhrame kīrtana kariyā\
 > bhāsāila tri-bhuvana prema-bhakti diyā
 
 *nagare nagare*—en diferentes partes de la ciudad; *bhrame*—deambula; *kīrtana*—canto; *kariyā*—ejecutando; *bhāsāila*—inundó; *tri-bhuvana*—los tres mundos; *prema-bhakti*—amor a Dios; *diyā*—distribuyendo.

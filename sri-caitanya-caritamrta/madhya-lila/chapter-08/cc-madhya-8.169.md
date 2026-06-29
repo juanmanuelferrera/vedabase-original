@@ -1,9 +1,9 @@
 ### CC Madhya 8.169
 
-> কৃষ্ণ-অনুরাগ দ্বিতীয় অরুণ-বসন ।
+> কৃষ্ণ-অনুরাগ দ্বিতীয় অরুণ-বসন ।\
 > প্রণয়-মান-কঞ্চুলিকায় বক্ষ আচ্ছাদন ॥১৬৯॥
 
-> kṛṣṇa-anurāga dvitīya aruṇa-vasana
+> kṛṣṇa-anurāga dvitīya aruṇa-vasana\
 > praṇaya-māna-kañculikāya vakṣa ācchādana
 
 *kṛṣṇa-anurāga*—attraction for Kṛṣṇa; *dvitīya*—second; *aruṇa-vasana*—pinkish garment; *praṇaya*—of love; *māna*—and anger; *kañculikāya*—by a short blouse; *vakṣa*—breasts; *ācchādana*—covering.

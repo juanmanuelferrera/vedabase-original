@@ -1,9 +1,9 @@
 ### CC Madhya 19.156
 
-> যদি বৈষ্ণব-অপরাধ উঠে হাতী মাতা ।
+> যদি বৈষ্ণব-অপরাধ উঠে হাতী মাতা ।\
 > উপাড়ে বা ছিণ্ডে, তার শুখি’ যায় পাতা ॥১৫৬॥
 
-> yadi vaiṣṇava-aparādha uṭhe hātī mātā
+> yadi vaiṣṇava-aparādha uṭhe hātī mātā\
 > upāḍe vā chiṇḍe, tāra śukhi' yāya pātā
 
 *yadi*—si; *vaiṣṇava-aparādha*—una ofensa a los pies de un *vaiṣṇava*; *uṭhe*—surge; *hātī*—un elefante; *mātā*—enloquecido; *upāḍe*—arranca de raíz; *vā*—o; *chiṇḍe*—rompe; *tāra*—de la enredadera; *śukhi'*—marchitándose; *yāya*—se van; *pātā*—las hojas.

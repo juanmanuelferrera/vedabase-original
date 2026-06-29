@@ -1,9 +1,9 @@
 ### CC Madhya 24.342
 
-> এই সবে বিদ্ধা-ত্যাগ, অবিদ্ধা-করণ ।
+> এই সবে বিদ্ধা-ত্যাগ, অবিদ্ধা-করণ ।\
 > অকরণে দোষ, কৈলে ভক্তির লম্ভন ॥৩৪২॥
 
-> ei sabe viddhā-tyāga, aviddhā-karaṇa
+> ei sabe viddhā-tyāga, aviddhā-karaṇa\
 > akaraṇe doṣa, kaile bhaktira lambhana
 
 *ei sabe*—all these things; *viddhā-tyāga*—to avoid *viddha-ekādaśī* or mixed Ekādaśī; *aviddhā-karaṇa*—performing the pure Ekādaśī; *akaraṇe doṣa*—the fault of not performing them; *kaile*—if done so; *bhaktira lambhana*—there will be discrepancies in devotional service.

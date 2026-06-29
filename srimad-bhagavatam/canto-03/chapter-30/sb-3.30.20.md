@@ -1,11 +1,11 @@
 ### SB 3.30.20
 
-> यातनादेह आवृत्य पाशैर्बद्ध्वा गले बलात् ।
+> यातनादेह आवृत्य पाशैर्बद्ध्वा गले बलात् ।\
 > नयतो दीर्घमध्वानं दण्ड्यं राजभटा यथा ॥२०॥
 
-> yātanā-deha āvṛtya
-> pāśair baddhvā gale balāt
-> nayato dīrgham adhvānaṁ
+> yātanā-deha āvṛtya\
+> pāśair baddhvā gale balāt\
+> nayato dīrgham adhvānaṁ\
 > daṇḍyaṁ rāja-bhaṭā yathā
 
 *yātanā*—for punishment; *dehe*—his body; *āvṛtya*—covering; *pāśaiḥ*—with ropes; *baddhvā*—binding; *gale*—by the neck; *balāt*—by force; *nayataḥ*—they lead; *dīrgham*—long; *adhvānam*—distance; *daṇḍyam*—a criminal; *rāja-bhaṭāḥ*—the king's soldiers; *yathā*—as.

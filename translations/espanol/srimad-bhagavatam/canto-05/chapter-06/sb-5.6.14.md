@@ -1,11 +1,11 @@
 ### SB 5.6.14
 
-> अहो नु वंशो यशसावदातः प्रैयव्रतो यत्र पुमान्पुराणः
+> अहो नु वंशो यशसावदातः प्रैयव्रतो यत्र पुमान्पुराणः\
 > कृतावतारः पुरुषः स आद्यश्चचार धर्मं यदकर्महेतुम ॥१४॥
 
-> aho nu vaṁśo yaśasāvadātaḥ
-> praiyavrato yatra pumān purāṇaḥ
-> kṛtāvatāraḥ puruṣaḥ sa ādyaś
+> aho nu vaṁśo yaśasāvadātaḥ\
+> praiyavrato yatra pumān purāṇaḥ\
+> kṛtāvatāraḥ puruṣaḥ sa ādyaś\
 > cacāra dharmaṁ yad akarma-hetum
 
 *aho*—¡oh!; *nu*—en verdad; *vaṁśaḥ*—la dinastía; *yaśasā*—de amplia fama; *avadātaḥ*—completamente pura; *praiyavrataḥ*—emparentada con Mahārāja Priyavrata; *yatra*—donde; *pumān*—la Persona Suprema; *purāṇaḥ*—la original; *kṛta-avatāraḥ*—descendió como encarnación; *puruṣaḥ*—la Suprema Personalidad de Dios; *saḥ*—Él; *ādyaḥ*—la persona original; *cacāra*—puso en práctica; *dharmam*—principios religiosos; *yat*—de los cuales; *akarma-hetum*—la causa del final de las actividades fruitivas.

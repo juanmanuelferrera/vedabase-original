@@ -1,9 +1,9 @@
 ### CC Antya 15.4
 
-> এইমত মহাপ্রভু রাত্রি-দিবসে ।
+> এইমত মহাপ্রভু রাত্রি-দিবসে ।\
 > আত্মস্ফূর্তি নাহি কৃষ্ণভাবাবেশে ॥৪॥
 
-> ei-mata mahāprabhu rātri-divase
+> ei-mata mahāprabhu rātri-divase\
 > ātma-sphūrti nāhi kṛṣṇa-bhāvāveśe
 
 *ei-mata*—in this way; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *rātri-divase*—night and day; *ātma-sphūrti nāhi*—forgot Himself; *kṛṣṇa-bhāva-āveśe*—being merged in ecstatic love for Kṛṣṇa.

@@ -1,9 +1,9 @@
 ### CC Madhya 13.119
 
-> এইমত গৌর-শ্যামে, দোঁহে ঠেলাঠেলি ।
+> এইমত গৌর-শ্যামে, দোঁহে ঠেলাঠেলি ।\
 > স্বরথে শ্যামেরে রাখে গৌর মহাবলী ॥১১৯॥
 
-> ei-mata gaura-śyāme, doṅhe ṭhelāṭheli
+> ei-mata gaura-śyāme, doṅhe ṭhelāṭheli\
 > svarathe śyāmere rākhe gaura mahā-balī
 
 *ei-mata*—in this way; *gaura-śyāme*—Lord Jagannātha and Lord Śrī Caitanya Mahāprabhu; *doṅhe*—between both of Them; *ṭhelāṭheli*—competition of pushing forward; *sva-rathe*—in His own car; *śyāmere*—Lord Jagannātha; *rākhe*—keeps; *gaura*—Lord Śrī Caitanya Mahāprabhu; *mahā-balī*—greatly powerful.

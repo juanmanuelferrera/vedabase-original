@@ -1,11 +1,11 @@
 ### CC Madhya 24.215
 
-> কর্মণ্যস্মিন্ননাশ্বাসে ধূমধূম্রাত্মনাং ভবান্ ।
+> কর্মণ্যস্মিন্ননাশ্বাসে ধূমধূম্রাত্মনাং ভবান্ ।\
 > আপায়য়তি গোবিন্দপাদপদ্মাসবং মধু ॥২১৫॥
 
-> karmaṇy asminn anāśvāse
-> dhūma-dhūmrātmanāṁ bhavān
-> āpāyayati govinda-
+> karmaṇy asminn anāśvāse\
+> dhūma-dhūmrātmanāṁ bhavān\
+> āpāyayati govinda-\
 > pāda-padmāsavaṁ madhu
 
 *karmaṇi*—en la actividad fruitiva; *asmin*—en esta; *anāśvāse*—aunque no es positiva en su resultado; *dhūma-dhūmra-ātmanām*—cuyos cuerpos simplemente se ennegrecen a causa del humo; *bhavān*—tú; *āpāyayati*—das la oportunidad de beber; *govinda-pāda-padma-āsavam*—el néctar que emana de los pies de loto de Govinda; *madhu*—dulce.

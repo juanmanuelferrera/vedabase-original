@@ -1,25 +1,25 @@
 ### SB 1.16.13-15
 
-> तत्र तत्रोपशृण्वानः स्वपूर्वेषां महात्मनाम् ।
-> प्रगीयमाणं च यशः कृष्णमाहात्म्यसूचकम् ॥१३॥
-> आत्मानं च परित्रातमश्वत्थाम्नोऽस्त्रतेजसः ।
-> स्नेहं च वृष्णिपार्थानां तेषां भक्तिं च केशवे ॥१४॥
-> तेभ्यः परमसन्तुष्टः प्रीत्युज्जृम्भितलोचनः ।
+> तत्र तत्रोपशृण्वानः स्वपूर्वेषां महात्मनाम् ।\
+> प्रगीयमाणं च यशः कृष्णमाहात्म्यसूचकम् ॥१३॥\
+> आत्मानं च परित्रातमश्वत्थाम्नोऽस्त्रतेजसः ।\
+> स्नेहं च वृष्णिपार्थानां तेषां भक्तिं च केशवे ॥१४॥\
+> तेभ्यः परमसन्तुष्टः प्रीत्युज्जृम्भितलोचनः ।\
 > महाधनानि वासांसि ददौ हारान्महामनाः ॥१५॥
 
-> tatra tatropaśṛṇvānaḥ
-> sva-pūrveṣāṁ mahātmanām
-> pragīyamāṇaṁ ca yaśaḥ
+> tatra tatropaśṛṇvānaḥ\
+> sva-pūrveṣāṁ mahātmanām\
+> pragīyamāṇaṁ ca yaśaḥ\
 > kṛṣṇa-māhātmya-sūcakam
 
-> ātmānaṁ ca paritrātam
-> aśvatthāmno 'stra-tejasaḥ
-> snehaṁ ca vṛṣṇi-pārthānāṁ
+> ātmānaṁ ca paritrātam\
+> aśvatthāmno 'stra-tejasaḥ\
+> snehaṁ ca vṛṣṇi-pārthānāṁ\
 > teṣāṁ bhaktiṁ ca keśave
 
-> tebhyaḥ parama-santuṣṭaḥ
-> prīty-ujjṛmbhita-locanaḥ
-> mahā-dhanāni vāsāṁsi
+> tebhyaḥ parama-santuṣṭaḥ\
+> prīty-ujjṛmbhita-locanaḥ\
+> mahā-dhanāni vāsāṁsi\
 > dadau hārān mahā-manāḥ
 
 *tatra tatra*—adondequiera que el rey iba; *upaśṛṇvānaḥ*—oía continuamente; *sva-pūrveṣām*—hablar de sus propios antepasados; *mahā-ātmanām*—todos los cuales eran grandes devotos del Señor; *pragīyamāṇam*—a aquellos que estaban hablando así; *ca*—también; *yaśaḥ*—glorias; *kṛṣṇa*—el Señor Kṛṣṇa; *māhātmya*—actos gloriosos; *sūcakam*—indicando; *ātmānam*—de sí mismo; *ca*—también; *paritrātam*—salvado; *aśvatthāmnaḥ*—de Aśvatthāmā; *astra*—arma; *tejasaḥ*—rayos poderosos; *sneham*—afecto; *ca*—también; *vṛṣṇi-pārthānām*—entre los descendientes de Vṛṣṇi y los de Pṛthā; *teṣām*—de todos ellos; *bhaktim*—devoción; *ca*—también; *keśave*—al Señor Kṛṣṇa; *tebhyaḥ*—a ellos; *parama*—extremadamente; *santuṣṭaḥ*—complacido; *prīti*—atracción; *ujjṛmbhita*—abiertos con agrado; *locanaḥ*—aquel que tiene esa clase de ojos; *mahā-dhanāni*—valiosas riquezas; *vāsāṁsi*—ropa; *dadau*—dio como caridad; *hārān*—collar; *mahā-manāḥ*—aquel que tiene una visión amplia.

@@ -1,9 +1,9 @@
 ### CC Madhya 15.158
 
-> তবে বাসুদেবে প্রভু করি’ আলিঙ্গন ।
+> তবে বাসুদেবে প্রভু করি’ আলিঙ্গন ।\
 > তাঁর গুণ কহে হঞা সহস্র-বদন ॥১৫৮॥
 
-> tabe vāsudeve prabhu kari' āliṅgana
+> tabe vāsudeve prabhu kari' āliṅgana\
 > tāṅra guṇa kahe hañā sahasra-vadana
 
 *tabe*—entonces; *vāsudeve*—a Vāsudeva; *prabhu*—Śrī Caitanya Mahāprabhu; *kari' āliṅgana*—abrazando; *tāṅra guṇa*—sus buenas cualidades; *kahe*—comenzó a describir; *hañā*—convirtiéndose en; *sahasra-vadana*—poseedor de miles de bocas.

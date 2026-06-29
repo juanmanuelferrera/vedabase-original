@@ -1,11 +1,11 @@
 ### SB 4.20.26
 
-> यशः शिवं सुश्रव आर्यसङ्गमे यदृच्छया चोपशृणोति ते सकृत् ।
+> यशः शिवं सुश्रव आर्यसङ्गमे यदृच्छया चोपशृणोति ते सकृत् ।\
 > कथं गुणज्ञो विरमेद्विना पशुं श्रीर्यत्प्रवव्रे गुणसङ्ग्रहेच्छया ॥२६॥
 
-> yaśaḥ śivaṁ suśrava ārya-saṅgame
-> yadṛcchayā copaśṛṇoti te sakṛt
-> kathaṁ guṇa-jño viramed vinā paśuṁ
+> yaśaḥ śivaṁ suśrava ārya-saṅgame\
+> yadṛcchayā copaśṛṇoti te sakṛt\
+> kathaṁ guṇa-jño viramed vinā paśuṁ\
 > śrīr yat pravavre guṇa-saṅgrahecchayā
 
 *yaśaḥ*—glorificación; *śivam*—completamente auspiciosa; *su-śravaḥ*—¡oh, muy glorificado Señor!; *ārya-saṅgame*—en compañía de devotos avanzados; *yadṛcchayā*—de una u otra forma; *ca*—también; *upaśṛṇoti*—escuche; *te*—Tus; *sakṛt*—incluso una sola vez; *katham*—cómo; *guṇa-jñaḥ*—el que aprecia las buenas cualidades; *viramet*—puede dejar de; *vinā*—a menos que; *paśum*—un animal; *śrīḥ*—la diosa de la fortuna; *yat*—que; *pravavre*—aceptó; *guṇa*—Tus cualidades; *saṅgraha*—recibir; *icchayā*—con un deseo.

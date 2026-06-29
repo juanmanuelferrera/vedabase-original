@@ -1,9 +1,9 @@
 ### CC Madhya 4.203
 
-> এই শ্লোকে উঘাড়িলা প্রেমের কপাট ।
+> এই শ্লোকে উঘাড়িলা প্রেমের কপাট ।\
 > গোপীনাথ-সেবক দেখে প্ৰভুর প্রেমনাট ॥২০৩॥
 
-> ei śloke ughāḍilā premera kapāṭa
+> ei śloke ughāḍilā premera kapāṭa\
 > gopīnātha-sevaka dekhe prabhura prema-nāṭa
 
 *ei śloke*—este verso; *ughāḍilā*—descubrió; *premera*—del amor conyugal; *kapāṭa*—la puerta; *gopīnātha-sevaka*—los sirvientes de la Deidad de Gopīnātha; *dekhe*—ven; *prabhura*—del Señor Caitanya Mahāprabhu; *prema-nāṭa*—la danza en amor extático.

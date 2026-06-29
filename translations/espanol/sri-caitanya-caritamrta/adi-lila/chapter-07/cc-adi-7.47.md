@@ -1,9 +1,9 @@
 ### CC Adi 7.47
 
-> সনাতন গোসাঞি আসি’ তাঁহাই মিলিলা ।
+> সনাতন গোসাঞি আসি’ তাঁহাই মিলিলা ।\
 > তাঁর শিক্ষা লাগি’ প্রভু দু-মাস রহিলা ॥৪৭॥
 
-> sanātana gosāñi āsi' tāṅhāi mililā
+> sanātana gosāñi āsi' tāṅhāi mililā\
 > tāṅra śikṣā lāgi' prabhu du-māsa rahilā
 
 *sanātana*—de nombre Sanātana; *gosāñi*—un gran devoto; *āsi'*—acudiendo allí; *tāṅhāi*—allí en Vārāṇasī; *mililā*—Lo visitó; *tāṅra*—Su; *śikṣā*—instrucción; *lāgi'*—con el fin de; *prabhu*—el Señor Caitanya Mahāprabhu; *du-māsa*—dos meses; *rahilā*—permaneció allí.

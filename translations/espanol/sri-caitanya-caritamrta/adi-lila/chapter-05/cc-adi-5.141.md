@@ -1,13 +1,13 @@
 ### CC Adi 5.141
 
-> যস্যাঙ্ঘ্রিপঙ্কজারজো ঽখিললোক-পালৈ-
-> র্মৌল্যুত্তমৈর্ধৃতমুপাসিত-তীর্থতীর্থম্ ।
-> ব্রহ্মা ভবোঽহমপি যস্য কলাঃ কলায়াঃ
+> যস্যাঙ্ঘ্রিপঙ্কজারজো ঽখিললোক-পালৈ-\
+> র্মৌল্যুত্তমৈর্ধৃতমুপাসিত-তীর্থতীর্থম্ ।\
+> ব্রহ্মা ভবোঽহমপি যস্য কলাঃ কলায়াঃ\
 > শ্রীশ্চোদ্বহেম চিরমস্য নৃপাসনং ক্ব? ॥১৪১॥
 
-> yasyāṅghri-paṅkaja-rajo 'khila-loka-pālair
-> mauly-uttamair dhṛtam upāsita-tīrtha-tīrtham
-> brahmā bhavo 'ham api yasya kalāḥ kalāyāḥ
+> yasyāṅghri-paṅkaja-rajo 'khila-loka-pālair\
+> mauly-uttamair dhṛtam upāsita-tīrtha-tīrtham\
+> brahmā bhavo 'ham api yasya kalāḥ kalāyāḥ\
 > śrīś codvahema ciram asya nṛpāsanaṁ kva
 
 *yasya*—de quien; *aṅghri-paṅkaja*—pies de loto; *rajaḥ*—el polvo; *akhila-loka*—de los sistemas planetarios universales; *pālaiḥ*—por los amos; *mauli-uttamaiḥ*—con valiosos turbantes sobre sus cabezas; *dhṛtam*—aceptado; *upāsita*—adorado; *tīrtha-tīrtham*—el santificador de los lugares santos; *brahmā*—el Señor Brahmā; *bhavaḥ*—el Señor Śiva; *aham api*—incluso yo; *yasya*—de quien; *kalāḥ*—porciones; *kalāyāḥ*—de una porción plenaria; *śrīḥ*—la diosa de la fortuna; *ca*—y; *udvahema*—llevamos; *ciram*—eternamente; *asya*—de Él; *nṛpa-āsanam*—el trono de un rey; *kva*—de qué valor es.

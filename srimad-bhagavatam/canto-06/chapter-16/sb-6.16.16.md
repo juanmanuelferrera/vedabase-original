@@ -1,11 +1,11 @@
 ### SB 6.16.16
 
-> कालिन्द्यां विधिवत्स्नात्वा कृतपुण्यजलक्रियः
+> कालिन्द्यां विधिवत्स्नात्वा कृतपुण्यजलक्रियः\
 > मौनेन संयतप्राणो ब्रह्मपुत्राववन्दत ॥१६॥
 
-> kālindyāṁ vidhivat snātvā
-> kṛta-puṇya-jala-kriyaḥ
-> maunena saṁyata-prāṇo
+> kālindyāṁ vidhivat snātvā\
+> kṛta-puṇya-jala-kriyaḥ\
+> maunena saṁyata-prāṇo\
 > brahma-putrāv avandata
 
 *kālindyām*—in the River Yamunā; *vidhi-vat*—according to prescribed regulations; *snātvā*—bathing; *kṛta*—performing; *puṇya*—pious; *jala-kriyaḥ*—oblations by offering water; *maunena*—with gravity; *saṁyata-prāṇaḥ*—controlling the mind and senses; *brahma-putrau*—unto the two sons of Lord Brahmā (Aṅgirā and Nārada); *avandata*—offered his prayers and obeisances.

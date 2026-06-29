@@ -1,11 +1,11 @@
 ### CC Madhya 2.20
 
-> সখি হে, না বুঝিয়ে বিধির বিধান ।
-> সুখ লাগি’ কৈলুঁ প্রীত, হৈল দুঃখ বিপরীত,
+> সখি হে, না বুঝিয়ে বিধির বিধান ।\
+> সুখ লাগি’ কৈলুঁ প্রীত, হৈল দুঃখ বিপরীত,\
 > এবে যায়, না রহে পরাণ ।। ২০ ।। ধ্রু ।। ॥২০॥
 
-> sakhī he, nā bujhiye vidhira vidhāna
-> sukha lāgi' kailuṅ prīta, haila duḥkha viparīta,
+> sakhī he, nā bujhiye vidhira vidhāna\
+> sukha lāgi' kailuṅ prīta, haila duḥkha viparīta,\
 > ebe yāya, nā rahe parāṇa
 
 *sakhīhe*—(My dear) friend; *nā bujhiye*—I do not understand; *vidhira*—of the Creator; *vidhāna*—the regulation; *sukha lāgi'*—for happiness; *kailuṅ*—I did; *prīta*—love; *haila*—it became; *duḥkha*—unhappiness; *viparīta*—the opposite; *ebe*—now; *yāya*—going; *nā*—does not; *rahe*—remain; *parāṇa*—life.

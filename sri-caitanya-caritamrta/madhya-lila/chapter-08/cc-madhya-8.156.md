@@ -1,11 +1,11 @@
 ### CC Madhya 8.156
 
-> হ্লাদিনী সন্ধিনী সম্বিৎ ত্বয্যেকা সর্বসংশ্রয়ে ।
+> হ্লাদিনী সন্ধিনী সম্বিৎ ত্বয্যেকা সর্বসংশ্রয়ে ।\
 > হ্লাদতাপকরী মিশ্রা ত্বয়ি নো গুণবর্জিতে ॥১৫৬॥
 
-> hlādinī sandhinī samvit
-> tvayy ekā sarva-saṁśraye
-> hlāda-tāpa-karī miśrā
+> hlādinī sandhinī samvit\
+> tvayy ekā sarva-saṁśraye\
+> hlāda-tāpa-karī miśrā\
 > tvayi no guṇa-varjite
 
 *hlādinī*—that which generates pleasure; *sandhinī*—the potency of existence; *samvit*—the potency of knowledge; *tvayi*—unto You; *ekā*—principal internal potency; *sarva-saṁśraye*—You are the reservoir of all potencies; *hlāda*—pleasure; *tāpa-karī*—generator of pains; *miśrā*—mixed; *tvayi*—unto You; *na u*—never; *guṇa-varjite*—You, the transcendence, the Supreme Personality of Godhead.

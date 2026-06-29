@@ -1,9 +1,9 @@
 ### CC Adi 13.22
 
-> জন্ম-বাল্য-পৌগণ্ড-কৈশোর-যুবাকালে ।
+> জন্ম-বাল্য-পৌগণ্ড-কৈশোর-যুবাকালে ।\
 > হরিনাম লওয়াইলা প্রভু নানা ছলে ॥২২॥
 
-> janma-bālya-paugaṇḍa-kaiśora-yuvā-kāle
+> janma-bālya-paugaṇḍa-kaiśora-yuvā-kāle\
 > hari-nāma laoyāilā prabhu nānā chale
 
 *janma*—time of birth; *bālya*—childhood; *paugaṇḍa*—early boyhood; *kaiśora*—end of boyhood; *yuvā-kāle*—youth; *hari-nāma*—the holy name of the Lord; *laoyāilā*—caused to take; *prabhu*—the Lord; *nānā*—various; *chale*—under different pleas.

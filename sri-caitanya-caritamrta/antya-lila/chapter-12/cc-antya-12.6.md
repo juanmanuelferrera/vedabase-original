@@ -1,9 +1,9 @@
 ### CC Antya 12.6
 
-> রাত্রি-দিন এই দশা স্বস্তি নাহি মনে ।
+> রাত্রি-দিন এই দশা স্বস্তি নাহি মনে ।\
 > কষ্টে রাত্রি গোঙায় স্বরূপ-রামানন্দ-সনে ॥৬॥
 
-> rātri-dina ei daśā svasti nāhi mane
+> rātri-dina ei daśā svasti nāhi mane\
 > kaṣṭe rātri goṅāya svarūpa-rāmānanda-sane
 
 *rātri-dina*—day and night; *ei daśā*—this situation; *svasti nāhi mane*—no peace of mind; *kaṣṭe*—with great difficulty; *rātri goṅāya*—passes the night; *svarūpa-rāmānanda-sane*—in the company of Svarūpa Dāmodara Gosvāmī and Rāmānanda Rāya.

@@ -1,11 +1,11 @@
 ### SB 2.1.36
 
-> वयांसि तद्व्याकरणं विचित्रं मनुर्मनीषा मनुजो निवासः ।
+> वयांसि तद्व्याकरणं विचित्रं मनुर्मनीषा मनुजो निवासः ।\
 > गन्धर्वविद्याधरचारणाप्सरः स्वरस्मृतीरसुरानीकवीर्यः ॥३६॥
 
-> vayāṁsi tad-vyākaraṇaṁ vicitraṁ
-> manur manīṣā manujo nivāsaḥ
-> gandharva-vidyādhara-cāraṇāpsaraḥ
+> vayāṁsi tad-vyākaraṇaṁ vicitraṁ\
+> manur manīṣā manujo nivāsaḥ\
+> gandharva-vidyādhara-cāraṇāpsaraḥ\
 > svara-smṛtīr asurānīka-vīryaḥ
 
 *vayāṁsi*—variedades de aves; *tat-vyākaraṇam*—vocablos; *vicitram*—artístico; *manuḥ*—el padre de la humanidad; *manīṣā*—pensamientos; *manujaḥ*—la humanidad (los hijos de Manu); *nivāsaḥ*—residencia; *gandharva*—los seres humanos llamados *gandharvas*; *vidyādhara*—los *vidhyādharas*; *cāraṇa*—los *cāraṇas*; *apsaraḥ*—los ángeles; *svara*—ritmo musical; *smṛtīḥ*—recuerdo; *asura-anīka*—los soldados demoníacos; *vīryaḥ*—heroísmo.

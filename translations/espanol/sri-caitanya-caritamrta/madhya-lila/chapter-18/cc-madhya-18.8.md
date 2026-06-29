@@ -1,11 +1,11 @@
 ### CC Madhya 18.8
 
-> যথা রাধা প্রিয়া বিষ্ণোস্তস্যাঃ কুণ্ডং প্রিয়ং তথা ।
+> যথা রাধা প্রিয়া বিষ্ণোস্তস্যাঃ কুণ্ডং প্রিয়ং তথা ।\
 > সর্বগোপীষু সৈবৈকা বিষ্ণোরত্যন্তবল্লভা ॥৮॥
 
-> yathā rādhā priyā viṣṇos
-> tasyāḥ kuṇḍaṁ priyaṁ tathā
-> sarva-gopīṣu saivaikā
+> yathā rādhā priyā viṣṇos\
+> tasyāḥ kuṇḍaṁ priyaṁ tathā\
+> sarva-gopīṣu saivaikā\
 > viṣṇor atyanta-vallabhā
 
 *yathā*—así como; *rādhā*—Śrīmatī Rādhārāṇī; *priyā*—amada; *viṣṇoḥ*—del Señor Kṛṣṇa; *tasyāḥ*—de Ella; *kuṇḍam*—lago; *priyam*—muy querido; *tathā*—de manera similar; *sarva-gopīṣu*—entre todas las gopīs; *sā*—Ella; *eva*—ciertamente; *ekā*—sola; *viṣṇoḥ*—del Señor Kṛṣṇa; *atyanta*—muy; *vallabhā*—querida.

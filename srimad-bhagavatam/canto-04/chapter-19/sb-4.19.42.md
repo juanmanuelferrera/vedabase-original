@@ -1,11 +1,11 @@
 ### SB 4.19.42
 
-> त्वयाहूता महाबाहो सर्व एव समागताः ।
+> त्वयाहूता महाबाहो सर्व एव समागताः ।\
 > पूजिता दानमानाभ्यां पितृदेवर्षिमानवाः ॥४२॥
 
-> tvayāhūtā mahā-bāho
-> sarva eva samāgatāḥ
-> pūjitā dāna-mānābhyāṁ
+> tvayāhūtā mahā-bāho\
+> sarva eva samāgatāḥ\
+> pūjitā dāna-mānābhyāṁ\
 > pitṛ-devarṣi-mānavāḥ
 
 *tvayā*—by you; *āhūtāḥ*—were invited; *mahā-bāho*—O great mighty-armed one; *sarve*—all; *eva*—certainly; *samāgatāḥ*—assembled; *pūjitāḥ*—were honored; *dāna*—by charity; *mānābhyām*—and by respect; *pitṛ*—the inhabitants of Pitṛloka; *deva*—demigods; *ṛṣi*—great sages; *mānavāḥ*—as well as common men.

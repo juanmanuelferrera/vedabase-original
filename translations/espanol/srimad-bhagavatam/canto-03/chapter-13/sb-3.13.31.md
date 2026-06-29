@@ -1,11 +1,11 @@
 ### SB 3.13.31
 
-> स्वदंष्ट्रयोद्धृत्य महीं निमग्नां स उत्थितः संरुरुचे रसायाः ।
+> स्वदंष्ट्रयोद्धृत्य महीं निमग्नां स उत्थितः संरुरुचे रसायाः ।\
 > तत्रापि दैत्यं गदयापतन्तं सुनाभसन्दीपिततीव्रमन्युः ॥३१॥
 
-> sva-daṁṣṭrayoddhṛtya mahīṁ nimagnāṁ
-> sa utthitaḥ saṁruruce rasāyāḥ
-> tatrāpi daityaṁ gadayāpatantaṁ
+> sva-daṁṣṭrayoddhṛtya mahīṁ nimagnāṁ\
+> sa utthitaḥ saṁruruce rasāyāḥ\
+> tatrāpi daityaṁ gadayāpatantaṁ\
 > sunābha-sandīpita-tīvra-manyuḥ
 
 *sva-daṁṣṭrayā*—con Sus propios colmillos; *uddhṛtya*—levantando; *mahīm*—la Tierra; *nimagnām*—sumergida; *saḥ*—Él; *utthitaḥ*—levantando; *saṁruruce*—apareció muy esplendoroso; *rasāyāḥ*—del agua; *tatra*—allí; *api*—también; *daityam*—al demonio; *gadayā*—con la maza; *āpatantam*—acometiendo contra Él; *sunābha*—la rueda de Kṛṣṇa; *sandīpita*—candente; *tīvra*—feroz; *manyuḥ*—ira.

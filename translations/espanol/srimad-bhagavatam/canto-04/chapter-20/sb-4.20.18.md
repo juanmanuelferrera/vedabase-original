@@ -1,11 +1,11 @@
 ### SB 4.20.18
 
-> स्पृशन्तं पादयोः प्रेम्णा व्रीडितं स्वेन कर्मणा ।
+> स्पृशन्तं पादयोः प्रेम्णा व्रीडितं स्वेन कर्मणा ।\
 > शतक्रतुं परिष्वज्य विद्वेषं विससर्ज ह ॥१८॥
 
-> spṛśantaṁ pādayoḥ premṇā
-> vrīḍitaṁ svena karmaṇā
-> śata-kratuṁ pariṣvajya
+> spṛśantaṁ pādayoḥ premṇā\
+> vrīḍitaṁ svena karmaṇā\
+> śata-kratuṁ pariṣvajya\
 > vidveṣaṁ visasarja ha
 
 *spṛśantam*—tocar; *pādayoḥ*—los pies; *premṇā*—en éxtasis; *vrīḍitam*—avergonzado; *svena*—sus propias; *karmaṇā*—actividades; *śata-kratum*—al rey Indra; *pariṣvajya*—abrazar; *vidveṣam*—envidia; *visasarja*—abandonó; *ha*—por supuesto.

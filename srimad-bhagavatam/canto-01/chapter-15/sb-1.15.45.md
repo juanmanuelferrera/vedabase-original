@@ -1,11 +1,11 @@
 ### SB 1.15.45
 
-> सर्वे तमनुनिर्जग्मुर्भ्रातरः कृतनिश्चयाः ।
+> सर्वे तमनुनिर्जग्मुर्भ्रातरः कृतनिश्चयाः ।\
 > कलिनाधर्ममित्रेण दृष्ट्वा स्पृष्टाः प्रजा भुवि ॥४५॥
 
-> sarve tam anunirjagmur
-> bhrātaraḥ kṛta-niścayāḥ
-> kalinādharma-mitreṇa
+> sarve tam anunirjagmur\
+> bhrātaraḥ kṛta-niścayāḥ\
+> kalinādharma-mitreṇa\
 > dṛṣṭvā spṛṣṭāḥ prajā bhuvi
 
 *sarve*—all his younger brothers; *tam*—him; *anunirjagmuḥ*—left home by following the elder; *bhrātaraḥ*—brothers; *kṛta-niścayāḥ*—decidedly; *kalinā*—by the age of Kali; *adharma*—principle of irreligion; *mitreṇa*—by the friend; *dṛṣṭvā*—observing; *spṛṣṭāḥ*—having overtaken; *prajāḥ*—all citizens; *bhuvi*—on the earth.

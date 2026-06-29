@@ -1,13 +1,13 @@
 ### SB 2.7.4
 
-> अत्रेरपत्यमभिकाङ्क्षत आह तुष्टो
-> दत्तो मयाहमिति यद्भगवान्स दत्तः ।
-> यत्पादपङ्कजपरागपवित्रदेहा
+> अत्रेरपत्यमभिकाङ्क्षत आह तुष्टो\
+> दत्तो मयाहमिति यद्भगवान्स दत्तः ।\
+> यत्पादपङ्कजपरागपवित्रदेहा\
 > योगर्द्धिमापुरुभयीं यदुहैहयाद्याः ॥४॥
 
-> atrer apatyam abhikāṅkṣata āha tuṣṭo
-> datto mayāham iti yad bhagavān sa dattaḥ
-> yat-pāda-paṅkaja-parāga-pavitra-dehā
+> atrer apatyam abhikāṅkṣata āha tuṣṭo\
+> datto mayāham iti yad bhagavān sa dattaḥ\
+> yat-pāda-paṅkaja-parāga-pavitra-dehā\
 > yogarddhim āpur ubhayīṁ yadu-haihayādyāḥ
 
 *atreḥ*—of the sage Atri; *apatyam*—issue; *abhikāṅkṣataḥ*—having prayed for; *āha*—said it; *tuṣṭaḥ*—being satisfied; *dattaḥ*—given over; *mayā*—by me; *aham*—myself; *iti*—thus; *yat*—because; *bhagavān*—the Personality of Godhead; *saḥ*—He; *dattaḥ*—Dattātreya; *yat-pāda*—one whose feet; *paṅkaja*—lotus; *parāga*—dust; *pavitra*—purified; *dehāḥ*—body; *yoga*—mystic; *ṛddhim*—opulence; *āpuḥ*—got; *ubhayīm*—for both the worlds; *yadu*—the father of the Yadu dynasty; *haihaya-ādyāḥ*—and others, like King Haihaya.

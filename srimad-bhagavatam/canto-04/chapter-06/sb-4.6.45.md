@@ -1,11 +1,11 @@
 ### SB 4.6.45
 
-> त्वं कर्मणां मङ्गल मङ्गलानां कर्तुः स्वलोकं तनुषे स्वः परं वा ।
+> त्वं कर्मणां मङ्गल मङ्गलानां कर्तुः स्वलोकं तनुषे स्वः परं वा ।\
 > अमङ्गलानां च तमिस्रमुल्बणं विपर्ययः केन तदेव कस्यचित् ॥४५॥
 
-> tvaṁ karmaṇāṁ maṅgala maṅgalānāṁ
-> kartuḥ sva-lokaṁ tanuṣe svaḥ paraṁ vā
-> amaṅgalānāṁ ca tamisram ulbaṇaṁ
+> tvaṁ karmaṇāṁ maṅgala maṅgalānāṁ\
+> kartuḥ sva-lokaṁ tanuṣe svaḥ paraṁ vā\
+> amaṅgalānāṁ ca tamisram ulbaṇaṁ\
 > viparyayaḥ kena tad eva kasyacit
 
 *tvam*—Your Lordship; *karmaṇām*—of the prescribed duties; *maṅgala*—O most auspicious; *maṅgalānām*—of the auspicious; *kartuḥ*—of the performer; *sva-lokam*—respective higher planetary systems; *tanuṣe*—expand; *svaḥ*—heavenly planets; *param*—transcendental world; *vā*—or; *amaṅgalānām*—of the inauspicious; *ca*—and; *tamisram*—the name of a particular hell; *ulbaṇam*—ghastly; *viparyayaḥ*—the opposite; *kena*—why; *tat eva*—certainly that; *kasyacit*—for someone.

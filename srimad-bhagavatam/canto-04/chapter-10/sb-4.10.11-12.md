@@ -1,18 +1,18 @@
 ### SB 4.10.11-12
 
-> ततः परिघनिस्त्रिंशैः प्रासशूलपरश्वधैः ।
-> शक्त्यृष्टिभिर्भुशुण्डीभिश्चित्रवाजैः शरैरपि ॥११॥
-> अभ्यवर्षन्प्रकुपिताः सरथं सहसारथिम् ।
+> ततः परिघनिस्त्रिंशैः प्रासशूलपरश्वधैः ।\
+> शक्त्यृष्टिभिर्भुशुण्डीभिश्चित्रवाजैः शरैरपि ॥११॥\
+> अभ्यवर्षन्प्रकुपिताः सरथं सहसारथिम् ।\
 > इच्छन्तस्तत्प्रतीकर्तुमयुतानां त्रयोदश ॥१२॥
 
-> tataḥ parigha-nistriṁśaiḥ
-> prāsaśūla-paraśvadhaiḥ
-> śakty-ṛṣṭibhir bhuśuṇḍībhiś
+> tataḥ parigha-nistriṁśaiḥ\
+> prāsaśūla-paraśvadhaiḥ\
+> śakty-ṛṣṭibhir bhuśuṇḍībhiś\
 > citra-vājaiḥ śarair api
 
-> abhyavarṣan prakupitāḥ
-> sarathaṁ saha-sārathim
-> icchantas tat pratīkartum
+> abhyavarṣan prakupitāḥ\
+> sarathaṁ saha-sārathim\
+> icchantas tat pratīkartum\
 > ayutānāṁ trayodaśa
 
 *tataḥ*—thereupon; *parigha*—with iron bludgeons; *nistriṁśaiḥ*—and swords; *prāsa-śūla*—with tridents; *paraśvadhaiḥ*—and lances; *śakti*—with pikes; *ṛṣṭibhiḥ*—and spears; *bhuśuṇḍībhiḥ*—with *bhuśuṇḍī* weapons; *citra-vājaiḥ*—having various feathers; *śaraiḥ*—with arrows; *api*—also; *abhyavarṣan*—they showered Dhruva; *prakupitāḥ*—being angry; *sa-ratham*—along with his chariot; *saha-sārathim*—along with his charioteer; *icchantaḥ*—desiring; *tat*—Dhruva's activities; *pratīkartum*—to counteract; *ayutānām*—of ten-thousands; *trayodaśa*—thirteen.

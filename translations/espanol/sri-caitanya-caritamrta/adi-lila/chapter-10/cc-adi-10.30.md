@@ -1,9 +1,9 @@
 ### CC Adi 10.30
 
-> চৈতন্য-পার্ষদ — শ্রীআচার্য পুরন্দর ।
+> চৈতন্য-পার্ষদ — শ্রীআচার্য পুরন্দর ।\
 > পিতা করি’ যাঁরে বলে গৌরাঙ্গসুন্দর ॥৩০॥
 
-> caitanya-pārṣada--śrī-ācārya purandara
+> caitanya-pārṣada--śrī-ācārya purandara\
 > pitā kari' yāṅre bale gaurāṅga-sundara
 
 *caitanya-pārṣada*—asociado del Señor Caitanya; *śrī-ācārya purandara*—de nombre Śrī Ācārya Purandara; *pitā*—padre; *kari'*—tomándolo como; *yāṅre*—a quien; *bale*—dice; *gaurāṅga-sundara*—el Señor Caitanya Mahāprabhu.

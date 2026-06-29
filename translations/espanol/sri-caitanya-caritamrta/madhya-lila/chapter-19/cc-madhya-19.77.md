@@ -1,9 +1,9 @@
 ### CC Madhya 19.77
 
-> সগণে প্রভুরে ভট্ট নৌকাতে চড়াঞা ।
+> সগণে প্রভুরে ভট্ট নৌকাতে চড়াঞা ।\
 > ভিক্ষা দিতে নিজ-ঘরে চলিলা লঞা ॥৭৭॥
 
-> sagaṇe prabhure bhaṭṭa naukāte caḍāñā
+> sagaṇe prabhure bhaṭṭa naukāte caḍāñā\
 > bhikṣā dite nija-ghare calilā lañā
 
 *sa-gaṇe*—con Sus asociados; *prabhure*—Śrī Caitanya Mahāprabhu; *bhaṭṭa*—Vallabha Bhaṭṭācārya; *naukāte*—un bote; *caḍāñā*—haciendo subir; *bhikṣā dite*—para ofrecer el almuerzo; *nija-ghare*—a su propia morada; *calilā*—partió; *lañā*—llevando.

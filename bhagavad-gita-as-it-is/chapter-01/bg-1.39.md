@@ -1,11 +1,11 @@
 ### Bg 1.39
 
-> कुलक्षये प्रणश्यन्ति कुलधर्माः सनातनाः ।
+> कुलक्षये प्रणश्यन्ति कुलधर्माः सनातनाः ।\
 > धर्मे नष्टे कुलं कृत्स्नमधर्मोऽभिभवत्युत ॥३९॥
 
-> kula-kṣaye praṇaśyanti
-> kula-dharmāḥ sanātanāḥ
-> dharme naṣṭe kulaṁ kṛtsnam
+> kula-kṣaye praṇaśyanti\
+> kula-dharmāḥ sanātanāḥ\
+> dharme naṣṭe kulaṁ kṛtsnam\
 > adharmo ’bhibhavaty uta
 
 *kula-kṣaye*—in destroying the family; *praṇaśyanti*—becomes vanquished; *kula-dharmāḥ*—the family traditions; *sanātanāḥ*—eternal; *dharme*—in religion; *naṣṭe*—being destroyed; *kulam*—family; *kṛtsnam*—wholesale; *adharmaḥ*—irreligious; *abhibhavati*—transforms; *uta*—it is said.

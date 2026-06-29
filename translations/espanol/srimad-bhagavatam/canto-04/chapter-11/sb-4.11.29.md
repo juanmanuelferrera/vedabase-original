@@ -1,11 +1,11 @@
 ### SB 4.11.29
 
-> तमेनमङ्गात्मनि मुक्तविग्रहे व्यपाश्रितं निर्गुणमेकमक्षरम् ।
+> तमेनमङ्गात्मनि मुक्तविग्रहे व्यपाश्रितं निर्गुणमेकमक्षरम् ।\
 > आत्मानमन्विच्छ विमुक्तमात्मदृग्यस्मिन्निदं भेदमसत्प्रतीयते ॥२९॥
 
-> tam enam aṅgātmani mukta-vigrahe
-> vyapāśritaṁ nirguṇam ekam akṣaram
-> ātmānam anviccha vimuktam ātma-dṛg
+> tam enam aṅgātmani mukta-vigrahe\
+> vyapāśritaṁ nirguṇam ekam akṣaram\
+> ātmānam anviccha vimuktam ātma-dṛg\
 > yasminn idaṁ bhedam asat pratīyate
 
 *tam*—a Él; *enam*—esa; *aṅga*—mi querido Dhruva; *ātmani*—en la mente; *mukta-vigrahe*—libre de ira; *vyapāśritam*—situado; *nirguṇam*—trascendental; *ekam*—uno; *akṣaram*—al Brahman infalible; *ātmānam*—el ser; *anviccha*—trata de encontrar; *vimuktam*—libre de contaminación; *ātma-dṛk*—volver el rostro hacia la Superalma; *yasmin*—en el cual; *idam*—esta; *bhedam*—diferencia; *asat*—irreal; *pratīyate*—se manifiesta.

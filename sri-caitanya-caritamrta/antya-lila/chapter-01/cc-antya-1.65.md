@@ -1,9 +1,9 @@
 ### CC Antya 1.65
 
-> আর দিন প্রভু রূপে মিলিয়া বসিলা  ।
+> আর দিন প্রভু রূপে মিলিয়া বসিলা  ।\
 > সর্বজ্ঞ-শিরোমণি প্রভু কহিতে লাগিলা ॥৬৫॥
 
-> āra dina prabhu rūpe miliyā vasilā
+> āra dina prabhu rūpe miliyā vasilā\
 > sarvajña-śiromaṇi prabhu kahite lāgilā
 
 *āra dina*—the next day; *prabhu*—Śrī Caitanya Mahāprabhu; *rūpe*—with Śrīla Rūpa Gosvāmī; *miliyā*—meeting; *vasilā*—sat down; *sarva-jña-śiromaṇi*—Śrī Caitanya Mahāprabhu, the best of the omniscient; *prabhu*—Śrī Caitanya Mahāprabhu; *kahite lāgilā*—began to speak.

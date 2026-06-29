@@ -1,9 +1,9 @@
 ### CC Antya 4.41
 
-> কৃপা করি’ মোরে আজ্ঞা দেহ’ দুইজন  ।
+> কৃপা করি’ মোরে আজ্ঞা দেহ’ দুইজন  ।\
 > জন্মে-জন্মে সেবোঁ রঘুনাথের চরণ ॥৪১॥
 
-> kṛpā kari' more ājñā deha' dui-jana
+> kṛpā kari' more ājñā deha' dui-jana\
 > janme-janme sevoṅ raghunāthera caraṇa
 
 *kṛpā kari'*—being merciful; *more*—unto me; *ājñā deha'*—give the order; *dui-jana*—both of you; *janme-janme*—life after life; *sevoṅ*—let me serve; *raghunāthera caraṇa*—the lotus feet of Lord Raghunātha.

@@ -1,11 +1,11 @@
 ### SB 8.8.7
 
-> ततोऽभवत्पारिजातः सुरलोकविभूषणम
+> ततोऽभवत्पारिजातः सुरलोकविभूषणम\
 > पूरयत्यर्थिनो योऽर्थैः शश्वद्भुवि यथा भवान ॥७॥
 
-> tataś cāpsaraso jātā
-> niṣka-kaṇṭhyaḥ suvāsasaḥ
-> ramaṇyaḥ svargiṇāṁ valgu-
+> tataś cāpsaraso jātā\
+> niṣka-kaṇṭhyaḥ suvāsasaḥ\
+> ramaṇyaḥ svargiṇāṁ valgu-\
 > gati-līlāvalokanaiḥ
 
 *tataḥ*—thereafter; *ca*—also; *apsarasaḥ*—the residents of Apsaroloka; *jātāḥ*—were generated; *niṣka-kaṇṭhyaḥ*—decorated with golden necklaces; *su-vāsasaḥ*—dressed with fine clothing; *ramaṇyaḥ*—extremely beautiful and attractive; *svargiṇām*—of the inhabitants of the heavenly planets; *valgu-gati-līlā-avalokanaiḥ*—moving very softly, they attract everyone's heart.

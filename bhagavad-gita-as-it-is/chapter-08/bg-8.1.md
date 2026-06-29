@@ -1,13 +1,13 @@
 ### Bg 8.1
 
-> अर्जुन उवाच ।
-> किं तद् ब्रह्म किमध्यात्मं किं कर्म पुरुषोत्तम ।
+> अर्जुन उवाच ।\
+> किं तद् ब्रह्म किमध्यात्मं किं कर्म पुरुषोत्तम ।\
 > अधिभूतं च किं प्रोक्तमधिदैवं किमुच्यते ॥१॥
 
-> arjuna uvāca
-> kiṁ tad brahma kim adhyātmaṁ
-> kiṁ karma puruṣottama
-> adhibhūtaṁ ca kiṁ proktam
+> arjuna uvāca\
+> kiṁ tad brahma kim adhyātmaṁ\
+> kiṁ karma puruṣottama\
+> adhibhūtaṁ ca kiṁ proktam\
 > adhidaivaṁ kim ucyate
 
 *arjunaḥ uvāca*—Arjuna said; *kim*—what; *tat*—that; *brahma*—Brahman; *kim*—what; *adhyātmam*—the self; *kim*—what; *karma*—fruitive activities; *puruṣottama*—O Supreme Person; *adhibhūtam*—the material manifestation; *ca*—and; *kim*—what; *proktam*—is called; *adhidaivam*—the demigods; *kim*—what; *ucyate*—is called.

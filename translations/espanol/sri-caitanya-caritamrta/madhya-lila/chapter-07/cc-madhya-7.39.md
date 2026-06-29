@@ -1,9 +1,9 @@
 ### CC Madhya 7.39
 
-> ‘কৃষ্ণদাস’-নামে এই সরল ব্রাহ্মণ ৷
+> ‘কৃষ্ণদাস’-নামে এই সরল ব্রাহ্মণ ৷\
 > ইঁহো সঙ্গে করি’ লহ, ধর নিবেদন ৷৷ ৩৯ ৷৷ ॥৩৯॥
 
-> 'kṛṣṇadāsa'-nāme ei sarala brāhmaṇa
+> 'kṛṣṇadāsa'-nāme ei sarala brāhmaṇa\
 > iṅho saṅge kari' laha, dhara nivedana
 
 *kṛṣṇadāsa-nāme*—de nombre Kṛṣṇadāsa; *ei*—este; *sarala*—sencillo; *brāhmaṇa*—*brāhmaṇa*; *iṅho*—él; *saṅge*—contigo; *kari'*—aceptando; *laha*—lleva; *dhara*—acepta; *nivedana*—la petición.

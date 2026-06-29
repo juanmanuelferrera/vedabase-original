@@ -1,9 +1,9 @@
 ### CC Madhya 11.34
 
-> চারি গোসাঞির কৈল রায় চরণ বন্দন ।
+> চারি গোসাঞির কৈল রায় চরণ বন্দন ।\
 > যথাযোগ্য সব ভক্তের করিল মিলন ॥৩৪॥
 
-> cāri gosāñira kaila rāya caraṇa vandana
+> cāri gosāñira kaila rāya caraṇa vandana\
 > yathā-yogya saba bhaktera karila milana
 
 *cāri gosāñira*—of the four *gosāñis,* or spiritual masters; *kaila*—did; *rāya*—Rāmānanda Rāya; *caraṇa vandana*—worshiping the lotus feet; *yathā-yogya*—as it is befitting; *saba*—all; *bhaktera*—of the devotees; *karila*—did; *milana*—meeting.

@@ -1,11 +1,11 @@
 ### SB 3.29.27
 
-> अथ मां सर्वभूतेषु भूतात्मानं कृतालयम् ।
+> अथ मां सर्वभूतेषु भूतात्मानं कृतालयम् ।\
 > अर्हयेद्दानमानाभ्यां मैत्र्याभिन्नेन चक्षुषा ॥२७॥
 
-> atha māṁ sarva-bhūteṣu
-> bhūtātmānaṁ kṛtālayam
-> arhayed dāna-mānābhyāṁ
+> atha māṁ sarva-bhūteṣu\
+> bhūtātmānaṁ kṛtālayam\
+> arhayed dāna-mānābhyāṁ\
 > maitryābhinnena cakṣuṣā
 
 *atha*—en consecuencia; *mām*—a Mí; *sarva-bhūteṣu*—en todas las criaturas; *bhūta-ātmānam*—el Ser en todos los seres; *kṛta-ālayam*—morando; *arhayet*—debe propiciar; *dāna-mānābhyām*—por medio de caridad y respeto; *maitryā*—por medio de amistad; *abhinnena*—ecuánime; *cakṣuṣā*—por ver.

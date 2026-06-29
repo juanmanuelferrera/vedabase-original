@@ -1,9 +1,9 @@
 ### CC Antya 4.228
 
-> সর্ব ত্যজি’ তেঁহো পাছে আইলা বৃন্দাবন ।
+> সর্ব ত্যজি’ তেঁহো পাছে আইলা বৃন্দাবন ।\
 > তেঁহ ভক্তিশাস্ত্র বহু কৈলা প্রচারণ ॥২২৮॥
 
-> sarva tyāji' teṅho pāche āilā vṛndāvana
+> sarva tyāji' teṅho pāche āilā vṛndāvana\
 > teṅha bhakti-śāstra bahu kailā pracāraṇa
 
 *sarva tyāji'*—renouncing everything; *teṅho*—he (Śrīla Jīva Gosvāmī); *pāche*—later; *āilā vṛndāvana*—came to Vṛndāvana; *teṅha*—he; *bhakti-śāstra*—books on devotional service; *bahu*—many; *kailā*—did; *pracāraṇa*—spreading.

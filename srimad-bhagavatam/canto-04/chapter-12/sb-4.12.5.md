@@ -1,11 +1,11 @@
 ### SB 4.12.5
 
-> तद्गच्छ ध्रुव भद्रं ते भगवन्तमधोक्षजम् ।
+> तद्गच्छ ध्रुव भद्रं ते भगवन्तमधोक्षजम् ।\
 > सर्वभूतात्मभावेन सर्वभूतात्मविग्रहम् ॥५॥
 
-> tad gaccha dhruva bhadraṁ te
-> bhagavantam adhokṣajam
-> sarva-bhūtātma-bhāvena
+> tad gaccha dhruva bhadraṁ te\
+> bhagavantam adhokṣajam\
+> sarva-bhūtātma-bhāvena\
 > sarva-bhūtātma-vigraham
 
 *tat*—therefore; *gaccha*—come; *dhruva*—Dhruva; *bhadram*—good fortune; *te*—unto you; *bhagavantam*—unto the Supreme Personality of Godhead; *adhokṣajam*—who is beyond the concepts of material senses; *sarva-bhūta*—all living entities; *ātma-bhāvena*—by thinking of them as one; *sarva-bhūta*—in all living entities; *ātma*—the Supersoul; *vigraham*—having form.

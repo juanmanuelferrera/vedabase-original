@@ -1,13 +1,13 @@
 ### SB 2.7.15
 
-> अन्तःसरस्युरुबलेन पदे गृहीतो
-> ग्राहेण यूथपतिरम्बुजहस्त आर्तः ।
-> आहेदमादिपुरुषाखिललोकनाथ
+> अन्तःसरस्युरुबलेन पदे गृहीतो\
+> ग्राहेण यूथपतिरम्बुजहस्त आर्तः ।\
+> आहेदमादिपुरुषाखिललोकनाथ\
 > तीर्थश्रवः श्रवणमङ्गलनामधेय ॥१५॥
 
-> antaḥ-sarasy uru-balena pade gṛhīto
-> grāheṇa yūtha-patir ambuja-hasta ārtaḥ
-> āhedam ādi-puruṣākhila-loka-nātha
+> antaḥ-sarasy uru-balena pade gṛhīto\
+> grāheṇa yūtha-patir ambuja-hasta ārtaḥ\
+> āhedam ādi-puruṣākhila-loka-nātha\
 > tīrtha-śravaḥ śravaṇa-maṅgala-nāmadheya
 
 *antaḥ-sarasi*—dentro del río; *uru-balena*—mediante fuerza superior; *pade*—pierna; *gṛhītaḥ*—siendo tomada; *grāheṇa*—por el cocodrilo; *yūtha-patiḥ*—el líder de los elefantes; *ambuja-hastaḥ*—con una flor de loto en la mano; *ārtaḥ*—grandemente acongojado; *āha*—le habló; *idam*—de la siguiente manera; *ādi-puruṣa*—el disfrutador original; *akhila-loka-nātha*—el Señor del universo; *tīrtha-śravaḥ*—tan famoso como un lugar de peregrinaje; *śravaṇa-maṅgala*—todo lo bueno simplemente por oír el nombre; *nāma-dheya*—cuyo santo nombre merece ser cantado.

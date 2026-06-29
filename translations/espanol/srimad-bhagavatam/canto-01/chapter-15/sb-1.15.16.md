@@ -1,11 +1,11 @@
 ### SB 1.15.16
 
-> यद्दोःषु मा प्रणिहितं गुरुभीष्मकर्ण नप्तृत्रिगर्तशल्यसैन्धवबाह्लिकाद्यैः ।
+> यद्दोःषु मा प्रणिहितं गुरुभीष्मकर्ण नप्तृत्रिगर्तशल्यसैन्धवबाह्लिकाद्यैः ।\
 > अस्त्राण्यमोघमहिमानि निरूपितानि नोपस्पृशुर्नृहरिदासमिवासुराणि ॥१६॥
 
-> yad-doḥṣu mā praṇihitaṁ guru-bhīṣma-karṇa-
-> naptṛ-trigarta-śalya-saindhava-bāhlikādyaiḥ
-> astrāṇy amogha-mahimāni nirūpitāni
+> yad-doḥṣu mā praṇihitaṁ guru-bhīṣma-karṇa-\
+> naptṛ-trigarta-śalya-saindhava-bāhlikādyaiḥ\
+> astrāṇy amogha-mahimāni nirūpitāni\
 > nopaspṛśur nṛhari-dāsam ivāsurāṇi
 
 *yat*—bajo cuya; *doḥṣu*—protección de los brazos; *mā praṇihitam*—encontrándome situado; *guru*—Droṇācārya; *bhīṣma*—Bhīṣma; *karṇa*—Karṇa; *naptṛ*—Bhūriśravā; *trigarta*—el rey Suśarmā; *śalya*—Śalya; *saindhava*—el rey Jayadratha; *bāhlika*—hermano de Mahārāja Śāntanu (el padre de Bhīṣma); *ādyaiḥ*—etc.; *astrāṇi*—armas; *amogha*—invencible; *mahimāni*—muy poderosos; *nirūpitāni*—aplicaron; *na*—no; *upaspṛśuḥ*—tocaron; *nṛhari-dāsam*—el servidor de Nṛsiṁhadeva (Prahlāda); *iva*—como; *asurāṇi*—armas empleadas por los demonios.

@@ -1,11 +1,11 @@
 ### SB 2.6.11
 
-> अव्यक्तरससिन्धूनां भूतानां निधनस्य च ।
+> अव्यक्तरससिन्धूनां भूतानां निधनस्य च ।\
 > उदरं विदितं पुंसो हृदयं मनसः पदम् ॥११॥
 
-> avyakta-rasa-sindhūnāṁ
-> bhūtānāṁ nidhanasya ca
-> udaraṁ viditaṁ puṁso
+> avyakta-rasa-sindhūnāṁ\
+> bhūtānāṁ nidhanasya ca\
+> udaraṁ viditaṁ puṁso\
 > hṛdayaṁ manasaḥ padam
 
 *avyakta*—the impersonal feature; *rasa-sindhūnām*—of the seas and oceans of water; *bhūtānām*—of those who take birth in the material world; *nidhanasya*—of the annihilation; *ca*—also; *udaram*—His belly; *viditam*—is known by the intelligent class of men; *puṁsaḥ*—of the great personality; *hṛdayam*—the heart; *manasaḥ*—of the subtle body; *padam*—the place.

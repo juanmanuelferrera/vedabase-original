@@ -1,11 +1,11 @@
 ### SB 1.6.20
 
-> एवं यतन्तं विजने मामाहागोचरो गिराम् ।
+> एवं यतन्तं विजने मामाहागोचरो गिराम् ।\
 > गम्भीरश्लक्ष्णया वाचा शुचः प्रशमयन्निव ॥२०॥
 
-> evaṁ yatantaṁ vijane
-> mām āhāgocaro girām
-> gambhīra-ślakṣṇayā vācā
+> evaṁ yatantaṁ vijane\
+> mām āhāgocaro girām\
+> gambhīra-ślakṣṇayā vācā\
 > śucaḥ praśamayann iva
 
 *evam*—así pues; *yatantam*—aquel que está tratando; *vijane*—en ese lugar solitario; *mām*—a mí; *āha*—dijo; *agocaraḥ*—más allá del alcance del sonido físico; *girām*—proferimientos; *gambhīra*—grave; *ślakṣṇayā*—agradable de oír; *vācā*—palabras; *śucaḥ*—congoja; *praśamayan*—mitigando; *iva*—como.

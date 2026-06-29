@@ -1,11 +1,11 @@
 ### SB 3.20.46
 
-> ते तु तज्जगृहू रूपं त्यक्तं यत्परमेष्ठिना ।
+> ते तु तज्जगृहू रूपं त्यक्तं यत्परमेष्ठिना ।\
 > मिथुनीभूय गायन्तस्तमेवोषसि कर्मभिः ॥४६॥
 
-> te tu taj jagṛhū rūpaṁ
-> tyaktaṁ yat parameṣṭhinā
-> mithunī-bhūya gāyantas
+> te tu taj jagṛhū rūpaṁ\
+> tyaktaṁ yat parameṣṭhinā\
+> mithunī-bhūya gāyantas\
 > tam evoṣasi karmabhiḥ
 
 *te*—ellos (los *kinnaras* y *kimpuruṣas*); *tu*—pero; *tat*—esa; *jagṛhuḥ*—se apoderaron de; *rūpam*—aquella forma reflejada; *tyaktam*—abandonada; *yat*—la cual; *parameṣṭhinā*—por Brahmā; *mithunī-bhūya*—en compañía de sus esposas; *gāyantaḥ*—cantan alabanzas; *tam*—a él; *eva*—solo; *uṣasi*—al amanecer; *karmabhiḥ*—con sus hazañas.

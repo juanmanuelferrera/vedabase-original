@@ -1,9 +1,9 @@
 ### CC Madhya 15.29
 
-> কানাঞি-খুটিয়া, জগন্নাথ, — দুইজন ।
+> কানাঞি-খুটিয়া, জগন্নাথ, — দুইজন ।\
 > আবেশে বিলাইল ঘরে ছিল যত ধন ॥২৯॥
 
-> kānāñi-khuṭiyā, jagannātha,--dui-jana
+> kānāñi-khuṭiyā, jagannātha,--dui-jana\
 > āveśe bilāila ghare chila yata dhana
 
 *kānāñi-khuṭiyā*—Kānāñi Khuṭiyā; *jagannātha*—Jagannātha Māhāti; *dui-jana*—dos personas; *āveśe*—en amor extático; *bilāila*—distribuyó; *ghare*—en casa; *chila*—había; *yata*—todas; *dhana*—riquezas.

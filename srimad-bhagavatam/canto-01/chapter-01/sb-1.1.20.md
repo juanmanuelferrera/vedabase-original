@@ -1,11 +1,11 @@
 ### SB 1.1.20
 
-> कृतवान्किल कर्माणि सह रामेण केशवः ।
+> कृतवान्किल कर्माणि सह रामेण केशवः ।\
 > अतिमर्त्यानि भगवान्गूढः कपटमानुषः ॥२०॥
 
-> kṛtavān kila karmāṇi
-> saha rāmeṇa keśavaḥ
-> atimartyāni bhagavān
+> kṛtavān kila karmāṇi\
+> saha rāmeṇa keśavaḥ\
+> atimartyāni bhagavān\
 > gūḍhaḥ kapaṭa-mānuṣaḥ
 
 *kṛtavān*—done by; *kila*—what; *karmāṇi*—acts; *saha*—along with; *rāmeṇa*—Balarāma; *keśavaḥ*—Śrī Kṛṣṇa; *atimartyāni*—superhuman; *bhagavān*—the Personality of Godhead; *gūḍhaḥ*—masked as; *kapaṭa*—apparently; *mānuṣaḥ*—human being.

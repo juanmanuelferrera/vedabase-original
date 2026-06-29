@@ -1,11 +1,11 @@
 ### SB 3.25.9
 
-> य आद्यो भगवान्पुंसामीश्वरो वै भवान्किल ।
+> य आद्यो भगवान्पुंसामीश्वरो वै भवान्किल ।\
 > लोकस्य तमसान्धस्य चक्षुः सूर्य इवोदितः ॥९॥
 
-> ya ādyo bhagavān puṁsām
-> īśvaro vai bhavān kila
-> lokasya tamasāndhasya
+> ya ādyo bhagavān puṁsām\
+> īśvaro vai bhavān kila\
+> lokasya tamasāndhasya\
 > cakṣuḥ sūrya ivoditaḥ
 
 *yaḥ*—aquel que; *ādyaḥ*—el origen; *bhagavān*—la Suprema Personalidad de Dios; *puṁsām*—de todas las entidades vivientes; *īśvaraḥ*—el Señor; *vai*—de hecho; *bhavān*—Tú; *kila*—en verdad; *lokasya*—del universo; *tamasā*—por la oscuridad de la ignorancia; *andhasya*—cegado; *cakṣuḥ*—ojo; *sūryaḥ*—el Sol; *iva*—como; *uditaḥ*—aparecido.

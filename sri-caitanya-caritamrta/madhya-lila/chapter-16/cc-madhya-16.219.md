@@ -1,9 +1,9 @@
 ### CC Madhya 16.219
 
-> নদীয়া-বাসী ব্রাহ্মণের উপজীব্য-প্রায় ।
+> নদীয়া-বাসী ব্রাহ্মণের উপজীব্য-প্রায় ।\
 > অর্থ, ভূমি, গ্রাম দিয়া করেন সহায় ॥২১৯॥
 
-> nadīyā-vāsī, brāhmaṇera upajīvya-prāya
+> nadīyā-vāsī, brāhmaṇera upajīvya-prāya\
 > artha, bhūmi, grāma diyā karena sahāya
 
 *nadīyā-vāsī*—inhabitants of Nadia; *brāhmaṇera*—of all *brāhmaṇas*; *upajīvya-prāya*—almost the entire source of income; *artha*—money; *bhūmi*—land; *grāma*—villages; *diyā*—giving as charity; *karena sahāya*—give help.

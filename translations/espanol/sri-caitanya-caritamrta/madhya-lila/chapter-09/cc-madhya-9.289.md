@@ -1,9 +1,9 @@
 ### CC Madhya 9.289
 
-> শ্রীপাদ, ধর মোর গোসাঞির সম্বন্ধ ৷
+> শ্রীপাদ, ধর মোর গোসাঞির সম্বন্ধ ৷\
 > তাহা বিনা অন্যত্র নাহি এই প্রেমার গন্ধ ৷৷ ২৮৯ ৷৷ ॥২৮৯॥
 
-> śrīpāda, dhara mora gosāñira sambandha
+> śrīpāda, dhara mora gosāñira sambandha\
 > tāhā vinā anyatra nāhi ek premāra gandha
 
 *śrī-pāda*—oh, Su Santidad; *dhara*—mantienes; *mora*—mi; *gosāñira*—con Śrī Mādhavendra Purī; *sambandha*—relación; *tāhā vinā*—sin él; *anyatra*—en ninguna otra parte; *nāhi*—no hay; *ei*—esta; *premāra*—de éxtasis; *gandha*—fragancia.

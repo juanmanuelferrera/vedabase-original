@@ -1,9 +1,9 @@
 ### CC Adi 12.18
 
-> কৃষ্ণমিশ্র-নাম আর আচার্য তনয় ।
+> কৃষ্ণমিশ্র-নাম আর আচার্য তনয় ।\
 > চৈতন্য-গোসাঞি বৈসে যাঁহার হৃদয় ॥১৮॥
 
-> kṛṣṇa-miśra-nāma āra ācārya-tanaya
+> kṛṣṇa-miśra-nāma āra ācārya-tanaya\
 > caitanya-gosāñi baise yāṅhāra hṛdaya
 
 *kṛṣṇa-miśra*—of the name Kṛṣṇa Miśra; *nāma*—name; *āra*—and; *ācārya-tanaya*—the son of Advaita Ācārya; *caitanya-gosāñi*—Lord Caitanya Mahāprabhu; *baise*—sits; *yāṅhāra*—in whose; *hṛdaya*—heart.

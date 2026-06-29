@@ -1,11 +1,11 @@
 ### SB 2.4.20
 
-> श्रियः पतिर्यज्ञपतिः प्रजापतिर्धियां पतिर्लोकपतिर्धरापतिः ।
+> श्रियः पतिर्यज्ञपतिः प्रजापतिर्धियां पतिर्लोकपतिर्धरापतिः ।\
 > पतिर्गतिश्चान्धकवृष्णिसात्वतां प्रसीदतां मे भगवान्सतां पतिः ॥२०॥
 
-> śriyaḥ patir yajña-patiḥ prajā-patir
-> dhiyāṁ patir loka-patir dharā-patiḥ
-> patir gatiś cāndhaka-vṛṣṇi-sātvatāṁ
+> śriyaḥ patir yajña-patiḥ prajā-patir\
+> dhiyāṁ patir loka-patir dharā-patiḥ\
+> patir gatiś cāndhaka-vṛṣṇi-sātvatāṁ\
 > prasīdatāṁ me bhagavān satāṁ patiḥ
 
 *śriyaḥ*—all opulence; *patiḥ*—the owner; *yajña*—of sacrifice; *patiḥ*—the director; *prajā-patiḥ*—the leader of all living entities; *dhiyām*—of intelligence; *patiḥ*—the master; *loka-patiḥ*—the proprietor of all planets; *dharā*—earth; *patiḥ*—the supreme; *patiḥ*—head; *gatiḥ*—destination; *ca*—also; *andhaka*—one of the kings of the Yadu dynasty; *vṛṣṇi*—the first king of the Yadu dynasty; *sātvatām*—the Yadus; *prasīdatām*—be merciful; *me*—upon me; *bhagavān*—Lord Śrī Kṛṣṇa; *satām*—of all devotees; *patiḥ*—the Lord.

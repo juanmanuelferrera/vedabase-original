@@ -1,9 +1,9 @@
 ### CC Madhya 17.89
 
-> প্রভুরে নিমন্ত্রণ করি’ ঘরে ভিক্ষা দিল ।
+> প্রভুরে নিমন্ত্রণ করি’ ঘরে ভিক্ষা দিল ।\
 > বলভদ্র-ভট্টাচার্যে পাক করাইল ॥৮৯॥
 
-> prabhure nimantraṇa kari' ghare bhikṣā dila
+> prabhure nimantraṇa kari' ghare bhikṣā dila\
 > balabhadra-bhaṭṭācārye pāka karāila
 
 *prabhure nimantraṇa kari'*—inviting the Lord; *ghare*—at home; *bhikṣā dila*—gave lunch; *balabhadra-bhaṭṭācārye*—Balabhadra Bhaṭṭācārya; *pāka karāila*—he had cook.

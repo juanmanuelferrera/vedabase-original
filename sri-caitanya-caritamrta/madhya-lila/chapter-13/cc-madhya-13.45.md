@@ -1,9 +1,9 @@
 ### CC Madhya 13.45
 
-> শান্তিপুরের আচার্যের এক সম্প্রদায় ।
+> শান্তিপুরের আচার্যের এক সম্প্রদায় ।\
 > অচ্যুতানন্দ নাচে তথা, আর সব গায় ॥৪৫॥
 
-> śāntipurera ācāryera eka sampradāya
+> śāntipurera ācāryera eka sampradāya\
 > acyutānanda nāce tathā, āra saba gāya
 
 *śāntipurera*—of Śāntipura; *ācāryera*—of Advaita Ācārya; *eka*—one; *sampradāya*—group; *acyutānanda*—the son of Advaita Ācārya; *nāce*—dances; *tathā*—there; *āra*—the rest; *saba*—all; *gāya*—were singing.

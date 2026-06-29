@@ -1,11 +1,11 @@
 ### SB 7.14.17
 
-> न ह्यग्निमुखतोऽयं वै भगवान्सर्वयज्ञअभुक
+> न ह्यग्निमुखतोऽयं वै भगवान्सर्वयज्ञअभुक\
 > इज्येत हविषा राजन्यथा विप्रमुखे हुतैः ॥१७॥
 
-> na hy agni-mukhato 'yaṁ vai
-> bhagavān sarva-yajña-bhuk
-> ijyeta haviṣā rājan
+> na hy agni-mukhato 'yaṁ vai\
+> bhagavān sarva-yajña-bhuk\
+> ijyeta haviṣā rājan\
 > yathā vipra-mukhe hutaiḥ
 
 *na*—not; *hi*—indeed; *agni*—fire; *mukhataḥ*—from the mouth or the flames; *ayam*—this; *vai*—certainly; *bhagavān*—Lord Śrī Kṛṣṇa; *sarva-yajña-bhuk*—the enjoyer of the results of all kinds of sacrifices; *ijyeta*—is worshiped; *haviṣā*—by offering of clarified butter; *rājan*—O King; *yathā*—as much as; *vipra-mukhe*—through the mouth of a *brāhmaṇa*; *hutaiḥ*—by offering him first-class food.

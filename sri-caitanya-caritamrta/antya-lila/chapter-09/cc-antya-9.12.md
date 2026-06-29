@@ -1,9 +1,9 @@
 ### CC Antya 9.12
 
-> প্রভুর দর্শনে সব লোক প্রেমে ভাসে ।
+> প্রভুর দর্শনে সব লোক প্রেমে ভাসে ।\
 > এইমত যায় প্রভুর রাত্রি-দিবসে ॥১২॥
 
-> prabhura darśane saba loka preme bhāse
+> prabhura darśane saba loka preme bhāse\
 > ei-mata yāya prabhura rātri-divase
 
 *prabhura darśane*—by seeing Śrī Caitanya Mahāprabhu; *saba loka*—all the people; *preme bhāse*—became inundated in ecstatic love; *ei-mata*—in this way; *yāya*—passes; *prabhura*—of Śrī Caitanya Mahāprabhu; *rātri-divase*—night and day.

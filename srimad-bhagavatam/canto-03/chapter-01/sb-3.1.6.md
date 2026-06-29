@@ -1,13 +1,13 @@
 ### SB 3.1.6
 
-> श्रीशुक उवाच
-> यदा तु राजा स्वसुतानसाधून्पुष्णन्न धर्मेण विनष्टदृष्टिः ।
+> श्रीशुक उवाच\
+> यदा तु राजा स्वसुतानसाधून्पुष्णन्न धर्मेण विनष्टदृष्टिः ।\
 > भ्रातुर्यविष्ठस्य सुतान्विबन्धून्प्रवेश्य लाक्षाभवने ददाह ॥६॥
 
-> śrī-śuka uvāca
-> yadā tu rājā sva-sutān asādhūn
-> puṣṇan na dharmeṇa vinaṣṭa-dṛṣṭiḥ
-> bhrātur yaviṣṭhasya sutān vibandhūn
+> śrī-śuka uvāca\
+> yadā tu rājā sva-sutān asādhūn\
+> puṣṇan na dharmeṇa vinaṣṭa-dṛṣṭiḥ\
+> bhrātur yaviṣṭhasya sutān vibandhūn\
 > praveśya lākṣā-bhavane dadāha
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *yadā*—when; *tu*—but; *rājā*—King Dhṛtarāṣṭra; *sva-sutān*—his own sons; *asādhūn*—dishonest; *puṣṇan*—nourishing; *na*—never; *dharmeṇa*—on the right path; *vinaṣṭa-dṛṣṭiḥ*—one who has lost his insight; *bhrātuḥ*—of his brother; *yaviṣṭhasya*—younger; *sutān*—sons; *vibandhūn*—having no guardian (father); *praveśya*—made to enter; *lākṣā*—lacquer; *bhavane*—in the house; *dadāha*—set on fire.

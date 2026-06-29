@@ -1,18 +1,18 @@
 ### SB 3.27.28-29
 
-> मद्भक्तः प्रतिबुद्धार्थो मत्प्रसादेन भूयसा ।
-> निःश्रेयसं स्वसंस्थानं कैवल्याख्यं मदाश्रयम् ॥२८॥
-> प्राप्नोतीहाञ्जसा धीरः स्वदृशा च्छिन्नसंशयः ।
+> मद्भक्तः प्रतिबुद्धार्थो मत्प्रसादेन भूयसा ।\
+> निःश्रेयसं स्वसंस्थानं कैवल्याख्यं मदाश्रयम् ॥२८॥\
+> प्राप्नोतीहाञ्जसा धीरः स्वदृशा च्छिन्नसंशयः ।\
 > यद्गत्वा न निवर्तेत योगी लिङ्गाद्विनिर्गमे ॥२९॥
 
-> mad-bhaktaḥ pratibuddhārtho
-> mat-prasādena bhūyasā
-> niḥśreyasaṁ sva-saṁsthānaṁ
+> mad-bhaktaḥ pratibuddhārtho\
+> mat-prasādena bhūyasā\
+> niḥśreyasaṁ sva-saṁsthānaṁ\
 > kaivalyākhyaṁ mad-āśrayam
 
-> prāpnotīhāñjasā dhīraḥ
-> sva-dṛśā cchinna-saṁśayaḥ
-> yad gatvā na nivarteta
+> prāpnotīhāñjasā dhīraḥ\
+> sva-dṛśā cchinna-saṁśayaḥ\
+> yad gatvā na nivarteta\
 > yogī liṅgād vinirgame
 
 *mat-bhaktaḥ*—My devotee; *pratibuddha-arthaḥ*—self-realized; *mat-prasādena*—by My causeless mercy; *bhūyasā*—unlimited; *niḥśreyasam*—the ultimate perfectional goal; *sva-saṁsthānam*—his abode; *kaivalya-ākhyam*—called *kaivalya*; *mat-āśrayam*—under My protection; *prāpnoti*—attains; *iha*—in this life; *añjasā*—truly; *dhīraḥ*—steady; *sva-dṛśā*—by knowledge of the self; *chinna-saṁśayaḥ*—freed from doubts; *yat*—to that abode; *gatvā*—having gone; *na*—never; *nivarteta*—comes back; *yogī*—the mystic devotee; *liṅgāt*—from the subtle and gross material bodies; *vinirgame*—after departing.

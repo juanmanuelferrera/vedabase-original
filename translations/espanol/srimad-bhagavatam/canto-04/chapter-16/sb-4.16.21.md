@@ -1,11 +1,11 @@
 ### SB 4.16.21
 
-> अस्मै नृपालाः किल तत्र तत्र बलिं हरिष्यन्ति सलोकपालाः ।
+> अस्मै नृपालाः किल तत्र तत्र बलिं हरिष्यन्ति सलोकपालाः ।\
 > मंस्यन्त एषां स्त्रिय आदिराजं चक्रायुधं तद्यश उद्धरन्त्यः ॥२१॥
 
-> asmai nṛ-pālāḥ kila tatra tatra
-> baliṁ hariṣyanti saloka-pālāḥ
-> maṁsyanta eṣāṁ striya ādi-rājaṁ
+> asmai nṛ-pālāḥ kila tatra tatra\
+> baliṁ hariṣyanti saloka-pālāḥ\
+> maṁsyanta eṣāṁ striya ādi-rājaṁ\
 > cakrāyudhaṁ tad-yaśa uddharantyaḥ
 
 *asmai*—a él; *nṛ-pālāḥ*—todos los reyes; *kila*—ciertamente; *tatra tatra*—aquí y allí; *balim*—presentes; *hariṣyanti*—ofrecerán; *sa*—con; *loka-pālāḥ*—los semidioses; *maṁsyante*—considerarán; *eṣām*—de esos reyes; *striyaḥ*—esposas; *ādi-rājam*—el rey original; *cakra-āyudham*—armado con el disco; *tat*—su; *yaśaḥ*—fama; *uddharantyaḥ*—llevando.

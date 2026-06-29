@@ -1,11 +1,11 @@
 ### SB 5.1.40
 
-> भूसंस्थानं कृतं येन सरिद्गिरिवनादिभिः
+> भूसंस्थानं कृतं येन सरिद्गिरिवनादिभिः\
 > सीमा च भूतनिर्वृत्यै द्वीपे द्वीपे विभागशः ॥३९॥
 
-> bhū-saṁsthānaṁ kṛtaṁ yena
-> sarid-giri-vanādibhiḥ
-> sīmā ca bhūta-nirvṛtyai
+> bhū-saṁsthānaṁ kṛtaṁ yena\
+> sarid-giri-vanādibhiḥ\
+> sīmā ca bhūta-nirvṛtyai\
 > dvīpe dvīpe vibhāgaśaḥ
 
 *bhū-saṁsthānam*—la situación de la Tierra; *kṛtam*—hecha; *yena*—por quien; *sarit*—por ríos; *giri*—por colinas y montañas; *vana-ādibhiḥ*—por bosques, etc.; *sīmā*—fronteras; *ca*—también; *bhūta*—de distintas naciones; *nirvṛtyai*—para acabar con las guerras; *dvīpe dvīpe*—en las diversas islas; *vibhāgaśaḥ*—por separado.

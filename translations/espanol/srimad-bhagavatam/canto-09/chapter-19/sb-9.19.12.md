@@ -1,11 +1,11 @@
 ### SB 9.19.12
 
-> तथाहं कृपणः सुभ्रु भवत्याः प्रेमयन्त्रितः
+> तथाहं कृपणः सुभ्रु भवत्याः प्रेमयन्त्रितः\
 > आत्मानं नाभिजानामि मोहितस्तव मायया ॥१२॥
 
-> tathāhaṁ kṛpaṇaḥ subhru
-> bhavatyāḥ prema-yantritaḥ
-> ātmānaṁ nābhijānāmi
+> tathāhaṁ kṛpaṇaḥ subhru\
+> bhavatyāḥ prema-yantritaḥ\
+> ātmānaṁ nābhijānāmi\
 > mohitas tava māyayā
 
 *tathā*—exactamente igual que el macho cabrío; *aham*—yo; *kṛpaṇaḥ*—un avaro que no entiende la importancia de la vida; *su-bhru*—¡oh, esposa mía de hermosas cejas!; *bhavatyāḥ*—en tu compañía; *prema-yantritaḥ*—como ligado por lazos de amor, que en realidad son de lujuria; *ātmānam*—autorrealización (qué soy yo y cuál es mi deber); *na abhijānāmi*—no he podido comprender ni aún ahora; *mohitaḥ*—confundido; *tava*—tuyo; *māyayā*—por el aspecto materialmente atractivo.

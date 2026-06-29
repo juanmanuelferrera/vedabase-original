@@ -1,18 +1,18 @@
 ### CC Madhya 11.29-30
 
-> আদরঃ পরিচর্যায়াং সর্বাঙ্গৈরভিবন্দনম্ ।
-> মদ্ভক্তপূজাভ্যধিকা সর্বভূতেষু মন্মতিঃ ॥২৯॥
-> মদর্থেষ্বঙ্গচেষ্টা চ বচসা মদ্গুণেরণম্ ।
+> আদরঃ পরিচর্যায়াং সর্বাঙ্গৈরভিবন্দনম্ ।\
+> মদ্ভক্তপূজাভ্যধিকা সর্বভূতেষু মন্মতিঃ ॥২৯॥\
+> মদর্থেষ্বঙ্গচেষ্টা চ বচসা মদ্গুণেরণম্ ।\
 > ময্যর্পণঞ্চ মনসঃ সর্বকামবিবর্জনম্ ॥৩০॥
 
-> ādaraḥ paricaryāyāṁ
-> sarvāṅgair abhivandanam
-> mad-bhakta-pūjābhyadhikā
+> ādaraḥ paricaryāyāṁ\
+> sarvāṅgair abhivandanam\
+> mad-bhakta-pūjābhyadhikā\
 > sarva-bhūteṣu man-matiḥ
 
-> mad-artheṣv aṅga-ceṣṭā ca
-> vacasā mad-guṇeraṇam
-> mayy arpaṇaṁ ca manasaḥ
+> mad-artheṣv aṅga-ceṣṭā ca\
+> vacasā mad-guṇeraṇam\
+> mayy arpaṇaṁ ca manasaḥ\
 > sarva-kāma-vivarjanam
 
 *ādaraḥ*—respect, care; *paricaryāyām*—in service; *sarva-aṅgaiḥ*—by all the parts of the body; *abhivandanam*—offering obeisances; *mat-bhakta*—of My devotees; *pūjā*—worshiping; *abhyadhikā*—very high; *sarva-bhūteṣu*—in all living entities; *mat-matiḥ*—realization of having a relationship with Me; *mat-artheṣu*—for the sake of My service; *aṅga-ceṣṭāḥ*—engaging the bodily energy; *ca*—and; *vacasā*—by words; *mat-guṇa-īraṇam*—describing My glories; *mayi*—unto Me; *arpaṇam*—dedicating; *ca*—and; *manasaḥ*—of the mind; *sarva-kāma*—all material desires; *vivarjanam*—giving up.

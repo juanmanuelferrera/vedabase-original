@@ -1,11 +1,11 @@
 ### SB 9.24.66
 
-> जातो गतः पितृगृहाद्व्रजमेधितार्थो हत्वा रिपून्सुतशतानि कृतोरुदारः
+> जातो गतः पितृगृहाद्व्रजमेधितार्थो हत्वा रिपून्सुतशतानि कृतोरुदारः\
 > उत्पाद्य तेषु पुरुषः क्रतुभिः समीजे आत्मानमात्मनिगमं प्रथयन्जनेषु ॥६६॥
 
-> jāto gataḥ pitṛ-gṛhād vrajam edhitārtho
-> hatvā ripūn suta-śatāni kṛtorudāraḥ
-> utpādya teṣu puruṣaḥ kratubhiḥ samīje
+> jāto gataḥ pitṛ-gṛhād vrajam edhitārtho\
+> hatvā ripūn suta-śatāni kṛtorudāraḥ\
+> utpādya teṣu puruṣaḥ kratubhiḥ samīje\
 > ātmānam ātma-nigamaṁ prathayañ janeṣu
 
 *jātaḥ*—después de nacer como hijo de Vasudeva; *gataḥ*—Se fue; *pitṛ-gṛhāt*—de las casas de Su padre; *vrajam*—a Vṛndāvana; *edhita-arthaḥ*—para enaltecer la posición (de Vṛndāvana); *hatvā*—matar allí; *ripūn*—a muchos demonios; *suta-śatāni*—cientos de hijos; *kṛta-urudāraḥ*—aceptar miles de esposas, las mejores de las mujeres; *utpādya*—engendró; *teṣu*—en ellas; *puruṣaḥ*—la Persona Suprema, cuya forma es igual a la del ser humano; *kratubhiḥ*—con muchos sacrificios; *samīje*—adoró; *ātmānam*—a Sí mismo (pues Él es la persona adorada en todos los sacrificios); *ātma-nigamam*—en estricta conformidad con las ceremonias rituales de los *Vedas*; *prathayan*—expandir los principios védicos; *janeṣu*—entre la gente.

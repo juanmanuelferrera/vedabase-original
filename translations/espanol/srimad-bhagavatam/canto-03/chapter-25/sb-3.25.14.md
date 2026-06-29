@@ -1,11 +1,11 @@
 ### SB 3.25.14
 
-> तमिमं ते प्रवक्ष्यामि यमवोचं पुरानघे ।
+> तमिमं ते प्रवक्ष्यामि यमवोचं पुरानघे ।\
 > ऋषीणां श्रोतुकामानां योगं सर्वाङ्गनैपुणम् ॥१४॥
 
-> tam imaṁ te pravakṣyāmi
-> yam avocaṁ purānaghe
-> ṛṣīṇāṁ śrotu-kāmānāṁ
+> tam imaṁ te pravakṣyāmi\
+> yam avocaṁ purānaghe\
+> ṛṣīṇāṁ śrotu-kāmānāṁ\
 > yogaṁ sarvāṅga-naipuṇam
 
 *tam imam*—ese mismo; *te*—a ti; *pravakṣyāmi*—voy a explicar; *yam*—el cual; *avocam*—Yo expliqué; *purā*—en el pasado; *anaghe*—¡oh, piadosa madre!; *ṛṣīṇām*—a los sabios; *śrotu-kāmānām*—deseosos de escuchar; *yogam*—sistema de *yoga*; *sarva-aṅga*—en todo aspecto; *naipuṇam*—provechoso y práctico.

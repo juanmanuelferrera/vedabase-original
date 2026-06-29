@@ -1,9 +1,9 @@
 ### CC Madhya 20.243
 
-> প্রকাশ-বিলাসের এই কৈলুঁ বিবরণ ।
+> প্রকাশ-বিলাসের এই কৈলুঁ বিবরণ ।\
 > স্বাংশের ভেদ এবে শুন, সনাতন ॥২৪৩॥
 
-> prakāśa-vilāsera ei kailuṅ vivaraṇa
+> prakāśa-vilāsera ei kailuṅ vivaraṇa\
 > svāṁśera bheda ebe śuna, sanātana
 
 *prakāśa-vilāsera*—de las formas de pasatiempos y manifestaciones; *ei*—esta; *kailuṅ*—he hecho; *vivaraṇa*—descripción; *svāṁśera*—de las expansiones personales; *bhede*—las diferencias; *ebe*—ahora; *śuna*—por favor escucha; *sanātana*—¡oh, Sanātana Gosvāmī!.

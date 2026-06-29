@@ -1,11 +1,11 @@
 ### SB 4.28.13
 
-> यवनोपरुद्धायतनो ग्रस्तायां कालकन्यया ।
+> यवनोपरुद्धायतनो ग्रस्तायां कालकन्यया ।\
 > पुर्यां प्रज्वारसंसृष्टः पुरपालोऽन्वतप्यत ॥१३॥
 
-> yavanoparuddhāyatano
-> grastāyāṁ kāla-kanyayā
-> puryāṁ prajvāra-saṁsṛṣṭaḥ
+> yavanoparuddhāyatano\
+> grastāyāṁ kāla-kanyayā\
+> puryāṁ prajvāra-saṁsṛṣṭaḥ\
 > pura-pālo 'nvatapyata
 
 *yavana*—by the Yavanas; *uparuddha*—attacked; *āyatanaḥ*—his abode; *grastāyām*—when seized; *kāla-kanyayā*—by the daughter of Time; *puryām*—the city; *prajvāra-saṁsṛṣṭaḥ*—being approached by Prajvāra; *pura-pālaḥ*—the city superintendent; *anvatapyata*—became also very much aggrieved.

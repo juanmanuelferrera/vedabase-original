@@ -1,9 +1,9 @@
 ### CC Adi 17.230
 
-> তবে ত’ করিলা সব ভক্তে বর দান ।
+> তবে ত’ করিলা সব ভক্তে বর দান ।\
 > উচ্ছিষ্ট দিয়া নারায়ণীর করিল সম্মান ॥২৩০॥
 
-> tabe ta' karilā saba bhakte vara dāna
+> tabe ta' karilā saba bhakte vara dāna\
 > ucchiṣṭa diyā nārāyaṇīra karila sammāna
 
 *tabe*—después de eso; *ta'*—ciertamente; *karilā*—concedió; *saba bhakte*—a todos los devotos; *vara*—bendición; *dāna*—caridad; *ucchiṣṭa*—restos de comida; *diyā*—dando; *nārāyaṇīra*—de Nārāyaṇī; *karila*—mostró; *sammāna*—respeto.

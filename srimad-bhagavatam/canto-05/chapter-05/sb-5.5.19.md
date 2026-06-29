@@ -1,11 +1,11 @@
 ### SB 5.5.19
 
-> इदं शरीरं मम दुर्विभाव्यं सत्त्वं हि मे हृदयं यत्र धर्मः
+> इदं शरीरं मम दुर्विभाव्यं सत्त्वं हि मे हृदयं यत्र धर्मः\
 > पृष्ठे कृतो मे यदधर्म आरादतो हि मामृषभं प्राहुरार्याः ॥१९॥
 
-> idaṁ śarīraṁ mama durvibhāvyaṁ
-> sattvaṁ hi me hṛdayaṁ yatra dharmaḥ
-> pṛṣṭhe kṛto me yad adharma ārād
+> idaṁ śarīraṁ mama durvibhāvyaṁ\
+> sattvaṁ hi me hṛdayaṁ yatra dharmaḥ\
+> pṛṣṭhe kṛto me yad adharma ārād\
 > ato hi mām ṛṣabhaṁ prāhur āryāḥ
 
 *idam*—this; *śarīram*—transcendental body, *sac-cid-ānanda-vigraha*; *mama*—My; *durvibhāvyam*—inconceivable; *sattvam*—with no tinge of the material modes of nature; *hi*—indeed; *me*—My; *hṛdayam*—heart; *yatra*—wherein; *dharmaḥ*—the real platform of religion, *bhakti-yoga*; *pṛṣṭhe*—on the back; *kṛtaḥ*—made; *me*—by Me; *yat*—because; *adharmaḥ*—irreligion; *ārāt*—far away; *ataḥ*—therefore; *hi*—indeed; *mām*—Me; *ṛṣabham*—the best of the living beings; *prāhuḥ*—call; *āryāḥ*—those who are advanced in spiritual life, or the respectable superiors.

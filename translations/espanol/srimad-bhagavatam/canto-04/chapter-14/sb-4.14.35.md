@@ -1,11 +1,11 @@
 ### SB 4.14.35
 
-> ऋषिभिः स्वाश्रमपदं गते पुत्रकलेवरम् ।
+> ऋषिभिः स्वाश्रमपदं गते पुत्रकलेवरम् ।\
 > सुनीथा पालयामास विद्यायोगेन शोचती ॥३५॥
 
-> ṛṣibhiḥ svāśrama-padaṁ
-> gate putra-kalevaram
-> sunīthā pālayām āsa
+> ṛṣibhiḥ svāśrama-padaṁ\
+> gate putra-kalevaram\
+> sunīthā pālayām āsa\
 > vidyā-yogena śocatī
 
 *ṛṣibhiḥ*—por los sabios; *sva-āśrama-padam*—a sus propias ermitas respectivas; *gate*—habiendo regresado; *putra*—de su hijo; *kalevaram*—el cuerpo; *sunīthā*—Sunīthā, la madre del rey Vena; *pālayām āsa*—preservar de la descomposición; *vidyā-yogena*—con *mantras* e ingredientes; *śocatī*—mientras se lamentaba.

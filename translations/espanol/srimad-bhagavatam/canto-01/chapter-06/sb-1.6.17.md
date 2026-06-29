@@ -1,11 +1,11 @@
 ### SB 1.6.17
 
-> प्रेमातिभरनिर्भिन्न पुलकाङ्गोऽतिनिर्वृतः ।
+> प्रेमातिभरनिर्भिन्न पुलकाङ्गोऽतिनिर्वृतः ।\
 > आनन्दसम्प्लवे लीनो नापश्यमुभयं मुने ॥१७॥
 
-> premātibhara-nirbhinna-
-> pulakāṅgo 'tinirvṛtaḥ
-> ānanda-samplave līno
+> premātibhara-nirbhinna-\
+> pulakāṅgo 'tinirvṛtaḥ\
+> ānanda-samplave līno\
 > nāpaśyam ubhayaṁ mune
 
 *premā*—amor; *atibhara*—excesivo; *nirbhinna*—especialmente distinguido; *pulaka*—sentimientos de felicidad; *aṅgaḥ*—diferentes partes del cuerpo; *ati-nirvṛtaḥ*—estando totalmente sobrecogido; *ānanda*—éxtasis; *samplave*—en el océano de; *līnaḥ*—absorto; *na*—no; *apaśyam*—podía ver; *ubhayam*—ambos; *mune*—¡oh, Vyāsadeva!.

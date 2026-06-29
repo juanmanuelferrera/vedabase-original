@@ -1,9 +1,9 @@
 ### CC Madhya 3.33
 
-> আচার্য কহে, — তুমি যাহাঁ, সেই বৃন্দাবন ।
+> আচার্য কহে, — তুমি যাহাঁ, সেই বৃন্দাবন ।\
 > মোর ভাগ্যে গঙ্গাতীরে তোমার আগমন ॥৩৩॥
 
-> ācārya kahe—tumi yāhāṅ, sei vṛndāvana
+> ācārya kahe—tumi yāhāṅ, sei vṛndāvana\
 > mora bhāgye gaṅgā-tīre tomāra āgamana
 
 *ācāryakahe*—Ācārya replied; *tumi yāhāṅ*—wherever You are; *sei*—that; *vṛndāvana*—Vṛndāvana; *mora bhāgye*—by My great fortune; *gaṅgā-tīre*—on the bank of the Ganges; *tomāra āgamana*—Your appearance.

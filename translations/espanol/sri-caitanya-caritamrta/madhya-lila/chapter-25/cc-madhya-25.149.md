@@ -1,13 +1,13 @@
 ### CC Madhya 25.149
 
-> ধর্মঃ প্রোজ্ঝিতকৈতবোঽত্র পরমো নির্মৎসরাণাং সতাং
-> বেদ্যং বাস্তবমত্র বস্তু শিবদং তাপত্রয়োন্মূলনম্ ৷
-> শ্রীমদ্ভাগবতে মহামুনিকৃতে কিংবাপরৈরীশ্বরঃ
+> ধর্মঃ প্রোজ্ঝিতকৈতবোঽত্র পরমো নির্মৎসরাণাং সতাং\
+> বেদ্যং বাস্তবমত্র বস্তু শিবদং তাপত্রয়োন্মূলনম্ ৷\
+> শ্রীমদ্ভাগবতে মহামুনিকৃতে কিংবাপরৈরীশ্বরঃ\
 > সদ্যো হৃদ্যবরুধ্যতেঽত্র কৃতিভিঃ শুশ্রূষুভিস্তৎক্ষণাৎ ৷৷ ১৪৯ ৷৷ ॥১৪৯॥
 
-> dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satāṁ
-> vedyaṁ vāstavam atra vastu śivadaṁ tāpa-trayonmūlanam
-> śrīmad-bhāgavate mahāmuni-kṛte kiṁ vā parair īśvaraḥ
+> dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satāṁ\
+> vedyaṁ vāstavam atra vastu śivadaṁ tāpa-trayonmūlanam\
+> śrīmad-bhāgavate mahāmuni-kṛte kiṁ vā parair īśvaraḥ\
 > sadyo hṛdy avarudhyate 'tra kṛtibhiḥ śuśrūṣubhis tat-kṣaṇāt
 
 *dharmaḥ*—religiosidad; *projjhita*—completamente rechazada; *kaitavaḥ*—en la cual hay intención fruitiva; *atra*—aquí; *paramaḥ*—la más elevada; *nirmatsarāṇām*—de los cien por cien puros de corazón; *satām*—devotos; *vedyam*—que ha de entenderse; *vāstavam*—de hecho; *atra*—aquí; *vastu*—sustancia; *śiva-dam*—que otorga bienestar; *tāpa-traya*—de las tres clases de sufrimientos; *unmūlanam*—que causa el desarraigo; *śrīmat*—hermoso; *bhāgavate*—en el Bhāgavata Purāṇa; *mahā-muni*—por el gran sabio (Vyāsadeva); *kṛte*—compilado; *kim*—qué; *vā*—en verdad; *paraiḥ*—con otros; *īśvaraḥ*—el Señor Supremo; *sadyaḥ*—de inmediato; *hṛdi*—dentro del corazón; *avarudhyate*—queda confinado; *atra*—aquí; *kṛtibhiḥ*—por personas piadosas; *śuśrūṣubhiḥ*—que desean escuchar; *tat-kṣaṇāt*—sin demora.

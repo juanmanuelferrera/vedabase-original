@@ -1,9 +1,9 @@
 ### CC Madhya 24.256
 
-> ব্যাধ কহে, — ‘যেই কহ, সেই ত’ করিব’ ।
+> ব্যাধ কহে, — ‘যেই কহ, সেই ত’ করিব’ ।\
 > নারদ কহে, — ‘ধনুক ভাঙ্গ, তবে সে কহিব’ ॥২৫৬॥
 
-> vyādha kahe,—'yei kaha, sei ta' kariba'
+> vyādha kahe,—'yei kaha, sei ta' kariba'\
 > nārada kahe,—'dhanuka bhāṅga, tabe se kahiba'
 
 *vyādha kahe*—the hunter replied; *yei kaha*—whatever you say; *sei ta' kariba*—that I shall do; *nārada kahe*—Nārada Muni replied; *dhanuka bhāṅga*—break your bow; *tabe*—then; *se kahiba*—I shall speak to you.

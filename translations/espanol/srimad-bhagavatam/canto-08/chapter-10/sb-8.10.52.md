@@ -1,11 +1,11 @@
 ### SB 8.10.52
 
-> एवं दैत्यैर्महामायैरलक्ष्यगतिभी रणे
+> एवं दैत्यैर्महामायैरलक्ष्यगतिभी रणे\
 > सृज्यमानासु मायासु विषेदुः सुरसैनिकाः ॥५२॥
 
-> evaṁ daityair mahā-māyair
-> alakṣya-gatibhī raṇe
-> sṛjyamānāsu māyāsu
+> evaṁ daityair mahā-māyair\
+> alakṣya-gatibhī raṇe\
+> sṛjyamānāsu māyāsu\
 > viṣeduḥ sura-sainikāḥ
 
 *evam*—así; *daityaiḥ*—por los demonios; *mahā-māyaiḥ*—que eran expertos en crear ilusiones; *alakṣya-gatibhiḥ*—pero invisibles; *raṇe*—en la batalla; *sṛjyamānāsu māyāsu*—debido a la creación de aquella atmósfera ilusoria; *viṣeduḥ*—perdieron el entusiasmo; *sura-sainikāḥ*—los soldados de los semidioses.

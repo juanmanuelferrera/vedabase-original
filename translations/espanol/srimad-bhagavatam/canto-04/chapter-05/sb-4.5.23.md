@@ -1,11 +1,11 @@
 ### SB 4.5.23
 
-> शस्त्रैरस्त्रान्वितैरेवमनिर्भिन्नत्वचं हरः ।
+> शस्त्रैरस्त्रान्वितैरेवमनिर्भिन्नत्वचं हरः ।\
 > विस्मयं परमापन्नो दध्यौ पशुपतिश्चिरम् ॥२३॥
 
-> śastrair astrānvitair evam
-> anirbhinna-tvacaṁ haraḥ
-> vismayaṁ param āpanno
+> śastrair astrānvitair evam\
+> anirbhinna-tvacaṁ haraḥ\
+> vismayaṁ param āpanno\
 > dadhyau paśupatiś ciram
 
 *śastraiḥ*—con armas; *astra-anvitaiḥ*—con himnos *(mantras)*; *evam*—de este modo; *anirbhinna*—no siendo cortada; *tvacam*—la piel; *haraḥ*—Vīrabhadra; *vismayam*—confusión; *param*—la mayor; *āpannaḥ*—estupefacto; *dadhyau*—pensó; *paśupatiḥ*—Vīrabhadra; *ciram*—durante mucho tiempo.

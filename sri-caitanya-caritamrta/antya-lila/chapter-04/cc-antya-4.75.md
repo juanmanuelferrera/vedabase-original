@@ -1,9 +1,9 @@
 ### CC Antya 4.75
 
-> নীচ, অধম, পামর মুঞি পামর-স্বভাব  ।
+> নীচ, অধম, পামর মুঞি পামর-স্বভাব  ।\
 > মোরে জিয়াইলে তোমার কিবা হবে লাভ ?” ৭৫ ॥৭৫॥
 
-> nīca, adhama, pāmara muñi pāmara-svabhāva
+> nīca, adhama, pāmara muñi pāmara-svabhāva\
 > more jiyāile tomāra kibā habe lābha?"
 
 *nīca*—lowborn; *adhama*—lowest; *pāmara*—condemned; *muñi*—I; *pāmara-svabhāva*—naturally sinful; *more jiyāile*—if You save me; *tomāra*—Your; *kibā*—what; *habe*—will be; *lābha*—profit.

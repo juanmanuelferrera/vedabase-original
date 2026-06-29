@@ -1,9 +1,9 @@
 ### CC Madhya 13.65
 
-> লীলাবেশে প্ৰভুর নাহি নিজানুসন্ধান ।
+> লীলাবেশে প্ৰভুর নাহি নিজানুসন্ধান ।\
 > ইচ্ছা জানি ‘লীলা শক্তি’ করে সমাধান ॥৬৫॥
 
-> līlāveśe prabhura nāhi nijānusandhāna
+> līlāveśe prabhura nāhi nijānusandhāna\
 > icchā jāni 'līlā śakti' kare samādhāna
 
 *līlā-āveśe*—in the ecstasy of transcendental pastimes; *prabhura*—of Śrī Caitanya Mahāprabhu; *nāhi*—there was not; *nija-anusandhāna*—understanding about His personal self; *icchā jāni*—knowing His desire; *līlā śakti*—the potency known as *līlā-śakti*; *kare*—does; *samādhāna*—all arrangements.

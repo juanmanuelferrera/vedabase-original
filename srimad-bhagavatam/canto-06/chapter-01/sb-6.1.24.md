@@ -1,11 +1,11 @@
 ### SB 6.1.24
 
-> तस्य प्रवयसः पुत्रा दश तेषां तु योऽवमः
+> तस्य प्रवयसः पुत्रा दश तेषां तु योऽवमः\
 > बालो नारायणो नाम्ना पित्रोश्च दयितो भृशम ॥२४॥
 
-> tasya pravayasaḥ putrā
-> daśa teṣāṁ tu yo 'vamaḥ
-> bālo nārāyaṇo nāmnā
+> tasya pravayasaḥ putrā\
+> daśa teṣāṁ tu yo 'vamaḥ\
+> bālo nārāyaṇo nāmnā\
 > pitroś ca dayito bhṛśam
 
 *tasya*—of him (Ajāmila); *pravayasaḥ*—who was very old; *putrāḥ*—sons; *daśa*—ten; *teṣām*—of all of them; *tu*—but; *yaḥ*—the one who; *avamaḥ*—the youngest; *bālaḥ*—child; *nārāyaṇaḥ*—Nārāyaṇa; *nāmnā*—by name; *pitroḥ*—of the father and mother; *ca*—and; *dayitaḥ*—dear; *bhṛśam*—very.

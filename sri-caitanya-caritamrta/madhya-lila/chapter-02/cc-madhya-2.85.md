@@ -1,13 +1,13 @@
 ### CC Madhya 2.85
 
-> যদি কেহ হেন কয়, গ্রন্থ কৈল শ্লোকময়,
-> ইতর জনে নারিবে বুঝিতে ।
-> প্ৰভুর যেই আচরণ, সেই করি বর্ণন,
+> যদি কেহ হেন কয়, গ্রন্থ কৈল শ্লোকময়,\
+> ইতর জনে নারিবে বুঝিতে ।\
+> প্ৰভুর যেই আচরণ, সেই করি বর্ণন,\
 > সর্ব-চিত্ত নারি আরাধিতে ॥৮৫॥
 
-> yadi keha hena kaya, grantha kaila śloka-maya,
-> itara jane nāribe bujhite
-> prabhura yei ācaraṇa, sei kari varṇana,
+> yadi keha hena kaya, grantha kaila śloka-maya,\
+> itara jane nāribe bujhite\
+> prabhura yei ācaraṇa, sei kari varṇana,\
 > sarva-citta nāri ārādhite
 
 *yadi*—if; *keha*—someone; *hena*—thus; *kaya*—says; *grantha*—this book; *kaila*—is made; *śloka-maya*—with various Sanskrit verses; *itara*—ordinary; *jane*—persons; *nāribe bujhite*—will not be able to understand; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *yei*—whatever; *ācaraṇa*—activities; *sei*—that; *kari*—I do; *varṇana*—description; *sarva-citta*—all hearts; *nāri*—I am unable; *ārādhite*—to please.

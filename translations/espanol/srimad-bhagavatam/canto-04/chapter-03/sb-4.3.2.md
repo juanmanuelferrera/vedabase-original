@@ -1,11 +1,11 @@
 ### SB 4.3.2
 
-> यदाभिषिक्तो दक्षस्तु ब्रह्मणा परमेष्ठिना ।
+> यदाभिषिक्तो दक्षस्तु ब्रह्मणा परमेष्ठिना ।\
 > प्रजापतीनां सर्वेषामाधिपत्ये स्मयोऽभवत् ॥२॥
 
-> yadābhiṣikto dakṣas tu
-> brahmaṇā parameṣṭhinā
-> prajāpatīnāṁ sarveṣām
+> yadābhiṣikto dakṣas tu\
+> brahmaṇā parameṣṭhinā\
+> prajāpatīnāṁ sarveṣām\
 > ādhipatye smayo 'bhavat
 
 *yadā*—cuando; *abhiṣiktaḥ*—designado; *dakṣaḥ*—Dakṣa; *tu*—pero; *brahmaṇā*—por Brahmā; *parameṣṭhinā*—el maestro supremo; *prajāpatīnām*—de los *prajāpatis*; *sarveṣām*—de todos; *ādhipatye*—como líder; *smayaḥ*—envanecido; *abhavat*—se volvió.

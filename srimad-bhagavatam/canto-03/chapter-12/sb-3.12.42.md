@@ -1,11 +1,11 @@
 ### SB 3.12.42
 
-> सावित्रं प्राजापत्यं च ब्राह्मं चाथ बृहत्तथा ।
+> सावित्रं प्राजापत्यं च ब्राह्मं चाथ बृहत्तथा ।\
 > वार्ता सञ्चयशालीन शिलोञ्छ इति वै गृहे ॥४२॥
 
-> sāvitraṁ prājāpatyaṁ ca
-> brāhmaṁ cātha bṛhat tathā
-> vārtā sañcaya-śālīna-
+> sāvitraṁ prājāpatyaṁ ca\
+> brāhmaṁ cātha bṛhat tathā\
+> vārtā sañcaya-śālīna-\
 > śiloñcha iti vai gṛhe
 
 *sāvitram*—the thread ceremony of the twice-born; *prājāpatyam*—to execute the vow for one year; *ca*—and; *brāhmam*—acceptance of the *Vedas*; *ca*—and; *atha*—also; *bṛhat*—complete abstinence from sex life; *tathā*—then; *vārtā*—vocation in terms of Vedic sanction; *sañcaya*—professional duty; *śālīna*—livelihood without asking anyone for cooperation; *śila-uñchaḥ*—picking up rejected grains; *iti*—thus; *vai*—even though; *gṛhe*—in household life.

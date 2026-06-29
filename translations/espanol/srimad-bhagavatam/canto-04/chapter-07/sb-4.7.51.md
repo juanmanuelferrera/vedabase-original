@@ -1,11 +1,11 @@
 ### SB 4.7.51
 
-> आत्ममायां समाविश्य सोऽहं गुणमयीं द्विज ।
+> आत्ममायां समाविश्य सोऽहं गुणमयीं द्विज ।\
 > सृजन्रक्षन्हरन्विश्वं दध्रे संज्ञां क्रियोचिताम् ॥५१॥
 
-> ātma-māyāṁ samāviśya
-> so 'haṁ guṇamayīṁ dvija
-> sṛjan rakṣan haran viśvaṁ
+> ātma-māyāṁ samāviśya\
+> so 'haṁ guṇamayīṁ dvija\
+> sṛjan rakṣan haran viśvaṁ\
 > dadhre saṁjñāṁ kriyocitām
 
 *ātma-māyām*—Mi energía; *samāviśya*—habiendo entrado; *saḥ*—Yo mismo; *aham*—Yo; *guṇa-mayīm*—compuesta por las modalidades de la naturaleza material; *dvi-ja*—¡oh, Dakṣa, nacido por segunda vez!; *sṛjan*—crear; *rakṣan*—mantener; *haran*—aniquilar; *viśvam*—la manifestación cósmica; *dadhre*—Yo hago nacer; *saṁjñām*—un nombre; *kriyā-ucitām*—según la actividad.

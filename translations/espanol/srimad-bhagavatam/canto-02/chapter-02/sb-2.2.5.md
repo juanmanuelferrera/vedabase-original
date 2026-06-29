@@ -1,13 +1,13 @@
 ### SB 2.2.5
 
-> चीराणि किं पथि न सन्ति दिशन्ति भिक्षां
-> नैवाङ्घ्रिपाः परभृतः सरितोऽप्यशुष्यन् ।
-> रुद्धा गुहाः किमजितोऽवति नोपसन्नान्
+> चीराणि किं पथि न सन्ति दिशन्ति भिक्षां\
+> नैवाङ्घ्रिपाः परभृतः सरितोऽप्यशुष्यन् ।\
+> रुद्धा गुहाः किमजितोऽवति नोपसन्नान्\
 > कस्माद्भजन्ति कवयो धनदुर्मदान्धान् ॥५॥
 
-> cīrāṇi kiṁ pathi na santi diśanti bhikṣāṁ
-> naivāṅghripāḥ para-bhṛtaḥ sarito 'py aśuṣyan
-> ruddhā guhāḥ kim ajito 'vati nopasannān
+> cīrāṇi kiṁ pathi na santi diśanti bhikṣāṁ\
+> naivāṅghripāḥ para-bhṛtaḥ sarito 'py aśuṣyan\
+> ruddhā guhāḥ kim ajito 'vati nopasannān\
 > kasmād bhajanti kavayo dhana-durmadāndhān
 
 *cīrāṇi*—ropa raída; *kim*—acaso; *pathi*—en el camino; *na*—no; *santi*—hay; *diśanti*—dar como caridad; *bhikṣām*—limosnas; *na*—no; *eva*—además; *aṅghripāḥ*—los árboles; *para-bhṛtaḥ*—aquel que mantiene a otros; *saritaḥ*—los ríos; *api*—además; *aśuṣyan*—se han secado; *ruddhāḥ*—cerrado; *guhāḥ*—cuevas; *kim*—acaso; *ajitaḥ*—el Todopoderoso Señor; *avati*—da protección; *na*—no; *upasannān*—el alma entregada; *kasmāt*—para qué, entonces; *bhajanti*—adula; *kavayaḥ*—los eruditos; *dhana*—riqueza; *durmada-andhān*—demasiado embriagados por.

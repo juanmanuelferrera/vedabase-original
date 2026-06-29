@@ -1,9 +1,9 @@
 ### CC Madhya 11.59
 
-> শুনি’ গজপতির মনে সুখ উপজিল ।
+> শুনি’ গজপতির মনে সুখ উপজিল ।\
 > প্রভুরে মিলিতে এই মন্ত্রণা দৃঢ় কৈল ॥৫৯॥
 
-> śuni' gajapatira mane sukha upajila
+> śuni' gajapatira mane sukha upajila\
 > prabhure milite ei mantraṇā dṛḍha kaila
 
 *śuni'*—hearing; *gajapatira*—of King Pratāparudra; *mane*—in the mind; *sukha*—happiness; *upajila*—awakened; *prabhure*—Śrī Caitanya Mahāprabhu; *milite*—to meet; *ei*—this; *mantraṇā*—instruction; *dṛḍha kaila*—decided to accept rigidly.

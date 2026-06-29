@@ -1,11 +1,11 @@
 ### SB 4.18.29
 
-> चूर्णयन्स्वधनुष्कोट्या गिरिकूटानि राजराट् ।
+> चूर्णयन्स्वधनुष्कोट्या गिरिकूटानि राजराट् ।\
 > भूमण्डलमिदं वैन्यः प्रायश्चक्रे समं विभुः ॥२९॥
 
-> cūrṇayan sva-dhanuṣ-koṭyā
-> giri-kūṭāni rāja-rāṭ
-> bhū-maṇḍalam idaṁ vainyaḥ
+> cūrṇayan sva-dhanuṣ-koṭyā\
+> giri-kūṭāni rāja-rāṭ\
+> bhū-maṇḍalam idaṁ vainyaḥ\
 > prāyaś cakre samaṁ vibhuḥ
 
 *cūrṇayan*—hacer pedazos; *sva*—su propio; *dhanuḥ-koṭyā*—con el poder de su arco; *giri*—de las montañas; *kūṭāni*—las cimas; *rāja-rāṭ*—el emperador; *bhū-maṇḍalam*—la Tierra entera; *idam*—este; *vainyaḥ*—el hijo del rey Vena; *prāyaḥ*—prácticamente; *cakre*—hizo; *samam*—plana; *vibhuḥ*—el poderoso.

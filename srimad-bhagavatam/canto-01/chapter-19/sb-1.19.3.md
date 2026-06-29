@@ -1,11 +1,11 @@
 ### SB 1.19.3
 
-> अद्यैव राज्यं बलमृद्धकोशं प्रकोपितब्रह्मकुलानलो मे ।
+> अद्यैव राज्यं बलमृद्धकोशं प्रकोपितब्रह्मकुलानलो मे ।\
 > दहत्वभद्रस्य पुनर्न मेऽभूत्पापीयसी धीर्द्विजदेवगोभ्यः ॥३॥
 
-> adyaiva rājyaṁ balam ṛddha-kośaṁ
-> prakopita-brahma-kulānalo me
-> dahatv abhadrasya punar na me 'bhūt
+> adyaiva rājyaṁ balam ṛddha-kośaṁ\
+> prakopita-brahma-kulānalo me\
+> dahatv abhadrasya punar na me 'bhūt\
 > pāpīyasī dhīr dvija-deva-gobhyaḥ
 
 *adya*—this day; *eva*—on the very; *rājyam*—kingdom; *balam ṛddha*—strength and riches; *kośam*—treasury; *prakopita*—ignited by; *brahma-kula*—by the *brāhmaṇa* community; *analaḥ*—fire; *me dahatu*—let it burn me; *abhadrasya*—inauspiciousness; *punaḥ*—again; *na*—not; *me*—unto me; *abhūt*—may occur; *pāpīyasī*—sinful; *dhīḥ*—intelligence; *dvija*—*brāhmaṇas*; *deva*—the Supreme Lord; *gobhyaḥ*—and the cows.

@@ -1,9 +1,9 @@
 ### CC Antya 13.119
 
-> পূর্ববৎ অষ্টমাস প্রভু-পাশ ছিলা  ।
+> পূর্ববৎ অষ্টমাস প্রভু-পাশ ছিলা  ।\
 > অষ্টমাস রহি’ পুনঃ প্রভু আজ্ঞা দিলা ॥১১৯॥
 
-> pūrvavat aṣṭa-māsa prabhu-pāśa chilā
+> pūrvavat aṣṭa-māsa prabhu-pāśa chilā\
 > aṣṭa-māsa rahi' punaḥ prabhu ājñā dilā
 
 *pūrva-vat*—como anteriormente; *aṣṭa-māsa*—durante ocho meses; *prabhu-pāśa chilā*—permaneció con Śrī Caitanya Mahāprabhu; *aṣṭa-māsa rahi'*—después de quedarse ocho meses; *punaḥ*—de nuevo; *prabhu*—Śrī Caitanya Mahāprabhu; *ājñā dilā*—le ordenó.

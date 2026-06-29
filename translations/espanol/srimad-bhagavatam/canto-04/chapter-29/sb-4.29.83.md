@@ -1,11 +1,11 @@
 ### SB 4.29.83
 
-> एतदध्यात्मपारोक्ष्यं गीतं देवर्षिणानघ ।
+> एतदध्यात्मपारोक्ष्यं गीतं देवर्षिणानघ ।\
 > यः श्रावयेद्यः शृणुयात्स लिङ्गेन विमुच्यते ॥८३॥
 
-> etad adhyātma-pārokṣyaṁ
-> gītaṁ devarṣiṇānagha
-> yaḥ śrāvayed yaḥ śṛṇuyāt
+> etad adhyātma-pārokṣyaṁ\
+> gītaṁ devarṣiṇānagha\
+> yaḥ śrāvayed yaḥ śṛṇuyāt\
 > sa liṅgena vimucyate
 
 *etat*—esta; *adhyātma*—espiritual; *pārokṣyam*—explicación autorizada; *gītam*—narrada; *deva-ṛṣiṇā*—por el gran sabio Nārada; *anagha*—¡oh, inmaculado Vidura!; *yaḥ*—todo el que; *śrāvayet*—explique; *yaḥ*—todo el que; *śṛṇuyāt*—escuche; *saḥ*—él; *liṅgena*—del concepto corporal de la vida; *vimucyate*—se libera.

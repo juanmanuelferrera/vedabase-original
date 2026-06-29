@@ -1,9 +1,9 @@
 ### CC Antya 14.7
 
-> স্বরূপ-গোসাঞি আর রঘুনাথ-দাস ।
+> স্বরূপ-গোসাঞি আর রঘুনাথ-দাস ।\
 > এই দুইর কড়চাতে এ-লীলা প্রকাশ ॥৭॥
 
-> svarūpa-gosāñi āra raghunātha-dāsa
+> svarūpa-gosāñi āra raghunātha-dāsa\
 > ei duira kaḍacāte e-līlā prakāśa
 
 *svarūpa-gosāñi*—Svarūpa Dāmodara Gosvāmī; *āra*—and; *raghunātha-dāsa*—Raghunātha dāsa Gosvāmī; *ei duira*—of these two; *kaḍacāte*—in the notebooks; *e-līlā*—these pastimes; *prakāśa*—described.

@@ -1,9 +1,9 @@
 ### CC Madhya 11.62
 
-> স্নানযাত্রা দেখি’ প্রভুর হৈল বড় সুখ ।
+> স্নানযাত্রা দেখি’ প্রভুর হৈল বড় সুখ ।\
 > ঈশ্বরের ‘অনবসরে’ পাইল বড় দুঃখ ॥৬২॥
 
-> snāna-yātrā dekhi' prabhura haila baḍa sukha
+> snāna-yātrā dekhi' prabhura haila baḍa sukha\
 > īśvarera 'anavasare' pāila baḍa duḥkha
 
 *snāna-yātrā*—the bathing ceremony of Lord Jagannātha; *dekhi'*—seeing; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *haila*—became; *baḍa*—very much; *sukha*—happiness; *īśvarera*—of the Lord; *anavasare*—during the pastime of retirement; *pāila*—got; *baḍa*—very much; *duḥkha*—unhappiness.

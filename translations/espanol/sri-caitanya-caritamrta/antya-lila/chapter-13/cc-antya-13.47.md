@@ -1,9 +1,9 @@
 ### CC Antya 13.47
 
-> সনাতন ভিক্ষা করেন যাই’ মহাবনে ।
+> সনাতন ভিক্ষা করেন যাই’ মহাবনে ।\
 > কভু দেবালয়ে, কভু ব্রাহ্মণ-সদনে ॥৪৭॥
 
-> sanātana bhikṣā karena yāi' mahāvane
+> sanātana bhikṣā karena yāi' mahāvane\
 > kabhu devālaye, kabhu brāhmaṇa-sadane
 
 *sanātana*—Sanātana Gosvāmī; *bhikṣā karena*—pide limosnas; *yāi' mahā-vane*—yendo a las cercanías de Mahāvana; *kabhu*—a veces; *devālaye*—en un templo; *kabhu*—a veces; *brāhmaṇa-sadane*—en la casa de un *brāhmaṇa*.

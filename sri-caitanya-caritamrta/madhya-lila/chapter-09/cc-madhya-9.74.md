@@ -1,9 +1,9 @@
 ### CC Madhya 9.74
 
-> শিয়ালী ভৈরবী দেবী করি’ দরশন ।
+> শিয়ালী ভৈরবী দেবী করি’ দরশন ।\
 > কাবেরীর তীরে আইলা শচীর নন্দন ॥৭৪॥
 
-> śiyālī bhairavī devī kari' daraśana
+> śiyālī bhairavī devī kari' daraśana\
 > kāverīra tīre āilā śacīra nandana
 
 *śiyālī bhairavī*—Śiyālī-bhairavī; *devī*—goddess; *kari' daraśana*—visiting; *kāverīra tīre*—on the bank of the river Kāverī; *āilā*—came; *śacīra nandana*—the son of mother Śacī.

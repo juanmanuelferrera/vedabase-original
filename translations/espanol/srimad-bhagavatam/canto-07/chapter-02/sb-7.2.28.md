@@ -1,11 +1,11 @@
 ### SB 7.2.28
 
-> उशीनरेष्वभूद्राजा सुयज्ञअ इति विश्रुतः
+> उशीनरेष्वभूद्राजा सुयज्ञअ इति विश्रुतः\
 > सपत्नैर्निहतो युद्धे ज्ञआतयस्तमुपासत ॥२८॥
 
-> uśīnareṣv abhūd rājā
-> suyajña iti viśrutaḥ
-> sapatnair nihato yuddhe
+> uśīnareṣv abhūd rājā\
+> suyajña iti viśrutaḥ\
+> sapatnair nihato yuddhe\
 > jñātayas tam upāsata
 
 *uśīnareṣu*—en el estado de Uśīnara; *abhūt*—había; *rājā*—un rey; *suyajñaḥ*—Suyajña; *iti*—así; *viśrutaḥ*—famoso; *sapatnaiḥ*—por enemigos; *nihataḥ*—matado; *yuddhe*—en la guerra; *jñātayaḥ*—los familiares; *tam*—de él; *upāsata*—se sentaron alrededor.

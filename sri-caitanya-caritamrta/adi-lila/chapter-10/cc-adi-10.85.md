@@ -1,9 +1,9 @@
 ### CC Adi 10.85
 
-> তাঁর মধ্যে রূপ-সনাতন — বড় শাখা ।
+> তাঁর মধ্যে রূপ-সনাতন — বড় শাখা ।\
 > অনুপম, জীব, রাজেন্দ্রাদি উপশাখা ॥৮৫॥
 
-> tāṅra madhye rūpa-sanātana—baḍa śākhā
+> tāṅra madhye rūpa-sanātana—baḍa śākhā\
 > anupama, jīva, rājendrādi upaśākhā
 
 *tāṅra*—within that; *madhye*—in the midst of; *rūpa-sanātana*—the branch known as Rūpa-Sanātana; *baḍa śākhā*—the big branch; *anupama*—of the name Anupama; *jīva*—of the name Jīva; *rājendra-ādi*—and Rājendra and others; *upaśākhā*—their subbranches.

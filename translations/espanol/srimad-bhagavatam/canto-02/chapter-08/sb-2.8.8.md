@@ -1,14 +1,14 @@
 ### SB 2.8.8
 
-> आसीद्यदुदरात्पद्मं लोकसंस्थानलक्षणम् ।
-> यावानयं वै पुरुष इयत्तावयवैः पृथक् ।
+> आसीद्यदुदरात्पद्मं लोकसंस्थानलक्षणम् ।\
+> यावानयं वै पुरुष इयत्तावयवैः पृथक् ।\
 > तावानसाविति प्रोक्तः संस्थावयववानिव ॥८॥
 
-> āsīd yad-udarāt padmaṁ
-> loka-saṁsthāna-lakṣaṇam
-> yāvān ayaṁ vai puruṣa
-> iyattāvayavaiḥ pṛthak
-> tāvān asāv iti proktaḥ
+> āsīd yad-udarāt padmaṁ\
+> loka-saṁsthāna-lakṣaṇam\
+> yāvān ayaṁ vai puruṣa\
+> iyattāvayavaiḥ pṛthak\
+> tāvān asāv iti proktaḥ\
 > saṁsthāvayavavān iva
 
 *āsīt*—mientras crecía; *yat-udarāt*—de cuyo abdomen; *padmam*—flor de loto; *loka*—mundo; *samsthāna*—situación; *lakṣaṇam*—que posee; *yāvān*—como si fuera; *ayam*—esto; *vai*—ciertamente; *puruṣaḥ*—la Suprema Personalidad de Dios; *iyattā*—medida; *avayavaiḥ*—por los cuerpos; *pṛthak*—diferentes; *tāvān*—así; *asau*—eso; *iti proktaḥ*—así se dice; *saṁsthā*—situación; *avayavavān*—la situación constituida por el cuerpo; *iva*—como.

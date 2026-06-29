@@ -1,9 +1,9 @@
 ### CC Antya 3.256
 
-> পূর্বে আমি রাম-নাম পাঞাছি ‘শিব’ হৈতে ।
+> পূর্বে আমি রাম-নাম পাঞাছি ‘শিব’ হৈতে ।\
 > তোমার সঙ্গে লোভ হৈল কৃষ্ণনাম লৈতে ॥২৫৬॥
 
-> pūrve āmi rāma-nāma pāñāchi 'śiva' haite
+> pūrve āmi rāma-nāma pāñāchi 'śiva' haite\
 > tomāra saṅge lobha haila kṛṣṇa-nāma laite
 
 *pūrve*—formerly; *āmi*—I; *rāma-nāma*—the holy name of Lord Rāma; *pāñāchi*—got; *śiva haite*—from Lord Śiva; *tomāra saṅge*—by your association; *lobha haila*—I became greedy; *kṛṣṇa-nāma laite*—to chant the Hare Kṛṣṇa *mahā-mantra.*

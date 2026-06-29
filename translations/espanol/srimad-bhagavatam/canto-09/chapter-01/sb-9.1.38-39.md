@@ -1,18 +1,18 @@
 ### SB 9.1.38-39
 
-> तुष्टस्तस्मै स भगवानृषये प्रियमावहन
-> स्वां च वाचमृतां कुर्वन्निदमाह विशाम्पते ॥३८॥
-> मासं पुमान्स भविता मासं स्त्री तव गोत्रजः
+> तुष्टस्तस्मै स भगवानृषये प्रियमावहन\
+> स्वां च वाचमृतां कुर्वन्निदमाह विशाम्पते ॥३८॥\
+> मासं पुमान्स भविता मासं स्त्री तव गोत्रजः\
 > इत्थं व्यवस्थया कामं सुद्युम्नोऽवतु मेदिनीम ॥३९॥
 
-> tuṣṭas tasmai sa bhagavān
-> ṛṣaye priyam āvahan
-> svāṁ ca vācam ṛtāṁ kurvann
+> tuṣṭas tasmai sa bhagavān\
+> ṛṣaye priyam āvahan\
+> svāṁ ca vācam ṛtāṁ kurvann\
 > idam āha viśāmpate
 
-> māsaṁ pumān sa bhavitā
-> māsaṁ strī tava gotrajaḥ
-> itthaṁ vyavasthayā kāmaṁ
+> māsaṁ pumān sa bhavitā\
+> māsaṁ strī tava gotrajaḥ\
+> itthaṁ vyavasthayā kāmaṁ\
 > sudyumno 'vatu medinīm
 
 *tuṣṭaḥ*—complacido; *tasmai*—a Vasiṣṭha; *saḥ*—él (el Señor Śiva); *bhagavān*—el muy poderoso; *ṛṣaye*—al gran sabio; *priyam āvahan*—para complacerle; *svām ca*—su propia; *vācam*—palabra; *ṛtām*—verdadera; *kurvan*—y mantener; *idam*—esto; *āha*—dijo; *viśāmpate*—¡oh, rey Parīkṣit!; *māsam*—un mes; *pumān*—varón; *saḥ*—Sudyumna; *bhavitā*—se volverá; *māsam*—otro mes; *strī*—mujer; *tava*—tuyo; *gotra-jaḥ*—discípulo nacido en tu sucesión discipular; *ittham*—de este modo; *vyavasthayā*—disponiéndolo; *kāmam*—conforme al deseo; *sudyumnaḥ*—el rey Sudyumna; *avatu*—puede gobernar; *medinīm*—el mundo.

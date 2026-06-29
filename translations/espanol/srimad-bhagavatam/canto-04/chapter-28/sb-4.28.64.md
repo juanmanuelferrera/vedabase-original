@@ -1,11 +1,11 @@
 ### SB 4.28.64
 
-> एवं स मानसो हंसो हंसेन प्रतिबोधितः ।
+> एवं स मानसो हंसो हंसेन प्रतिबोधितः ।\
 > स्वस्थस्तद्व्यभिचारेण नष्टामाप पुनः स्मृतिम् ॥६४॥
 
-> evaṁ sa mānaso haṁso
-> haṁsena pratibodhitaḥ
-> sva-sthas tad-vyabhicāreṇa
+> evaṁ sa mānaso haṁso\
+> haṁsena pratibodhitaḥ\
+> sva-sthas tad-vyabhicāreṇa\
 > naṣṭām āpa punaḥ smṛtim
 
 *evam*—así; *saḥ*—él (el alma individual); *mānasaḥ*—que viven juntos en el corazón; *haṁsaḥ*—como el cisne; *haṁsena*—por el otro cisne; *pratibodhitaḥ*—instruido; *sva-sthaḥ*—situado en el plano de la autorrealización; *tat-vyabhicāreṇa*—por estar separado de la Superalma; *naṣṭām*—que estaba perdida; *āpa*—obtenida; *punaḥ*—de nuevo; *smṛtim*—memoria verdadera.

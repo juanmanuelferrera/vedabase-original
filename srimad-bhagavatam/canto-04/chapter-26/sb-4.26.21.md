@@ -1,13 +1,13 @@
 ### SB 4.26.21
 
-> पुरञ्जन उवाच
-> नूनं त्वकृतपुण्यास्ते भृत्या येष्वीश्वराः शुभे ।
+> पुरञ्जन उवाच\
+> नूनं त्वकृतपुण्यास्ते भृत्या येष्वीश्वराः शुभे ।\
 > कृतागःस्वात्मसात्कृत्वा शिक्षादण्डं न युञ्जते ॥२१॥
 
-> purañjana uvāca
-> nūnaṁ tv akṛta-puṇyās te
-> bhṛtyā yeṣv īśvarāḥ śubhe
-> kṛtāgaḥsv ātmasāt kṛtvā
+> purañjana uvāca\
+> nūnaṁ tv akṛta-puṇyās te\
+> bhṛtyā yeṣv īśvarāḥ śubhe\
+> kṛtāgaḥsv ātmasāt kṛtvā\
 > śikṣā-daṇḍaṁ na yuñjate
 
 *purañjanaḥ uvāca*—Purañjana said; *nūnam*—certainly; *tu*—then; *akṛta-puṇyāḥ*—those who are not pious; *te*—such; *bhṛtyāḥ*—servants; *yeṣu*—unto whom; *īśvarāḥ*—the masters; *śubhe*—O most auspicious one; *kṛta-āgaḥsu*—having committed an offense; *ātmasāt*—accepting as their own; *kṛtvā*—doing so; *śikṣā*—instructive; *daṇḍam*—punishment; *na yuñjate*—do not give.

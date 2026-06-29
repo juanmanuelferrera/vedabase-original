@@ -1,9 +1,9 @@
 ### CC Madhya 14.12
 
-> এত বলি’ সেই শ্লোক পড়ে বার বার ।
+> এত বলি’ সেই শ্লোক পড়ে বার বার ।\
 > দুইজনার অঙ্গে কম্প, নেত্রে জলধার ॥১২॥
 
-> eta bali' sei śloka paḍe bāra bāra
+> eta bali' sei śloka paḍe bāra bāra\
 > dui-janāra aṅge kampa, netre jala-dhāra
 
 *eta bali'*—saying this; *sei śloka*—that verse; *paḍe*—recites; *bāra bāra*—again and again; *dui-janāra*—of both of them (Śrī Caitanya Mahāprabhu and the King Pratāparudra); *aṅge*—in the bodies; *kampa*—trembling; *netre*—in the eyes; *jala-dhāra*—flow of water.

@@ -1,9 +1,9 @@
 ### CC Antya 13.48
 
-> সনাতন পণ্ডিতের করে সমাধান ।
+> সনাতন পণ্ডিতের করে সমাধান ।\
 > মহাবনে দেন আনি’ মাগি’ অন্ন-পান ॥৪৮॥
 
-> sanātana paṇḍitera kare samādhāna
+> sanātana paṇḍitera kare samādhāna\
 > mahāvane dena āni' māgi' anna-pāna
 
 *sanātana*—Sanātana Gosvāmī; *paṇḍitera*—de Jagadānanda Paṇḍita; *kare samādhāna*—le prestaba todo tipo de servicio; *mahā-vane*—en Mahāvana; *dena*—da; *āni'*—trayendo; *māgi'*—pidiendo; *anna-pāna*—comida y bebida.

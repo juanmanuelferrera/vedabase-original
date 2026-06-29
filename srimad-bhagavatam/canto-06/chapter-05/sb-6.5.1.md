@@ -1,13 +1,13 @@
 ### SB 6.5.1
 
-> श्रीशुक उवाच
-> तस्यां स पाञ्चजन्यां वै विष्णुमायोपबृंहितः
+> श्रीशुक उवाच\
+> तस्यां स पाञ्चजन्यां वै विष्णुमायोपबृंहितः\
 > हर्यश्वसंज्ञआनयुतं पुत्रानजनयद्विभुः ॥१॥
 
-> śrī-śuka uvāca
-> tasyāṁ sa pāñcajanyāṁ vai
-> viṣṇu-māyopabṛṁhitaḥ
-> haryaśva-saṁjñān ayutaṁ
+> śrī-śuka uvāca\
+> tasyāṁ sa pāñcajanyāṁ vai\
+> viṣṇu-māyopabṛṁhitaḥ\
+> haryaśva-saṁjñān ayutaṁ\
 > putrān ajanayad vibhuḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *tasyām*—in her; *saḥ*—Prajāpati Dakṣa; *pāñcajanyām*—his wife named Pāñcajanī; *vai*—indeed; *viṣṇu-māyā-upabṛṁhitaḥ*—being made capable by the illusory energy of Lord Viṣṇu; *haryaśva-saṁjñān*—named the Haryaśvas; *ayutam*—ten thousand; *putrān*—sons; *ajanayat*—begot; *vibhuḥ*—being powerful.

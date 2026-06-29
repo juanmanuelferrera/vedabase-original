@@ -1,9 +1,9 @@
 ### CC Madhya 6.48
 
-> ‘নমো নারায়ণায়’ বলি’ নমস্কার কৈল ।
+> ‘নমো নারায়ণায়’ বলি’ নমস্কার কৈল ।\
 > ‘কৃষ্ণে মতিরস্তু’ বলি’ গোসাঞি কহিল ॥৪৮॥
 
-> 'namo nārāyaṇāya' bali' namaskāra kaila
+> 'namo nārāyaṇāya' bali' namaskāra kaila\
 > 'kṛṣṇe matir astu' bali' gosāñi kahila
 
 *namaḥ nārāyaṇāya*—ofrezco mis respetos a Nārāyaṇa; *bali'*—diciendo; *namaskāra kaila*—ofreció sus respetos al Señor Caitanya Mahāprabhu; *kṛṣṇe*—al Señor Kṛṣṇa; *matiḥ astu*—que haya atracción; *bali'*—diciendo; *gosāñi*—Śrī Caitanya Mahāprabhu; *kahila*—habló.

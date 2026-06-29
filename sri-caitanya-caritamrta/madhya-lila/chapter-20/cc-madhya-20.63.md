@@ -1,9 +1,9 @@
 ### CC Madhya 20.63
 
-> মহা-রৌরব হৈতে তোমা করিলা উদ্ধার ।
+> মহা-রৌরব হৈতে তোমা করিলা উদ্ধার ।\
 > কৃপার সমুদ্র কৃষ্ণ গম্ভীর অপার ।।” ॥ ৬৩ ॥
 
-> mahā-raurava haite tomā karilā uddhāra
+> mahā-raurava haite tomā karilā uddhāra\
 > kṛpāra samudra kṛṣṇa gambhīra apāra"
 
 *mahā-raurava haite*—from the deepest hellish condition of life; *tomā*—you; *karilā uddhāra*—has delivered; *kṛpāra samudra*—the ocean of mercy; *kṛṣṇa*—Kṛṣṇa; *gambhīra*—very grave; *apāra*—unlimitedly.

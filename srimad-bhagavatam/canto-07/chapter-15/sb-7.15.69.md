@@ -1,11 +1,11 @@
 ### SB 7.15.69
 
-> अहं पुराभवं कश्चिद्गन्धर्व उपबर्हणः
+> अहं पुराभवं कश्चिद्गन्धर्व उपबर्हणः\
 > नाम्नातीते महाकल्पे गन्धर्वाणां सुसम्मतः ॥६९॥
 
-> ahaṁ purābhavaṁ kaścid
-> gandharva upabarhaṇaḥ
-> nāmnātīte mahā-kalpe
+> ahaṁ purābhavaṁ kaścid\
+> gandharva upabarhaṇaḥ\
+> nāmnātīte mahā-kalpe\
 > gandharvāṇāṁ susammataḥ
 
 *aham*—I myself; *purā*—formerly; *abhavam*—existed as; *kaścit gandharvaḥ*—one of the denizens of Gandharvaloka; *upabarhaṇaḥ*—Upabarhaṇa; *nāmnā*—by the name; *atīte*—long, long ago; *mahā-kalpe*—in a life of Brahmā, which is known as a *mahā-kalpa*; *gandharvāṇām*—among the Gandharvas; *su-sammataḥ*—a very respectable person.

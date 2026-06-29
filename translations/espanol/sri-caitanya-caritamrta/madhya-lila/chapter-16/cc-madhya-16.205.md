@@ -1,9 +1,9 @@
 ### CC Madhya 16.205
 
-> একদিন প্রভু তথা করিয়া নিবাস ।
+> একদিন প্রভু তথা করিয়া নিবাস ।\
 > প্রাতে কুমারহট্টে আইলা, — যাহাঁ শ্রীনিবাস ॥২০৫॥
 
-> eka-dina prabhu tathā kariyā nivāsa
+> eka-dina prabhu tathā kariyā nivāsa\
 > prāte kumārahaṭṭe āilā,--yāhāṅ śrīnivāsa
 
 *eka-dina*—un día; *prabhu*—Śrī Caitanya Mahāprabhu; *tathā*—allí; *kariyā nivāsa*—residiendo; *prāte*—por la mañana; *kumārahaṭṭe*—la localidad llamada Kumārahaṭṭa; *āilā*—llegó; *yāhāṅ*—donde; *śrīnivāsa*—el hogar de Śrīnivāsa Ṭhākura.

@@ -1,18 +1,18 @@
 ### SB 6.1.28-29
 
-> स पाशहस्तांस्त्रीन्दृष्ट्वा पुरुषानतिदारुणान
-> वक्रतुण्डानूर्ध्वरोम्ण आत्मानं नेतुमागतान ॥२८॥
-> दूरे क्रीडनकासक्तं पुत्रं नारायणाह्वयम
+> स पाशहस्तांस्त्रीन्दृष्ट्वा पुरुषानतिदारुणान\
+> वक्रतुण्डानूर्ध्वरोम्ण आत्मानं नेतुमागतान ॥२८॥\
+> दूरे क्रीडनकासक्तं पुत्रं नारायणाह्वयम\
 > प्लावितेन स्वरेणोच्चैराजुहावाकुलेन्द्रियः ॥२९॥
 
-> sa pāśa-hastāṁs trīn dṛṣṭvā
-> puruṣān ati-dāruṇān
-> vakra-tuṇḍān ūrdhva-romṇa
+> sa pāśa-hastāṁs trīn dṛṣṭvā\
+> puruṣān ati-dāruṇān\
+> vakra-tuṇḍān ūrdhva-romṇa\
 > ātmānaṁ netum āgatān
 
-> dūre krīḍanakāsaktaṁ
-> putraṁ nārāyaṇāhvayam
-> plāvitena svareṇoccair
+> dūre krīḍanakāsaktaṁ\
+> putraṁ nārāyaṇāhvayam\
+> plāvitena svareṇoccair\
 > ājuhāvākulendriyaḥ
 
 *saḥ*—esa persona (Ajāmila); *pāśa-hastān*—con cuerdas en las manos; *trīn*—tres; *dṛṣṭvā*—al ver; *puruṣān*—personas; *ati-dāruṇān*—de espantoso aspecto; *vakra-tuṇḍān*—de rostros retorcidos; *ūrdhva-romṇaḥ*—con vellos erizados en el cuerpo; *ātmānam*—el ser; *netum*—para llevarse; *āgatān*—llegaron; *dūre*—a poca distancia; *krīḍanaka-āsaktam*—dedicado a su juego; *putram*—a su hijo; *nārāyaṇa-āhvayam*—llamado Nārāyaṇa; *plāvitena*—con ojos llenos de lágrimas; *svareṇa*—con su voz; *uccaiḥ*—en voz muy alta; *ājuhāva*—llamó; *ākula-indriyaḥ*—lleno de ansiedad.

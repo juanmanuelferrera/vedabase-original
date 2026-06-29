@@ -1,9 +1,9 @@
 ### CC Madhya 8.101
 
-> প্রভু কহে, — আগে কহ, শুনিতে পাই সুখে ৷
+> প্রভু কহে, — আগে কহ, শুনিতে পাই সুখে ৷\
 > অপূর্বামৃত-নদী বহে তোমার মুখে ৷৷ ১০১ ৷৷ ॥১০১॥
 
-> prabhu kahe--āge kaha, śunite pāi sukhe
+> prabhu kahe--āge kaha, śunite pāi sukhe\
 > apūrvāmṛta-nadī vahe tomāra mukhe
 
 *prabhu kahe*—el Señor dijo; *āge*—adelante; *kaha*—por favor habla; *śunite*—al oír; *pāi*—obtengo; *sukhe*—felicidad; *apūrva-amṛta*—de néctar sin precedentes; *nadī*—un río; *vahe*—fluye; *tomāra mukhe*—de tu boca.

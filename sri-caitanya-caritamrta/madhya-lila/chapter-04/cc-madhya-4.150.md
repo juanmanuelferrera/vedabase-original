@@ -1,9 +1,9 @@
 ### CC Madhya 4.150
 
-> গোপাল চন্দন মাগে, — শুনি’ ভক্তগণ ।
+> গোপাল চন্দন মাগে, — শুনি’ ভক্তগণ ।\
 > আনন্দে চন্দন লাগি’ করিল যতন ॥১৫০॥
 
-> gopāla candana māge,—śuni' bhakta-gaṇa
+> gopāla candana māge,—śuni' bhakta-gaṇa\
 > ānande candana lāgi' karila yatana
 
 *gopāla*—Lord Gopāla at Vṛndāvana; *candana*—sandalwood; *māge*—wants; *śuni'*—hearing; *bhakta-gaṇa*—all the devotees; *ānande*—in great pleasure; *candana lāgi'*—for sandalwood; *karila*—made; *yatana*—endeavor.

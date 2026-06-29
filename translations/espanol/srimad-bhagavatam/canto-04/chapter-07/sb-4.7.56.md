@@ -1,14 +1,14 @@
 ### SB 4.7.56
 
-> रुद्रं च स्वेन भागेन ह्युपाधावत्समाहितः ।
-> कर्मणोदवसानेन सोमपानितरानपि ।
+> रुद्रं च स्वेन भागेन ह्युपाधावत्समाहितः ।\
+> कर्मणोदवसानेन सोमपानितरानपि ।\
 > उदवस्य सहर्त्विग्भिः सस्नाववभृथं ततः ॥५६॥
 
-> rudraṁ ca svena bhāgena
-> hy upādhāvat samāhitaḥ
-> karmaṇodavasānena
-> somapān itarān api
-> udavasya sahartvigbhiḥ
+> rudraṁ ca svena bhāgena\
+> hy upādhāvat samāhitaḥ\
+> karmaṇodavasānena\
+> somapān itarān api\
+> udavasya sahartvigbhiḥ\
 > sasnāv avabhṛthaṁ tataḥ
 
 *rudram*—el Señor Śiva; *ca*—y; *svena*—con su propia; *bhāgena*—porción; *hi*—pues; *upādhāvat*—adoró; *samāhitaḥ*—con la mente concentrada; *karmaṇā*—con la ejecución; *udavasānena*—con el acto de clausura; *soma-pān*—a los semidioses; *itarān*—demás; *api*—incluso; *udavasya*—después de terminar; *saha*—junto con; *ṛtvigbhiḥ*—con los sacerdotes; *sasnau*—se bañó; *avabhṛtham*—el baño *avabhṛtha*; *tataḥ*—entonces.

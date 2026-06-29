@@ -1,11 +1,11 @@
 ### SB 6.16.8
 
-> एवं योनिगतो जीवः स नित्यो निरहङ्कृतः
+> एवं योनिगतो जीवः स नित्यो निरहङ्कृतः\
 > यावद्यत्रोपलभ्येत तावत्स्वत्वं हि तस्य तत ॥८॥
 
-> evaṁ yoni-gato jīvaḥ
-> sa nityo nirahaṅkṛtaḥ
-> yāvad yatropalabhyeta
+> evaṁ yoni-gato jīvaḥ\
+> sa nityo nirahaṅkṛtaḥ\
+> yāvad yatropalabhyeta\
 > tāvat svatvaṁ hi tasya tat
 
 *evam*—thus; *yoni-gataḥ*—being within a specific species of life; *jīvaḥ*—the living entity; *saḥ*—he; *nityaḥ*—eternal; *nirahaṅkṛtaḥ*—without identification with the body; *yāvat*—as long as; *yatra*—where; *upalabhyeta*—he may be found; *tāvat*—that long; *svatvam*—the concept of self; *hi*—indeed; *tasya*—of him; *tat*—that.

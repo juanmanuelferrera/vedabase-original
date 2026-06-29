@@ -1,11 +1,11 @@
 ### SB 6.8.21
 
-> देवोऽपराह्णे मधुहोग्रधन्वा सायं त्रिधामावतु माधवो माम
+> देवोऽपराह्णे मधुहोग्रधन्वा सायं त्रिधामावतु माधवो माम\
 > दोषे हृषीकेश उतार्धरात्रे निशीथ एकोऽवतु पद्मनाभः ॥२१॥
 
-> devo 'parāhṇe madhu-hogradhanvā
-> sāyaṁ tri-dhāmāvatu mādhavo mām
-> doṣe hṛṣīkeśa utārdha-rātre
+> devo 'parāhṇe madhu-hogradhanvā\
+> sāyaṁ tri-dhāmāvatu mādhavo mām\
+> doṣe hṛṣīkeśa utārdha-rātre\
 > niśītha eko 'vatu padmanābhaḥ
 
 *devaḥ*—el Señor; *aparāhṇe*—en la parte quinta del día; *madhu-hā*—llamado Madhusūdana; *ugra-dhanvā*—que lleva el arco Śārṅga, que causa profundo temor; *sāyam*—la parte sexta del día; *tri-dhāmā*—que aparece en la forma de las tres deidades Brahmā, Viṣṇu y Maheśvara; *avatu*—que Él proteja; *mādhavaḥ*—llamado Mādhava; *mām*—a mí; *doṣe*—durante la primera parte de la noche; *hṛṣīkeśaḥ*—el Señor Hṛṣīkeśa; *uta*—también; *ardha-rātre*—durante la segunda parte de la noche; *niśīthe*—durante la tercera parte de la noche; *ekaḥ*—solo; *avatu*—que Él proteja; *padmanābhaḥ*—el Señor Padmanābha.

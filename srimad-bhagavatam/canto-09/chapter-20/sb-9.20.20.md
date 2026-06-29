@@ -1,11 +1,11 @@
 ### SB 9.20.20
 
-> यदा न जगृहे राजा भार्यापुत्रावनिन्दितौ
+> यदा न जगृहे राजा भार्यापुत्रावनिन्दितौ\
 > शृण्वतां सर्वभूतानां खे वागाहाशरीरिणी ॥२०॥
 
-> yadā na jagṛhe rājā
-> bhāryā-putrāv aninditau
-> śṛṇvatāṁ sarva-bhūtānāṁ
+> yadā na jagṛhe rājā\
+> bhāryā-putrāv aninditau\
+> śṛṇvatāṁ sarva-bhūtānāṁ\
 > khe vāg āhāśarīriṇī
 
 *yadā*—when; *na*—not; *jagṛhe*—accepted; *rājā*—the King (Duṣmanta); *bhāryā-putrau*—his real son and real wife; *aninditau*—not abominable, not accused by anyone; *śṛṇvatām*—while hearing; *sarva-bhūtānām*—all the people; *khe*—in the sky; *vāk*—a sound vibration; *āha*—declared; *aśarīriṇī*—without a body.

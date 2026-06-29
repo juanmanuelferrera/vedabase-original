@@ -1,6 +1,6 @@
 ### CC Adi 1.90
 
-> ajñāna-tamera nāma kahiye 'kaitava'
+> ajñāna-tamera nāma kahiye 'kaitava'\
 > dharma-artha-kāma-mokṣa-vāñchā ādi saba
 
 *ajñāna-tamera*—da escuridão da ignorância; *nāma*—nome; *kahiye*—chamo; *kaitava*—processo de trapaça; *dharma*—religiosidade; *artha*—desenvolvimento econômico; *kāma*—gratificação dos sentidos; *mokṣa*—liberação; *vāñchā*—desejo de; *ādi*—e assim por diante; *saba*—tudo.

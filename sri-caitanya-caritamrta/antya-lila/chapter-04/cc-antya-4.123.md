@@ -1,9 +1,9 @@
 ### CC Antya 4.123
 
-> প্রভু কহে, — “তপ্ত-বালুকাতে কেমনে আইলা ?
+> প্রভু কহে, — “তপ্ত-বালুকাতে কেমনে আইলা ?\
 > সিংহদ্বারের পথ — শীতল, কেনে না আইলা ? ॥ ১২৩ ॥
 
-> prabhu kahe,—"tapta-vālukāte kemane āilā?
+> prabhu kahe,—"tapta-vālukāte kemane āilā?\
 > siṁha-dvārera patha—śītala, kene nā āilā?
 
 *prabhu kahe*—Śrī Caitanya Mahāprabhu said; *tapta-vālukāte*—on hot sand; *kemane āilā*—how did you come; *siṁha-dvārera patha*—the path of the Siṁha-dvāra gate; *śītala*—very cool; *kene*—why; *nā āilā*—did you not come.

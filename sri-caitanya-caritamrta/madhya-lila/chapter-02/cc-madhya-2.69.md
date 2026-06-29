@@ -1,13 +1,13 @@
 ### CC Madhya 2.69
 
-> তোমার চপল-মতি, একত্র না হয় স্থিতি,
-> তা’তে তোমার নাহি কিছু দোষ ।
-> তুমি ত’ করুণাসিন্ধু, আমার পরাণ-বন্ধু,
+> তোমার চপল-মতি, একত্র না হয় স্থিতি,\
+> তা’তে তোমার নাহি কিছু দোষ ।\
+> তুমি ত’ করুণাসিন্ধু, আমার পরাণ-বন্ধু,\
 > তোমায় নাহি মোর কভু রোষ ॥৬৯॥
 
-> tomāra capala-mati, ekatra nā haya sthiti,
-> tā'te tomāra nāhi kichu doṣa
-> tumi ta' karuṇā-sindhu, āmāra parāṇa-bandhu,
+> tomāra capala-mati, ekatra nā haya sthiti,\
+> tā'te tomāra nāhi kichu doṣa\
+> tumi ta' karuṇā-sindhu, āmāra parāṇa-bandhu,\
 > tomāya nāhi mora kabhu roṣa
 
 *tomāra*—Your; *capala-mati*—restless mind; *ekatra*—in one place; *nā*—never; *haya*—is; *sthiti*—established; *tā'te*—in that; *tomāra*—Your; *nāhi*—there is not; *kichu*—any; *doṣa*—fault; *tumi*—You are; *ta'*—certainly; *karuṇā-sindhu*—the ocean of mercy; *āmāra*—My; *parāṇa-bandhu*—friend of the heart; *tomāya*—toward You; *nāhi*—there is not; *mora*—My; *kabhu*—any time; *roṣa*—anger.

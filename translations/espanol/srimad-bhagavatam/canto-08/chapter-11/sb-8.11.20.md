@@ -1,11 +1,11 @@
 ### SB 8.11.20
 
-> वचोभिः परुषैरिन्द्रमर्दयन्तोऽस्य मर्मसु
+> वचोभिः परुषैरिन्द्रमर्दयन्तोऽस्य मर्मसु\
 > शरैरवाकिरन्मेघा धाराभिरिव पर्वतम ॥२०॥
 
-> vacobhiḥ paruṣair indram
-> ardayanto 'sya marmasu
-> śarair avākiran meghā
+> vacobhiḥ paruṣair indram\
+> ardayanto 'sya marmasu\
+> śarair avākiran meghā\
 > dhārābhir iva parvatam
 
 *vacobhiḥ*—con palabras ásperas; *paruṣaiḥ*—muy duras y crueles; *indram*—al rey Indra; *ardayantaḥ*—castigar, herir; *asya*—de Indra; *marmasu*—en el corazón, etc.; *śaraiḥ*—con flechas; *avākiran*—cubrieron en todas direcciones; *meghāḥ*—nubes; *dhārābhiḥ*—con torrentes de lluvia; *iva*—como; *parvatam*—una montaña.

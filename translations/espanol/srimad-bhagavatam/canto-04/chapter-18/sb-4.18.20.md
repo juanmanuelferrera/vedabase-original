@@ -1,11 +1,11 @@
 ### SB 4.18.20
 
-> अन्ये च मायिनो मायामन्तर्धानाद्भुतात्मनाम् ।
+> अन्ये च मायिनो मायामन्तर्धानाद्भुतात्मनाम् ।\
 > मयं प्रकल्प्य वत्सं ते दुदुहुर्धारणामयीम् ॥२०॥
 
-> anye ca māyino māyām
-> antardhānādbhutātmanām
-> mayaṁ prakalpya vatsaṁ te
+> anye ca māyino māyām\
+> antardhānādbhutātmanām\
+> mayaṁ prakalpya vatsaṁ te\
 > duduhur dhāraṇāmayīm
 
 *anye*—otros; *ca*—también; *māyinaḥ*—los magos místicos; *māyām*—poderes místicos; *antardhāna*—desaparición; *adbhuta*—maravillosa; *ātmanām*—del cuerpo; *mayam*—al demonio llamado Maya; *prakalpya*—convertir; *vatsam*—el ternero; *te*—ellos; *duduhuḥ*—ordeñaron; *dhāraṇāmayīm*—que viene de la voluntad.

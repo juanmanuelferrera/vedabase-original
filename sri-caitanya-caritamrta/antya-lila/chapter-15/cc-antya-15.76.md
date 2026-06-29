@@ -1,13 +1,13 @@
 ### CC Antya 15.76
 
-> কৃষ্ণ-কর-পদতল, কোটিচন্দ্র-সুশীতল,
-> জিনি’ কর্পূর-বেণামূল-চন্দন ।
-> একবার যার স্পর্শে, স্মরজ্বালা-বিষ নাশে,
+> কৃষ্ণ-কর-পদতল, কোটিচন্দ্র-সুশীতল,\
+> জিনি’ কর্পূর-বেণামূল-চন্দন ।\
+> একবার যার স্পর্শে, স্মরজ্বালা-বিষ নাশে,\
 > যার স্পর্শে লুব্ধ নারী-মন ॥৭৬॥
 
-> kṛṣṇa-kara-pada-tala, koṭi-candra-suśītala,
-> jini' karpūra-veṇā-mūla-candana
-> eka-bāra yāra sparśe, smara-jvālā-viṣa nāśe,
+> kṛṣṇa-kara-pada-tala, koṭi-candra-suśītala,\
+> jini' karpūra-veṇā-mūla-candana\
+> eka-bāra yāra sparśe, smara-jvālā-viṣa nāśe,\
 > yāra sparśe lubdha nārī-mana
 
 *kṛṣṇa*—of Lord Kṛṣṇa; *kara-pada-tala*—the palms and the soles of the feet; *koṭi-candra*—millions upon millions of moons; *su-śītala*—cool and pleasing; *jini'*—surpassing; *karpūra*—camphor; *veṇā-mūla*—roots of *khasakhasa*; *candana*—sandalwood pulp; *eka-bāra*—once; *yāra*—of which; *sparśe*—by the touch; *smara-jvālā*—the burning effect of remembering; *viṣa*—the poison; *nāśe*—becomes vanquished; *yāra*—of which; *sparśe*—by the touch; *lubdha*—enticed; *nāri-mana*—the minds of women.

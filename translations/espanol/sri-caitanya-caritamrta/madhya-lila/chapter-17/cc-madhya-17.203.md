@@ -1,9 +1,9 @@
 ### CC Madhya 17.203
 
-> তা-সবার প্রীতি দেখি’ প্রভু ভাবাবেশে ।
+> তা-সবার প্রীতি দেখি’ প্রভু ভাবাবেশে ।\
 > সবা-সনে ক্রীড়া করে হঞা তার বশে ॥২০৩॥
 
-> tā-sabāra prīti dekhi' prabhu bhāvāveśe
+> tā-sabāra prīti dekhi' prabhu bhāvāveśe\
 > sabā-sane krīḍā kare hañā tāra vaśe
 
 *tā-sabāra*—de todos ellos; *prīti*—afecto; *dekhi'*—al ver; *prabhu*—Śrī Caitanya Mahāprabhu; *bhāva-āveśe*—en amor extático; *sabā-sane*—con todos ellos; *krīḍā*—jugar; *kare*—hace; *hañā*—quedando; *tāra*—de ellos; *vaśe*—bajo el control.

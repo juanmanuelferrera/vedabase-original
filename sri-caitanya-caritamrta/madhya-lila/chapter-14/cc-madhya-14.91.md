@@ -1,9 +1,9 @@
 ### CC Madhya 14.91
 
-> এইমত জলক্রীড়া করি’ কতক্ষণ ।
+> এইমত জলক্রীড়া করি’ কতক্ষণ ।\
 > আইটোটা আইলা প্রভু লঞা ভক্তগণ ॥৯১॥
 
-> ei-mata jala-krīḍā kari' kata-kṣaṇa
+> ei-mata jala-krīḍā kari' kata-kṣaṇa\
 > āiṭoṭā āilā prabhu lañā bhakta-gaṇa
 
 *ei-mata*—in this way; *jala-krīḍā*—sporting in the water; *kari'*—after performing; *kata-kṣaṇa*—for some time; *āiṭoṭā*—to the place named Āiṭoṭā; *āilā*—came back; *prabhu*—Śrī Caitanya Mahāprabhu; *lañā bhakta-gaṇa*—accompanied by the devotees.

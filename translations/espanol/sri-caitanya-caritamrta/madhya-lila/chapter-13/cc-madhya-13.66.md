@@ -1,9 +1,9 @@
 ### CC Madhya 13.66
 
-> পূর্বে যৈছে রাসাদি লীলা কৈল বৃন্দাবনে ।
+> পূর্বে যৈছে রাসাদি লীলা কৈল বৃন্দাবনে ।\
 > অলৌকিক লীলা গৌর কৈল ক্ষণে ক্ষণে ॥৬৬॥
 
-> pūrve yaiche rāsādi līlā kaila vṛndāvane
+> pūrve yaiche rāsādi līlā kaila vṛndāvane\
 > alaukika līlā gaura kaila kṣaṇe kṣaṇe
 
 *pūrve*—anteriormente; *yaiche*—tal como; *rāsa-ādi līlā*—el rāsa-līlā y otros pasatiempos; *kaila*—realizó; *vṛndāvane*—en Vṛndāvana; *alaukika*—extraordinarios; *līlā*—pasatiempos; *gaura*—el Señor Śrī Caitanya Mahāprabhu; *kaila*—realizó; *kṣaṇe kṣaṇe*—a cada instante.

@@ -1,9 +1,9 @@
 ### CC Madhya 18.100
 
-> তবে তাঁরে কহে প্রভু চাপড় মারিয়া ।
+> তবে তাঁরে কহে প্রভু চাপড় মারিয়া ।\
 > “মূর্খের বাক্যে ‘মূর্খ’ হৈলা পণ্ডিত হঞা ॥১০০॥
 
-> tabe tāṅre kahe prabhu cāpaḍa māriyā
+> tabe tāṅre kahe prabhu cāpaḍa māriyā\
 > "mūrkhera vākye 'mūrkha' hailā paṇḍita hañā
 
 *tabe*—thereafter; *tāṅre*—unto Balabhadra Bhaṭṭācārya; *kahe*—says; *prabhu*—Śrī Caitanya Mahāprabhu; *cāpaḍa māriyā*—slapping; *mūrkhera vākye*—by the words of some rascals and fools; *mūrkha hailā*—you became a fool; *paṇḍita hañā*—being a learned scholar.

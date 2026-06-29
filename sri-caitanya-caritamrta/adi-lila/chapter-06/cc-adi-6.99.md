@@ -1,9 +1,9 @@
 ### CC Adi 6.99
 
-> জ্যেষ্ঠ-ভাবে অংশীতে হয় প্রভু-জ্ঞান ।
+> জ্যেষ্ঠ-ভাবে অংশীতে হয় প্রভু-জ্ঞান ।\
 > কনিষ্ঠ-ভাবে আপনাতে ভক্ত-অভিমান ॥৯৯॥
 
-> jyeṣṭha-bhāve aṁśīte haya prabhu-jñāna
+> jyeṣṭha-bhāve aṁśīte haya prabhu-jñāna\
 > kaniṣṭha-bhāve āpanāte bhakta-abhimāna
 
 *jyeṣṭha-bhāve*—in the emotion of being superior; *aṁśīte*—in the original source of all incarnations; *haya*—there is; *prabhu-jñāna*—knowledge as master; *kaniṣṭha-bhāve*—in an inferior conception; *āpanāte*—in Himself; *bhakta-abhimāna*—the conception of being a devotee.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.186
 
-> শুনি’ ভক্তগণ তাঁরে করিল স্তবন ।
+> শুনি’ ভক্তগণ তাঁরে করিল স্তবন ।\
 > বেদ-আজ্ঞা যৈছে, মাতা, তোমার বচন ॥১৮৬॥
 
-> śuni' bhakta-gaṇa tāṅre karila stavana
+> śuni' bhakta-gaṇa tāṅre karila stavana\
 > veda-ājñā yaiche, mātā, tomāra vacana
 
 *śuni'*—al oír esto; *bhakta-gaṇa*—todos los devotos; *tāṅre*—a ella; *karila*—hicieron; *stavana*—oración; *veda-ājñā*—una disposición de los Vedas; *yaiche*—como; *mātā*—querida madre; *tomāra vacana*—tu palabra.

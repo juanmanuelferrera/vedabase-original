@@ -1,13 +1,13 @@
 ### CC Madhya 8.93
 
-> ন পারয়েঽহং নিরবদ্যসংযুজাং
-> স্বসাধুকৃত্যং বিবুধায়ুষাপি বঃ ৷
-> যা মাভজন্ দুর্জয়-গেহশৃঙ্খলাঃ
+> ন পারয়েঽহং নিরবদ্যসংযুজাং\
+> স্বসাধুকৃত্যং বিবুধায়ুষাপি বঃ ৷\
+> যা মাভজন্ দুর্জয়-গেহশৃঙ্খলাঃ\
 > সংবৃশ্চ্য তদ্বঃ প্ৰতিযাতু সাধুনা ৷৷ ৯৩ ৷৷ ॥৯৩॥
 
-> na pāraye 'haṁ niravadya-saṁyujāṁ
-> sva-sādhu-kṛtyaṁ vibudhāyuṣāpi vaḥ
-> yā mābhajan durjara-geha-śṛṅkhalāḥ
+> na pāraye 'haṁ niravadya-saṁyujāṁ\
+> sva-sādhu-kṛtyaṁ vibudhāyuṣāpi vaḥ\
+> yā mābhajan durjara-geha-śṛṅkhalāḥ\
 > saṁvṛścya tad vaḥ pratiyātu sādhunā
 
 *na*—no; *pāraye*—soy capaz; *aham*—Yo; *niravadya*—sin duplicidad; *saṁyujām*—encuentro; *sva-sādhu-kṛtyam*—vuestras propias actividades virtuosas; *vibudha-āyuṣā api*—ni siquiera con una duración de vida como la de los semidioses; *vaḥ*—vosotras; *yā*—quienes; *mā*—a Mí; *abhajan*—han adorado; *durjara*—difíciles de superar; *geha*—de la vida hogareña; *śṛṅkhalāḥ*—las cadenas; *saṁvṛścya*—cortando; *tat*—eso; *vaḥ*—vuestro; *pratiyātu*—que haya una retribución; *sādhunā*—mediante actividades piadosas.

@@ -1,9 +1,9 @@
 ### CC Madhya 3.173
 
-> মাতার ব্যগ্রতা দেখি’ প্রভুর ব্যগ্র মন ।
+> মাতার ব্যগ্রতা দেখি’ প্রভুর ব্যগ্র মন ।\
 > ভক্তগণ একত্র করি’ বলিলা বচন ॥১৭৩॥
 
-> mātāra vyagratā dekhi' prabhura vyagra mana
+> mātāra vyagratā dekhi' prabhura vyagra mana\
 > bhakta-gaṇa ekatra kari' balilā vacana
 
 *mātāra*—de la madre; *vyagratā*—ansiedad; *dekhi'*—al ver; *prabhura*—de Śrī Caitanya Mahāprabhu; *vyagra*—agitada; *mana*—mente; *bhakta-gaṇa*—todos los devotos; *ekatra kari'*—reuniéndolos; *balilā*—dijo; *vacana*—palabras.

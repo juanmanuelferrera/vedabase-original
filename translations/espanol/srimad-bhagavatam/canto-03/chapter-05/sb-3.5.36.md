@@ -1,11 +1,11 @@
 ### SB 3.5.36
 
-> ज्योतिषाम्भोऽनुसंसृष्टं विकुर्वद्ब्रह्मवीक्षितम् ।
+> ज्योतिषाम्भोऽनुसंसृष्टं विकुर्वद्ब्रह्मवीक्षितम् ।\
 > महीं गन्धगुणामाधात्कालमायांशयोगतः ॥३६॥
 
-> jyotiṣāmbho 'nusaṁsṛṣṭaṁ
-> vikurvad brahma-vīkṣitam
-> mahīṁ gandha-guṇām ādhāt
+> jyotiṣāmbho 'nusaṁsṛṣṭaṁ\
+> vikurvad brahma-vīkṣitam\
+> mahīṁ gandha-guṇām ādhāt\
 > kāla-māyāṁśa-yogataḥ
 
 *jyotiṣā*—electricidad; *ambhaḥ*—agua; *anusaṁsṛṣṭam*—creada de esa manera; *vikurvat*—debido a la transformación; *brahma*—el Supremo; *vīkṣitam*—habiendo sido mirada así; *mahīm*—la tierra; *gandha*—olor; *guṇām*—cualidad; *ādhāt*—fue creada; *kāla*—tiempo eterno; *māyā*—energía externa; *aṁśa*—parcialmente; *yogataḥ*—entremezclando.

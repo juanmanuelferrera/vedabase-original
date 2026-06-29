@@ -1,11 +1,11 @@
 ### SB 5.5.18
 
-> गुरुर्न स स्यात्स्वजनो न स स्यात्पिता न स स्याज्जननी न सा स्यात
+> गुरुर्न स स्यात्स्वजनो न स स्यात्पिता न स स्याज्जननी न सा स्यात\
 > दैवं न तत्स्यान्न पतिश्च स स्यान्न मोचयेद्यः समुपेतमृत्युम ॥१८॥
 
-> gurur na sa syāt sva-jano na sa syāt
-> pitā na sa syāj jananī na sā syāt
-> daivaṁ na tat syān na patiś ca sa syān
+> gurur na sa syāt sva-jano na sa syāt\
+> pitā na sa syāj jananī na sā syāt\
+> daivaṁ na tat syān na patiś ca sa syān\
 > na mocayed yaḥ samupeta-mṛtyum
 
 *guruḥ*—a spiritual master; *na*—not; *saḥ*—he; *syāt*—should become; *sva-janaḥ*—a relative; *na*—not; *saḥ*—such a person; *syāt*—should become; *pitā*—a father; *na*—not; *saḥ*—he; *syāt*—should become; *jananī*—a mother; *na*—not; *sā*—she; *syāt*—should become; *daivam*—the worshipable deity; *na*—not; *tat*—that; *syāt*—should become; *na*—not; *patiḥ*—a husband; *ca*—also; *saḥ*—he; *syāt*—should become; *na*—not; *mocayet*—can deliver; *yaḥ*—who; *samupeta-mṛtyum*—one who is on the path of repeated birth and death.

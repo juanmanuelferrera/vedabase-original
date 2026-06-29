@@ -1,13 +1,13 @@
 ### SB 6.5.36
 
-> श्रीदक्ष उवाच
-> अहो असाधो साधूनां साधुलिङ्गेन नस्त्वया
+> श्रीदक्ष उवाच\
+> अहो असाधो साधूनां साधुलिङ्गेन नस्त्वया\
 > असाध्वकार्यर्भकाणां भिक्षोर्मार्गः प्रदर्शितः ॥३६॥
 
-> śrī-dakṣa uvāca
-> aho asādho sādhūnāṁ
-> sādhu-liṅgena nas tvayā
-> asādhv akāry arbhakāṇāṁ
+> śrī-dakṣa uvāca\
+> aho asādho sādhūnāṁ\
+> sādhu-liṅgena nas tvayā\
+> asādhv akāry arbhakāṇāṁ\
 > bhikṣor mārgaḥ pradarśitaḥ
 
 *śrī-dakṣaḥ uvāca*—Prajāpati Dakṣa said; *aho asādho*—O greatly dishonest nondevotee; *sādhūnām*—of the society of devotees and great sages; *sādhu-liṅgena*—wearing the dress of a saintly person; *naḥ*—unto us; *tvayā*—by you; *asādhu*—a dishonesty; *akāri*—has been done; *arbhakāṇām*—of poor boys who were very inexperienced; *bhikṣoḥ mārgaḥ*—the path of a beggar or mendicant *sannyāsī*; *pradarśitaḥ*—shown.

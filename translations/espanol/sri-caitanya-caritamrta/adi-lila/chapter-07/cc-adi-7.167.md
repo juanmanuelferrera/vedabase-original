@@ -1,9 +1,9 @@
 ### CC Adi 7.167
 
-> সেতুবন্ধ পর্যন্ত কৈলা ভক্তির প্রচার ।
+> সেতুবন্ধ পর্যন্ত কৈলা ভক্তির প্রচার ।\
 > কৃষ্ণপ্রেম দিয়া কৈলা সবার নিস্তার ॥১৬৭॥
 
-> setubandha paryanta kailā bhaktira pracāra
+> setubandha paryanta kailā bhaktira pracāra\
 > kṛṣṇa-prema diyā kailā sabāra nistāra
 
 *setubandha*—el lugar donde el Señor Rāmacandra construyó Su puente; *paryanta*—hasta ese lugar; *kailā*—realizó; *bhaktira*—del culto del servicio devocional; *pracāra*—difusión; *kṛṣṇa-prema*—amor por Kṛṣṇa; *diyā*—entregando; *kailā*—realizó; *sabāra*—de todos; *nistāra*—liberación.

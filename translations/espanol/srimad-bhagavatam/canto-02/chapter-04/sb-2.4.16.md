@@ -1,11 +1,11 @@
 ### SB 2.4.16
 
-> विचक्षणा यच्चरणोपसादनात्सङ्गं व्युदस्योभयतोऽन्तरात्मनः ।
+> विचक्षणा यच्चरणोपसादनात्सङ्गं व्युदस्योभयतोऽन्तरात्मनः ।\
 > विन्दन्ति हि ब्रह्मगतिं गतक्लमास्तस्मै सुभद्रश्रवसे नमो नमः ॥१६॥
 
-> vicakṣaṇā yac-caraṇopasādanāt
-> saṅgaṁ vyudasyobhayato 'ntar-ātmanaḥ
-> vindanti hi brahma-gatiṁ gata-klamās
+> vicakṣaṇā yac-caraṇopasādanāt\
+> saṅgaṁ vyudasyobhayato 'ntar-ātmanaḥ\
+> vindanti hi brahma-gatiṁ gata-klamās\
 > tasmai subhadra-śravase namo namaḥ
 
 *vicakṣaṇāḥ*—sumamente intelectual; *yat*—cuyo; *caraṇa-upasādanāt*—por el simple hecho de uno dedicarse a los pies de loto; *saṅgam*—apego; *vyudasya*—renunciando por completo; *ubhayataḥ*—por la existencia presente y futura; *antaḥ-ātmanaḥ*—del corazón y el alma; *vindanti*—se mueve progresivamente; *hi*—ciertamente; *brahma-gatim*—hacia la existencia espiritual; *gata-klamāḥ*—sin dificultad; *tasmai*—a Él; *subhadra*—sumamente auspicioso; *śravase*—a aquel que es oído; *namaḥ*—mis debidas reverencias; *namaḥ*—una y otra vez.

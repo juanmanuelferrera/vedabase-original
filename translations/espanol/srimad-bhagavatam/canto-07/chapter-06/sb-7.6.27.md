@@ -1,13 +1,13 @@
 ### SB 7.6.27
 
-> ज्ञआनं तदेतदमलं दुरवापमाह
-> नारायणो नरसखः किल नारदाय
-> एकान्तिनां भगवतस्तदकिञ्चनानां
+> ज्ञआनं तदेतदमलं दुरवापमाह\
+> नारायणो नरसखः किल नारदाय\
+> एकान्तिनां भगवतस्तदकिञ्चनानां\
 > पादारविन्दरजसाप्लुतदेहिनां स्यात ॥२७॥
 
-> jñānaṁ tad etad amalaṁ duravāpam āha
-> nārāyaṇo nara-sakhaḥ kila nāradāya
-> ekāntināṁ bhagavatas tad akiñcanānāṁ
+> jñānaṁ tad etad amalaṁ duravāpam āha\
+> nārāyaṇo nara-sakhaḥ kila nāradāya\
+> ekāntināṁ bhagavatas tad akiñcanānāṁ\
 > pādāravinda-rajasāpluta-dehināṁ syāt
 
 *jñānam*—conocimiento; *tat*—ese; *etat*—este; *amalam*—sin contaminación material; *duravāpam*—muy difícil de comprender (sin la misericordia de un devoto); *āha*—explicó; *nārāyaṇaḥ*—el Señor Nārāyaṇa, la Suprema Personalidad de Dios; *nara-sakhaḥ*—el amigo de todas las entidades vivientes (especialmente de los seres humanos); *kila*—ciertamente; *nāradāya*—al gran sabio Nārada; *ekāntinām*—de los que se han entregado exclusivamente a la Suprema Personalidad de Dios; *bhagavataḥ*—de la Suprema Personalidad de Dios; *tat*—ese (conocimiento); *akiñcanānām*—que no dicen ser dueños de ninguna posesión material; *pāda-aravinda*—de los pies de loto del Señor; *rajasā*—por el polvo; *āpluta*—bañados; *dehinām*—cuyos cuerpos; *syāt*—es posible.

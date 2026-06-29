@@ -1,9 +1,9 @@
 ### CC Adi 9.36
 
-> অতএব আমি আজ্ঞা দিলুঁ সবাকারে ।
+> অতএব আমি আজ্ঞা দিলুঁ সবাকারে ।\
 > যাহাঁ তাহাঁ প্রেমফল দেহ’ যারে তারে ॥৩৬॥
 
-> ataeva āmi ājñā diluṅ sabākāre
+> ataeva āmi ājñā diluṅ sabākāre\
 > yāhāṅ tāhāṅ prema-phala deha' yāre tāre
 
 *ataeva*—por lo tanto; *āmi*—Yo; *ājñā*—orden; *diluṅ*—doy; *sabākāre*—a todos; *yāhāṅ*—dondequiera que; *tāhāṅ*—en todas partes; *prema-phala*—el fruto del amor a Dios; *deha'*—distribuyan; *yāre*—a cualquiera; *tāre*—a todos.

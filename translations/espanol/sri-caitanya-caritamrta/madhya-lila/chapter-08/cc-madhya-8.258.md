@@ -1,9 +1,9 @@
 ### CC Madhya 8.258
 
-> অরসজ্ঞ কাক চূষে জ্ঞান-নিম্বফলে ৷
+> অরসজ্ঞ কাক চূষে জ্ঞান-নিম্বফলে ৷\
 > রসজ্ঞ কোকিল খায় প্রেমাম্র-মুকুলে ৷৷ ২৫৮ ৷৷ ॥২৫৮॥
 
-> arasa-jña kāka cūṣe jñāna-nimba-phale
+> arasa-jña kāka cūṣe jñāna-nimba-phale\
 > rasa-jña kokila khāya premāmra-mukule
 
 *arasa-jña*—los que carecen de melosidades; *kāka*—los cuervos; *cūṣe*—succionan; *jñāna*—del conocimiento; *nimba-phale*—el amargo fruto del nimba; *rasa-jña*—los que disfrutan de las melosidades trascendentales; *kokila*—los cuclillos; *khāya*—comen; *prema-āmra-mukule*—los brotes del mango del amor a Dios.

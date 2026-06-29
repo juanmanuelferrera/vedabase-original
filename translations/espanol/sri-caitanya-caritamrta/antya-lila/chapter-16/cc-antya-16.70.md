@@ -1,9 +1,9 @@
 ### CC Antya 16.70
 
-> ihāre nāriluṅ kṛṣṇa-nāma kahāite!"
+> ihāre nāriluṅ kṛṣṇa-nāma kahāite!"\
 > śuniyā svarūpa-gosāñi lāgilā kahite
 
-> ihāre nāriluṅ kṛṣṇa-nāma kahāite!"
+> ihāre nāriluṅ kṛṣṇa-nāma kahāite!"\
 > śuniyā svarūpa-gosāñi lāgilā kahite
 
 *ihāre*—a este niño; *nāriluṅ*—no pude; *kṛṣṇa-nāma*—el santo nombre de Kṛṣṇa; *kahāite*—hacer pronunciar; *śuniyā*—al escuchar; *svarūpa-gosāñi*—Svarūpa Dāmodara Gosāñi; *lāgilā*—comenzó; *kahite*—a decir.

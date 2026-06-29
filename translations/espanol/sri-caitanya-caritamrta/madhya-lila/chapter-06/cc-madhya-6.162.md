@@ -1,9 +1,9 @@
 ### CC Madhya 6.162
 
-> ‘মায়াধীশ’ ‘মায়াবশ’ — ঈশ্বরে-জীবে ভেদ ৷
+> ‘মায়াধীশ’ ‘মায়াবশ’ — ঈশ্বরে-জীবে ভেদ ৷\
 > হেন-জীবে ঈশ্বর-সহ কহ ত’ অভেদ ॥১৬২॥
 
-> 'māyādhīśa' 'māyā-vaśa'--īśvare-jīve bheda
+> 'māyādhīśa' 'māyā-vaśa'--īśvare-jīve bheda\
 > hena-jīve īśvara-saha kaha ta' abheda
 
 *māyā-adhīśa*—el Señor de la energía; *māyā-vaśa*—sometido a la influencia de māyā; *īśvare*—en la Suprema Personalidad de Dios; *jīve*—en las entidades vivientes; *bheda*—la diferencia; *hena-jīve*—tales entidades vivientes; *īśvara-saha*—con la Suprema Personalidad de Dios; *kaha*—dices; *ta'*—ciertamente; *abheda*—una y la misma cosa.

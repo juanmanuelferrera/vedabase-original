@@ -1,13 +1,13 @@
 ### Bg 6.37
 
-> अर्जुन उवाच ।
-> अयतिः श्रद्धयोपेतो योगाच्चलितमानसः ।
+> अर्जुन उवाच ।\
+> अयतिः श्रद्धयोपेतो योगाच्चलितमानसः ।\
 > अप्राप्य योगसंसिद्धिं कां गतिं कृष्ण गच्छति ॥३७॥
 
-> arjuna uvāca
-> ayatiḥ śraddhayopeto
-> yogāc calita-mānasaḥ
-> aprāpya yoga-saṁsiddhiṁ
+> arjuna uvāca\
+> ayatiḥ śraddhayopeto\
+> yogāc calita-mānasaḥ\
+> aprāpya yoga-saṁsiddhiṁ\
 > kāṁ gatiṁ kṛṣṇa gacchati
 
 *arjunaḥ uvāca*—Arjuna dijo; *ayatiḥ*—el trascendentalista que fracasa; *sraddhayā*—con fe; *upetaḥ*—ocupado; *yogāt*—del vínculo místico; *calita*—desviado; *mānasaḥ*—de aquel que tiene este tipo de mentalidad; *aprāpya*—fracasando; *yoga-saṁsiddhim*—la perfección más elevada del misticismo; *kām*—cual; *gatim*—destino; *kṛṣṇa*—¡oh, Kṛṣṇa!; *gacchati*—alcanza.

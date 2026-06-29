@@ -1,11 +1,11 @@
 ### SB 3.26.31
 
-> तैजसानीन्द्रियाण्येव क्रियाज्ञानविभागशः ।
+> तैजसानीन्द्रियाण्येव क्रियाज्ञानविभागशः ।\
 > प्राणस्य हि क्रियाशक्तिर्बुद्धेर्विज्ञानशक्तिता ॥३१॥
 
-> taijasānīndriyāṇy eva
-> kriyā-jñāna-vibhāgaśaḥ
-> prāṇasya hi kriyā-śaktir
+> taijasānīndriyāṇy eva\
+> kriyā-jñāna-vibhāgaśaḥ\
+> prāṇasya hi kriyā-śaktir\
 > buddher vijñāna-śaktitā
 
 *taijasāni*—produced from egoism in the mode of passion; *indriyāṇi*—the senses; *eva*—certainly; *kriyā*—action; *jñāna*—knowledge; *vibhāgaśaḥ*—according to; *prāṇasya*—of the vital energy; *hi*—indeed; *kriyā-śaktiḥ*—the senses of action; *buddheḥ*—of the intelligence; *vijñāna-śaktitā*—the senses for acquiring knowledge.

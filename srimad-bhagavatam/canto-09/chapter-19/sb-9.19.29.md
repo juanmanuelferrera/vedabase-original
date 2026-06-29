@@ -1,11 +1,11 @@
 ### SB 9.19.29
 
-> नमस्तुभ्यं भगवते वासुदेवाय वेधसे
+> नमस्तुभ्यं भगवते वासुदेवाय वेधसे\
 > सर्वभूताधिवासाय शान्ताय बृहते नमः ॥२९॥
 
-> namas tubhyaṁ bhagavate
-> vāsudevāya vedhase
-> sarva-bhūtādhivāsāya
+> namas tubhyaṁ bhagavate\
+> vāsudevāya vedhase\
+> sarva-bhūtādhivāsāya\
 > śāntāya bṛhate namaḥ
 
 *namaḥ*—I offer my respectful obeisances; *tubhyam*—unto You; *bhagavate*—the Supreme Personality of Godhead; *vāsudevāya*—Lord Vāsudeva; *vedhase*—the creator of everything; *sarva-bhūta-adhivāsāya*—present everywhere (within the heart of every living entity and within the atom also); *śāntāya*—peaceful, as if completely inactive; *bṛhate*—the greatest of all; *namaḥ*—I offer my respectful obeisances.

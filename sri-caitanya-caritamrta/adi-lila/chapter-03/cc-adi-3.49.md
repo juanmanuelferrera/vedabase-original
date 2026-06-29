@@ -1,11 +1,11 @@
 ### CC Adi 3.49
 
-> সুবর্ণবর্ণো হেমাঙ্গো বরাঙ্গশ্চন্দনাঙ্গদী ।
+> সুবর্ণবর্ণো হেমাঙ্গো বরাঙ্গশ্চন্দনাঙ্গদী ।\
 > সন্ন্যাসকৃচ্ছমঃ শান্তো নিষ্ঠাশান্তিপরায়ণঃ ॥৪৯॥
 
-> suvarṇa-varṇo hemāṅgo
-> varāṅgaś candanāṅgadī
-> sannyāsa-kṛc chamaḥ śānto
+> suvarṇa-varṇo hemāṅgo\
+> varāṅgaś candanāṅgadī\
+> sannyāsa-kṛc chamaḥ śānto\
 > niṣṭhā-śānti-parāyaṇaḥ
 
 *suvarṇa*—of gold; *varṇaḥ*—having the color; *hema-aṅgaḥ*—whose body was like molten gold; *vara-aṅgaḥ*—having a most beautiful body; *candana-aṅgadī*—whose body was smeared with sandalwood; *sannyāsa-kṛt*—practicing the renounced order of life; *śamaḥ*—equipoised; *śāntaḥ*—peaceful; *niṣṭhā*—devotion; *śānti*—and of peace; *parāyaṇaḥ*—the highest resort.

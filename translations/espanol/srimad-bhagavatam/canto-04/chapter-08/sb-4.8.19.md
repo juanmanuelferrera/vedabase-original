@@ -1,11 +1,11 @@
 ### SB 4.8.19
 
-> आतिष्ठ तत्तात विमत्सरस्त्वमुक्तं समात्रापि यदव्यलीकम् ।
+> आतिष्ठ तत्तात विमत्सरस्त्वमुक्तं समात्रापि यदव्यलीकम् ।\
 > आराधयाधोक्षजपादपद्मं यदीच्छसेऽध्यासनमुत्तमो यथा ॥१९॥
 
-> ātiṣṭha tat tāta vimatsaras tvam
-> uktaṁ samātrāpi yad avyalīkam
-> ārādhayādhokṣaja-pāda-padmaṁ
+> ātiṣṭha tat tāta vimatsaras tvam\
+> uktaṁ samātrāpi yad avyalīkam\
+> ārādhayādhokṣaja-pāda-padmaṁ\
 > yadīcchase 'dhyāsanam uttamo yathā
 
 *ātiṣṭha*—simplemente pon en práctica; *tat*—eso; *tāta*—querido hijo mío; *vimatsaraḥ*—sin ser envidioso; *tvam*—a ti; *uktam*—dicho; *samātrā api*—por tu madrastra; *yat*—todo lo que; *avyalīkam*—es todo cierto; *ārādhaya*—simplemente comienza a adorar; *adhokṣaja*—la Trascendencia; *pāda-padmam*—los pies de loto; *yadi*—si; *icchase*—deseas; *adhyāsanam*—sentarte con; *uttamaḥ*—tu hermanastro; *yathā*—como.

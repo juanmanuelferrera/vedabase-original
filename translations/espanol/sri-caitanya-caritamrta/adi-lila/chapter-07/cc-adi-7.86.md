@@ -1,9 +1,9 @@
 ### CC Adi 7.86
 
-> কৃষ্ণনামের ফল — ‘প্রেমা’, সর্বশাস্ত্রে কয় ।
+> কৃষ্ণনামের ফল — ‘প্রেমা’, সর্বশাস্ত্রে কয় ।\
 > ভাগ্যে সেই প্রেমা তোমায় করিল উদয় ॥৮৬॥
 
-> kṛṣṇa-nāmera phala--'premā', sarva-śāstre kaya
+> kṛṣṇa-nāmera phala--'premā', sarva-śāstre kaya\
 > bhāgye sei premā tomāya karila udaya
 
 *kṛṣṇa-nāmera*—del santo nombre del Señor; *phala*—resultado; *premā*—amor por Dios; *sarva*—en todas; *śāstre*—las Escrituras reveladas; *kaya*—describen; *bhāgye*—afortunadamente; *sei*—ese; *premā*—amor por Dios; *tomāya*—en Ti; *karila*—ha realizado; *udaya*—surgimiento.

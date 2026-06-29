@@ -1,11 +1,11 @@
 ### SB 8.16.55
 
-> दक्षिणां गुरवे दद्यादृत्विग्भ्यश्च यथार्हतः
+> दक्षिणां गुरवे दद्यादृत्विग्भ्यश्च यथार्हतः\
 > अन्नाद्येनाश्वपाकांश्च प्रीणयेत्समुपागतान ॥५५॥
 
-> dakṣiṇāṁ gurave dadyād
-> ṛtvigbhyaś ca yathārhataḥ
-> annādyenāśva-pākāṁś ca
+> dakṣiṇāṁ gurave dadyād\
+> ṛtvigbhyaś ca yathārhataḥ\
+> annādyenāśva-pākāṁś ca\
 > prīṇayet samupāgatān
 
 *dakṣiṇām*—some contribution of money or gold; *gurave*—unto the spiritual master; *dadyāt*—one should give; *ṛtvigbhyaḥ ca*—and to the priests engaged by the spiritual master; *yathā-arhataḥ*—as far as possible; *anna-adyena*—by distributing *prasāda*; *āśva-pākān*—even to the *caṇḍālas,* persons habituated to eating the flesh of dogs; *ca*—also; *prīṇayet*—one should please; *samupāgatān*—because they have assembled there for the ceremony.

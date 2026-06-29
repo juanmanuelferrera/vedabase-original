@@ -1,11 +1,11 @@
 ### SB 8.18.21
 
-> तं नर्मदायास्तट उत्तरे बलेर्य ऋत्विजस्ते भृगुकच्छसंज्ञअके
+> तं नर्मदायास्तट उत्तरे बलेर्य ऋत्विजस्ते भृगुकच्छसंज्ञअके\
 > प्रवर्तयन्तो भृगवः क्रतूत्तमं व्यचक्षतारादुदितं यथा रविम ॥२१॥
 
-> taṁ narmadāyās taṭa uttare baler
-> ya ṛtvijas te bhṛgukaccha-saṁjñake
-> pravartayanto bhṛgavaḥ kratūttamaṁ
+> taṁ narmadāyās taṭa uttare baler\
+> ya ṛtvijas te bhṛgukaccha-saṁjñake\
+> pravartayanto bhṛgavaḥ kratūttamaṁ\
 > vyacakṣatārād uditaṁ yathā ravim
 
 *tam*—a Él (a Vāmanadeva); *narmadāyāḥ*—del río Narmadā; *taṭe*—en la orilla; *uttare*—norte; *baleḥ*—de Mahārāja Bali; *ye*—quienes; *ṛtvijaḥ*—los sacerdotes que celebraban ceremonias rituales; *te*—todos ellos; *bhṛgukaccha-saṁjñake*—en el campo de Bhṛgukaccha; *pravartayantaḥ*—celebrar; *bhṛgavaḥ*—todos los descendientes de Bhṛgu; *kratu-uttamam*—el sacrificio más importante, llamado *aśvamedha*; *vyacakṣata*—observaron; *ārāt*—cerca; *uditam*—amanecido; *yathā*—como; *ravim*—el Sol.

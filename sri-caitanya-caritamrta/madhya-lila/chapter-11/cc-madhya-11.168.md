@@ -1,9 +1,9 @@
 ### CC Madhya 11.168
 
-> এই কথা লোক গিয়া প্রভুরে কহিল ।
+> এই কথা লোক গিয়া প্রভুরে কহিল ।\
 > শুনিয়া প্রভুর মনে বড় সুখ হইল ॥১৬৮॥
 
-> ei kathā loka giyā prabhure kahila
+> ei kathā loka giyā prabhure kahila\
 > śuniyā prabhura mane baḍa sukha ha-ila
 
 *ei kathā*—this message; *loka*—people; *giyā*—going; *prabhure*—unto Lord Śrī Caitanya Mahāprabhu; *kahila*—informed; *śuniyā*—hearing; *prabhura mane*—in the mind of the Lord; *baḍa*—very much; *sukha*—happiness; *ha-ila*—became.

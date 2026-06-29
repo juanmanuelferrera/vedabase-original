@@ -1,11 +1,11 @@
 ### SB 1.5.35
 
-> यदत्र क्रियते कर्म भगवत्परितोषणम् ।
+> यदत्र क्रियते कर्म भगवत्परितोषणम् ।\
 > ज्ञानं यत्तदधीनं हि भक्तियोगसमन्वितम् ॥३५॥
 
-> yad atra kriyate karma
-> bhagavat-paritoṣaṇam
-> jñānaṁ yat tad adhīnaṁ hi
+> yad atra kriyate karma\
+> bhagavat-paritoṣaṇam\
+> jñānaṁ yat tad adhīnaṁ hi\
 > bhakti-yoga-samanvitam
 
 *yat*—whatever; *atra*—in this life or world; *kriyate*—does perform; *karma*—work; *bhagavat*—unto the Personality of Godhead; *paritoṣaṇam*—satisfaction of; *jñānam*—knowledge; *yat tat*—what is so called; *adhīnam*—dependent; *hi*—certainly; *bhakti-yoga*—devotional; *samanvitam*—dovetailed with *bhakti-yoga.*

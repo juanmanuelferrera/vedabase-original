@@ -2,7 +2,7 @@
 
 > “গোবর্ধন হৈতে মোরে কে ইহাঁ আনিল ? পাঞা কৃষ্ণের লীলা দেখিতে না পাইল ॥১০৫॥
 
-> "govardhana haite more ke ihāṅ ānila?
+> "govardhana haite more ke ihāṅ ānila?\
 > pāñā kṛṣṇera līlā dekhite nā pāila
 
 *govardhana haite*—de la colina de Govardhana; *more*—a Mí; *ke*—quién; *ihāṅ*—aquí; *ānila*—trajo; *pāñā*—habiendo tenido la oportunidad; *kṛṣṇera līlā*—pasatiempos de Kṛṣṇa; *dekhite nā pāila*—no pude ver.

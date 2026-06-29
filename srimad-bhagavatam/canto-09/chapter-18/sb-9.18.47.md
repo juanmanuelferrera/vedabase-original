@@ -1,11 +1,11 @@
 ### SB 9.18.47
 
-> देवयान्यप्यनुदिनं मनोवाग्देहवस्तुभिः
+> देवयान्यप्यनुदिनं मनोवाग्देहवस्तुभिः\
 > प्रेयसः परमां प्रीतिमुवाह प्रेयसी रहः ॥४७॥
 
-> devayāny apy anudinaṁ
-> mano-vāg-deha-vastubhiḥ
-> preyasaḥ paramāṁ prītim
+> devayāny apy anudinaṁ\
+> mano-vāg-deha-vastubhiḥ\
+> preyasaḥ paramāṁ prītim\
 > uvāha preyasī rahaḥ
 
 *devayānī*—Mahārāja Yayāti's wife, the daughter of Śukrācārya; *api*—also; *anudinam*—twenty-four hours, day after day; *manaḥ-vāk*—by her mind and words; *deha*—body; *vastubhiḥ*—with all requisite things; *preyasaḥ*—of her beloved husband; *paramām*—transcendental; *prītim*—bliss; *uvāha*—executed; *preyasī*—very dear to her husband; *rahaḥ*—in seclusion, without any disturbance.

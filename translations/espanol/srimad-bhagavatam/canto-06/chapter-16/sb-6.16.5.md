@@ -1,11 +1,11 @@
 ### SB 6.16.5
 
-> बन्धुज्ञआत्यरिमध्यस्थ मित्रोदासीनविद्विषः
+> बन्धुज्ञआत्यरिमध्यस्थ मित्रोदासीनविद्विषः\
 > सर्व एव हि सर्वेषां भवन्ति क्रमशो मिथः ॥५॥
 
-> bandhu-jñāty-ari-madhyastha-
-> mitrodāsīna-vidviṣaḥ
-> sarva eva hi sarveṣāṁ
+> bandhu-jñāty-ari-madhyastha-\
+> mitrodāsīna-vidviṣaḥ\
+> sarva eva hi sarveṣāṁ\
 > bhavanti kramaśo mithaḥ
 
 *bandhu*—amigos; *jñāti*—familiares; *ari*—enemigos; *madhyastha*—neutrales; *mitra*—bienquerientes; *udāsīna*—indiferentes; *vidviṣaḥ*—o personas envidiosas; *sarve*—todos; *eva*—en verdad; *hi*—ciertamente; *sarveṣām*—de todos; *bhavanti*—llegan a ser; *kramaśaḥ*—gradualmente; *mithaḥ*—entre sí.

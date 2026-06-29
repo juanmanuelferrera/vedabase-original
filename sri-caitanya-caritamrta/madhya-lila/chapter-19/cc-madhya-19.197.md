@@ -1,11 +1,11 @@
 ### CC Madhya 19.197
 
-> দেবকী বসুদেবশ্চ বিজ্ঞায় জগদীশ্বরৌ ।
+> দেবকী বসুদেবশ্চ বিজ্ঞায় জগদীশ্বরৌ ।\
 > কৃতসংবন্দনৌ পুত্রৌ সস্বজাতে ন শঙ্কিতৌ ॥১৯৭॥
 
-> devakī vasudevaś ca
-> vijñāya jagad-īśvarau
-> kṛta-saṁvandanau putrau
+> devakī vasudevaś ca\
+> vijñāya jagad-īśvarau\
+> kṛta-saṁvandanau putrau\
 > sasvajāte na śaṅkitau
 
 *devakī*—Devakī; *vasudevaḥ*—Vasudeva; *ca*—and; *vijñāya*—understanding; *jagat-īśvarau*—the two Lords of the universe; *kṛta-saṁvandanau*—having paid obeisances; *putrau*—the two sons Kṛṣṇa and Balarāma; *sasvajāte*—embraced; *na*—not; *śaṅkitau*—being frightened.

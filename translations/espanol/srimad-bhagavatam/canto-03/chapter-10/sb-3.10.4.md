@@ -1,13 +1,13 @@
 ### SB 3.10.4
 
-> मैत्रेय उवाच
-> विरिञ्चोऽपि तथा चक्रे दिव्यं वर्षशतं तपः ।
+> मैत्रेय उवाच\
+> विरिञ्चोऽपि तथा चक्रे दिव्यं वर्षशतं तपः ।\
 > आत्मन्यात्मानमावेश्य यथाह भगवानजः ॥४॥
 
-> maitreya uvāca
-> viriñco 'pi tathā cakre
-> divyaṁ varṣa-śataṁ tapaḥ
-> ātmany ātmānam āveśya
+> maitreya uvāca\
+> viriñco 'pi tathā cakre\
+> divyaṁ varṣa-śataṁ tapaḥ\
+> ātmany ātmānam āveśya\
 > yathāha bhagavān ajaḥ
 
 *maitreyaḥ uvāca*—el gran sabio Maitreya dijo; *viriñcaḥ*—Brahmā; *api*—también; *tathā*—de esa manera; *cakre*—realizó; *divyam*—celestiales; *varṣa-śatam*—cien años; *tapaḥ*—penitencias; *ātmani*—al Señor; *ātmānam*—su propio ser; *āveśya*—dedicando; *yathā āha*—como se habló; *bhagavān*—la Personalidad de Dios; *ajaḥ*—el innaciente.

@@ -1,11 +1,11 @@
 ### SB 1.3.7
 
-> द्वितीयं तु भवायास्य रसातलगतां महीम् ।
+> द्वितीयं तु भवायास्य रसातलगतां महीम् ।\
 > उद्धरिष्यन्नुपादत्त यज्ञेशः सौकरं वपुः ॥७॥
 
-> dvitīyaṁ tu bhavāyāsya
-> rasātala-gatāṁ mahīm
-> uddhariṣyann upādatta
+> dvitīyaṁ tu bhavāyāsya\
+> rasātala-gatāṁ mahīm\
+> uddhariṣyann upādatta\
 > yajñeśaḥ saukaraṁ vapuḥ
 
 *dvitīyam*—the second; *tu*—but; *bhavāya*—for the welfare; *asya*—of this earth; *rasātala*—of the lowest region; *gatām*—having gone; *mahīm*—the earth; *uddhariṣyan*—lifting; *upādatta*—established; *yajñeśaḥ*—the proprietor or the supreme enjoyer; *saukaram*—hoggish; *vapuḥ*—incarnation.

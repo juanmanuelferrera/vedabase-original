@@ -1,11 +1,11 @@
 ### SB 4.29.7
 
-> बृहद्बलं मनो विद्यादुभयेन्द्रियनायकम् ।
+> बृहद्बलं मनो विद्यादुभयेन्द्रियनायकम् ।\
 > पञ्चालाः पञ्च विषया यन्मध्ये नवखं पुरम् ॥७॥
 
-> bṛhad-balaṁ mano vidyād
-> ubhayendriya-nāyakam
-> pañcālāḥ pañca viṣayā
+> bṛhad-balaṁ mano vidyād\
+> ubhayendriya-nāyakam\
+> pañcālāḥ pañca viṣayā\
 > yan-madhye nava-khaṁ puram
 
 *bṛhat-balam*—very powerful; *manaḥ*—the mind; *vidyāt*—one should know; *ubhaya-indriya*—of both groups of senses; *nāyakam*—the leader; *pañcālāḥ*—the kingdom named Pañcāla; *pañca*—five; *viṣayāḥ*—sense objects; *yat*—of which; *madhye*—in the midst; *nava-kham*—having nine apertures; *puram*—the city.

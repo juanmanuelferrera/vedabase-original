@@ -1,11 +1,11 @@
 ### SB 4.21.7
 
-> स एवमादीन्यनवद्यचेष्टितः कर्माणि भूयांसि महान्महत्तमः ।
+> स एवमादीन्यनवद्यचेष्टितः कर्माणि भूयांसि महान्महत्तमः ।\
 > कुर्वन्शशासावनिमण्डलं यशः स्फीतं निधायारुरुहे परं पदम् ॥७॥
 
-> sa evam ādīny anavadya-ceṣṭitaḥ
-> karmāṇi bhūyāṁsi mahān mahattamaḥ
-> kurvan śaśāsāvani-maṇḍalaṁ yaśaḥ
+> sa evam ādīny anavadya-ceṣṭitaḥ\
+> karmāṇi bhūyāṁsi mahān mahattamaḥ\
+> kurvan śaśāsāvani-maṇḍalaṁ yaśaḥ\
 > sphītaṁ nidhāyāruruhe paraṁ padam
 
 *saḥ*—el rey Pṛthu; *evam*—de ese modo; *ādīni*—desde el mismo principio; *anavadya*—magnánimo; *ceṣṭitaḥ*—llevando a cabo diversas actividades; *karmāṇi*—actividad; *bhūyāṁsi*—repetidamente; *mahān*—grande; *mahat-tamaḥ*—el más grande de los grandes; *kurvan*—realizar; *śaśāsa*—gobernó; *avani-maṇḍalam*—la superficie de la Tierra; *yaśaḥ*—fama; *sphītam*—amplia; *nidhāya*—obtener; *āruruhe*—se elevó; *param padam*—a los pies de loto del Señor Supremo.

@@ -1,18 +1,18 @@
 ### SB 6.18.27-28
 
-> इति भावेन सा भर्तुराचचारासकृत्प्रियम
-> शुश्रूषयानुरागेण प्रश्रयेण दमेन च ॥२७॥
-> भक्त्या परमया राजन्मनोज्ञऐर्वल्गुभाषितैः
+> इति भावेन सा भर्तुराचचारासकृत्प्रियम\
+> शुश्रूषयानुरागेण प्रश्रयेण दमेन च ॥२७॥\
+> भक्त्या परमया राजन्मनोज्ञऐर्वल्गुभाषितैः\
 > मनो जग्राह भावज्ञआ सस्मितापाङ्गवीक्षणैः ॥२८॥
 
-> iti bhāvena sā bhartur
-> ācacārāsakṛt priyam
-> śuśrūṣayānurāgeṇa
+> iti bhāvena sā bhartur\
+> ācacārāsakṛt priyam\
+> śuśrūṣayānurāgeṇa\
 > praśrayeṇa damena ca
 
-> bhaktyā paramayā rājan
-> manojñair valgu-bhāṣitaiḥ
-> mano jagrāha bhāva-jñā
+> bhaktyā paramayā rājan\
+> manojñair valgu-bhāṣitaiḥ\
+> mano jagrāha bhāva-jñā\
 > sasmitāpāṅga-vīkṣaṇaiḥ
 
 *iti*—así; *bhāvena*—con la intención; *sā*—ella; *bhartuḥ*—del esposo; *ācacāra*—realizó; *asakṛt*—constantemente; *priyam*—actividades agradables; *śuśrūṣayā*—con servicio; *anurāgeṇa*—con amor; *praśrayeṇa*—con humildad; *damena*—con dominio de sí misma; *ca*—también; *bhaktyā*—con devoción; *paramayā*—grande; *rājan*—¡oh, rey!; *manojñaiḥ*—encantadoras; *valgu-bhāṣitaiḥ*—con dulces palabras; *manaḥ*—su mente; *jagrāha*—puso bajo control; *bhāva-jñā*—conociendo su naturaleza; *sa-smita*—con sonrisas; *apāṅga-vīkṣaṇaiḥ*—con miradas.

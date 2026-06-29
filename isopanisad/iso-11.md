@@ -1,11 +1,11 @@
 ### Īśo 11
 
-> विद्यां चाविद्यां च यस्तद्वेदोभयँ सह।
+> विद्यां चाविद्यां च यस्तद्वेदोभयँ सह।\
 > अविद्यया मृत्युं तीर्त्वा विद्ययाऽमृतमश्नुते॥११॥
 
-> vidyāṁ cāvidyāṁ ca yas
-> tad vedobhayaṁ saha
-> avidyayā mṛtyuṁ tīrtvā
+> vidyāṁ cāvidyāṁ ca yas\
+> tad vedobhayaṁ saha\
+> avidyayā mṛtyuṁ tīrtvā\
 > vidyayāmṛtam aśnute
 
 *vidyām*—knowledge in fact; *ca*—and; *avidyām*—nescience; *ca*—and; *yaḥ*—a person who; *tat*—that; *veda*—knows; *ubhayam*—both; *saha*—simultaneously; *avidyayā*—by culture of nescience; *mṛtyum*—repeated death; *tīrtvā*—transcending; *vidyayā*—by culture of knowledge; *amṛtam*—deathlessness; *aśnute*—enjoys.

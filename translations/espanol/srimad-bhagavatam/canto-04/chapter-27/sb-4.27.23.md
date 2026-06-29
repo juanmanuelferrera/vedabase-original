@@ -1,11 +1,11 @@
 ### SB 4.27.23
 
-> ततो विहतसङ्कल्पा कन्यका यवनेश्वरम् ।
+> ततो विहतसङ्कल्पा कन्यका यवनेश्वरम् ।\
 > मयोपदिष्टमासाद्य वव्रे नाम्ना भयं पतिम् ॥२३॥
 
-> tato vihata-saṅkalpā
-> kanyakā yavaneśvaram
-> mayopadiṣṭam āsādya
+> tato vihata-saṅkalpā\
+> kanyakā yavaneśvaram\
+> mayopadiṣṭam āsādya\
 > vavre nāmnā bhayaṁ patim
 
 *tataḥ*—a continuación; *vihata-saṅkalpā*—desengañada en su determinación; *kanyakā*—la hija del Tiempo; *yavana-īśvaram*—al rey de los intocables; *mayā upadiṣṭam*—siguiendo mis indicaciones; *āsādya*—haber ido a ver; *vavre*—tomó; *nāmnā*—de nombre; *bhayam*—Temor; *patim*—como esposo.

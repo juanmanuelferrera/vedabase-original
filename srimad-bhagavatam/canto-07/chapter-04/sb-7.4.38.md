@@ -1,11 +1,11 @@
 ### SB 7.4.38
 
-> आसीनः पर्यटन्नश्नन्शयानः प्रपिबन्ब्रुवन
+> आसीनः पर्यटन्नश्नन्शयानः प्रपिबन्ब्रुवन\
 > नानुसन्धत्त एतानि गोविन्दपरिरम्भितः ॥३८॥
 
-> āsīnaḥ paryaṭann aśnan
-> śayānaḥ prapiban bruvan
-> nānusandhatta etāni
+> āsīnaḥ paryaṭann aśnan\
+> śayānaḥ prapiban bruvan\
+> nānusandhatta etāni\
 > govinda-parirambhitaḥ
 
 *āsīnaḥ*—while sitting; *paryaṭan*—while walking; *aśnan*—while eating; *śayānaḥ*—while lying down; *prapiban*—while drinking; *bruvan*—while talking; *na*—not; *anusandhatte*—knew; *etāni*—all these activities; *govinda*—by the Supreme Personality of Godhead, who enlivens the senses; *parirambhitaḥ*—being embraced.

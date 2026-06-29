@@ -1,11 +1,11 @@
 ### CC Madhya 8.275
 
-> সর্বভূতেষু যঃ পশ্যেদ্ভগবদ্ভাবমাত্মনঃ ।
+> সর্বভূতেষু যঃ পশ্যেদ্ভগবদ্ভাবমাত্মনঃ ।\
 > ভূতানি ভগবত্যাত্মন্যেষ ভাগবতোত্তমঃ ॥২৭৫॥
 
-> sarva-bhūteṣu yaḥ paśyed
-> bhagavad-bhāvam ātmanaḥ
-> bhūtāni bhagavaty ātmany
+> sarva-bhūteṣu yaḥ paśyed\
+> bhagavad-bhāvam ātmanaḥ\
+> bhūtāni bhagavaty ātmany\
 > eṣa bhāgavatottamaḥ
 
 *sarva-bhūteṣu*—in all objects (in matter, spirit and combinations of matter and spirit); *yaḥ*—anyone who; *paśyet*—sees; *bhagavat-bhāvam*—the ability to be engaged in the service of the Lord; *ātmanaḥ*—of the supreme spirit soul or the Transcendence beyond the material conception of life; *bhūtāni*—all beings; *bhagavati*—in the Supreme Personality of Godhead; *ātmani*—the basic principle of all existence; *eṣaḥ*—this; *bhāgavata-uttamaḥ*—a person advanced in devotional service.

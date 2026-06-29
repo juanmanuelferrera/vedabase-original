@@ -1,9 +1,9 @@
 ### CC Adi 10.38
 
-> শুক্লাম্বর-ব্রহ্মচারী বড় ভাগ্যবান্ ।
+> শুক্লাম্বর-ব্রহ্মচারী বড় ভাগ্যবান্ ।\
 > যাঁর অন্ন মাগি’ কাড়ি’ খাইলা ভগবান্ ॥৩৮॥
 
-> śuklāmbara-brahmacārī baḍa bhāgyavān
+> śuklāmbara-brahmacārī baḍa bhāgyavān\
 > yāṅra anna māgi' kāḍi' khāilā bhagavān
 
 *śuklāmbara-brahmacārī*—de nombre Śuklāmbara Brahmacārī; *baḍa*—muy; *bhāgyavān*—afortunado; *yāṅra*—cuyo; *anna*—alimento; *māgi'*—pidiendo; *kāḍi'*—arrebatando; *khāilā*—comió; *bhagavān*—la Suprema Personalidad de Dios.

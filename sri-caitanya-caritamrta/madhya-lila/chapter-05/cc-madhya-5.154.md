@@ -1,9 +1,9 @@
 ### CC Madhya 5.154
 
-> তুমি-সব আগে যাহ ঈশ্বর দেখিতে ।
+> তুমি-সব আগে যাহ ঈশ্বর দেখিতে ।\
 > কিবা আমি আগে যাই, না যাব সহিতে ॥১৫৪॥
 
-> tumi-saba āge yāha īśvara dekhite
+> tumi-saba āge yāha īśvara dekhite\
 > kibā āmi āge yāi, nā yāba sahite
 
 *tumi-saba*—all of you; *āge*—ahead; *yāha*—go; *īśvara dekhite*—to see Jagannātha; *kibā*—or; *āmi*—I; *āge*—ahead; *yāi*—go; *nā*—not; *yāba*—I shall go; *sahite*—with you.

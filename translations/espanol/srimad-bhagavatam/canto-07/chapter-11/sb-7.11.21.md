@@ -1,11 +1,11 @@
 ### SB 7.11.21
 
-> शमो दमस्तपः शौचं सन्तोषः क्षान्तिरार्जवम
+> शमो दमस्तपः शौचं सन्तोषः क्षान्तिरार्जवम\
 > ज्ञआनं दयाच्युतात्मत्वं सत्यं च ब्रह्मलक्षणम ॥२१॥
 
-> śamo damas tapaḥ śaucaṁ
-> santoṣaḥ kṣāntir ārjavam
-> jñānaṁ dayācyutātmatvaṁ
+> śamo damas tapaḥ śaucaṁ\
+> santoṣaḥ kṣāntir ārjavam\
+> jñānaṁ dayācyutātmatvaṁ\
 > satyaṁ ca brahma-lakṣaṇam
 
 *śamaḥ*—control de la mente; *damaḥ*—control de los sentidos; *tapaḥ*—austeridad y penitencia; *śaucam*—limpieza; *santoṣaḥ*—satisfacción; *kṣāntiḥ*—tolerancia (no dejarse agitar por la ira); *ārjavam*—simplicidad; *jñānam*—conocimiento; *dayā*—misericordia; *acyuta-ātmatvam*—considerarse el sirviente eterno del Señor; *satyam*—veracidad; *ca*—también; *brahma-lakṣaṇam*—las características del *brāhmaṇa*.

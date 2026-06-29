@@ -1,9 +1,9 @@
 ### CC Madhya 13.18
 
-> মহাপ্রভু সুখ পাইল সে-সেবা দেখিতে ।
+> মহাপ্রভু সুখ পাইল সে-সেবা দেখিতে ।\
 > মহাপ্রভুর কৃপা হৈল সে-সেবা হইতে ॥১৮॥
 
-> mahāprabhu sukha pāila se-sevā dekhite
+> mahāprabhu sukha pāila se-sevā dekhite\
 > mahāprabhura kṛpā haila se-sevā ha-ite
 
 *mahāprabhu*—Śrī Caitanya Mahāprabhu; *sukha pāila*—felt very happy; *se-sevā*—that kind of service; *dekhite*—to see; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *kṛpā*—mercy; *haila*—there was; *se-sevā ha-ite*—because of that service.

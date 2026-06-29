@@ -1,9 +1,9 @@
 ### CC Madhya 14.65
 
-> নৃত্য করি’ সন্ধ্যাকালে আরতি দেখিল ।
+> নৃত্য করি’ সন্ধ্যাকালে আরতি দেখিল ।\
 > আইটোটা আসি’ প্রভু বিশ্রাম করিল ॥৬৫॥
 
-> nṛtya kari' sandhyā-kāle ārati dekhila
+> nṛtya kari' sandhyā-kāle ārati dekhila\
 > āiṭoṭā āsi' prabhu viśrāma karila
 
 *nṛtya kari'*—after dancing; *sandhyā-kāle*—in the evening; *ārati dekhila*—observed the *ārati* ceremony; *āiṭoṭā āsi'*—coming to the place known as *āiṭoṭā*; *prabhu*—Śrī Caitanya Mahāprabhu; *viśrāma karila*—took rest for the night.

@@ -1,11 +1,11 @@
 ### SB 8.3.14
 
-> सर्वेन्द्रियगुणद्रष्ट्रे सर्वप्रत्ययहेतवे
+> सर्वेन्द्रियगुणद्रष्ट्रे सर्वप्रत्ययहेतवे\
 > असता च्छाययोक्ताय सदाभासाय ते नमः ॥१४॥
 
-> sarvendriya-guṇa-draṣṭre
-> sarva-pratyaya-hetave
-> asatā cchāyayoktāya
+> sarvendriya-guṇa-draṣṭre\
+> sarva-pratyaya-hetave\
+> asatā cchāyayoktāya\
 > sad-ābhāsāya te namaḥ
 
 *sarva-indriya-guṇa-draṣṭre*—al observador de todos los objetivos de los sentidos; *sarva-pratyaya-hetave*—que es la solución de todas las dudas (y sin cuya ayuda no es posible resolver las dudas e incapacidades); *asatā*—con la manifestación de irrealidad o ilusión; *chāyayā*—debido a la semejanza; *uktāya*—llamado; *sat*—de realidad; *ābhāsāya*—al reflejo; *te*—a Ti; *namaḥ*—ofrezco mis respetuosas reverencias.

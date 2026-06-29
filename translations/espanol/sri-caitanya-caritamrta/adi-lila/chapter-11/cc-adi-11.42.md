@@ -1,9 +1,9 @@
 ### CC Adi 11.42
 
-> আচার্য বৈষ্ণবানন্দ ভক্তি-অধিকারী ।
+> আচার্য বৈষ্ণবানন্দ ভক্তি-অধিকারী ।\
 > পূর্বে নাম ছিল যাঁর ‘রঘুনাথ পুরী’ ॥৪২॥
 
-> ācārya vaiṣṇavānanda bhakti-adhikārī
+> ācārya vaiṣṇavānanda bhakti-adhikārī\
 > pūrve nāma chila yāṅra 'raghunātha purī'
 
 *ācārya*—maestro; *vaiṣṇavānanda*—de nombre Vaiṣṇavānanda; *bhakti*—servicio devocional; *adhikārī*—candidato apto; *pūrve*—anteriormente; *nāma*—nombre; *chila*—era; *yāṅra*—cuyo; *raghunātha purī*—de nombre Raghunātha Purī.

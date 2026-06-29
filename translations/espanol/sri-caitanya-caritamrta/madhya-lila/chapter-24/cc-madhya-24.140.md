@@ -1,13 +1,13 @@
 ### CC Madhya 24.140
 
-> শ্রেয়ঃসৃতিং ভক্তিমুদস্য তে বিভো
-> ক্লিশ্যন্তি যে কেবল-বোধলব্ধয়ে ৷
-> তেষামসৌ ক্লেশল এব শিষ্যতে
+> শ্রেয়ঃসৃতিং ভক্তিমুদস্য তে বিভো\
+> ক্লিশ্যন্তি যে কেবল-বোধলব্ধয়ে ৷\
+> তেষামসৌ ক্লেশল এব শিষ্যতে\
 > নান্যদ্যথা স্থূলতুষাবঘাতিনাম্ ॥১৪০॥
 
-> śreyaḥ-sṛtiṁ bhaktim udasya te vibho
-> kliśyanti ye kevala-bodha-labdhaye
-> teṣām asau kleśala eva śiṣyate
+> śreyaḥ-sṛtiṁ bhaktim udasya te vibho\
+> kliśyanti ye kevala-bodha-labdhaye\
+> teṣām asau kleśala eva śiṣyate\
 > nānyad yathā sthūla-tuṣāvaghātinām
 
 *śreyaḥ-sṛtim*—el sendero auspicioso de la liberación; *bhaktim*—servicio devocional; *udasya*—abandonando; *te*—de Ti; *vibho*—¡oh, mi Señor!; *kliśyanti*—aceptan mayores dificultades; *ye*—todas aquellas personas que; *kevala*—solo; *bodha-labdhaye*—para obtener conocimiento; *teṣām*—para ellas; *asau*—esa; *kleśalaḥ*—molestia; *eva*—solo; *śiṣyate*—queda; *na*—no; *anyat*—nada más; *yathā*—como; *sthūla*—voluminosas; *tuṣa*—cáscaras de arroz; *avaghātinām*—de los que las golpean.

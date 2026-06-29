@@ -1,11 +1,11 @@
 ### Bg 6.4
 
-> यदा हि नेन्द्रियार्थेषु न कर्मस्वनुषज्जते ।
+> यदा हि नेन्द्रियार्थेषु न कर्मस्वनुषज्जते ।\
 > सर्वसङ्कल्पसंन्यासी योगारूढस्तदोच्यते ॥४॥
 
-> yadā hi nendriyārtheṣu
-> na karmasv anuṣajjate
-> sarva-saṅkalpa-sannyāsī
+> yadā hi nendriyārtheṣu\
+> na karmasv anuṣajjate\
+> sarva-saṅkalpa-sannyāsī\
 > yogārūḍhas tadocyate
 
 *yadā*—cuando; *hi*—ciertamente; *na*—no; *indriya-artheṣu*—en la gratificación de los sentidos; *na*—nunca; *karmasu*—en las actividades fruitivas; *anuṣajjate*—se ocupa necesariamente; *sarva-saṅkalpa*—todos los deseos materiales; *sannyāsī*—renunciante; *yoga-ārūḍhaḥ*—elevado en el yoga; *tadā*—en ese momento; *ucyate*—se dice que es.

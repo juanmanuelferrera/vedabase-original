@@ -1,11 +1,11 @@
 ### SB 4.8.47
 
-> श्रीवत्साङ्कं घनश्यामं पुरुषं वनमालिनम् ।
+> श्रीवत्साङ्कं घनश्यामं पुरुषं वनमालिनम् ।\
 > शङ्खचक्रगदापद्मैरभिव्यक्तचतुर्भुजम् ॥४७॥
 
-> śrīvatsāṅkaṁ ghana-śyāmaṁ
-> puruṣaṁ vana-mālinam
-> śaṅkha-cakra-gadā-padmair
+> śrīvatsāṅkaṁ ghana-śyāmaṁ\
+> puruṣaṁ vana-mālinam\
+> śaṅkha-cakra-gadā-padmair\
 > abhivyakta-caturbhujam
 
 *śrīvatsa-aṅkam*—la marca de Śrīvatsa en el pecho del Señor; *ghana-śyāmam*—azul oscuro; *puruṣam*—la Persona Suprema; *vana-mālinam*—con un collar de flores; *śaṅkha*—caracola; *cakra*—disco; *gadā*—maza; *padmaiḥ*—flor de loto; *abhivyakta*—manifestado; *catuḥ-bhujam*—cuatro brazos.

@@ -1,9 +1,9 @@
 ### CC Madhya 11.95
 
-> কোটিসূর্য-সম সব — উজ্জ্বল-বরণ ৷
+> কোটিসূর্য-সম সব — উজ্জ্বল-বরণ ৷\
 > কভু নাহি শুনি এই মধুর কীর্তন ৷৷ ৯৫ ৷৷ ॥৯৫॥
 
-> koṭi-sūrya-sama saba-ujjvala-varaṇa
+> koṭi-sūrya-sama saba-ujjvala-varaṇa\
 > kabhu nāhi śuni ei madhura kīrtana
 
 *koṭi-sūrya-sama*—igual al resplandor de millones de soles; *saba*—todos ellos; *ujjvala-varaṇa*—lustre muy brillante; *kabhu nāhi śuni*—nunca he oído; *ei*—este; *madhura kīrtana*—canto congregacional tan melodioso.

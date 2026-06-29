@@ -1,9 +1,9 @@
 ### CC Madhya 3.46
 
-> চই-মরিচ-সুখ্ত দিয়া সব ফল-মূলে ।
+> চই-মরিচ-সুখ্ত দিয়া সব ফল-মূলে ।\
 > অমৃতনিন্দক পঞ্চবিধ তিক্ত-ঝালে ॥৪৬॥
 
-> ca-i-marica-sukhta diyā saba phala-mūle
+> ca-i-marica-sukhta diyā saba phala-mūle\
 > amṛta-nindaka pañca-vidha tikta-jhāle
 
 *ca-i-marica*—con pimienta negra y *ca-i* (un tipo de especia); *sukhta*—verduras preparadas amargas; *diyā*—dando; *saba*—todas; *phala-mūle*—diversos tipos de frutas y raíces; *amṛta-nindaka*—que desafía al néctar; *pañca-vidha*—cinco tipos de; *tikta*—amargo; *jhāle*—y picante.

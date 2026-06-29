@@ -1,11 +1,11 @@
 ### SB 4.8.36
 
-> अथापि मेऽविनीतस्य क्षात्त्रं घोरमुपेयुषः ।
+> अथापि मेऽविनीतस्य क्षात्त्रं घोरमुपेयुषः ।\
 > सुरुच्या दुर्वचोबाणैर्न भिन्ने श्रयते हृदि ॥३६॥
 
-> athāpi me 'vinītasya
-> kṣāttraṁ ghoram upeyuṣaḥ
-> surucyā durvaco-bāṇair
+> athāpi me 'vinītasya\
+> kṣāttraṁ ghoram upeyuṣaḥ\
+> surucyā durvaco-bāṇair\
 > na bhinne śrayate hṛdi
 
 *atha api*—therefore; *me*—my; *avinītasya*—not very submissive; *kṣāttram*—the spirit of a *kṣatriya*; *ghoram*—intolerant; *upeyuṣaḥ*—achieved; *surucyāḥ*—of Queen Suruci; *durvacaḥ*—harsh words; *bāṇaiḥ*—by the arrows; *na*—not; *bhinne*—being pierced; *śrayate*—remain in; *hṛdi*—the heart.

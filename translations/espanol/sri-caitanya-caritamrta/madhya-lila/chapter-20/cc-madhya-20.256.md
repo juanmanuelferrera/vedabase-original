@@ -1,9 +1,9 @@
 ### CC Madhya 20.256
 
-> অহঙ্কারের অধিষ্ঠাতা কৃষ্ণের ইচ্ছায় ।
+> অহঙ্কারের অধিষ্ঠাতা কৃষ্ণের ইচ্ছায় ।\
 > গোলোক, বৈকুণ্ঠ সৃজে চিচ্ছক্তিদ্বারায় ॥২৫৬॥
 
-> ahaṅkārera adhiṣṭhātā kṛṣṇera icchāya
+> ahaṅkārera adhiṣṭhātā kṛṣṇera icchāya\
 > goloka, vaikuṇṭha sṛje cic-chakti-dvārāya
 
 *ahaṅkārera*—del egoísmo; *adhiṣṭhātā*—la fuente o Deidad predominante; *kṛṣṇera*—del Señor Kṛṣṇa; *icchāya*—por la voluntad; *goloka*—el planeta espiritual supremo, conocido como Goloka; *vaikuṇṭha*—otros planetas inferiores, conocidos como Vaikuṇṭhas; *sṛje*—crea; *cit-śakti-dvārāya*—por la energía espiritual.

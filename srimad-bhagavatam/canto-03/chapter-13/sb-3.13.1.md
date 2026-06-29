@@ -1,13 +1,13 @@
 ### SB 3.13.1
 
-> श्रीशुक उवाच
-> निशम्य वाचं वदतो मुनेः पुण्यतमां नृप ।
+> श्रीशुक उवाच\
+> निशम्य वाचं वदतो मुनेः पुण्यतमां नृप ।\
 > भूयः पप्रच्छ कौरव्यो वासुदेवकथादृतः ॥१॥
 
-> śrī-śuka uvāca
-> niśamya vācaṁ vadato
-> muneḥ puṇyatamāṁ nṛpa
-> bhūyaḥ papraccha kauravyo
+> śrī-śuka uvāca\
+> niśamya vācaṁ vadato\
+> muneḥ puṇyatamāṁ nṛpa\
+> bhūyaḥ papraccha kauravyo\
 > vāsudeva-kathādṛtaḥ
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *niśamya*—after hearing; *vācam*—talks; *vadataḥ*—while speaking; *muneḥ*—of Maitreya Muni; *puṇya-tamām*—the most virtuous; *nṛpa*—O King; *bhūyaḥ*—then again; *papraccha*—inquired; *kauravyaḥ*—the best amongst the Kurus (Vidura); *vāsudeva-kathā*—topics on the subject of the Personality of Godhead, Vāsudeva; *ādṛtaḥ*—one who so adores.

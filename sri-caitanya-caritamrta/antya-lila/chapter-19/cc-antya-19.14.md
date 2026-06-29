@@ -1,9 +1,9 @@
 ### CC Antya 19.14
 
-> মাতৃভক্তগণের প্রভু হন শিরোমণি ।
+> মাতৃভক্তগণের প্রভু হন শিরোমণি ।\
 > সন্ন্যাস করিয়া সদা সেবেন জননী ॥১৪॥
 
-> mātṛ-bhakta-gaṇera prabhu hana śiromaṇi
+> mātṛ-bhakta-gaṇera prabhu hana śiromaṇi\
 > sannyāsa kariyā sadā sevena jananī
 
 *mātṛ-bhakta-gaṇera*—of the devotees of mothers; *prabhu*—Śrī Caitanya Mahāprabhu; *hana*—is; *śiromaṇi*—the topmost jewel; *sannyāsa kariyā*—even after taking the *sannyāsa* order; *sadā*—always; *sevena*—renders service; *jananī*—to His mother.

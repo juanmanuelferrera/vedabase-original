@@ -1,9 +1,9 @@
 ### CC Madhya 5.28
 
-> ভীষ্মকের ইচ্ছা, — কৃষ্ণে কন্যা সমর্পিতে ।
+> ভীষ্মকের ইচ্ছা, — কৃষ্ণে কন্যা সমর্পিতে ।\
 > পুত্রের বিরোধে কন্যা নারিল অর্পিতে ।।” ॥২৮॥
 
-> bhīṣmakera icchā,—kṛṣṇe kanyā samarpite
+> bhīṣmakera icchā,—kṛṣṇe kanyā samarpite\
 > putrera virodhe kanyā nārila arpite"
 
 *bhīṣmakera*—of King Bhīṣmaka; *icchā*—the desire; *kṛṣṇe*—unto Kṛṣṇa; *kanyā*—daughter; *samarpite*—to give; *putrera*—of his son; *virodhe*—by the objection; *kanyā*—daughter; *nārila*—was unable; *arpite*—to offer.

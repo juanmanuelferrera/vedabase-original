@@ -1,11 +1,11 @@
 ### SB 7.1.18
 
-> शपतोरसकृद्विष्णुं यद्ब्रह्म परमव्ययम
+> शपतोरसकृद्विष्णुं यद्ब्रह्म परमव्ययम\
 > श्वित्रो न जातो जिह्वायां नान्धं विविशतुस्तमः ॥१८॥
 
-> damaghoṣa-sutaḥ pāpa
-> ārabhya kala-bhāṣaṇāt
-> sampraty amarṣī govinde
+> damaghoṣa-sutaḥ pāpa\
+> ārabhya kala-bhāṣaṇāt\
+> sampraty amarṣī govinde\
 > dantavakraś ca durmatiḥ
 
 *damaghoṣa-sutaḥ*—Śiśupāla, the son of Damaghoṣa; *pāpaḥ*—sinful; *ārabhya*—beginning; *kala-bhāṣaṇāt*—from the unclear speech of a child; *samprati*—even until now; *amarṣī*—envious; *govinde*—toward Śrī Kṛṣṇa; *dantavakraḥ*—Dantavakra; *ca*—also; *durmatiḥ*—evil-minded.

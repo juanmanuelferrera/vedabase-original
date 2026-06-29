@@ -1,13 +1,13 @@
 ### SB 1.16.35
 
-> का वा सहेत विरहं पुरुषोत्तमस्य
-> प्रेमावलोकरुचिरस्मितवल्गुजल्पैः ।
-> स्थैर्यं समानमहरन्मधुमानिनीनां
+> का वा सहेत विरहं पुरुषोत्तमस्य\
+> प्रेमावलोकरुचिरस्मितवल्गुजल्पैः ।\
+> स्थैर्यं समानमहरन्मधुमानिनीनां\
 > रोमोत्सवो मम यदङ्घ्रिविटङ्कितायाः ॥३५॥
 
-> kā vā saheta virahaṁ puruṣottamasya
-> premāvaloka-rucira-smita-valgu-jalpaiḥ
-> sthairyaṁ samānam aharan madhu-māninīnāṁ
+> kā vā saheta virahaṁ puruṣottamasya\
+> premāvaloka-rucira-smita-valgu-jalpaiḥ\
+> sthairyaṁ samānam aharan madhu-māninīnāṁ\
 > romotsavo mama yad-aṅghri-viṭaṅkitāyāḥ
 
 *kā*—quién; *vā*—si; *saheta*—puede tolerar; *viraham*—separación; *puruṣa-uttamasya*—de la Suprema Personalidad de Dios; *prema*—amoroso; *avaloka*—mirada; *rucira-smita*—agradable sonrisa; *valgu-jalpaiḥ*—ruegos sinceros; *sthairyam*—gravedad; *sa-mānam*—junto con una apasionada ira; *aharat*—conquistó; *madhu*—amadas; *māninīnām*—mujeres tales como Satyabhāmā; *roma-utsavaḥ*—vello erizado por el placer; *mama*—mío; *yat*—cuyos; *aṅghri*—pies; *viṭaṅkitāyāḥ*—impresa con.

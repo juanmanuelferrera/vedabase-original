@@ -1,9 +1,9 @@
 ### CC Adi 8.69
 
-> তাঁর শিষ্য — গোবিন্দ পূজক চৈতন্যদাস ।
+> তাঁর শিষ্য — গোবিন্দ পূজক চৈতন্যদাস ।\
 > মুকুন্দানন্দ চক্রবর্তী, প্রেমী কৃষ্ণদাস ॥৬৯॥
 
-> tāṅra śiṣya—govinda pūjaka caitanya-dāsa
+> tāṅra śiṣya—govinda pūjaka caitanya-dāsa\
 > mukundānanda cakravartī, premī kṛṣṇadāsa
 
 *tāṅra śiṣya*—his disciple; *govinda*—the Govinda Deity; *pūjaka*—priest; *caitanya-dāsa*—of the name Caitanya dāsa; *mukundānanda cakravartī*—of the name Mukundānanda Cakravartī; *premī*—a great lover; *kṛṣṇadāsa*—of the name Kṛṣṇadāsa.

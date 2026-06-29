@@ -1,11 +1,11 @@
 ### SB 4.4.27
 
-> ततः स्वभर्तुश्चरणाम्बुजासवं जगद्गुरोश्चिन्तयती न चापरम् ।
+> ततः स्वभर्तुश्चरणाम्बुजासवं जगद्गुरोश्चिन्तयती न चापरम् ।\
 > ददर्श देहो हतकल्मषः सती सद्यः प्रजज्वाल समाधिजाग्निना ॥२७॥
 
-> tataḥ sva-bhartuś caraṇāmbujāsavaṁ
-> jagad-guroś cintayatī na cāparam
-> dadarśa deho hata-kalmaṣaḥ satī
+> tataḥ sva-bhartuś caraṇāmbujāsavaṁ\
+> jagad-guroś cintayatī na cāparam\
+> dadarśa deho hata-kalmaṣaḥ satī\
 > sadyaḥ prajajvāla samādhijāgninā
 
 *tataḥ*—allí; *sva-bhartuḥ*—de su esposo; *caraṇa-ambuja-āsavam*—en el néctar de los pies de loto; *jagat-guroḥ*—del maestro espiritual supremo del universo; *cintayatī*—meditar; *na*—no; *ca*—y; *aparam*—no otro (que su esposo); *dadarśa*—vio; *dehaḥ*—su cuerpo; *hata-kalmaṣaḥ*—siendo destruidas las manchas de pecado; *satī*—Satī; *sadyaḥ*—pronto; *prajajvāla*—quemada; *samādhi-ja-agninā*—por el fuego producido por la meditación.

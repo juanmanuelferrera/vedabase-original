@@ -1,11 +1,11 @@
 ### SB 6.16.13
 
-> निर्हृत्य ज्ञआतयो ज्ञआतेर्देहं कृत्वोचिताः क्रियाः
+> निर्हृत्य ज्ञआतयो ज्ञआतेर्देहं कृत्वोचिताः क्रियाः\
 > तत्यजुर्दुस्त्यजं स्नेहं शोकमोहभयार्तिदम ॥१३॥
 
-> nirhṛtya jñātayo jñāter
-> dehaṁ kṛtvocitāḥ kriyāḥ
-> tatyajur dustyajaṁ snehaṁ
+> nirhṛtya jñātayo jñāter\
+> dehaṁ kṛtvocitāḥ kriyāḥ\
+> tatyajur dustyajaṁ snehaṁ\
 > śoka-moha-bhayārtidam
 
 *nirhṛtya*—removing; *jñātayaḥ*—King Citraketu and all the other relatives; *jñāteḥ*—of the son; *deham*—the body; *kṛtvā*—performing; *ucitāḥ*—suitable; *kriyāḥ*—activities; *tatyajuḥ*—gave up; *dustyajam*—very difficult to give up; *sneham*—affection; *śoka*—lamentation; *moha*—illusion; *bhaya*—fear; *arti*—and distress; *dam*—giving.

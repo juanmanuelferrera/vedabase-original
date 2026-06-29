@@ -1,9 +1,9 @@
 ### CC Madhya 20.18
 
-> সেই ভূঞার সঙ্গে হয় হাতগণিতা  ।
+> সেই ভূঞার সঙ্গে হয় হাতগণিতা  ।\
 > ভূঞার কাণে কহে সেই জানি’ এই কথা ॥১৮॥
 
-> sei bhūñāra saṅge haya hāta-gaṇitā
+> sei bhūñāra saṅge haya hāta-gaṇitā\
 > bhūñāra kāṇe kahe sei jāni' ei kathā
 
 *sei bhūñāra*—el terrateniente; *saṅge*—con; *haya*—hay; *hāta-gaṇita*—un experto en quiromancia; *bhūñāra*—del terrateniente; *kāṇe*—al oído; *kahe*—dice; *sei*—ese hombre; *jāni'*—sabiendo; *ei kathā*—esta declaración.

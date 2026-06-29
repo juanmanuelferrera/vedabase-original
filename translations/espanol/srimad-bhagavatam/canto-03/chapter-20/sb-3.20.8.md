@@ -1,13 +1,13 @@
 ### SB 3.20.8
 
-> सूत उवाच
-> हरेर्धृतक्रोडतनोः स्वमायया निशम्य गोरुद्धरणं रसातलात् ।
+> सूत उवाच\
+> हरेर्धृतक्रोडतनोः स्वमायया निशम्य गोरुद्धरणं रसातलात् ।\
 > लीलां हिरण्याक्षमवज्ञया हतं सञ्जातहर्षो मुनिमाह भारतः ॥८॥
 
-> sūta uvāca
-> harer dhṛta-kroḍa-tanoḥ sva-māyayā
-> niśamya gor uddharaṇaṁ rasātalāt
-> līlāṁ hiraṇyākṣam avajñayā hataṁ
+> sūta uvāca\
+> harer dhṛta-kroḍa-tanoḥ sva-māyayā\
+> niśamya gor uddharaṇaṁ rasātalāt\
+> līlāṁ hiraṇyākṣam avajñayā hataṁ\
 > sañjāta-harṣo munim āha bhārataḥ
 
 *sūtaḥ uvāca*—Sūta dijo; *hareḥ*—del Señor; *dhṛta*—que había adoptado; *kroḍa*—de un jabalí; *tanoḥ*—cuerpo; *sva-māyayā*—por Su potencia divina; *niśamya*—habiendo escuchado; *goḥ*—de la Tierra; *uddharaṇam*—levantando; *rasātalāt*—del fondo del océano; *līlām*—pasatiempo; *hiraṇyākṣam*—al demonio Hiraṇyākṣa; *avajñayā*—con indiferencia; *hatam*—matado; *sañjāta-harṣaḥ*—lleno de gozo; *munim*—al sabio (Maitreya); *āha*—dijo; *bhārataḥ*—Vidura.

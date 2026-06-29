@@ -1,11 +1,11 @@
 ### SB 3.4.10
 
-> तस्यानुरक्तस्य मुनेर्मुकुन्दः प्रमोदभावानतकन्धरस्य ।
+> तस्यानुरक्तस्य मुनेर्मुकुन्दः प्रमोदभावानतकन्धरस्य ।\
 > आशृण्वतो मामनुरागहास समीक्षया विश्रमयन्नुवाच ॥१०॥
 
-> tasyānuraktasya muner mukundaḥ
-> pramoda-bhāvānata-kandharasya
-> āśṛṇvato mām anurāga-hāsa-
+> tasyānuraktasya muner mukundaḥ\
+> pramoda-bhāvānata-kandharasya\
+> āśṛṇvato mām anurāga-hāsa-\
 > samīkṣayā viśramayann uvāca
 
 *tasya*—su (de Maitreya); *anuraktasya*—si bien estaba apegado; *muneḥ*—del sabio; *mukundaḥ*—el Señor que otorga la salvación; *pramoda-bhāva*—en una actitud placentera; *ānata*—caído; *kandharasya*—del hombro; *āśṛṇvataḥ*—mientras escuchaba de esa manera; *mām*—a mí; *anurāga-hāsa*—sonriendo bondadosamente; *samīkṣayā*—particularmente viéndome a mí; *viśra-mayan*—permitiéndome descansar por completo; *uvāca*—dijo.

@@ -1,11 +1,11 @@
 ### CC Madhya 19.74
 
-> শুচিঃ সদ্ভক্তিদীপ্তাগ্নিদগ্ধদুর্জাতিকল্মষঃ ।
+> শুচিঃ সদ্ভক্তিদীপ্তাগ্নিদগ্ধদুর্জাতিকল্মষঃ ।\
 > শ্বপাকোঽপি বুধৈঃ শ্লাঘ্যো ন বেদজ্ঞোহপি নাস্তিকঃ ॥৭৪॥
 
-> śuciḥ sad-bhakti-dīptāgni-
-> dagdha-durjāti-kalmaṣaḥ
-> śvapāko 'pi budhaiḥ ślāgyo
+> śuciḥ sad-bhakti-dīptāgni-\
+> dagdha-durjāti-kalmaṣaḥ\
+> śvapāko 'pi budhaiḥ ślāgyo\
 > na vedajño 'pi nāstikaḥ
 
 *śuciḥ*—a *brāhmaṇa* purified internally and externally; *sat-bhakti*—of devotional service without motives; *dīpta-agni*—by the blazing fire; *dagdha*—burnt to ashes; *durjāti*—such as birth in a low family; *kalmaṣaḥ*—whose sinful reactions; *śva-pākaḥ api*—even though born in a family of dog-eaters; *budhaiḥ*—by learned scholars; *ślāgyaḥ*—recognized; *na*—not; *veda-jñaḥ api*—even though completely conversant in Vedic knowledge; *nāstikaḥ*—an atheist.

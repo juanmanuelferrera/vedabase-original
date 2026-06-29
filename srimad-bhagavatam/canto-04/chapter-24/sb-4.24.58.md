@@ -1,11 +1,11 @@
 ### SB 4.24.58
 
-> अथानघाङ्घ्रेस्तव कीर्तितीर्थयोरन्तर्बहिःस्नानविधूतपाप्मनाम् ।
+> अथानघाङ्घ्रेस्तव कीर्तितीर्थयोरन्तर्बहिःस्नानविधूतपाप्मनाम् ।\
 > भूतेष्वनुक्रोशसुसत्त्वशीलिनां स्यात्सङ्गमोऽनुग्रह एष नस्तव ॥५८॥
 
-> athānaghāṅghres tava kīrti-tīrthayor
-> antar-bahiḥ-snāna-vidhūta-pāpmanām
-> bhūteṣv anukrośa-susattva-śīlināṁ
+> athānaghāṅghres tava kīrti-tīrthayor\
+> antar-bahiḥ-snāna-vidhūta-pāpmanām\
+> bhūteṣv anukrośa-susattva-śīlināṁ\
 > syāt saṅgamo 'nugraha eṣa nas tava
 
 *atha*—therefore; *anagha-aṅghreḥ*—of my Lord, whose lotus feet destroy all inauspiciousness; *tava*—Your; *kīrti*—glorification; *tīrthayoḥ*—the holy Ganges water; *antaḥ*—within; *bahiḥ*—and outside; *snāna*—taking bath; *vidhūta*—washed; *pāpmanām*—contaminated state of mind; *bhūteṣu*—unto the ordinary living beings; *anukrośa*—benediction or mercy; *su-sattva*—completely in goodness; *śīlinām*—of those who possess such characteristics; *syāt*—let there be; *saṅgamaḥ*—association; *anugrahaḥ*—mercy; *eṣaḥ*—this; *naḥ*—unto us; *tava*—Your.

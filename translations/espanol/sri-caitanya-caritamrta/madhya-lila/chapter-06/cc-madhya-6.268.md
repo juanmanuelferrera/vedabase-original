@@ -1,9 +1,9 @@
 ### CC Madhya 6.268
 
-> ‘সাযুজ্য’ শুনিতে ভক্তের হয় ঘৃণা ভয় ।
+> ‘সাযুজ্য’ শুনিতে ভক্তের হয় ঘৃণা ভয় ।\
 > নরক বাঞ্ছয়ে, তবু সাযুজ্য না লয় ॥২৬৮॥
 
-> 'sāyujya' śunite bhaktera haya ghṛṇā-bhaya
+> 'sāyujya' śunite bhaktera haya ghṛṇā-bhaya\
 > naraka vāñchaye, tabu sāyujya nā laya
 
 *sāyujya*—la liberación de fusionarse en la refulgencia; *śunite*—con solo oír; *bhaktera*—del devoto; *haya*—hay; *ghṛṇā*—repugnancia; *bhaya*—temor; *naraka*—una condición de vida infernal; *vāñchaye*—desea; *tabu*—aun así; *sāyujya*—fusión en la refulgencia del Señor; *nā laya*—jamás acepta.

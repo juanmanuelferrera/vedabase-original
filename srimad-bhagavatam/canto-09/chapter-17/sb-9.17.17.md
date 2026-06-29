@@ -1,13 +1,13 @@
 ### SB 9.17.17
 
-> ततः कृतः कृतस्यापि जज्ञए हर्यबलो नृपः
+> ततः कृतः कृतस्यापि जज्ञए हर्यबलो नृपः\
 > सहदेवस्ततो हीनो जयसेनस्तु तत्सुतः ॥१७॥
 
-> sahadevas tato hīno
-> jayasenas tu tat-sutaḥ
-> saṅkṛtis tasya ca jayaḥ
-> kṣatra-dharmā mahā-rathaḥ
-> kṣatravṛddhānvayā bhūpā
+> sahadevas tato hīno\
+> jayasenas tu tat-sutaḥ\
+> saṅkṛtis tasya ca jayaḥ\
+> kṣatra-dharmā mahā-rathaḥ\
+> kṣatravṛddhānvayā bhūpā\
 > ime śṛṇv atha nāhuṣān
 
 *sahadevaḥ*—Sahadeva; *tataḥ*—from Sahadeva; *hīnaḥ*—a son named Hīna; *jayasenaḥ*—Jayasena; *tu*—also; *tat-sutaḥ*—the son of Hīna; *saṅkṛtiḥ*—Saṅkṛti; *tasya*—of Saṅkṛti; *ca*—also; *jayaḥ*—a son named Jaya; *kṣatra-dharmā*—expert in the duties of a *kṣatriya*; *mahā-rathaḥ*—a greatly powerful fighter; *kṣatravṛddha-anvayāḥ*—in the dynasty of Kṣatravṛddha; *bhūpāḥ*—kings; *ime*—all these; *śṛṇu*—hear from me; *atha*—now; *nāhuṣān*—the descendants of Nahuṣa.

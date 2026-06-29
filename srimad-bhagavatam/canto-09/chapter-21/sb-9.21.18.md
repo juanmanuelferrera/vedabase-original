@@ -1,11 +1,11 @@
 ### SB 9.21.18
 
-> तत्प्रसङ्गानुभावेन रन्तिदेवानुवर्तिनः
+> तत्प्रसङ्गानुभावेन रन्तिदेवानुवर्तिनः\
 > अभवन्योगिनः सर्वे नारायणपरायणाः ॥१८॥
 
-> tat-prasaṅgānubhāvena
-> rantidevānuvartinaḥ
-> abhavan yoginaḥ sarve
+> tat-prasaṅgānubhāvena\
+> rantidevānuvartinaḥ\
+> abhavan yoginaḥ sarve\
 > nārāyaṇa-parāyaṇāḥ
 
 *tat-prasaṅga-anubhāvena*—because of associating with King Rantideva (when talking with him about *bhakti-yoga*); *rantideva-anuvartinaḥ*—the followers of King Rantideva (that is, his servants, his family members, his friends and others); *abhavan*—became; *yoginaḥ*—first-class mystic *yogīs,* or *bhakti-yogīs*; *sarve*—all of them; *nārāyaṇa-parāyaṇāḥ*—devotees of the Supreme Personality of Godhead, Nārāyaṇa.

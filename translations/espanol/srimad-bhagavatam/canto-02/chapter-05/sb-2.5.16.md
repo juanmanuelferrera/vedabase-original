@@ -1,11 +1,11 @@
 ### SB 2.5.16
 
-> नारायणपरो योगो नारायणपरं तपः ।
+> नारायणपरो योगो नारायणपरं तपः ।\
 > नारायणपरं ज्ञानं नारायणपरा गतिः ॥१६॥
 
-> nārāyaṇa-paro yogo
-> nārāyaṇa-paraṁ tapaḥ
-> nārāyaṇa-paraṁ jñānaṁ
+> nārāyaṇa-paro yogo\
+> nārāyaṇa-paraṁ tapaḥ\
+> nārāyaṇa-paraṁ jñānaṁ\
 > nārāyaṇa-parā gatiḥ
 
 *nārāyaṇa-paraḥ*—tan solo para conocer a Nārāyaṇa; *yogaḥ*—concentración de la mente; *nārāyaṇa-param*—tan solo con una intención de alcanzar a Nārāyaṇa; *tapaḥ*—austeridad; *nārāyaṇa-param*—tan solo para tener un vistazo de Nārāyaṇa; *jñānam*—cultivo de conocimiento trascendental; *nārāyaṇa-parā*—el sendero de la salvación termina al entrar en el reino de Nārāyaṇa; *gatiḥ*—sendero progresivo.

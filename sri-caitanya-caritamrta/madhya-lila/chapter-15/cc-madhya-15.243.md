@@ -1,9 +1,9 @@
 ### CC Madhya 15.243
 
-> তুমি ত’ ঈশ্বর, মুঞি — ক্ষুদ্র জীব ছার ।
+> তুমি ত’ ঈশ্বর, মুঞি — ক্ষুদ্র জীব ছার ।\
 > এক-গ্রাস মাধুকরী করহ অঙ্গীকার ॥২৪৩॥
 
-> tumi ta' īśvara, muñi—kṣudra jīva chāra
+> tumi ta' īśvara, muñi—kṣudra jīva chāra\
 > eka-grāsa mādhukarī karaha aṅgīkāra
 
 *tumi*—You; *ta'*—certainly; *īśvara*—the Supreme Personality of Godhead; *muñi*—I; *kṣudra jīva*—insignificant living being; *chāra*—worthless; *eka-grāsa*—one small quantity; *mādhu-karī*—as collected by the bees; *karaha*—please do; *aṅgīkāra*—accept.

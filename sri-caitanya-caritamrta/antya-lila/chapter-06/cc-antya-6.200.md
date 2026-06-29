@@ -1,10 +1,10 @@
 ### CC Antya 6.200
 
-> হেন ‘বিষয়’ হৈতে কৃষ্ণ উদ্ধারিলা তোমা’ ।
+> হেন ‘বিষয়’ হৈতে কৃষ্ণ উদ্ধারিলা তোমা’ ।\
 > কহন না যায় কৃষ্ণকৃপার মহিমা ।।” ॥ ২০০ ॥
 
-> hena 'viṣaya' haite kṛṣṇa uddhārilā tomā'
-> kahana nā yāya kṛṣṇa-
+> hena 'viṣaya' haite kṛṣṇa uddhārilā tomā'\
+> kahana nā yāya kṛṣṇa-\
 > kṛpāra mahimā"
 
 *hena viṣaya*—such a fallen condition of material enjoyment; *haite*—from; *kṛṣṇa*—Lord Kṛṣṇa; *uddhārilā tomā'*—has delivered you; *kahana nā yāya*—cannot be described; *kṛṣṇa-kṛpāra*—of the mercy of Lord Kṛṣṇa; *mahimā*—the glories.

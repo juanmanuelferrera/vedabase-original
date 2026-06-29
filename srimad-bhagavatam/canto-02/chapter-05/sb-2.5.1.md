@@ -1,13 +1,13 @@
 ### SB 2.5.1
 
-> नारद उवाच
-> देवदेव नमस्तेऽस्तु भूतभावन पूर्वज ।
+> नारद उवाच\
+> देवदेव नमस्तेऽस्तु भूतभावन पूर्वज ।\
 > तद्विजानीहि यज्ज्ञानमात्मतत्त्वनिदर्शनम् ॥१॥
 
-> nārada uvāca
-> deva-deva namas te 'stu
-> bhūta-bhāvana pūrvaja
-> tad vijānīhi yaj jñānam
+> nārada uvāca\
+> deva-deva namas te 'stu\
+> bhūta-bhāvana pūrvaja\
+> tad vijānīhi yaj jñānam\
 > ātma-tattva-nidarśanam
 
 *nāradaḥ uvāca*—Śrī Nārada said; *deva*—of all demigods; *deva*—the demigod; *namaḥ*—obeisances; *te*—unto you as; *astu*—are; *bhūta-bhāvana*—the generator of all living beings; *pūrva-ja*—the firstborn; *tat vijānīhi*—please explain that knowledge; *yat jñānam*—which knowledge; *ātma-tattva*—transcendental; *nidarśanam*—specifically directs.

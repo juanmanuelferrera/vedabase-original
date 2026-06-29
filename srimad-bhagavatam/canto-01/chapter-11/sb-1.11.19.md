@@ -1,11 +1,11 @@
 ### SB 1.11.19
 
-> वारमुख्याश्च शतशो यानैस्तद्दर्शनोत्सुकाः ।
+> वारमुख्याश्च शतशो यानैस्तद्दर्शनोत्सुकाः ।\
 > लसत्कुण्डलनिर्भातकपोलवदनश्रियः ॥१९॥
 
-> vāramukhyāś ca śataśo
-> yānais tad-darśanotsukāḥ
-> lasat-kuṇḍala-nirbhāta-
+> vāramukhyāś ca śataśo\
+> yānais tad-darśanotsukāḥ\
+> lasat-kuṇḍala-nirbhāta-\
 > kapola-vadana-śriyaḥ
 
 *vāramukhyāḥ*—well-known prostitutes; *ca*—and; *śataśaḥ*—hundreds of; *yānaiḥ*—by vehicles; *tat-darśana*—for meeting Him (Lord Śrī Kṛṣṇa); *utsukāḥ*—very much anxious; *lasat*—hanging; *kuṇḍala*—earrings; *nirbhāta*—dazzling; *kapola*—forehead; *vadana*—face; *śriyaḥ*—beauty.

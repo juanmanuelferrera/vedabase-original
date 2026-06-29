@@ -1,13 +1,13 @@
 ### SB 6.9.1
 
-> श्रीशुक उवाच
-> तस्यासन्विश्वरूपस्य शिरांसि त्रीणि भारत
+> श्रीशुक उवाच\
+> तस्यासन्विश्वरूपस्य शिरांसि त्रीणि भारत\
 > सोमपीथं सुरापीथमन्नादमिति शुश्रुम ॥१॥
 
-> śrī-śuka uvāca
-> tasyāsan viśvarūpasya
-> śirāṁsi trīṇi bhārata
-> soma-pīthaṁ surā-pītham
+> śrī-śuka uvāca\
+> tasyāsan viśvarūpasya\
+> śirāṁsi trīṇi bhārata\
+> soma-pīthaṁ surā-pītham\
 > annādam iti śuśruma
 
 *śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *tasya*—of him; *āsan*—there were; *viśvarūpasya*—of Viśvarūpa, the priest of the demigods; *śirāṁsi*—heads; *trīṇi*—three; *bhārata*—O Mahārāja Parīkṣit; *soma-pītham*—used for drinking the beverage *soma*; *surā-pītham*—used for drinking wine; *anna-adam*—used for eating; *iti*—thus; *śuśruma*—I have heard by the *paramparā* system.

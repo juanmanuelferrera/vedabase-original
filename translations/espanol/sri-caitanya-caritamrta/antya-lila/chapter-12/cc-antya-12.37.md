@@ -1,9 +1,9 @@
 ### CC Antya 12.37
 
-> পেটাঙ্গি-গায় করে দণ্ডবৎ-নমস্কার ।
+> পেটাঙ্গি-গায় করে দণ্ডবৎ-নমস্কার ।\
 > গোবিন্দ কহে, — ‘শ্রীকান্ত, আগে পেটাঙ্গি উতার’ ॥৩৭॥
 
-> peṭāṅgi-gāya kare daṇḍavat-namaskāra
+> peṭāṅgi-gāya kare daṇḍavat-namaskāra\
 > govinda kahe,--'śrīkānta, āge peṭāṅgi utāra'
 
 *peṭāṅgi*—camisa y abrigo; *gāya*—en el cuerpo; *kare*—ejecuta; *daṇḍavat-namaskāra*—ofrecimiento de reverencias; *govinda kahe*—Govinda dijo; *śrīkānta*—mi querido Śrīkānta; *āge*—primero; *peṭāṅgi utāra*—quítate la camisa y el abrigo.

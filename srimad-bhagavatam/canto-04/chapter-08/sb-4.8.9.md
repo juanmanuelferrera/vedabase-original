@@ -1,11 +1,11 @@
 ### SB 4.8.9
 
-> एकदा सुरुचेः पुत्रमङ्कमारोप्य लालयन् ।
+> एकदा सुरुचेः पुत्रमङ्कमारोप्य लालयन् ।\
 > उत्तमं नारुरुक्षन्तं ध्रुवं राजाभ्यनन्दत ॥९॥
 
-> ekadā suruceḥ putram
-> aṅkam āropya lālayan
-> uttamaṁ nārurukṣantaṁ
+> ekadā suruceḥ putram\
+> aṅkam āropya lālayan\
+> uttamaṁ nārurukṣantaṁ\
 > dhruvaṁ rājābhyanandata
 
 *ekadā*—once upon a time; *suruceḥ*—of Queen Suruci; *putram*—the son; *aṅkam*—on the lap; *āropya*—placing; *lālayan*—while patting; *uttamam*—Uttama; *na*—did not; *ārurukṣantam*—trying to get on; *dhruvam*—Dhruva; *rājā*—the King; *abhyanandata*—welcome.

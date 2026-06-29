@@ -1,13 +1,13 @@
 ### SB 8.12.11
 
-> स त्वं समीहितमदः स्थितिजन्मनाशं
-> भूतेहितं च जगतो भवबन्धमोक्षौ
-> वायुर्यथा विशति खं च चराचराख्यं
+> स त्वं समीहितमदः स्थितिजन्मनाशं\
+> भूतेहितं च जगतो भवबन्धमोक्षौ\
+> वायुर्यथा विशति खं च चराचराख्यं\
 > सर्वं तदात्मकतयावगमोऽवरुन्त्से ॥११॥
 
-> sa tvaṁ samīhitam adaḥ sthiti-janma-nāśaṁ
-> bhūtehitaṁ ca jagato bhava-bandha-mokṣau
-> vāyur yathā viśati khaṁ ca carācarākhyaṁ
+> sa tvaṁ samīhitam adaḥ sthiti-janma-nāśaṁ\
+> bhūtehitaṁ ca jagato bhava-bandha-mokṣau\
+> vāyur yathā viśati khaṁ ca carācarākhyaṁ\
 > sarvaṁ tad-ātmakatayāvagamo 'varuntse
 
 *saḥ*—Tu Señoría; *tvam*—la Suprema Personalidad de Dios; *samīhitam*—que ha sido creada (por Ti); *adaḥ*—de la manifestación cósmica material; *sthiti-janma-nāśam*—creación, mantenimiento y aniquilación; *bhūta*—de las entidades vivientes; *īhitam ca*—y las diversas actividades o esfuerzos; *jagataḥ*—del mundo entero; *bhava-bandha-mokṣau*—en enredarse y liberarse de las complicaciones materiales; *vāyuḥ*—el aire; *yathā*—como; *viśati*—entra; *kham*—en el vasto cielo; *ca*—y; *cara-acara-ākhyam*—y todo, lo móvil y lo inmóvil; *sarvam*—todo; *tat*—eso; *ātmakatayā*—debido a Tu presencia; *avagamaḥ*—todo es conocido; *avaruntse*—Tú eres omnipresente y, por lo tanto, lo conoces todo.

@@ -1,11 +1,11 @@
 ### SB 9.7.16
 
-> रोहितस्तदभिज्ञआय पितुः कर्म चिकीर्षितम
+> रोहितस्तदभिज्ञआय पितुः कर्म चिकीर्षितम\
 > प्राणप्रेप्सुर्धनुष्पाणिररण्यं प्रत्यपद्यत ॥१६॥
 
-> rohitas tad abhijñāya
-> pituḥ karma cikīrṣitam
-> prāṇa-prepsur dhanuṣ-pāṇir
+> rohitas tad abhijñāya\
+> pituḥ karma cikīrṣitam\
+> prāṇa-prepsur dhanuṣ-pāṇir\
 > araṇyaṁ pratyapadyata
 
 *rohitaḥ*—el hijo de Hariścandra; *tat*—este hecho; *abhijñāya*—haber entendido perfectamente; *pituḥ*—de su padre; *karma*—acto; *cikīrṣitam*—que ya estaba realizando; *prāṇa-prepsuḥ*—con el deseo de salvar su vida; *dhanuḥ-pāṇiḥ*—con su arco y flechas; *araṇyam*—al bosque; *pratyapadyata*—se fue.

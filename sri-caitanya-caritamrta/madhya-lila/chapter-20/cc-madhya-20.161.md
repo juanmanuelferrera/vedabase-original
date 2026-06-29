@@ -1,9 +1,9 @@
 ### CC Madhya 20.161
 
-> পরমাত্মা যেঁহো, তেঁহো কৃষ্ণের এক অংশ ।
+> পরমাত্মা যেঁহো, তেঁহো কৃষ্ণের এক অংশ ।\
 > আত্মার ‘আত্মা’ হয় কৃষ্ণ সর্ব-অবতংস ॥১৬১॥
 
-> paramātmā yeṅho, teṅho kṛṣṇera eka aṁśa
+> paramātmā yeṅho, teṅho kṛṣṇera eka aṁśa\
 > ātmāra 'ātmā' haya kṛṣṇa sarva-avataṁsa
 
 *paramātmā*—the Supersoul within the heart; *yeṅho*—who; *teṅho*—He; *kṛṣṇera*—of Lord Kṛṣṇa; *eka*—one; *aṁśa*—plenary portion; *ātmāra*—of the soul; *ātmā*—the soul; *haya*—is; *kṛṣṇa*—Lord Kṛṣṇa; *sarva*—of everything; *avataṁsa*—source.

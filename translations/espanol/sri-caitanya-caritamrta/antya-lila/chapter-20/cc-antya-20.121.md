@@ -1,9 +1,9 @@
 ### CC Antya 20.121
 
-> ত্রয়োদশে — জগদানন্দ মথুরা যাই’ আইলা ।
+> ত্রয়োদশে — জগদানন্দ মথুরা যাই’ আইলা ।\
 > মহাপ্রভু দেবদাসীর গীত শুনিলা ॥১২১॥
 
-> trayodaśe--jagadānanda mathurā yāi' āilā
+> trayodaśe--jagadānanda mathurā yāi' āilā\
 > mahāprabhu deva-dāsīra gīta śunilā
 
 *trayodaśe*—en el capítulo decimotercero; *jagadānanda*—Jagadānanda Paṇḍita; *mathurā yāi'*—yendo a Mathurā; *āilā*—regresó; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *deva-dāsīra*—de la deva-dāsī, la bailarina; *gīta śunilā*—escuchó la canción.

@@ -1,11 +1,11 @@
 ### SB 1.15.42
 
-> त्रित्वे हुत्वा च पञ्चत्वं तच्चैकत्वे ञ्जुहोन्मुनिः ।
+> त्रित्वे हुत्वा च पञ्चत्वं तच्चैकत्वे ञ्जुहोन्मुनिः ।\
 > सर्वमात्मन्यजुहवीद्ब्रह्मण्यात्मानमव्यये ॥४२॥
 
-> tritve hutvā ca pañcatvaṁ
-> tac caikatve 'juhon muniḥ
-> sarvam ātmany ajuhavīd
+> tritve hutvā ca pañcatvaṁ\
+> tac caikatve 'juhon muniḥ\
+> sarvam ātmany ajuhavīd\
 > brahmaṇy ātmānam avyaye
 
 *tritve*—into the three qualities; *hutvā*—having offered; *ca*—also; *pañcatvam*—five elements; *tat*—that; *ca*—also; *ekatve*—in one nescience; *ajuhot*—amalgamated; *muniḥ*—the thoughtful; *sarvam*—the sum total; *ātmani*—in the soul; *ajuhavīt*—fixed; *brahmaṇi*—unto the spirit; *ātmānam*—the soul; *avyaye*—unto the inexhaustible.

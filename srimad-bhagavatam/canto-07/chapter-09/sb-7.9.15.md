@@ -1,13 +1,13 @@
 ### SB 7.9.15
 
-> नाहं बिभेम्यजित तेऽतिभयानकास्य
-> जिह्वार्कनेत्रभ्रुकुटीरभसोग्रदंष्ट्रात
-> आन्त्रस्रजःक्षतजकेशरशङ्कुकर्णान
+> नाहं बिभेम्यजित तेऽतिभयानकास्य\
+> जिह्वार्कनेत्रभ्रुकुटीरभसोग्रदंष्ट्रात\
+> आन्त्रस्रजःक्षतजकेशरशङ्कुकर्णान\
 > निर्ह्रादभीतदिगिभादरिभिन्नखाग्रात ॥१५॥
 
-> nāhaṁ bibhemy ajita te 'tibhayānakāsya-
-> jihvārka-netra-bhrukuṭī-rabhasogra-daṁṣṭrāt
-> āntra-srajaḥ-kṣataja-keśara-śaṅku-karṇān
+> nāhaṁ bibhemy ajita te 'tibhayānakāsya-\
+> jihvārka-netra-bhrukuṭī-rabhasogra-daṁṣṭrāt\
+> āntra-srajaḥ-kṣataja-keśara-śaṅku-karṇān\
 > nirhrāda-bhīta-digibhād ari-bhin-nakhāgrāt
 
 *na*—not; *aham*—I; *bibhemi*—am afraid; *ajita*—O supreme victorious person, who are never conquered by anyone; *te*—Your; *ati*—very much; *bhayānaka*—fearful; *āsya*—mouth; *jihvā*—tongue; *arka-netra*—eyes shining like the sun; *bhrukuṭī*—frowning brows; *rabhasa*—strong; *ugra-daṁṣṭrāt*—ferocious teeth; *āntra-srajaḥ*—garlanded by intestines; *kṣataja*—bloody; *keśara*—manes; *śaṅku-karṇāt*—wedgelike ears; *nirhrāda*—by a roaring sound (caused by You); *bhīta*—frightened; *digibhāt*—from which even the great elephants; *ari-bhit*—piercing the enemy; *nakha-agrāt*—the tips of whose nails.

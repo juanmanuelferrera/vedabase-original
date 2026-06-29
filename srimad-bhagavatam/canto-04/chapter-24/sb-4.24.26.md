@@ -1,11 +1,11 @@
 ### SB 4.24.26
 
-> स तान्प्रपन्नार्तिहरो भगवान्धर्मवत्सलः ।
+> स तान्प्रपन्नार्तिहरो भगवान्धर्मवत्सलः ।\
 > धर्मज्ञान्शीलसम्पन्नान्प्रीतः प्रीतानुवाच ह ॥२६॥
 
-> sa tān prapannārti-haro
-> bhagavān dharma-vatsalaḥ
-> dharma-jñān śīla-sampannān
+> sa tān prapannārti-haro\
+> bhagavān dharma-vatsalaḥ\
+> dharma-jñān śīla-sampannān\
 > prītaḥ prītān uvāca ha
 
 *saḥ*—Lord Śiva; *tān*—them; *prapanna-ārti-haraḥ*—one who drives away all kinds of dangers; *bhagavān*—the lord; *dharma-vatsalaḥ*—very much fond of religious principles; *dharma-jñān*—persons who are aware of religious principles; *śīla-sampannān*—very well behaved; *prītaḥ*—being pleased; *prītān*—of very gentle behavior; *uvāca*—talked with them; *ha*—in the past.

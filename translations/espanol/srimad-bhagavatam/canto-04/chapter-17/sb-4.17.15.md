@@ -1,11 +1,11 @@
 ### SB 4.17.15
 
-> तामन्वधावत्तद्वैन्यः कुपितोऽत्यरुणेक्षणः ।
+> तामन्वधावत्तद्वैन्यः कुपितोऽत्यरुणेक्षणः ।\
 > शरं धनुषि सन्धाय यत्र यत्र पलायते ॥१५॥
 
-> tām anvadhāvat tad vainyaḥ
-> kupito 'tyaruṇekṣaṇaḥ
-> śaraṁ dhanuṣi sandhāya
+> tām anvadhāvat tad vainyaḥ\
+> kupito 'tyaruṇekṣaṇaḥ\
+> śaraṁ dhanuṣi sandhāya\
 > yatra yatra palāyate
 
 *tām*—a la Tierra en forma de vaca; *anvadhāvat*—persiguió; *tat*—entonces; *vainyaḥ*—el hijo del rey Vena; *kupitaḥ*—muy iracundo; *ati-aruṇa*—muy rojos; *īkṣaṇaḥ*—los ojos; *śaram*—una flecha; *dhanuṣi*—en el arco; *sandhāya*—poniendo; *yatra yatra*—dondequiera; *palāyate*—ella huye.

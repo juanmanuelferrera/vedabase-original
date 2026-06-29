@@ -1,13 +1,13 @@
 ### CC Adi 4.275
 
-> অপারং কস্যাপি প্রণয়িজনবৃন্দস্য কুতুকী
-> রসস্তোমং হৃত্বা মধুরমুপভোক্তুং কমপি যঃ ।
-> রুচং স্বামাবব্রে দ্যুতিমিহ তদীয়াং প্রকটয়ন্
+> অপারং কস্যাপি প্রণয়িজনবৃন্দস্য কুতুকী\
+> রসস্তোমং হৃত্বা মধুরমুপভোক্তুং কমপি যঃ ।\
+> রুচং স্বামাবব্রে দ্যুতিমিহ তদীয়াং প্রকটয়ন্\
 > স দেবশ্চৈতন্যাকৃতিরতিতরাং নঃ কৃপয়তু ॥২৭৫॥
 
-> apāraṁ kasyāpi praṇayi-jana-vṛndasya kutukī
-> rasa-stomaṁ hṛtvā madhuram upabhoktuṁ kam api yaḥ
-> rucaṁ svām āvavre dyutim iha tadīyāṁ prakaṭayan
+> apāraṁ kasyāpi praṇayi-jana-vṛndasya kutukī\
+> rasa-stomaṁ hṛtvā madhuram upabhoktuṁ kam api yaḥ\
+> rucaṁ svām āvavre dyutim iha tadīyāṁ prakaṭayan\
 > sa devaś caitanyākṛtir atitarāṁ naḥ kṛpayatu
 
 *apāram*—ilimitados; *kasya api*—de alguien; *praṇayi-jana-vṛndasya*—de la multitud de amantes; *kutukī*—quien siente curiosidad; *rasa-stomam*—el conjunto de *rasas*; *hṛtvā*—arrebatando; *madhuram*—dulce; *upabhoktum*—para disfrutar; *kam api*—algún; *yaḥ*—quien; *rucam*—lustre; *svām*—propio; *āvavre*—cubrió; *dyutim*—lustre; *iha*—aquí; *tadīyām*—relacionada con Él; *prakaṭayan*—manifestando; *saḥ*—Él; *devaḥ*—la Suprema Personalidad de Dios; *caitanya-ākṛtiḥ*—que tiene la forma del Señor Caitanya Mahāprabhu; *atitarām*—en gran medida; *naḥ*—a nosotros; *kṛpayatu*—que nos muestre Su misericordia.

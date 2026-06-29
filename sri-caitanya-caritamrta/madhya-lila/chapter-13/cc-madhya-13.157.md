@@ -1,13 +1,13 @@
 ### CC Madhya 13.157
 
-> সেই শত্রুগণ হৈতে, ব্রজজন রাখিতে,
-> রহি রাজ্যে উদাসীন হঞা ।
-> যেবা স্ত্রী-পুত্র-ধনে, করি রাজ্য আবরণে,
+> সেই শত্রুগণ হৈতে, ব্রজজন রাখিতে,\
+> রহি রাজ্যে উদাসীন হঞা ।\
+> যেবা স্ত্রী-পুত্র-ধনে, করি রাজ্য আবরণে,\
 > যদুগণের সন্তোষ লাগিয়া ॥১৫৭॥
 
-> sei śatru-gaṇa haite, vraja-jana rākhite,
-> rahi rājye udāsīna hañā
-> yebā strī-putra-dhane, kari rājya āvaraṇe,
+> sei śatru-gaṇa haite, vraja-jana rākhite,\
+> rahi rājye udāsīna hañā\
+> yebā strī-putra-dhane, kari rājya āvaraṇe,\
 > yadu-gaṇera santoṣa lāgiyā
 
 *sei*—those; *śatru-gaṇa haite*—from enemies; *vraja-jana*—to the inhabitants of Vṛndāvana; *rākhite*—to give protection; *rahi*—I remain; *rājye*—in My kingdom; *udāsīna*—indifferent; *hañā*—becoming; *yebā*—whatever; *strī-putra-dhane*—with wives, sons and wealth; *kari rājya āvaraṇe*—I decorate My kingdom; *yadu-gaṇera*—of the Yadu dynasty; *santoṣa*—satisfaction; *lāgiyā*—for the matter of.

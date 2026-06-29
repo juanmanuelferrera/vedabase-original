@@ -1,9 +1,9 @@
 ### CC Madhya 1.138
 
-> বর্ষান্তরে অদ্বৈতাদি ভক্তের আগমন ।
+> বর্ষান্তরে অদ্বৈতাদি ভক্তের আগমন ।\
 > প্ৰভুরে দেখিতে সবে করিলা গমন ॥১৩৮॥
 
-> varṣāntare advaitādi bhaktera āgamana
+> varṣāntare advaitādi bhaktera āgamana\
 > prabhure dekhite sabe karilā gamana
 
 *varṣa-antare*—at the end of the year; *advaita-ādi*—headed by Advaita Ācārya; *bhaktera*—of all the devotees; *āgamana*—coming to Jagannātha Purī; *prabhure*—the Lord; *dekhite*—to see; *sabe*—all of them; *karilā*—did; *gamana*—going to Jagannātha Purī.

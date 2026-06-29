@@ -1,11 +1,11 @@
 ### SB 8.24.20
 
-> न म एतदलं राजन्सुखं वस्तुमुदञ्चनम
+> न म एतदलं राजन्सुखं वस्तुमुदञ्चनम\
 > पृथु देहि पदं मह्यं यत्त्वाहं शरणं गता ॥२०॥
 
-> na ma etad alaṁ rājan
-> sukhaṁ vastum udañcanam
-> pṛthu dehi padaṁ mahyaṁ
+> na ma etad alaṁ rājan\
+> sukhaṁ vastum udañcanam\
+> pṛthu dehi padaṁ mahyaṁ\
 > yat tvāhaṁ śaraṇaṁ gatā
 
 *na*—no; *me*—a Mí; *etat*—este; *alam*—adecuado; *rājan*—¡oh, rey!; *sukham*—con felicidad; *vastum*—vivir; *udañcanam*—depósito de agua; *pṛthu*—muy grande; *dehi*—da; *padam*—un lugar; *mahyam*—a Mí; *yat*—el cual; *tvā*—en ti; *aham*—Yo; *śaraṇam*—refugio; *gatā*—he tomado.

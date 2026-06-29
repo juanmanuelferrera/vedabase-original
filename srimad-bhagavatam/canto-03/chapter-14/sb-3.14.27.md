@@ -1,11 +1,11 @@
 ### SB 3.14.27
 
-> यस्यानवद्याचरितं मनीषिणो गृणन्त्यविद्यापटलं बिभित्सवः ।
+> यस्यानवद्याचरितं मनीषिणो गृणन्त्यविद्यापटलं बिभित्सवः ।\
 > निरस्तसाम्यातिशयोऽपि यत्स्वयं पिशाचचर्यामचरद्गतिः सताम् ॥२७॥
 
-> yasyānavadyācaritaṁ manīṣiṇo
-> gṛṇanty avidyā-paṭalaṁ bibhitsavaḥ
-> nirasta-sāmyātiśayo 'pi yat svayaṁ
+> yasyānavadyācaritaṁ manīṣiṇo\
+> gṛṇanty avidyā-paṭalaṁ bibhitsavaḥ\
+> nirasta-sāmyātiśayo 'pi yat svayaṁ\
 > piśāca-caryām acarad gatiḥ satām
 
 *yasya*—whose; *anavadya*—unimpeachable; *ācaritam*—character; *manīṣiṇaḥ*—great sages; *gṛṇanti*—follow; *avidyā*—nescience; *paṭalam*—mass; *bibhitsavaḥ*—desiring to dismantle; *nirasta*—nullified; *sāmya*—equality; *atiśayaḥ*—greatness; *api*—in spite of; *yat*—as; *svayam*—personally; *piśāca*—devil; *caryām*—activities; *acarat*—performed; *gatiḥ*—destination; *satām*—of the devotees of the Lord.

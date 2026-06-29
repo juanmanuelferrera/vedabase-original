@@ -1,9 +1,9 @@
 ### CC Madhya 12.27
 
-> আমি কোন্ ক্ষুদ্রজীব, তোমাকে বিধি দিব ?
+> আমি কোন্ ক্ষুদ্রজীব, তোমাকে বিধি দিব ?\
 > আপনি মিলিবে তাঁরে, তাহাও দেখিব ॥২৭॥
 
-> āmi kon kṣudra-jīva, tomāke vidhi diba?
+> āmi kon kṣudra-jīva, tomāke vidhi diba?\
 > āpani milibe tāṅre, tāhāo dekhiba
 
 *āmi kon*—yo soy simplemente alguna; *kṣudra-jīva*—entidad viviente insignificante; *tomāke*—a Ti; *vidhi*—mandato; *diba*—daré; *āpani*—Tú; *milibe*—Te reunirás; *tāṅre*—con el rey; *tāhāo dekhiba*—eso lo veré.

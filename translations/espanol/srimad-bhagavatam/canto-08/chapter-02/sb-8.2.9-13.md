@@ -1,39 +1,39 @@
 ### SB 8.2.9-13
 
-> तस्य द्रोण्यां भगवतो वरुणस्य महात्मनः
-> उद्यानमृतुमन्नाम आक्रीडं सुरयोषिताम ॥९॥
-> सर्वतोऽलङ्कृतं दिव्यैर्नित्यपुष्पफलद्रुमैः
-> मन्दारैः पारिजातैश्च पाटलाशोकचम्पकैः ॥१०॥
-> चूतैः पियालैः पनसैराम्रैराम्रातकैरपि
-> क्रमुकैर्नारिकेलैश्च खर्जूरैर्बीजपूरकैः ॥११॥
-> मधुकैः शालतालैश्च तमालैरसनार्जुनैः
-> अरिष्टोडुम्बरप्लक्षैर्वटैः किंशुकचन्दनैः ॥१२॥
-> पिचुमर्दैः कोविदारैः सरलैः सुरदारुभिः
+> तस्य द्रोण्यां भगवतो वरुणस्य महात्मनः\
+> उद्यानमृतुमन्नाम आक्रीडं सुरयोषिताम ॥९॥\
+> सर्वतोऽलङ्कृतं दिव्यैर्नित्यपुष्पफलद्रुमैः\
+> मन्दारैः पारिजातैश्च पाटलाशोकचम्पकैः ॥१०॥\
+> चूतैः पियालैः पनसैराम्रैराम्रातकैरपि\
+> क्रमुकैर्नारिकेलैश्च खर्जूरैर्बीजपूरकैः ॥११॥\
+> मधुकैः शालतालैश्च तमालैरसनार्जुनैः\
+> अरिष्टोडुम्बरप्लक्षैर्वटैः किंशुकचन्दनैः ॥१२॥\
+> पिचुमर्दैः कोविदारैः सरलैः सुरदारुभिः\
 > द्राक्षेक्षुरम्भाजम्बुभिर्बदर्यक्षाभयामलैः ॥१३॥
 
-> tasya droṇyāṁ bhagavato
-> varuṇasya mahātmanaḥ
-> udyānam ṛtuman nāma
+> tasya droṇyāṁ bhagavato\
+> varuṇasya mahātmanaḥ\
+> udyānam ṛtuman nāma\
 > ākrīḍaṁ sura-yoṣitām
 
-> sarvato 'laṅkṛtaṁ divyair
-> nitya-puṣpa-phala-drumaiḥ
-> mandāraiḥ pārijātaiś ca
+> sarvato 'laṅkṛtaṁ divyair\
+> nitya-puṣpa-phala-drumaiḥ\
+> mandāraiḥ pārijātaiś ca\
 > pāṭalāśoka-campakaiḥ
 
-> cūtaiḥ piyālaiḥ panasair
-> āmrair āmrātakair api
-> kramukair nārikelaiś ca
+> cūtaiḥ piyālaiḥ panasair\
+> āmrair āmrātakair api\
+> kramukair nārikelaiś ca\
 > kharjūrair bījapūrakaiḥ
 
-> madhukaiḥ śāla-tālaiś ca
-> tamālair asanārjunaiḥ
-> ariṣṭoḍumbara-plakṣair
+> madhukaiḥ śāla-tālaiś ca\
+> tamālair asanārjunaiḥ\
+> ariṣṭoḍumbara-plakṣair\
 > vaṭaiḥ kiṁśuka-candanaiḥ
 
-> picumardaiḥ kovidāraiḥ
-> saralaiḥ sura-dārubhiḥ
-> drākṣekṣu-rambhā-jambubhir
+> picumardaiḥ kovidāraiḥ\
+> saralaiḥ sura-dārubhiḥ\
+> drākṣekṣu-rambhā-jambubhir\
 > badary-akṣābhayāmalaiḥ
 
 *tasya*—de esa montaña (Trikūṭa); *droṇyām*—en un valle; *bhagavataḥ*—de la gran personalidad; *varuṇasya*—el semidiós Varuṇa; *mahā-ātmanaḥ*—que es un gran devoto del Señor; *udyānam*—un jardín; *ṛtumat*—Ṛtumat; *nāma*—de nombre; *ākrīḍam*—un lugar de diversiones y juegos; *sura-yoṣitām*—de las muchachas celestiales; *sarvataḥ*—por todas partes; *alaṅkṛtam*—hermosamente adornado; *divyaiḥ*—que pertenecía a los semidioses; *nitya*—siempre; *puṣpa*—de flores; *phala*—y frutas; *drumaiḥ*—con árboles; *mandāraiḥ*—*mandāra*; *pārijātaiḥ*—*pārijāta*; *ca*—también; *pāṭala*—*pāṭala*; *aśoka*—*aśoka*; *campakaiḥ*—*campaka*; *cūtaiḥ*—frutas *cuta*; *piyālaiḥ*—frutas *piyāla*; *panasaiḥ*—frutas *panasa*; *āmraiḥ*—mangos; *āmrātakaiḥ*—las amargas frutas *āmrātaka*; *api*—también; *kramukaiḥ*—frutas *kramuka*; *nārikelaiḥ*—cocoteros; *ca*—y; *kharjūraiḥ*—palmas datileras; *bījapūrakaiḥ*—granadas; *madhukaiḥ*—frutas *madhuka*; *śāla-tālaiḥ*—fruta de palma; *ca*—y; *tamālaiḥ*—árboles *tamāla*; *asana*—árboles *asana*; *arjunaiḥ*—árboles *arjuna*; *ariṣṭa*—frutas *ariṣṭa*; *uḍumbara*—grandes árboles *uḍumbara*; *plakṣaiḥ*—árboles *plakṣa*; *vaṭaiḥ*—árboles de los banianos; *kiṁśuka*—flores rojas sin aroma; *candanaiḥ*—sándalos; *picumardaiḥ*—flores *picumarda*; *kovidāraiḥ*—frutas *kovidāra*; *saralaiḥ*—árboles *sarala*; *sura-dārubhiḥ*—árboles *sura-dāru*; *drākṣā*—uvas; *ikṣuḥ*—caña de azúcar; *rambhā*—bananas; *jambubhiḥ*—frutas *jambu*; *badarī*—frutas *badarī*; *akṣa*—frutas *akṣa*; *abhaya*—frutas *abhaya*; *āmalaiḥ*—*āmalakī* , una fruta amarga.

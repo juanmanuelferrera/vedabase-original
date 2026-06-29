@@ -1,11 +1,11 @@
 ### SB 9.10.24
 
-> ततो निष्क्रम्य लङ्काया यातुधान्यः सहस्रशः
+> ततो निष्क्रम्य लङ्काया यातुधान्यः सहस्रशः\
 > मन्दोदर्या समं तत्र प्ररुदन्त्य उपाद्रवन ॥२४॥
 
-> tato niṣkramya laṅkāyā
-> yātudhānyaḥ sahasraśaḥ
-> mandodaryā samaṁ tatra
+> tato niṣkramya laṅkāyā\
+> yātudhānyaḥ sahasraśaḥ\
+> mandodaryā samaṁ tatra\
 > prarudantya upādravan
 
 *tataḥ*—a continuación; *niṣkramya*—salir; *laṅkāyāḥ*—de Laṅkā; *yātudhānyaḥ*—las esposas de los *rākṣasas*; *sahasraśaḥ*—muchos miles; *mandodaryā*—con la esposa de Rāvaṇa, Mandodarī, al frente; *samam*—con; *tatra*—allí; *prarudantyaḥ*—llorando lamentándose; *upādravan*—se acercaron (a sus maridos muertos).

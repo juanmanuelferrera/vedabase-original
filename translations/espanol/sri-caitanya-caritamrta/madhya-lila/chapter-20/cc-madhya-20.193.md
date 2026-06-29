@@ -1,9 +1,9 @@
 ### CC Madhya 20.193
 
-> তাঁহা হৈতে পুনঃ চতুর্ব্যূহ-পরকাশ ।
+> তাঁহা হৈতে পুনঃ চতুর্ব্যূহ-পরকাশ ।\
 > আবরণরূপে চারিদিকে যাঁর বাস ॥১৯৩॥
 
-> tāṅhā haite punaḥ catur-vyūha-parakāśa
+> tāṅhā haite punaḥ catur-vyūha-parakāśa\
 > āvaraṇa-rūpe cāri-dike yāṅra vāsa
 
 *tāṅhā haite*—de ese caturvyūha original; *punaḥ*—de nuevo; *catuḥ-vyūha-parakāśa*—manifestación de expansiones cuádruples; *āvaraṇa-rūpe*—en la forma de una cobertura; *cāri-dike*—en las cuatro direcciones; *yāṅra*—cuya; *vāsa*—residencia.

@@ -1,9 +1,9 @@
 ### CC Adi 16.74
 
-> প্রথম-চরণে পঞ্চ ‘ত’-কারের পাঁতি ।
+> প্রথম-চরণে পঞ্চ ‘ত’-কারের পাঁতি ।\
 > তৃতীয়া-চরণে হয় পঞ্চ ‘রেফ’-স্থিতি ॥৭৪॥
 
-> prathama-caraṇe pañca 'ta'-kārera pāṅti
+> prathama-caraṇe pañca 'ta'-kārera pāṅti\
 > tṛtīya-caraṇe haya pañca 'repha'-sthiti
 
 *prathama-caraṇe*—en la primera línea; *pañca*—cinco; *ta-karera*—de la letra ta; *pāṅti*—muy buena composición; *tṛtīya-caraṇe*—en la tercera línea; *haya*—hay; *pañca*—cinco; *repha*—de la letra ra; *sthiti*—composición.

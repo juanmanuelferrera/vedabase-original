@@ -1,11 +1,11 @@
 ### SB 9.18.49
 
-> यस्मिन्निदं विरचितं व्योम्नीव जलदावलिः
+> यस्मिन्निदं विरचितं व्योम्नीव जलदावलिः\
 > नानेव भाति नाभाति स्वप्नमायामनोरथः ॥४९॥
 
-> yasminn idaṁ viracitaṁ
-> vyomnīva jaladāvaliḥ
-> nāneva bhāti nābhāti
+> yasminn idaṁ viracitaṁ\
+> vyomnīva jaladāvaliḥ\
+> nāneva bhāti nābhāti\
 > svapna-māyā-manorathaḥ
 
 *yasmin*—en quien; *idam*—toda esta manifestación cósmica; *viracitam*—creada; *vyomni*—en el cielo; *iva*—tal y como; *jalada-āvaliḥ*—nubes; *nānā iva*—como en diversidad de formas; *bhāti*—se manifiesta; *na ābhāti*—deja de manifestarse; *svapna-māyā*—ilusión, como un sueño; *manaḥ-rathaḥ*—creado para ser recorrido por el carro de la mente.

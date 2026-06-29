@@ -1,18 +1,18 @@
 ### SB 6.11.2-3
 
-> विशीर्यमाणां पृतनामासुरीमसुरर्षभः
-> कालानुकूलैस्त्रिदशैः काल्यमानामनाथवत ॥२॥
-> दृष्ट्वातप्यत सङ्क्रुद्ध इन्द्रशत्रुरमर्षितः
+> विशीर्यमाणां पृतनामासुरीमसुरर्षभः\
+> कालानुकूलैस्त्रिदशैः काल्यमानामनाथवत ॥२॥\
+> दृष्ट्वातप्यत सङ्क्रुद्ध इन्द्रशत्रुरमर्षितः\
 > तान्निवार्यौजसा राजन्निर्भर्त्स्येदमुवाच ह ॥३॥
 
-> viśīryamāṇāṁ pṛtanām
-> āsurīm asurarṣabhaḥ
-> kālānukūlais tridaśaiḥ
+> viśīryamāṇāṁ pṛtanām\
+> āsurīm asurarṣabhaḥ\
+> kālānukūlais tridaśaiḥ\
 > kālyamānām anāthavat
 
-> dṛṣṭvātapyata saṅkruddha
-> indra-śatrur amarṣitaḥ
-> tān nivāryaujasā rājan
+> dṛṣṭvātapyata saṅkruddha\
+> indra-śatrur amarṣitaḥ\
+> tān nivāryaujasā rājan\
 > nirbhartsyedam uvāca ha
 
 *viśīryamāṇām*—being shattered; *pṛtanām*—the army; *āsurīm*—of the demons; *asura-ṛṣabhaḥ*—the best of the *asuras,* Vṛtrāsura; *kāla-anukūlaiḥ*—following the circumstances presented by time; *tridaśaiḥ*—by the demigods; *kālyamānām*—being chased; *anātha-vat*—as if no one were there to protect them; *dṛṣṭvā*—seeing; *atapyata*—felt pain; *saṅkruddhaḥ*—being very angry; *indra-śatruḥ*—Vṛtrāsura, the enemy of Indra; *amarṣitaḥ*—unable to tolerate; *tān*—them (the demigods); *nivārya*—blocking; *ojasā*—with great force; *rājan*—O King Parīkṣit; *nirbhartsya*—rebuking; *idam*—this; *uvāca*—said; *ha*—indeed.

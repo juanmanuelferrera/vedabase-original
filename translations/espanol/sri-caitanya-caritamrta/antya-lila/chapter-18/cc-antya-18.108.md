@@ -1,13 +1,13 @@
 ### CC Antya 18.108
 
-> কেহ করে বীজন, কেহ পাদসম্বাহন,
-> কেহ করায় তাম্বুল ভক্ষণ ।
-> রাধাকৃষ্ণ নিদ্রা গেলা, সখীগণ শয়ন কৈলা,
+> কেহ করে বীজন, কেহ পাদসম্বাহন,\
+> কেহ করায় তাম্বুল ভক্ষণ ।\
+> রাধাকৃষ্ণ নিদ্রা গেলা, সখীগণ শয়ন কৈলা,\
 > দেখি’ আমার সুখী হৈল মন ॥১০৮॥
 
-> keha kare vījana, keha pāda-samvāhana,
-> keha karāya tāmbūla bhakṣaṇa
-> rādhā-kṛṣṇa nidrā gelā, sakhī-gaṇa śayana kailā,
+> keha kare vījana, keha pāda-samvāhana,\
+> keha karāya tāmbūla bhakṣaṇa\
+> rādhā-kṛṣṇa nidrā gelā, sakhī-gaṇa śayana kailā,\
 > dekhi' āmāra sukhī haila mana
 
 *keha*—alguien; *kare*—hace; *vījana*—abanicar; *keha*—alguien; *pāda-samvāhana*—masaje de los pies; *keha*—alguien; *karāya*—les hizo; *tāmbūla bhakṣaṇa*—comer una preparación de hojas de betel; *rādhā-kṛṣṇa*—Rādhā y Kṛṣṇa; *nidrā gelā*—se durmieron; *sakhī-gaṇa*—todas las gopīs; *śayana kailā*—se acostaron; *dekhi'*—al ver; *āmāra*—Mi; *sukhī*—feliz; *haila*—se puso; *mana*—mente.

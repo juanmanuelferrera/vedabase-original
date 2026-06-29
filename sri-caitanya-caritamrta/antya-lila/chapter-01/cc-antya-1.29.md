@@ -1,9 +1,9 @@
 ### CC Antya 1.29
 
-> প্রসাদ নারিকেল-শস্য দেন ফেলাঞা ।
+> প্রসাদ নারিকেল-শস্য দেন ফেলাঞা ।\
 > ‘রাম’ ‘কৃষ্ণ’ ‘হরি’ কহ’ — বলেন হাসিয়া ॥২৯॥
 
-> prasāda nārikela-śasya dena phelāñā
+> prasāda nārikela-śasya dena phelāñā\
 > 'rāma' 'kṛṣṇa' 'hari' kaha'—balena hāsiyā
 
 *prasāda*—food; *nārikela-śasya*—pulp of green coconut; *dena*—gives; *phelāñā*—throwing; *rāma*—Lord Rāmacandra; *kṛṣṇa*—Śrī Kṛṣṇa; *hari*—the holy name of Hari; *kaha*—say; *balena*—Śrī Caitanya Mahāprabhu says; *hāsiyā*—smiling.

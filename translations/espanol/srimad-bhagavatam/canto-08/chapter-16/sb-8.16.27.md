@@ -1,11 +1,11 @@
 ### SB 8.16.27
 
-> त्वं देव्यादिवराहेण रसायाः स्थानमिच्छता
+> त्वं देव्यादिवराहेण रसायाः स्थानमिच्छता\
 > उद्धृतासि नमस्तुभ्यं पाप्मानं मे प्रणाशय ॥२७॥
 
-> tvaṁ devy ādi-varāheṇa
-> rasāyāḥ sthānam icchatā
-> uddhṛtāsi namas tubhyaṁ
+> tvaṁ devy ādi-varāheṇa\
+> rasāyāḥ sthānam icchatā\
+> uddhṛtāsi namas tubhyaṁ\
 > pāpmānaṁ me praṇāśaya
 
 *tvam*—tú; *devi*—¡oh, madre Tierra!; *ādi-varāheṇa*—por la Suprema Personalidad de Dios en la forma de un jabalí; *rasāyāḥ*—del fondo del universo; *sthānam*—un lugar; *icchatā*—deseando; *uddhṛtā asi*—has sido levantada; *namaḥ tubhyam*—yo te ofrezco respetuosas reverencias; *pāpmānam*—todas las actividades pecaminosas y sus reacciones; *me*—de mí; *praṇāśaya*—por favor, deshaz.

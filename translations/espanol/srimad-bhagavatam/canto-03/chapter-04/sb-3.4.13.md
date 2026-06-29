@@ -1,11 +1,11 @@
 ### SB 3.4.13
 
-> पुरा मया प्रोक्तमजाय नाभ्ये पद्मे निषण्णाय ममादिसर्गे ।
+> पुरा मया प्रोक्तमजाय नाभ्ये पद्मे निषण्णाय ममादिसर्गे ।\
 > ज्ञानं परं मन्महिमावभासं यत्सूरयो भागवतं वदन्ति ॥१३॥
 
-> purā mayā proktam ajāya nābhye
-> padme niṣaṇṇāya mamādi-sarge
-> jñānaṁ paraṁ man-mahimāvabhāsaṁ
+> purā mayā proktam ajāya nābhye\
+> padme niṣaṇṇāya mamādi-sarge\
+> jñānaṁ paraṁ man-mahimāvabhāsaṁ\
 > yat sūrayo bhāgavataṁ vadanti
 
 *purā*—en los días de antaño; *mayā*—por Mí; *proktam*—se dijo; *ajāya*—a Brahmā; *nābhye*—del ombligo; *padme*—sobre el loto; *niṣaṇṇāya*—a aquel situado en; *mama*—Mi; *ādi-sarge*—al comienzo de la creación; *jñānam*—conocimiento; *param*—sublime; *mat-mahimā*—Mis glorias trascendentales; *avabhāsam*—aquello que clarifica; *yat*—lo cual; *sūrayaḥ*—los grandes y eruditos sabios; *bhāgavatam*—*Śrīmad-Bhāgavatam*; *vadanti*—dicen.

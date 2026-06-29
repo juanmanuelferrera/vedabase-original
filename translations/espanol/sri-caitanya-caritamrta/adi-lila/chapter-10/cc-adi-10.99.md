@@ -1,9 +1,9 @@
 ### CC Adi 10.99
 
-> সহস্র দণ্ডবৎ করে, লয় লক্ষ নাম ।
+> সহস্র দণ্ডবৎ করে, লয় লক্ষ নাম ।\
 > দুই সহস্র বৈষ্ণবেরে নিত্য পরণাম ॥৯৯॥
 
-> sahasra daṇḍavat kare, laya lakṣa nāma
+> sahasra daṇḍavat kare, laya lakṣa nāma\
 > dui sahasra vaiṣṇavere nitya paraṇāma
 
 *sahasra*—mil; *daṇḍavat*—reverencias; *kare*—hace; *laya*—toma; *lakṣa*—cien mil; *nāma*—santos nombres; *dui*—dos; *sahasra*—mil; *vaiṣṇavere*—a los devotos; *nitya*—diariamente; *paraṇāma*—reverencias.

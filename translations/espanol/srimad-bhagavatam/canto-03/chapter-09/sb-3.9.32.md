@@ -1,11 +1,11 @@
 ### SB 3.9.32
 
-> यदा तु सर्वभूतेषु दारुष्वग्निमिव स्थितम् ।
+> यदा तु सर्वभूतेषु दारुष्वग्निमिव स्थितम् ।\
 > प्रतिचक्षीत मां लोको जह्यात्तर्ह्येव कश्मलम् ॥३२॥
 
-> yadā tu sarva-bhūteṣu
-> dāruṣv agnim iva sthitam
-> praticakṣīta māṁ loko
+> yadā tu sarva-bhūteṣu\
+> dāruṣv agnim iva sthitam\
+> praticakṣīta māṁ loko\
 > jahyāt tarhy eva kaśmalam
 
 *yadā*—cuando; *tu*—pero; *sarva*—todas; *bhūteṣu*—en las entidades vivientes; *dāruṣu*—en la madera; *agnim*—fuego; *iva*—como; *sthitam*—situado; *praticakṣīta*—habrás de ver; *mām*—a Mí; *lokaḥ*—y el universo; *jahyāt*—puede rechazar; *tarhi*—entonces, de inmediato; *eva*—ciertamente; *kaśmalam*—ilusión.

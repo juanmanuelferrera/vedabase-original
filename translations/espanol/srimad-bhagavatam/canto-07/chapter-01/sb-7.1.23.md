@@ -1,12 +1,12 @@
 ### SB 7.1.23
 
-> हिंसा तदभिमानेन दण्डपारुष्ययोर्यथा
+> हिंसा तदभिमानेन दण्डपारुष्ययोर्यथा\
 > वैषम्यमिह भूतानां ममाहमिति पार्थिव ॥२३॥
 
-> śrī-nārada uvāca
-> nindana-stava-satkāra-
-> nyakkārārthaṁ kalevaram
-> pradhāna-parayo rājann
+> śrī-nārada uvāca\
+> nindana-stava-satkāra-\
+> nyakkārārthaṁ kalevaram\
+> pradhāna-parayo rājann\
 > avivekena kalpitam
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni dijo; *nindana*—blasfemia; *stava*—alabanza; *satkāra*—honor; *nyakkāra*—deshonor; *artham*—a fin de; *kalevaram*—cuerpo; *pradhāna-parayoḥ*—de la naturaleza y la Suprema Personalidad de Dios; *rājan*—¡oh, rey!; *avivekena*—sin discriminación; *kalpitam*—creado.

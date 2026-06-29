@@ -1,11 +1,11 @@
 ### SB 7.13.28
 
-> जलं तदुद्भवैश्छन्नं हित्वाज्ञओ जलकाम्यया
+> जलं तदुद्भवैश्छन्नं हित्वाज्ञओ जलकाम्यया\
 > मृगतृष्णामुपाधावेत्तथान्यत्रार्थदृक्स्वतः ॥२८॥
 
-> ity etad ātmanaḥ svārthaṁ
-> santaṁ vismṛtya vai pumān
-> vicitrām asati dvaite
+> ity etad ātmanaḥ svārthaṁ\
+> santaṁ vismṛtya vai pumān\
+> vicitrām asati dvaite\
 > ghorām āpnoti saṁsṛtim
 
 *iti*—de este modo; *etat*—una persona materialmente condicionada; *ātmanaḥ*—de su ser; *sva-artham*—el propio interés; *santam*—que existe dentro de él mismo; *vismṛtya*—olvidando; *vai*—en verdad; *pumān*—la entidad viviente; *vicitrām*—diversidades falsas y atractivas; *asati*—en el mundo material; *dvaite*—distinto del ser; *ghorām*—muy temible (debido a la aceptación continua de nacimientos y muertes); *āpnoti*—se enreda; *saṁsṛtim*—en la existencia material.

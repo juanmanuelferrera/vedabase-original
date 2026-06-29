@@ -1,9 +1,9 @@
 ### CC Antya 10.65
 
-> এইমত কতক্ষণ করাইলা কীর্তন ।
+> এইমত কতক্ষণ করাইলা কীর্তন ।\
 > আপনে নাচিতে তবে প্রভুর হৈল মন ॥৬৫॥
 
-> ei-mata kata-kṣaṇa karāilā kīrtana
+> ei-mata kata-kṣaṇa karāilā kīrtana\
 > āpane nācite tabe prabhura haila mana
 
 *ei-mata*—de este modo; *kata-kṣaṇa*—durante algún tiempo; *karāilā kīrtana*—hizo que se realizara kīrtana; *āpane*—personalmente; *nācite*—danzar; *tabe*—entonces; *prabhura haila mana*—Śrī Caitanya Mahāprabhu deseó.

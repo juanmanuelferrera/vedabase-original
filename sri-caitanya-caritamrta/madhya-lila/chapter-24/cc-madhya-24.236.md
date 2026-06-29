@@ -1,9 +1,9 @@
 ### CC Madhya 24.236
 
-> পথ ছাড়ি’ নারদ তার নিকটে চলিল ।
+> পথ ছাড়ি’ নারদ তার নিকটে চলিল ।\
 > নারদে দেখি’ মৃগ সব পলাঞা গেল ॥২৩৬॥
 
-> patha chāḍi' nārada tāra nikaṭe calila
+> patha chāḍi' nārada tāra nikaṭe calila\
 > nārade dekhi' mṛga saba palāñā gela
 
 *patha chāḍi'*—leaving aside the path; *nārada*—the saintly person Nārada; *tāra nikaṭe*—near him; *calila*—went; *nārade dekhi'*—seeing Nārada; *mṛga*—the animals; *saba*—all; *palāñā gela*—left, running away.

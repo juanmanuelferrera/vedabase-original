@@ -1,11 +1,11 @@
 ### SB 3.19.26
 
-> स आहतो विश्वजिता ह्यवज्ञया परिभ्रमद्गात्र उदस्तलोचनः ।
+> स आहतो विश्वजिता ह्यवज्ञया परिभ्रमद्गात्र उदस्तलोचनः ।\
 > विशीर्णबाह्वङ्घ्रिशिरोरुहोऽपतद्यथा नगेन्द्रो लुलितो नभस्वता ॥२६॥
 
-> sa āhato viśva-jitā hy avajñayā
-> paribhramad-gātra udasta-locanaḥ
-> viśīrṇa-bāhv-aṅghri-śiroruho 'patad
+> sa āhato viśva-jitā hy avajñayā\
+> paribhramad-gātra udasta-locanaḥ\
+> viśīrṇa-bāhv-aṅghri-śiroruho 'patad\
 > yathā nagendro lulito nabhasvatā
 
 *saḥ*—he; *āhataḥ*—having been struck; *viśva-jitā*—by the Supreme Personality of Godhead; *hi*—though; *avajñayā*—indifferently; *paribhramat*—wheeling; *gātraḥ*—body; *udasta*—bulged out; *locanaḥ*—eyes; *viśīrṇa*—broken; *bāhu*—arms; *aṅghri*—legs; *śiraḥ-ruhaḥ*—hair; *apatat*—fell down; *yathā*—like; *naga-indraḥ*—a gigantic tree; *lulitaḥ*—uprooted; *nabhasvatā*—by the wind.

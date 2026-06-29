@@ -1,11 +1,11 @@
 ### SB 4.13.39
 
-> स बाल एव पुरुषो मातामहमनुव्रतः ।
+> स बाल एव पुरुषो मातामहमनुव्रतः ।\
 > अधर्मांशोद्भवं मृत्युं तेनाभवदधार्मिकः ॥३९॥
 
-> sa bāla eva puruṣo
-> mātāmaham anuvrataḥ
-> adharmāṁśodbhavaṁ mṛtyuṁ
+> sa bāla eva puruṣo\
+> mātāmaham anuvrataḥ\
+> adharmāṁśodbhavaṁ mṛtyuṁ\
 > tenābhavad adhārmikaḥ
 
 *saḥ*—aquel; *bālaḥ*—niño; *eva*—ciertamente; *puruṣaḥ*—varón; *mātā-maham*—abuelo materno; *anuvrataḥ*—un seguidor de; *adharma*—de la irreligión; *aṁśa*—de una parte; *udbhavam*—que apareció; *mṛtyum*—muerte; *tena*—por eso; *abhavat*—se volvió; *adhārmikaḥ*—irreligioso.

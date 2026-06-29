@@ -1,9 +1,9 @@
 ### CC Antya 4.201
 
-> এত বলি’ পুনঃ তাঁরে কৈলা আলিঙ্গন ।
+> এত বলি’ পুনঃ তাঁরে কৈলা আলিঙ্গন ।\
 > কণ্ডু গেল, অঙ্গ হৈল সুবর্ণের সম ॥২০১॥
 
-> eta bali' punaḥ tāṅre kailā āliṅgana
+> eta bali' punaḥ tāṅre kailā āliṅgana\
 > kaṇḍu gela, aṅga haila suvarṇera sama
 
 *eta bali'*—diciendo esto; *punaḥ*—de nuevo; *tāṅre*—a él; *kailā*—hizo; *āliṅgana*—abrazar; *kaṇḍu gela*—las llagas con picazón desaparecieron; *aṅga*—el cuerpo; *haila*—se volvió; *suvarṇera sama*—como el oro.

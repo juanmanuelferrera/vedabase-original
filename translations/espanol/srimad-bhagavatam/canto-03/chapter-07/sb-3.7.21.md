@@ -1,11 +1,11 @@
 ### SB 3.7.21
 
-> सृष्ट्वाग्रे महदादीनि सविकाराण्यनुक्रमात् ।
+> सृष्ट्वाग्रे महदादीनि सविकाराण्यनुक्रमात् ।\
 > तेभ्यो विराजमुद्धृत्य तमनु प्राविशद्विभुः ॥२१॥
 
-> sṛṣṭvāgre mahad-ādīni
-> sa-vikārāṇy anukramāt
-> tebhyo virājam uddhṛtya
+> sṛṣṭvāgre mahad-ādīni\
+> sa-vikārāṇy anukramāt\
+> tebhyo virājam uddhṛtya\
 > tam anu prāviśad vibhuḥ
 
 *sṛṣṭvā*—después de crear; *agre*—al comienzo; *mahat-ādīni*—la energía material total; *sa-vikārāṇi*—juntamente con los órganos de los sentidos; *anukramāt*—mediante un proceso gradual de diferenciación; *tebhyaḥ*—movido por eso; *virājam*—la gigantesca forma universal; *uddhṛtya*—manifestando; *tam*—a eso; *anu*—luego; *prāviśat*—entró; *vibhuḥ*—el Supremo.

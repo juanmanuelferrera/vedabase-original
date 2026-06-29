@@ -1,11 +1,11 @@
 ### SB 3.1.19
 
-> गां पर्यटन्मेध्यविविक्तवृत्तिः सदाप्लुतोऽधः शयनोऽवधूतः ।
+> गां पर्यटन्मेध्यविविक्तवृत्तिः सदाप्लुतोऽधः शयनोऽवधूतः ।\
 > अलक्षितः स्वैरवधूतवेषो व्रतानि चेरे हरितोषणानि ॥१९॥
 
-> gāṁ paryaṭan medhya-vivikta-vṛttiḥ
-> sadāpluto 'dhaḥ śayano 'vadhūtaḥ
-> alakṣitaḥ svair avadhūta-veṣo
+> gāṁ paryaṭan medhya-vivikta-vṛttiḥ\
+> sadāpluto 'dhaḥ śayano 'vadhūtaḥ\
+> alakṣitaḥ svair avadhūta-veṣo\
 > vratāni cere hari-toṣaṇāni
 
 *gām*—Tierra; *paryaṭan*—recorriendo; *medhya*—pura; *vivikta-vṛttiḥ*—ocupación independiente para vivir; *sadā*—siempre; *āplutaḥ*—santificado; *adhaḥ*—en el suelo; *śayanaḥ*—yaciendo; *avadhūtaḥ*—sin arreglarse (el pelo, etc.); *alakṣitaḥ*—sin ser visto; *svaiḥ*—solo; *avadhūta-veṣaḥ*—vestido como un mendicante; *vratāni*—votos; *cere*—ejecutó; *hari-toṣaṇāni*—que complacían al Señor.

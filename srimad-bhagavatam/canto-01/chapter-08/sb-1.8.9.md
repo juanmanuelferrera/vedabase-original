@@ -1,13 +1,13 @@
 ### SB 1.8.9
 
-> उत्तरोवाच
-> पाहि पाहि महायोगिन्देवदेव जगत्पते ।
+> उत्तरोवाच\
+> पाहि पाहि महायोगिन्देवदेव जगत्पते ।\
 > नान्यं त्वदभयं पश्ये यत्र मृत्युः परस्परम् ॥९॥
 
-> uttarovāca
-> pāhi pāhi mahā-yogin
-> deva-deva jagat-pate
-> nānyaṁ tvad abhayaṁ paśye
+> uttarovāca\
+> pāhi pāhi mahā-yogin\
+> deva-deva jagat-pate\
+> nānyaṁ tvad abhayaṁ paśye\
 > yatra mṛtyuḥ parasparam
 
 *uttarā uvāca*—Uttarā said; *pāhi pāhi*—protect, protect; *mahā-yogin*—the greatest mystic; *deva-deva*—the worshipable of the worshiped; *jagat-pate*—O Lord of the universe; *na*—not; *anyam*—anyone else; *tvat*—than You; *abhayam*—fearlessness; *paśye*—do I see; *yatra*—where there is; *mṛtyuḥ*—death; *parasparam*—in the world of duality.

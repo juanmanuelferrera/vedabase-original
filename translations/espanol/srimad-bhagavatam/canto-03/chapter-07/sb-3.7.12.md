@@ -1,11 +1,11 @@
 ### SB 3.7.12
 
-> स वै निवृत्तिधर्मेण वासुदेवानुकम्पया ।
+> स वै निवृत्तिधर्मेण वासुदेवानुकम्पया ।\
 > भगवद्भक्तियोगेन तिरोधत्ते शनैरिह ॥१२॥
 
-> sa vai nivṛtti-dharmeṇa
-> vāsudevānukampayā
-> bhagavad-bhakti-yogena
+> sa vai nivṛtti-dharmeṇa\
+> vāsudevānukampayā\
+> bhagavad-bhakti-yogena\
 > tirodhatte śanair iha
 
 *saḥ*—eso; *vai*—también; *nivṛtti*—desapego; *dharmeṇa*—por ocuparse; *vāsudeva*—la Suprema Personalidad de Dios; *anukampayā*—por la misericordia de; *bhagavat*—en relación con la Personalidad de Dios; *bhakti-yogena*—por vincularse; *tirodhatte*—disminuye; *śanaiḥ*—gradualmente; *iha*—en esta existencia.

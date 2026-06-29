@@ -1,11 +1,11 @@
 ### SB 6.5.13
 
-> पुमान्नैवैति यद्गत्वा बिलस्वर्गं गतो यथा
+> पुमान्नैवैति यद्गत्वा बिलस्वर्गं गतो यथा\
 > प्रत्यग्धामाविद इह किमसत्कर्मभिर्भवेत ॥१३॥
 
-> pumān naivaiti yad gatvā
-> bila-svargaṁ gato yathā
-> pratyag-dhāmāvida iha
+> pumān naivaiti yad gatvā\
+> bila-svargaṁ gato yathā\
+> pratyag-dhāmāvida iha\
 > kim asat-karmabhir bhavet
 
 *pumān*—a human being; *na*—not; *eva*—indeed; *eti*—comes back; *yat*—to which; *gatvā*—having gone; *bila-svargam*—to the region of the lower planetary system known as Pātāla; *gataḥ*—gone; *yathā*—like; *pratyak-dhāma*—the effulgent spiritual world; *avidaḥ*—of the unintelligent man; *iha*—in this material world; *kim*—what benefit; *asat-karmabhiḥ*—with temporary fruitive activities; *bhavet*—there can be.

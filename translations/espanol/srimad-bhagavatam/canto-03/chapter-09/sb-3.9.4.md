@@ -1,13 +1,13 @@
 ### SB 3.9.4
 
-> तद्वा इदं भुवनमङ्गल मङ्गलाय
-> ध्याने स्म नो दर्शितं त उपासकानाम् ।
-> तस्मै नमो भगवतेऽनुविधेम तुभ्यं
+> तद्वा इदं भुवनमङ्गल मङ्गलाय\
+> ध्याने स्म नो दर्शितं त उपासकानाम् ।\
+> तस्मै नमो भगवतेऽनुविधेम तुभ्यं\
 > योऽनादृतो नरकभाग्भिरसत्प्रसङ्गैः ॥४॥
 
-> tad vā idaṁ bhuvana-maṅgala maṅgalāya
-> dhyāne sma no darśitaṁ ta upāsakānām
-> tasmai namo bhagavate 'nuvidhema tubhyaṁ
+> tad vā idaṁ bhuvana-maṅgala maṅgalāya\
+> dhyāne sma no darśitaṁ ta upāsakānām\
+> tasmai namo bhagavate 'nuvidhema tubhyaṁ\
 > yo 'nādṛto naraka-bhāgbhir asat-prasaṅgaiḥ
 
 *tat*—la Suprema Personalidad de Dios, Śrī Kṛṣṇa; *vā*—o; *idam*—esta forma actual; *bhuvana-maṅgala*—¡oh, Tú, que eres plenamente auspicioso para todos los universos!; *maṅgalāya*—en busca de plena prosperidad; *dhyāne*—en meditación; *sma*—por decirlo así; *naḥ*—a nosotros; *darśitam*—manifestado; *te*—Tus; *upāsakānām*—de los devotos; *tasmai*—a Él; *namaḥ*—mis respetuosas reverencias; *bhagavate*—a la Personalidad de Dios; *anuvidhema*—yo realizo; *tubhyam*—a Ti; *yaḥ*—el cual; *anādṛtaḥ*—es desdeñado; *naraka-bhāgbhiḥ*—por personas destinadas a ir al infierno; *asat-prasaṅgaiḥ*—por temas materiales.

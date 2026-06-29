@@ -1,9 +1,9 @@
 ### CC Madhya 20.397
 
-> অতএব গোলোকস্থানে নিত্য বিহার ।
+> অতএব গোলোকস্থানে নিত্য বিহার ।\
 > ব্রহ্মাণ্ডগণে ক্রমে প্রাকট্য তাহার ॥৩৯৭॥
 
-> ataeva goloka-sthāne nitya vihāra
+> ataeva goloka-sthāne nitya vihāra\
 > brahmāṇḍa-gaṇe krame prākaṭya tāhāra
 
 *ataeva*—por lo tanto; *goloka-sthāne*—en el planeta original de Goloka Vṛndāvana; *nitya vihāra*—pasatiempos eternos; *brahmāṇḍa-gaṇe*—dentro de los universos materiales; *krame*—gradualmente; *prākaṭya*—manifestación; *tāhāra*—de ellos.

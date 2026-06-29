@@ -1,9 +1,9 @@
 ### CC Antya 6.18
 
-> হিরণ্যদাস মুলুক নিল ‘মক্ররি’ করিয়া ।
+> হিরণ্যদাস মুলুক নিল ‘মক্ররি’ করিয়া ।\
 > তার অধিকার গেল, মরে সে দেখিয়া ॥১৮॥
 
-> hiraṇya-dāsa muluka nila 'makrari' kariyā
+> hiraṇya-dāsa muluka nila 'makrari' kariyā\
 > tāra adhikāra gela, mare se dekhiyā
 
 *hiraṇya-dāsa*—el tío de Raghunātha dāsa Gosvāmī; *muluka nila*—se hizo cargo del país; *makrari kariyā*—mediante algún acuerdo; *tāra adhikāra gela*—el caudhurī mahometano perdió su puesto; *mare se dekhiyā*—sintió envidia extrema de Hiraṇya dāsa.

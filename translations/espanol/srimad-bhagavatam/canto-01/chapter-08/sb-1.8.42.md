@@ -1,11 +1,11 @@
 ### SB 1.8.42
 
-> त्वयि मेऽनन्यविषया मतिर्मधुपतेऽसकृत् ।
+> त्वयि मेऽनन्यविषया मतिर्मधुपतेऽसकृत् ।\
 > रतिमुद्वहतादद्धा गङ्गेवौघमुदन्वति ॥४२॥
 
-> tvayi me 'nanya-viṣayā
-> matir madhu-pate 'sakṛt
-> ratim udvahatād addhā
+> tvayi me 'nanya-viṣayā\
+> matir madhu-pate 'sakṛt\
+> ratim udvahatād addhā\
 > gaṅgevaugham udanvati
 
 *tvayi*—a Ti; *me*—mi; *ananya-viṣayā*—sin mezcla; *matiḥ*—atención; *madhu-pate*—¡oh, Señor de Madhu!; *asakṛt*—continuamente; *ratim*—atracción; *udvahatāt*—se desborde; *addhā*—directamente; *gaṅgā*—el Ganges; *iva*—como; *ogham*—fluye; *udanvati*—hacia el mar.

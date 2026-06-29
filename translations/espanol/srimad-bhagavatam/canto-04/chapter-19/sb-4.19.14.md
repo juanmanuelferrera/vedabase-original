@@ -1,11 +1,11 @@
 ### SB 4.19.14
 
-> तं तादृशाकृतिं वीक्ष्य मेने धर्मं शरीरिणम् ।
+> तं तादृशाकृतिं वीक्ष्य मेने धर्मं शरीरिणम् ।\
 > जटिलं भस्मनाच्छन्नं तस्मै बाणं न मुञ्चति ॥१४॥
 
-> taṁ tādṛśākṛtiṁ vīkṣya
-> mene dharmaṁ śarīriṇam
-> jaṭilaṁ bhasmanācchannaṁ
+> taṁ tādṛśākṛtiṁ vīkṣya\
+> mene dharmaṁ śarīriṇam\
+> jaṭilaṁ bhasmanācchannaṁ\
 > tasmai bāṇaṁ na muñcati
 
 *tam*—a él; *tādṛśa-ākṛtim*—con aquellos hábitos; *vīkṣya*—después de ver; *mene*—consideró; *dharmam*—piadoso o religioso; *śarīriṇam*—con un cuerpo; *jaṭilam*—con el cabello recogido; *bhasmanā*—con cenizas; *ācchannam*—extendidas por todo el cuerpo; *tasmai*—a él; *bāṇam*—flecha; *na*—no; *muñcati*—disparó.

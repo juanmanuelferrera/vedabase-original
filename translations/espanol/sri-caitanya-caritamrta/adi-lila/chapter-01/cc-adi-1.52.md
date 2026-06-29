@@ -1,11 +1,11 @@
 ### CC Adi 1.52
 
-> যাবানহং যথাভাবো যদ্রূপগুণকর্মকঃ ।
+> যাবানহং যথাভাবো যদ্রূপগুণকর্মকঃ ।\
 > তথৈব তত্ত্ববিজ্ঞানমস্তু তে মদনুগ্রহাৎ ॥৫২॥
 
-> yāvān ahaṁ yathā-bhāvo
-> yad-rūpa-guṇa-karmakaḥ
-> tathaiva tattva-vijñānam
+> yāvān ahaṁ yathā-bhāvo\
+> yad-rūpa-guṇa-karmakaḥ\
+> tathaiva tattva-vijñānam\
 > astu te mad-anugrahāt
 
 *yāvān*—tal como soy en Mi forma eterna; *aham*—Yo; *yathā*—de cualquier manera; *bhāvaḥ*—existencia trascendental; *yat*—cualesquiera; *rūpa*—diversas formas y colores; *guṇa*—cualidades; *karmakaḥ*—actividades; *tathā eva*—exactamente así; *tattva-vijñānam*—comprensión factual; *astu*—que haya; *te*—tu; *mat*—Mi; *anugrahāt*—por misericordia sin causa.

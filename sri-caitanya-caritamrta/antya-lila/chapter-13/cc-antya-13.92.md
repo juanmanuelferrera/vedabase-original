@@ -1,9 +1,9 @@
 ### CC Antya 13.92
 
-> সর্বশাস্ত্রে প্রবীণ, কাব্যপ্রকাশ-অধ্যাপক ।
+> সর্বশাস্ত্রে প্রবীণ, কাব্যপ্রকাশ-অধ্যাপক ।\
 > পরমবৈষ্ণব, রঘুনাথ-উপাসক ॥৯২॥
 
-> sarva-śāstre pravīṇa, kāvya-prakāśa-adhyāpaka
+> sarva-śāstre pravīṇa, kāvya-prakāśa-adhyāpaka\
 > parama-vaiṣṇava, raghunātha-upāsaka
 
 *sarva-śāstre*—in all revealed scriptures; *pravīṇa*—very learned scholar; *kāvya-prakāśa*—of the famous book Kāvya-prakāśa; *adhyāpaka*—a teacher; *parama-vaiṣṇava*—highly advanced devotee; *raghunātha-upāsaka*—worshiper of Lord Rāmacandra.

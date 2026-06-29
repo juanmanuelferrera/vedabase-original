@@ -1,9 +1,9 @@
 ### CC Antya 3.232
 
-> হেনকালে এক নারী অঙ্গনে আইল ।
+> হেনকালে এক নারী অঙ্গনে আইল ।\
 > তাঁর অঙ্গকান্ত্যে স্থান পীতবর্ণ হইল ॥২৩২॥
 
-> hena-kāle eka nārī aṅgane āila
+> hena-kāle eka nārī aṅgane āila\
 > tāṅra aṅga-kāntye sthāna pīta-varṇa ha-ila
 
 *hena-kāle*—en ese momento; *eka*—una; *nārī*—mujer; *aṅgane āila*—llegó al patio; *tāṅra*—de ella; *aṅga-kāntye*—por la belleza de su cuerpo; *sthāna*—aquel lugar; *pīta-varṇa ha-ila*—se volvió amarillento.

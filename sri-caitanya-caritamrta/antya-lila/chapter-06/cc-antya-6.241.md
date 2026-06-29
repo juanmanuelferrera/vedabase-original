@@ -1,9 +1,9 @@
 ### CC Antya 6.241
 
-> পুনঃ সমর্পিলা তাঁরে স্বরূপের স্থানে ।
+> পুনঃ সমর্পিলা তাঁরে স্বরূপের স্থানে ।\
 > ‘অন্তরঙ্গ-সেবা’ করে স্বরূপের সনে ॥২৪১॥
 
-> punaḥ samarpilā tāṅre svarūpera sthāne
+> punaḥ samarpilā tāṅre svarūpera sthāne\
 > 'antaraṅga-sevā' kare svarūpera sane
 
 *punaḥ*—again; *samarpilā*—handed over; *tāṅre*—him; *svarūpera sthāne*—to Svarūpa Dāmodara; *antaraṅga-sevā*—very confidential service; *kare*—he renders; *svarūpera sane*—with Svarūpa Dāmodara.

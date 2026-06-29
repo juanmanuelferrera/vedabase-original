@@ -1,11 +1,11 @@
 ### SB 4.2.28
 
-> भवव्रतधरा ये च ये च तान्समनुव्रताः ।
+> भवव्रतधरा ये च ये च तान्समनुव्रताः ।\
 > पाषण्डिनस्ते भवन्तु सच्छास्त्रपरिपन्थिनः ॥२८॥
 
-> bhava-vrata-dharā ye ca
-> ye ca tān samanuvratāḥ
-> pāṣaṇḍinas te bhavantu
+> bhava-vrata-dharā ye ca\
+> ye ca tān samanuvratāḥ\
+> pāṣaṇḍinas te bhavantu\
 > sac-chāstra-paripanthinaḥ
 
 *bhava-vrata-dharāḥ*—hacer el voto de satisfacer al Señor Śiva; *ye*—quien; *ca*—y; *ye*—quien; *ca*—y; *tān*—esos principios; *samanuvratāḥ*—seguir; *pāṣaṇḍinaḥ*—ateos; *te*—ellos; *bhavantu*—que se vuelvan; *sat-śāstra-paripanthinaḥ*—desviados de los mandamientos trascendentales de las Escrituras.

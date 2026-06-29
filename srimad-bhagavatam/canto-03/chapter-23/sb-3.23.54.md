@@ -1,11 +1,11 @@
 ### SB 3.23.54
 
-> इन्द्रियार्थेषु सज्जन्त्या प्रसङ्गस्त्वयि मे कृतः ।
+> इन्द्रियार्थेषु सज्जन्त्या प्रसङ्गस्त्वयि मे कृतः ।\
 > अजानन्त्या परं भावं तथाप्यस्त्वभयाय मे ॥५४॥
 
-> indriyārtheṣu sajjantyā
-> prasaṅgas tvayi me kṛtaḥ
-> ajānantyā paraṁ bhāvaṁ
+> indriyārtheṣu sajjantyā\
+> prasaṅgas tvayi me kṛtaḥ\
+> ajānantyā paraṁ bhāvaṁ\
 > tathāpy astv abhayāya me
 
 *indriya-artheṣu*—to sense gratification; *sajjantyā*—being attached; *prasaṅgaḥ*—affinity; *tvayi*—for you; *me*—by me; *kṛtaḥ*—was done; *ajānantyā*—not knowing; *param bhāvam*—your transcendent situation; *tathā api*—nonetheless; *astu*—let it be; *abhayāya*—for fearlessness; *me*—my.

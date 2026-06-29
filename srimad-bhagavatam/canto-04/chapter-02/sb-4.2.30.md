@@ -1,11 +1,11 @@
 ### SB 4.2.30
 
-> ब्रह्म च ब्राह्मणांश्चैव यद्यूयं परिनिन्दथ ।
+> ब्रह्म च ब्राह्मणांश्चैव यद्यूयं परिनिन्दथ ।\
 > सेतुं विधारणं पुंसामतः पाषण्डमाश्रिताः ॥३०॥
 
-> brahma ca brāhmaṇāṁś caiva
-> yad yūyaṁ parinindatha
-> setuṁ vidhāraṇaṁ puṁsām
+> brahma ca brāhmaṇāṁś caiva\
+> yad yūyaṁ parinindatha\
+> setuṁ vidhāraṇaṁ puṁsām\
 > ataḥ pāṣaṇḍam āśritāḥ
 
 *brahma*—the *Vedas*; *ca*—and; *brāhmaṇān*—the *brāhmaṇas*; *ca*—and; *eva*—certainly; *yat*—because; *yūyam*—you; *parinindatha*—blaspheme; *setum*—Vedic principles; *vidhāraṇam*—holding; *puṁsām*—of mankind; *ataḥ*—therefore; *pāṣaṇḍam*—atheism; *āśritāḥ*—have taken shelter.

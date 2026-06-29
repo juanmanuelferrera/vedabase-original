@@ -1,9 +1,9 @@
 ### CC Madhya 1.56
 
-> এই ধুয়া-গানে নাচেন দ্বিতীয় প্রহর ।
+> এই ধুয়া-গানে নাচেন দ্বিতীয় প্রহর ।\
 > কৃষ্ণ লঞা ব্রজে যাই — এভাব অন্তর ॥৫৬॥
 
-> ei dhuyā-gāne nācena dvitīya prahara
+> ei dhuyā-gāne nācena dvitīya prahara\
 > kṛṣṇa lañā vraje yāi—e-bhāva antara
 
 *ei dhuyā-gāne*—in the repetition of this song; *nācena*—He dances; *dvitīya prahara*—the second period of the day; *kṛṣṇa lañā*—taking Kṛṣṇa; *vrajeyāi*—let Me go back to Vṛndāvana; *e-bhāva*—this ecstasy; *antara*—within.

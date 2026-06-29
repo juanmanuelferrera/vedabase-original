@@ -1,9 +1,9 @@
 ### CC Madhya 24.175
 
-> ‘মুনি’-শব্দে — পক্ষী, ভৃঙ্গ, ‘নির্গ্রন্থে’ — মূর্খজন ।
+> ‘মুনি’-শব্দে — পক্ষী, ভৃঙ্গ, ‘নির্গ্রন্থে’ — মূর্খজন ।\
 > কৃষ্ণকৃপায় সাধুকৃপায় দোঁহার ভজন ॥১৭৫॥
 
-> 'muni'-śabde—pakṣī, bhṛṅga; 'nirgranthe'—mūrkha-jana
+> 'muni'-śabde—pakṣī, bhṛṅga; 'nirgranthe'—mūrkha-jana\
 > kṛṣṇa-kṛpāya sādhu-kṛpāya doṅhāra bhajana
 
 *muni-śabde*—by the word *muni*; *pakṣī*—bird; *bhṛṅga*—bumblebee; *nirgranthe*—in the word *nirgrantha*; *mūrkha-jana*—foolish people; *kṛṣṇa-kṛpāya*—by the mercy of Lord Kṛṣṇa; *sādhu-kṛpāya*—by the mercy of a devotee; *doṅhāra bhajana*—engages in devotional service of both (Kṛṣṇa and his spiritual master or the *sādhu*).

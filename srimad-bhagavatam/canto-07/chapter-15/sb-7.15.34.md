@@ -1,11 +1,11 @@
 ### SB 7.15.34
 
-> एवमभ्यस्यतश्चित्तं कालेनाल्पीयसा यतेः
+> एवमभ्यस्यतश्चित्तं कालेनाल्पीयसा यतेः\
 > अनिशं तस्य निर्वाणं यात्यनिन्धनवह्निवत ॥३४॥
 
-> evam abhyasyataś cittaṁ
-> kālenālpīyasā yateḥ
-> aniśaṁ tasya nirvāṇaṁ
+> evam abhyasyataś cittaṁ\
+> kālenālpīyasā yateḥ\
+> aniśaṁ tasya nirvāṇaṁ\
 > yāty anindhana-vahnivat
 
 *evam*—in this way; *abhyasyataḥ*—of the person practicing this *yoga* system; *cittam*—the heart; *kālena*—in due course of time; *alpīyasā*—very shortly; *yateḥ*—of the person practicing *yoga*; *aniśam*—without cessation; *tasya*—of him; *nirvāṇam*—purification from all material contamination; *yāti*—reaches; *anindhana*—without flame or smoke; *vahnivat*—like a fire.

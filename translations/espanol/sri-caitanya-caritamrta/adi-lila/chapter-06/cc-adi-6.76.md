@@ -1,9 +1,9 @@
 ### CC Adi 6.76
 
-> আনের কি কথা, বলদেব মহাশয়  ।
+> আনের কি কথা, বলদেব মহাশয়  ।\
 > যাঁর ভাব — শুদ্ধসখ্য-বাৎসল্যাদিময় ॥৭৬॥
 
-> ānera ki kathā, baladeva mahāśaya
+> ānera ki kathā, baladeva mahāśaya\
 > yāṅra bhāva--śuddha-sakhya-vātsalyādi-maya
 
 *ānera*—de otros; *ki kathā*—qué decir; *baladeva*—el Señor Baladeva; *mahāśaya*—la Suprema Personalidad; *yāṅra*—Su; *bhāva*—emoción; *śuddha-sakhya*—amistad pura; *vātsalya-ādi-maya*—con una dosis de amor paternal.

@@ -1,11 +1,11 @@
 ### Bg 2.23
 
-> नैनं छिन्दन्ति शस्त्राणि नैनं दहति पावकः ।
+> नैनं छिन्दन्ति शस्त्राणि नैनं दहति पावकः ।\
 > न चैनं क्लेदयन्त्यापो न शोषयति मारुतः ॥२३॥
 
-> nainaṁ chindanti śastrāṇi
-> nainaṁ dahati pāvakaḥ
-> na cainaṁ kledayanty āpo
+> nainaṁ chindanti śastrāṇi\
+> nainaṁ dahati pāvakaḥ\
+> na cainaṁ kledayanty āpo\
 > na śoṣayati mārutaḥ
 
 *na*—nunca; *enam*—a este alma; *chindanti*—puede cortar en pedazos; *śastrāṇi*—todas las armas; *na*—nunca; *enam*—a este alma; *dahati*—quema; *pāvakaḥ*—fuego; *na*—nunca; *ca*—también; *enam*—a este alma; *kledayanti*—humedece; *āpaḥ*—agua; *na*—nunca; *śoṣayati*—seca; *mārutaḥ*—viento.

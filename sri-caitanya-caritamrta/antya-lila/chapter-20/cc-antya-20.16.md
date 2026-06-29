@@ -1,13 +1,13 @@
 ### CC Antya 20.16
 
-> নাম্নামকারি বহুধা নিজসর্বশক্তি-
-> স্তত্রার্পিতা নিয়মিতঃ স্মরণে ন কালঃ ।
-> এতাদৃশী তব কৃপা ভগবন্মমাপি
+> নাম্নামকারি বহুধা নিজসর্বশক্তি-\
+> স্তত্রার্পিতা নিয়মিতঃ স্মরণে ন কালঃ ।\
+> এতাদৃশী তব কৃপা ভগবন্মমাপি\
 > দুর্দৈবমীদৃশমিহাজনি নানুরাগঃ ॥১৬॥
 
-> nāmnām akāri bahudhā nija-sarva-śaktis
-> tatrārpitā niyamitaḥ smaraṇe na kālaḥ
-> etādṛśī tava kṛpā bhagavan mamāpi
+> nāmnām akāri bahudhā nija-sarva-śaktis\
+> tatrārpitā niyamitaḥ smaraṇe na kālaḥ\
+> etādṛśī tava kṛpā bhagavan mamāpi\
 > durdaivam īdṛśam ihājani nānurāgaḥ
 
 *nāmnām*—of the holy names of the Lord; *akāri*—manifested; *bahudhā*—various kinds; *nija-sarva-śaktiḥ*—all kinds of personal potency; *tatra*—in that; *arpitā*—bestowed; *niyamitaḥ*—restricted; *smaraṇe*—in remembering; *na*—not; *kālaḥ*—consideration of time; *etādṛśī*—so much; *tava*—Your; *kṛpā*—mercy; *bhagavan*—O Lord; *mama*—My; *api*—although; *durdaivam*—misfortune; *īdṛśam*—such; *iha*—in this (the holy name); *ajani*—was born; *na*—not; *anurāgaḥ*—attachment.

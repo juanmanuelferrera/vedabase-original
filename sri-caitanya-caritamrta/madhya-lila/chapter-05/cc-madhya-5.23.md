@@ -1,9 +1,9 @@
 ### CC Madhya 5.23
 
-> কন্যাদান-পাত্র আমি না হই তোমার ।
+> কন্যাদান-পাত্র আমি না হই তোমার ।\
 > কৃষ্ণপ্রীত্যে করি তোমার সেবা-ব্যবহার ॥২৩॥
 
-> kanyā-dāna-pātra āmi nā ha-i tomāra
+> kanyā-dāna-pātra āmi nā ha-i tomāra\
 > kṛṣṇa-prītye kari tomāra sevā-vyavahāra
 
 *kanyā-dāna-pātra*—a bridegroom suitable for one's daughter; *āmi*—I; *nā*—not; *ha-i*—am; *tomāra*—of you; *kṛṣṇa-prītye*—only for satisfaction of Kṛṣṇa; *kari*—I do; *tomāra*—of you; *sevā*—of service; *vyavahāra*—activities.

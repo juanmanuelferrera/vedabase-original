@@ -1,13 +1,13 @@
 ### SB 4.12.22
 
-> तं कृष्णपादाभिनिविष्टचेतसं
-> बद्धाञ्जलिं प्रश्रयनम्रकन्धरम् ।
-> सुनन्दनन्दावुपसृत्य सस्मितं
+> तं कृष्णपादाभिनिविष्टचेतसं\
+> बद्धाञ्जलिं प्रश्रयनम्रकन्धरम् ।\
+> सुनन्दनन्दावुपसृत्य सस्मितं\
 > प्रत्यूचतुः पुष्करनाभसम्मतौ ॥२२॥
 
-> taṁ kṛṣṇa-pādābhiniviṣṭa-cetasaṁ
-> baddhāñjaliṁ praśraya-namra-kandharam
-> sunanda-nandāv upasṛtya sasmitaṁ
+> taṁ kṛṣṇa-pādābhiniviṣṭa-cetasaṁ\
+> baddhāñjaliṁ praśraya-namra-kandharam\
+> sunanda-nandāv upasṛtya sasmitaṁ\
 > pratyūcatuḥ puṣkaranābha-sammatau
 
 *tam*—him; *kṛṣṇa*—of Lord Kṛṣṇa; *pāda*—of the lotus feet; *abhiniviṣṭa*—absorbed in thought; *cetasam*—whose heart; *baddha-añjalim*—with folded hands; *praśraya*—very humbly; *namra*—bowed; *kandharam*—whose neck; *sunanda*—Sunanda; *nandau*—and Nanda; *upasṛtya*—approaching; *sa-smitam*—smilingly; *pratyūcatuḥ*—addressed; *puṣkara-nābha*—of Lord Viṣṇu, who has a lotus navel; *sammatau*—confidential servants.

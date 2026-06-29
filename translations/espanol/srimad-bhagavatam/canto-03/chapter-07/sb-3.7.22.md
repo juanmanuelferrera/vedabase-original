@@ -1,11 +1,11 @@
 ### SB 3.7.22
 
-> यमाहुराद्यं पुरुषं सहस्राङ्घ्र्यूरुबाहुकम् ।
+> यमाहुराद्यं पुरुषं सहस्राङ्घ्र्यूरुबाहुकम् ।\
 > यत्र विश्व इमे लोकाः सविकाशं त आसते ॥२२॥
 
-> yam āhur ādyaṁ puruṣaṁ
-> sahasrāṅghry-ūru-bāhukam
-> yatra viśva ime lokāḥ
+> yam āhur ādyaṁ puruṣaṁ\
+> sahasrāṅghry-ūru-bāhukam\
+> yatra viśva ime lokāḥ\
 > sa-vikāśaṁ ta āsate
 
 *yam*—el cual; *āhuḥ*—es llamado; *ādyam*—original; *puruṣam*—encarnación para la manifestación cósmica; *sahasra*—mil; *aṅghri*—piernas; *ūru*—muslos; *bāhukam*—manos; *yatra*—en el que; *viśvaḥ*—el universo; *ime*—todos estos; *lokāḥ*—planetas; *sa-vikāśam*—con desarrollos respectivos; *te*—todos ellos; *āsate*—viviendo.

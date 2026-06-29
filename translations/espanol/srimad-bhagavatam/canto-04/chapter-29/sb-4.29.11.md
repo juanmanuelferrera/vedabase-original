@@ -1,11 +1,11 @@
 ### SB 4.29.11
 
-> नलिनी नालिनी नासे गन्धः सौरभ उच्यते ।
+> नलिनी नालिनी नासे गन्धः सौरभ उच्यते ।\
 > घ्राणोऽवधूतो मुख्यास्यं विपणो वाग्रसविद्रसः ॥११॥
 
-> nalinī nālinī nāse
-> gandhaḥ saurabha ucyate
-> ghrāṇo 'vadhūto mukhyāsyaṁ
+> nalinī nālinī nāse\
+> gandhaḥ saurabha ucyate\
+> ghrāṇo 'vadhūto mukhyāsyaṁ\
 > vipaṇo vāg rasavid rasaḥ
 
 *nalinī*—llamada Nalinī; *nālinī*—llamada Nālinī; *nāse*—las fosas nasales; *gandhaḥ*—aroma; *saurabhaḥ*—Saurabha (fragancia); *ucyate*—se llama; *ghrāṇaḥ*—el sentido del olfato; *avadhūtaḥ*—llamado Avadhūta; *mukhyā*—llamada Mukhyā (principal); *āsyam*—la boca; *vipaṇaḥ*—llamada Vipaṇa; *vāk*—la facultad del habla; *rasa-vit*—llamada Rasajña (experto en saborear); *rasaḥ*—el sentido del gusto.

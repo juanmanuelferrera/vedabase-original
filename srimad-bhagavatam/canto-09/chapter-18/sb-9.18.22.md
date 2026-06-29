@@ -1,13 +1,13 @@
 ### SB 9.18.22
 
-> न ब्राह्मणो मे भविता हस्तग्राहो महाभुज
+> न ब्राह्मणो मे भविता हस्तग्राहो महाभुज\
 > कचस्य बार्हस्पत्यस्य शापाद्यमशपं पुरा ॥२२॥
 
-> yad idaṁ kūpa-magnāyā
-> bhavato darśanaṁ mama
-> na brāhmaṇo me bhavitā
-> hasta-grāho mahā-bhuja
-> kacasya bārhaspatyasya
+> yad idaṁ kūpa-magnāyā\
+> bhavato darśanaṁ mama\
+> na brāhmaṇo me bhavitā\
+> hasta-grāho mahā-bhuja\
+> kacasya bārhaspatyasya\
 > śāpād yam aśapaṁ purā
 
 *yat*—because of; *idam*—this; *kūpa-magnāyāḥ*—fallen in the well; *bhavataḥ*—of your good self; *darśanam*—meeting; *mama*—with me; *na*—not; *brāhmaṇaḥ*—a qualified *brāhmaṇa*; *me*—my; *bhavitā*—will become; *hasta-grāhaḥ*—husband; *mahā-bhuja*—O great mighty-armed one; *kacasya*—of Kaca; *bārhaspatyasya*—the son of the learned *brāhmaṇa* and celestial priest Bṛhaspati; *śāpāt*—because of the curse; *yam*—whom; *aśapam*—I cursed; *purā*—in the past.

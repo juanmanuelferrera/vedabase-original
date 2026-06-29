@@ -1,11 +1,11 @@
 ### SB 4.27.12
 
-> युक्तेष्वेवं प्रमत्तस्य कुटुम्बासक्तचेतसः ।
+> युक्तेष्वेवं प्रमत्तस्य कुटुम्बासक्तचेतसः ।\
 > आससाद स वै कालो योऽप्रियः प्रिययोषिताम् ॥१२॥
 
-> yukteṣv evaṁ pramattasya
-> kuṭumbāsakta-cetasaḥ
-> āsasāda sa vai kālo
+> yukteṣv evaṁ pramattasya\
+> kuṭumbāsakta-cetasaḥ\
+> āsasāda sa vai kālo\
 > yo 'priyaḥ priya-yoṣitām
 
 *yukteṣu*—to beneficial activities; *evam*—thus; *pramattasya*—being inattentive; *kuṭumba*—to kith and kin; *āsakta*—attached; *cetasaḥ*—consciousness; *āsasāda*—arrived; *saḥ*—that; *vai*—certainly; *kālaḥ*—time; *yaḥ*—which; *apriyaḥ*—not very pleasing; *priya-yoṣitām*—for persons attached to women.

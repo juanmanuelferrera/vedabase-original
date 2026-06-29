@@ -1,11 +1,11 @@
 ### SB 3.15.9
 
-> स त्वं विधत्स्व शं भूमंस्तमसा लुप्तकर्मणाम् ।
+> स त्वं विधत्स्व शं भूमंस्तमसा लुप्तकर्मणाम् ।\
 > अदभ्रदयया दृष्ट्या आपन्नानर्हसीक्षितुम् ॥९॥
 
-> sa tvaṁ vidhatsva śaṁ bhūmaṁs
-> tamasā lupta-karmaṇām
-> adabhra-dayayā dṛṣṭyā
+> sa tvaṁ vidhatsva śaṁ bhūmaṁs\
+> tamasā lupta-karmaṇām\
+> adabhra-dayayā dṛṣṭyā\
 > āpannān arhasīkṣitum
 
 *saḥ*—he; *tvam*—you; *vidhatsva*—perform; *śam*—good fortune; *bhūman*—O great lord; *tamasā*—by the darkness; *lupta*—have been suspended; *karmaṇām*—of prescribed duties; *adabhra*—magnanimous, without reservation; *dayayā*—mercy; *dṛṣṭyā*—by your glance; *āpannān*—us, the surrendered; *arhasi*—are able; *īkṣitum*—to see.

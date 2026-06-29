@@ -1,11 +1,11 @@
 ### SB 8.8.17
 
-> भूषणानि विचित्राणि विश्वकर्मा प्रजापतिः
+> भूषणानि विचित्राणि विश्वकर्मा प्रजापतिः\
 > हारं सरस्वती पद्ममजो नागाश्च कुण्डले ॥१७॥
 
-> tataḥ kṛta-svastyayanotpala-srajaṁ
-> nadad-dvirephāṁ parigṛhya pāṇinā
-> cacāla vaktraṁ sukapola-kuṇḍalaṁ
+> tataḥ kṛta-svastyayanotpala-srajaṁ\
+> nadad-dvirephāṁ parigṛhya pāṇinā\
+> cacāla vaktraṁ sukapola-kuṇḍalaṁ\
 > savrīḍa-hāsaṁ dadhatī suśobhanam
 
 *tataḥ*—a continuación; *kṛta-svastyayanā*—tras ser convenientemente adorada con las ceremonias rituales más auspiciosas; *utpala-srajam*—un collar de flores de loto; *nadat*—zumbando; *dvirephām*—rodeado de abejorros; *parigṛhya*—sujetando; *pāṇinā*—con la mano; *cacāla*—siguió; *vaktram*—rostro; *su-kapola-kuṇḍalam*—con las mejillas adornadas con pendientes; *sa-vrīḍa-hāsam*—sonriendo con timidez; *dadhatī*—expandiendo; *su-śobhanam*—su belleza natural.

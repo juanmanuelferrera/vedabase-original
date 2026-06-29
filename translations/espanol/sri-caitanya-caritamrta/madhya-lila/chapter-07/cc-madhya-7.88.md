@@ -1,9 +1,9 @@
 ### CC Madhya 7.88
 
-> তবে মহাপ্রভু দ্বার করাইল মোচন ৷
+> তবে মহাপ্রভু দ্বার করাইল মোচন ৷\
 > আনন্দে আসিয়া লোক পাইল দরশন ৷৷ ৮৮ ৷৷ ॥৮৮॥
 
-> tabe mahāprabhu dvāra karāila mocana
+> tabe mahāprabhu dvāra karāila mocana\
 > ānande āsiyā loka pāila daraśana
 
 *tabe*—acto seguido; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *dvāra*—la puerta; *karāila*—hizo; *mocana*—abrir; *ānande*—con gran júbilo; *āsiyā*—acudiendo; *loka*—toda la gente; *pāila*—obtuvo; *daraśana*—audiencia.

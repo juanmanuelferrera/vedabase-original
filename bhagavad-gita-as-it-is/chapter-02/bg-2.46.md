@@ -1,11 +1,11 @@
 ### Bg 2.46
 
-> यावानर्थ उदपाने सर्वतः सम्प्लुतोदके ।
+> यावानर्थ उदपाने सर्वतः सम्प्लुतोदके ।\
 > तावान्सर्वेषु वेदेषु ब्राह्मणस्य विजानतः ॥४६॥
 
-> yāvān artha udapāne
-> sarvataḥ samplutodake
-> tāvān sarveṣu vedeṣu
+> yāvān artha udapāne\
+> sarvataḥ samplutodake\
+> tāvān sarveṣu vedeṣu\
 > brāhmaṇasya vijānataḥ
 
 *yāvān*—all that; *arthaḥ*—is meant; *udapāne*—in a well of water; *sarvataḥ*—in all respects; *sampluta-udake*—in a great reservoir of water; *tāvān*—similarly; *sarveṣu*—in all; *vedeṣu*—Vedic literatures; *brāhmaṇasya*—of the man who knows the Supreme Brahman; *vijānataḥ*—of one who is in complete knowledge.

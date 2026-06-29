@@ -1,9 +1,9 @@
 ### CC Adi 7.43
 
-> এ সব শুনিয়া প্রভু হাসে মনে মনে ।
+> এ সব শুনিয়া প্রভু হাসে মনে মনে ।\
 > উপেক্ষা করিয়া কারো না কৈল সম্ভাষণে ॥৪৩॥
 
-> e saba śuniyā prabhu hāse mane mane
+> e saba śuniyā prabhu hāse mane mane\
 > upekṣā kariyā kāro nā kaila sambhāṣaṇe
 
 *e saba*—todo esto; *śuniyā*—tras oír; *prabhu*—el Señor; *hāse*—sonrió; *mane mane*—dentro de Sí mismo; *upekṣā*—rechazo; *kariyā*—haciendo; *kāro*—con nadie; *nā*—no; *kaila*—hizo; *sambhāṣaṇe*—conversación.

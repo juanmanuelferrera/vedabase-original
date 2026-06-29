@@ -2,7 +2,7 @@
 
 > শঙ্করে দেখিয়া প্রভু কহে দামোদরে ৷ সগৌরব-প্রীতি আমার তোমার উপরে ৷৷ ১৪৬ ৷৷ শুদ্ধ কেবল-প্রেম শঙ্কর-উপরে ৷ অতএব তোমার সঙ্গে রাখহ শঙ্করে ৷৷ ১৪৭ ৷৷ ॥১৪৬॥
 
-> śaṅkare dekhiyā prabhu kahe dāmodare
+> śaṅkare dekhiyā prabhu kahe dāmodare\
 > sagaurava-prīti āmāra tomāra upare
 
 *śaṅkare dekhiyā*—al ver a Śaṅkara; *prabhu*—el Señor; *kahe*—dice; *dāmodare*—a Dāmodara; *sa-gaurava-prīti*—afecto con reverencia y respeto; *āmāra*—Mi; *tomāra upare*—hacia ti.

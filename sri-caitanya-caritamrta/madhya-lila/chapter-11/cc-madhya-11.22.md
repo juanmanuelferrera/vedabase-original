@@ -1,9 +1,9 @@
 ### CC Madhya 11.22
 
-> তোমার যে বর্তন, তুমি খাও সেই বর্তন ।
+> তোমার যে বর্তন, তুমি খাও সেই বর্তন ।\
 > নিশ্চিন্ত হঞা ভজ চৈতন্যের চরণ ॥২২॥
 
-> tomāra ye vartana, tumi khāo sei vartana
+> tomāra ye vartana, tumi khāo sei vartana\
 > niścinta hañā bhaja caitanyera caraṇa
 
 *tomāra*—Your; *ye*—whatever; *vartana*—remuneration; *tumi*—you; *khāo*—take; *sei*—that; *vartana*—pension; *niścinta hañā*—without anxiety; *bhaja*—just worship; *caitanyera*—of Lord Śrī Caitanya Mahāprabhu; *caraṇa*—the lotus feet.

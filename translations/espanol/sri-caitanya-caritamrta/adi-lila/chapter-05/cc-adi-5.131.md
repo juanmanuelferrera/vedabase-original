@@ -1,9 +1,9 @@
 ### CC Adi 5.131
 
-> কৃষ্ণ যবে অবতরে সর্বাংশ-আশ্রয় ।
+> কৃষ্ণ যবে অবতরে সর্বাংশ-আশ্রয় ।\
 > সর্বাংশ আসি’ তবে কৃষ্ণেতে মিলয় ॥১৩১॥
 
-> kṛṣṇa yabe avatare sarvāṁśa-āśraya
+> kṛṣṇa yabe avatare sarvāṁśa-āśraya\
 > sarvāṁśa āsi' tabe kṛṣṇete milaya
 
 *kṛṣṇa*—el Señor Kṛṣṇa; *yabe*—cuando; *avatare*—desciende; *sarva-aṁśa-āśraya*—el refugio de todos los demás viṣṇu-tattvas; *sarva-aṁśa*—todas las porciones plenarias; *āsi'*—viniendo; *tabe*—en ese momento; *kṛṣṇete*—en Kṛṣṇa; *milaya*—se unen.

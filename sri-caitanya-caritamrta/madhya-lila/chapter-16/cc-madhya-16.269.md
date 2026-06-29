@@ -1,9 +1,9 @@
 ### CC Madhya 16.269
 
-> ভালত’ কহিল, — মোর এত লোক সঙ্গে ।
+> ভালত’ কহিল, — মোর এত লোক সঙ্গে ।\
 > লোক দেখি’ কহিবে মোরে — ‘এই এক ঢঙ্গে’ ॥২৬৯॥
 
-> bhālata' kahila,—mora eta loka saṅge
+> bhālata' kahila,—mora eta loka saṅge\
 > loka dekhi' kahibe more—'ei eka ḍhaṅge'
 
 *bhālata' kahila*—he has spoken very well; *mora*—of Me; *eta*—so much; *loka*—crowd; *saṅge*—in the company; *loka*—the people; *dekhi'*—seeing; *kahibe more*—will speak about Me; *ei*—this; *eka*—one; *ḍhaṅge*—imposter.

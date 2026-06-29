@@ -1,9 +1,9 @@
 ### CC Antya 7.90
 
-> তবে ভট্ট গেলা পণ্ডিত-গোসাঞির ঠাঞি ।
+> তবে ভট্ট গেলা পণ্ডিত-গোসাঞির ঠাঞি ।\
 > নানা মতে প্রীতি করি’ করে আসা-যাই ॥৯০॥
 
-> tabe bhaṭṭa gelā paṇḍita-gosāñira ṭhāñi
+> tabe bhaṭṭa gelā paṇḍita-gosāñira ṭhāñi\
 > nānā mate prīti kari' kare āsā-yāi
 
 *tabe*—después; *bhaṭṭa*—Vallabha Bhaṭṭa; *gelā*—fue; *paṇḍita-gosāñira thāñi*—a donde Gadādhara Paṇḍita Gosāñi; *nānā mate*—de diversos modos; *prīti kari'*—mostrando afecto; *kare āsā-yāi*—iba y venía.

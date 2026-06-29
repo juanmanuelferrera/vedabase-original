@@ -1,11 +1,11 @@
 ### SB 4.29.15
 
-> वैशसं नरकं पायुर्लुब्धकोऽन्धौ तु मे शृणु ।
+> वैशसं नरकं पायुर्लुब्धकोऽन्धौ तु मे शृणु ।\
 > हस्तपादौ पुमांस्ताभ्यां युक्तो याति करोति च ॥१५॥
 
-> vaiśasaṁ narakaṁ pāyur
-> lubdhako 'ndhau tu me śṛṇu
-> hasta-pādau pumāṁs tābhyāṁ
+> vaiśasaṁ narakaṁ pāyur\
+> lubdhako 'ndhau tu me śṛṇu\
+> hasta-pādau pumāṁs tābhyāṁ\
 > yukto yāti karoti ca
 
 *vaiśasam*—named Vaiśasa; *narakam*—hell; *pāyuḥ*—the working sense in the rectum; *lubdhakaḥ*—named Lubdhaka (very greedy); *andhau*—blind; *tu*—then; *me*—to me; *śṛṇu*—listen; *hasta-pādau*—hands and legs; *pumān*—the living entity; *tābhyām*—with them; *yuktaḥ*—being engaged; *yāti*—goes; *karoti*—works; *ca*—and.

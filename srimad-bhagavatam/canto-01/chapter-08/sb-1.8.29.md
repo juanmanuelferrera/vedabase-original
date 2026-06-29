@@ -1,11 +1,11 @@
 ### SB 1.8.29
 
-> न वेद कश्चिद्भगवंश्चिकीर्षितं तवेहमानस्य नृणां विडम्बनम् ।
+> न वेद कश्चिद्भगवंश्चिकीर्षितं तवेहमानस्य नृणां विडम्बनम् ।\
 > न यस्य कश्चिद्दयितोऽस्ति कर्हिचिद्द्वेष्यश्च यस्मिन्विषमा मतिर्नृणाम् ॥२९॥
 
-> na veda kaścid bhagavaṁś cikīrṣitaṁ
-> tavehamānasya nṛṇāṁ viḍambanam
-> na yasya kaścid dayito 'sti karhicid
+> na veda kaścid bhagavaṁś cikīrṣitaṁ\
+> tavehamānasya nṛṇāṁ viḍambanam\
+> na yasya kaścid dayito 'sti karhicid\
 > dveṣyaś ca yasmin viṣamā matir nṛṇām
 
 *na*—does not; *veda*—know; *kaścit*—anyone; *bhagavan*—O Lord; *cikīrṣitam*—pastimes; *tava*—Your; *īhamānasya*—like the worldly men; *nṛṇām*—of the people in general; *viḍambanam*—misleading; *na*—never; *yasya*—His; *kaścit*—anyone; *dayitaḥ*—object of specific favor; *asti*—there is; *karhicit*—anywhere; *dveṣyaḥ*—object of envy; *ca*—and; *yasmin*—unto Him; *viṣamā*—partiality; *matiḥ*—conception; *nṛṇām*—of the people.

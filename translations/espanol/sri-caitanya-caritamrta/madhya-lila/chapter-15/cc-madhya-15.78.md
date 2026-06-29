@@ -1,9 +1,9 @@
 ### CC Madhya 15.78
 
-> কভু শস্য খাঞা পুনঃ পাত্র ভরে শাঁসে ৷
+> কভু শস্য খাঞা পুনঃ পাত্র ভরে শাঁসে ৷\
 > শ্রদ্ধা বাড়ে পণ্ডিতের, প্রেমসিন্ধু ভাসে ॥৭৮॥
 
-> kabhu śasya khāñā punaḥ pātra bhare śāṁse
+> kabhu śasya khāñā punaḥ pātra bhare śāṁse\
 > śraddhā bāḍe paṇḍitera, prema-sindhu bhāse
 
 *kabhu*—a veces; *śasya khāñā*—comiendo la pulpa; *punaḥ*—de nuevo; *pātra*—el plato; *bhare*—llena; *śāṁse*—con pulpa; *śraddhā*—fe; *bāḍe*—aumenta; *paṇḍitera*—de Rāghava Paṇḍita; *prema-sindhu*—en el océano de amor; *bhāse*—flota.

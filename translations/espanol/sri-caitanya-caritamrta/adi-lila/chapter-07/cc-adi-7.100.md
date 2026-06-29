@@ -1,9 +1,9 @@
 ### CC Adi 7.100
 
-> যে কিছু কহিলে তুমি, সব সত্য হয় ।
+> যে কিছু কহিলে তুমি, সব সত্য হয় ।\
 > কৃষ্ণপ্রেমা সেই পায়, যার ভাগ্যোদয় ॥১০০॥
 
-> ye kichu kahile tumi, saba satya haya
+> ye kichu kahile tumi, saba satya haya\
 > kṛṣṇa-premā sei pāya, yāra bhāgyodaya
 
 *ye*—todo; *kichu*—eso; *kahile*—has hablado; *tumi*—Tú; *saba*—todo; *satya*—verdad; *haya*—es; *kṛṣṇa-premā*—amor por Dios; *sei*—cualquiera; *pāya*—lo alcanza; *yāra*—cuya; *bhāgya-udaya*—fortuna está ahora despierta.

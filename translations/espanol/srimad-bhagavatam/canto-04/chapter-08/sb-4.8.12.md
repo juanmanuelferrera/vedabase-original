@@ -1,11 +1,11 @@
 ### SB 4.8.12
 
-> बालोऽसि बत नात्मानमन्यस्त्रीगर्भसम्भृतम् ।
+> बालोऽसि बत नात्मानमन्यस्त्रीगर्भसम्भृतम् ।\
 > नूनं वेद भवान्यस्य दुर्लभेऽर्थे मनोरथः ॥१२॥
 
-> bālo 'si bata nātmānam
-> anya-strī-garbha-sambhṛtam
-> nūnaṁ veda bhavān yasya
+> bālo 'si bata nātmānam\
+> anya-strī-garbha-sambhṛtam\
+> nūnaṁ veda bhavān yasya\
 > durlabhe 'rthe manorathaḥ
 
 *bālaḥ*—niño; *asi*—tú eres; *bata*—sin embargo; *na*—no; *ātmānam*—mi propio; *anya*—otra; *strī*—mujer; *garbha*—vientre; *sambhṛtam*—nacido de; *nūnam*—sin embargo; *veda*—simplemente trata de saber; *bhavān*—tú mismo; *yasya*—del cual; *durlabhe*—inalcanzable; *arthe*—cosa; *manaḥ-rathaḥ*—deseoso.

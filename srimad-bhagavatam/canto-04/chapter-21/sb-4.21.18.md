@@ -1,11 +1,11 @@
 ### SB 4.21.18
 
-> व्यञ्जिताशेषगात्रश्रीर्नियमे न्यस्तभूषणः ।
+> व्यञ्जिताशेषगात्रश्रीर्नियमे न्यस्तभूषणः ।\
 > कृष्णाजिनधरः श्रीमान्कुशपाणिः कृतोचितः ॥१८॥
 
-> vyañjitāśeṣa-gātra-śrīr
-> niyame nyasta-bhūṣaṇaḥ
-> kṛṣṇājina-dharaḥ śrīmān
+> vyañjitāśeṣa-gātra-śrīr\
+> niyame nyasta-bhūṣaṇaḥ\
+> kṛṣṇājina-dharaḥ śrīmān\
 > kuśa-pāṇiḥ kṛtocitaḥ
 
 *vyañjita*—indicating; *aśeṣa*—innumerable; *gātra*—bodily; *śrīḥ*—beauty; *niyame*—regulated; *nyasta*—given up; *bhūṣaṇaḥ*—garments; *kṛṣṇa*—black; *ajina*—skin; *dharaḥ*—putting on; *śrīmān*—beautiful; *kuśa-pāṇiḥ*—having *kuśa* grass on the fingers; *kṛta*—performed; *ucitaḥ*—as it is required.

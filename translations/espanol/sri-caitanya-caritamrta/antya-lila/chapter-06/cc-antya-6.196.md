@@ -1,9 +1,9 @@
 ### CC Antya 6.196
 
-> চক্রবর্তীর দুহে হয় ভ্রাতৃরূপ দাস ।
+> চক্রবর্তীর দুহে হয় ভ্রাতৃরূপ দাস ।\
 > অতএব তারে আমি করি পরিহাস ॥১৯৬॥
 
-> cakravartīra duhe haya bhrātṛ-rūpa dāsa
+> cakravartīra duhe haya bhrātṛ-rūpa dāsa\
 > ataeva tāre āmi kari parihāsa
 
 *cakravartīra*—de Nīlāmbara Cakravartī; *duhe*—ambos; *haya*—son; *bhrātṛ-rūpa dāsa*—sirvientes como hermanos menores; *ataeva*—por lo tanto; *tāre*—a ellos; *āmi*—Yo; *kari parihāsa*—digo algo en tono de broma.

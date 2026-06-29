@@ -1,11 +1,11 @@
 ### Bg 7.27
 
-> इच्छाद्वेषसमुत्थेन द्वन्द्वमोहेन भारत ।
+> इच्छाद्वेषसमुत्थेन द्वन्द्वमोहेन भारत ।\
 > सर्वभूतानि सम्मोहं सर्गे यान्ति परन्तप ॥२७॥
 
-> icchā-dveṣa-samutthena
-> dvandva-mohena bhārata
-> sarva-bhūtāni sammohaṁ
+> icchā-dveṣa-samutthena\
+> dvandva-mohena bhārata\
+> sarva-bhūtāni sammohaṁ\
 > sarge yānti parantapa
 
 *icchā*—desire; *dveṣa*—hate; *samutthena*—born; *dvandva*—duality; *mohena*—overcome; *bhārata*—O scion of Bharata; *sarva*—all; *bhūtāni*—living entities; *sammoham*—into delusion; *sarge*—in creation; *yānti*—go; *parantapa*—O conquerer of enemies.

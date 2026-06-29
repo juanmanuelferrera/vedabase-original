@@ -1,9 +1,9 @@
 ### CC Madhya 3.128
 
-> জর-জর হৈল প্রভু ভাবের প্রহারে ।
+> জর-জর হৈল প্রভু ভাবের প্রহারে ।\
 > ভূমিতে পড়িল, শ্বাস নাহিক শরীরে ॥১২৮॥
 
-> jara-jara haila prabhu bhāvera prahāre
+> jara-jara haila prabhu bhāvera prahāre\
 > bhūmite paḍila, śvāsa nāhika śarīre
 
 *jara-jara*—tottering; *haila*—there was; *prabhu*—the Lord; *bhāvera*—of the ecstatic moods; *prahāre*—in the onslaught; *bhūmite*—on the ground; *paḍila*—fell; *śvāsa*—breathing; *nāhika*—there was not; *śarīre*—in the body.

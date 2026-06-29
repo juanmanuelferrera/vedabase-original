@@ -1,11 +1,11 @@
 ### SB 9.18.3
 
-> पितरि भ्रंशिते स्थानादिन्द्राण्या धर्षणाद्द्विजैः
+> पितरि भ्रंशिते स्थानादिन्द्राण्या धर्षणाद्द्विजैः\
 > प्रापितेऽजगरत्वं वै ययातिरभवन्नृपः ॥३॥
 
-> pitari bhraṁśite sthānād
-> indrāṇyā dharṣaṇād dvijaiḥ
-> prāpite 'jagaratvaṁ vai
+> pitari bhraṁśite sthānād\
+> indrāṇyā dharṣaṇād dvijaiḥ\
+> prāpite 'jagaratvaṁ vai\
 > yayātir abhavan nṛpaḥ
 
 *pitari*—when his father; *bhraṁśite*—was caused to fall down; *sthānāt*—from the heavenly planets; *indrāṇyāḥ*—of Śacī, the wife of Indra; *dharṣaṇāt*—from offending; *dvijaiḥ*—by them (upon her lodging a complaint with the *brāhmaṇas*); *prāpite*—being degraded to; *ajagaratvam*—the life of a snake; *vai*—indeed; *yayātiḥ*—the son named Yayāti; *abhavat*—became; *nṛpaḥ*—the king.

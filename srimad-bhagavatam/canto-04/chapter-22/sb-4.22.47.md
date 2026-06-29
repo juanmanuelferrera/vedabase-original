@@ -1,13 +1,13 @@
 ### SB 4.22.47
 
-> यैरीदृशी भगवतो गतिरात्मवाद
-> एकान्ततो निगमिभिः प्रतिपादिता नः ।
-> तुष्यन्त्वदभ्रकरुणाः स्वकृतेन नित्यं
+> यैरीदृशी भगवतो गतिरात्मवाद\
+> एकान्ततो निगमिभिः प्रतिपादिता नः ।\
+> तुष्यन्त्वदभ्रकरुणाः स्वकृतेन नित्यं\
 > को नाम तत्प्रतिकरोति विनोदपात्रम् ॥४७॥
 
-> yair īdṛśī bhagavato gatir ātma-vāda
-> ekāntato nigamibhiḥ pratipāditā naḥ
-> tuṣyantv adabhra-karuṇāḥ sva-kṛtena nityaṁ
+> yair īdṛśī bhagavato gatir ātma-vāda\
+> ekāntato nigamibhiḥ pratipāditā naḥ\
+> tuṣyantv adabhra-karuṇāḥ sva-kṛtena nityaṁ\
 > ko nāma tat pratikaroti vinoda-pātram
 
 *yaiḥ*—by those; *īdṛśī*—such kind of; *bhagavataḥ*—of the Supreme Personality of Godhead; *gatiḥ*—progress; *ātma-vāde*—spiritual consideration; *ekāntataḥ*—in complete understanding; *nigamibhiḥ*—by Vedic evidences; *pratipāditā*—conclusively established; *naḥ*—unto us; *tuṣyantu*—be satisfied; *adabhra*—unlimited; *karuṇāḥ*—mercy; *sva-kṛtena*—by your own activity; *nityam*—eternal; *kaḥ*—who; *nāma*—no one; *tat*—that; *pratikaroti*—counteracts; *vinā*—without; *uda-pātram*—offering of water in cupped hands.

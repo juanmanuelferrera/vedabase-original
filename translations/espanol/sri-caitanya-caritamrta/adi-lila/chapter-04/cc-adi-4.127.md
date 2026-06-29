@@ -1,9 +1,9 @@
 ### CC Adi 4.127
 
-> আমি যৈছে পরস্পর বিরুদ্ধধর্মাশ্রয় ।
+> আমি যৈছে পরস্পর বিরুদ্ধধর্মাশ্রয় ।\
 > রাধাপ্রেম তৈছে সদা বিরুদ্ধধর্মময় ॥১২৭॥
 
-> āmi yaiche paraspara viruddha-dharmāśraya
+> āmi yaiche paraspara viruddha-dharmāśraya\
 > rādhā-prema taiche sadā viruddha-dharma-maya
 
 *āmi*—Yo; *yaiche*—así como; *paraspara*—mutuamente; *viruddha-dharma*—de características contradictorias; *āśraya*—la morada; *rādhā-prema*—el amor de Śrīmatī Rādhārāṇī; *taiche*—del mismo modo; *sadā*—siempre; *viruddha-dharma-maya*—consistente en características contradictorias.

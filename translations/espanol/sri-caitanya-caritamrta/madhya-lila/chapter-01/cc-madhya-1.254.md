@@ -1,9 +1,9 @@
 ### CC Madhya 1.254
 
-> ক্ষেত্রবাসী রামানন্দ রায় প্রভৃতি ।
+> ক্ষেত্রবাসী রামানন্দ রায় প্রভৃতি ।\
 > প্রভুসঙ্গে এই সব কৈল নিত্যস্থিতি ॥২৫৪॥
 
-> kṣetra-vāsī rāmānanda rāya prabhṛti
+> kṣetra-vāsī rāmānanda rāya prabhṛti\
 > prabhu-saṅge ei saba kaila nitya-sthiti
 
 *kṣetra-vāsī*—residentes de Jagannātha Purī; *rāmānanda rāya*—de nombre Rāmānanda Rāya; *prabhṛti*—y otros; *prabhu-saṅge*—con el Señor; *ei saba*—todos ellos; *kaila*—hicieron; *nitya-sthiti*—residencia permanente.

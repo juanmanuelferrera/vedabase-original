@@ -1,9 +1,9 @@
 ### CC Adi 7.157
 
-> প্রভু যবে যা’ন বিশ্বেশ্বর-দরশনে ।
+> প্রভু যবে যা’ন বিশ্বেশ্বর-দরশনে ।\
 > লক্ষ লক্ষ লোক আসি’ মিলে সেই স্থানে ॥১৫৭॥
 
-> prabhu yabe yā'na viśveśvara-daraśane
+> prabhu yabe yā'na viśveśvara-daraśane\
 > lakṣa lakṣa loka āsi' mile sei sthāne
 
 *prabhu*—Lord Caitanya Mahāprabhu; *yabe*—when; *yā'na*—goes; *viśveśvara*—the deity of Vārāṇasī; *daraśane*—to visit; *lakṣa lakṣa*—hundreds of thousands; *loka*—people; *āsi'*—come; *mile*—meet; *sei*—that; *sthāne*—on the place.

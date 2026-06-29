@@ -1,11 +1,11 @@
 ### SB 6.5.15
 
-> तत्सङ्गभ्रंशितैश्वर्यं संसरन्तं कुभार्यवत
+> तत्सङ्गभ्रंशितैश्वर्यं संसरन्तं कुभार्यवत\
 > तद्गतीरबुधस्येह किमसत्कर्मभिर्भवेत ॥१५॥
 
-> tat-saṅga-bhraṁśitaiśvaryaṁ
-> saṁsarantaṁ kubhāryavat
-> tad-gatīr abudhasyeha
+> tat-saṅga-bhraṁśitaiśvaryaṁ\
+> saṁsarantaṁ kubhāryavat\
+> tad-gatīr abudhasyeha\
 > kim asat-karmabhir bhavet
 
 *tat-saṅga*—by association with the prostitute of intelligence; *bhraṁśita*—taken away; *aiśvaryam*—the opulence of independence; *saṁsarantam*—undergoing the material way of life; *ku-bhārya-vat*—exactly like a person who has a polluted wife; *tat-gatīḥ*—the movements of the polluted intelligence; *abudhasya*—of one who does not know; *iha*—in this world; *kim asat-karmabhiḥ bhavet*—what can be the benefit of performing temporary fruitive activities.

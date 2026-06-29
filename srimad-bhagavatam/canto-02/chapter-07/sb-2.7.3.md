@@ -1,13 +1,13 @@
 ### SB 2.7.3
 
-> जज्ञे च कर्दमगृहे द्विज देवहूत्यां
-> स्त्रीभिः समं नवभिरात्मगतिं स्वमात्रे ।
-> ऊचे ययात्मशमलं गुणसङ्गपङ्कम्
+> जज्ञे च कर्दमगृहे द्विज देवहूत्यां\
+> स्त्रीभिः समं नवभिरात्मगतिं स्वमात्रे ।\
+> ऊचे ययात्मशमलं गुणसङ्गपङ्कम्\
 > अस्मिन्विधूय कपिलस्य गतिं प्रपेदे ॥३॥
 
-> jajñe ca kardama-gṛhe dvija devahūtyāṁ
-> strībhiḥ samaṁ navabhir ātma-gatiṁ sva-mātre
-> ūce yayātma-śamalaṁ guṇa-saṅga-paṅkam
+> jajñe ca kardama-gṛhe dvija devahūtyāṁ\
+> strībhiḥ samaṁ navabhir ātma-gatiṁ sva-mātre\
+> ūce yayātma-śamalaṁ guṇa-saṅga-paṅkam\
 > asmin vidhūya kapilasya gatiṁ prapede
 
 *jajñe*—took birth; *ca*—also; *kardama*—the Prajāpati named Kardama; *gṛhe*—in the house of; *dvija*—O *brāhmaṇa*; *devahūtyām*—in the womb of Devahūti; *strībhiḥ*—by women; *samam*—accompanied by; *navabhiḥ*—by nine; *ātma-gatim*—spiritual realization; *sva-mātre*—unto His own mother; *ūce*—uttered; *yayā*—by which; *ātma-śamalam*—coverings of the spirit soul; *guṇa-saṅga*—associated with the modes of nature; *paṅkam*—mud; *asmin*—this very life; *vidhūya*—being washed off; *kapilasya*—of Lord Kapila; *gatim*—liberation; *prapede*—achieved.

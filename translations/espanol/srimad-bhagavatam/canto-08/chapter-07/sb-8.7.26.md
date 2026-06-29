@@ -1,11 +1,11 @@
 ### SB 8.7.26
 
-> त्वं शब्दयोनिर्जगदादिरात्मा प्राणेन्द्रियद्रव्यगुणः स्वभावः
+> त्वं शब्दयोनिर्जगदादिरात्मा प्राणेन्द्रियद्रव्यगुणः स्वभावः\
 > कालः क्रतुः सत्यमृतं च धर्मस्त्वय्यक्षरं यत्त्रिवृदामनन्ति ॥२६॥
 
-> agnir mukhaṁ te 'khila-devatātmā
-> kṣitiṁ vidur loka-bhavāṅghri-paṅkajam
-> kālaṁ gatiṁ te 'khila-devatātmano
+> agnir mukhaṁ te 'khila-devatātmā\
+> kṣitiṁ vidur loka-bhavāṅghri-paṅkajam\
+> kālaṁ gatiṁ te 'khila-devatātmano\
 > diśaś ca karṇau rasanaṁ jaleśam
 
 *agniḥ*—el fuego; *mukham*—la boca; *te*—de Tu Señoría; *akhila-devatā-ātmā*—el origen de todos los semidioses; *kṣitim*—la superficie del globo; *viduḥ*—ellos saben; *loka-bhava*—¡oh, origen de todos los planetas!; *aṅghri-paṅkajam*—tus pies de loto; *kālam*—el tiempo eterno; *gatim*—el progreso; *te*—de Tu Señoría; *akhila-devatā-ātmanaḥ*—el agregado de todos los semidioses; *diśaḥ*—todas las direcciones; *ca*—y; *karṇau*—tus oídos; *rasanam*—el sabor; *jala-īśam*—el semidiós que controla el agua.

@@ -1,9 +1,9 @@
 ### CC Madhya 4.41
 
-> ‘শ্রীগোপাল’ নাম মোর, — গোবর্ধনধারী ৷
+> ‘শ্রীগোপাল’ নাম মোর, — গোবর্ধনধারী ৷\
 > বজ্রের স্থাপিত, আমি ইহাঁ অধিকারী ॥৪১॥
 
-> 'śrī-gopāla' nāma mora,--govardhana-dhārī
+> 'śrī-gopāla' nāma mora,--govardhana-dhārī\
 > vajrera sthāpita, āmi ihāṅ adhikārī
 
 *śrī-gopāla nāma*—el nombre Śrī Gopāla; *mora*—Mío; *govardhana-dhārī*—el que levantó la colina Govardhana; *vajrera*—por Vajra, el nieto de Kṛṣṇa; *sthāpita*—instalado; *āmi*—Yo; *ihāṅ*—aquí; *adhikārī*—la autoridad.

@@ -1,9 +1,9 @@
 ### CC Madhya 20.45
 
-> তবে বারাণসী গোসাঞি আইলা কতদিনে ।
+> তবে বারাণসী গোসাঞি আইলা কতদিনে ।\
 > শুনি আনন্দিত হইলা প্রভুর আগমনে ॥৪৫॥
 
-> tabe vārāṇasī gosāñi āilā kata-dine
+> tabe vārāṇasī gosāñi āilā kata-dine\
 > śuni ānandita ha-ilā prabhura āgamane
 
 *tabe*—in this way; *vārāṇasī*—to Vārāṇasī; *gosāñi*—Sanātana Gosvāmī; *āilā*—came; *kata-dine*—after a few days; *śuni*—hearing; *ānandita*—very pleased; *ha-ilā*—he became; *prabhura*—of Śrī Caitanya Mahāprabhu; *āgamane*—about the arrival.

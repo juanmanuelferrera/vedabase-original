@@ -1,9 +1,9 @@
 ### CC Madhya 14.8
 
-> রাসলীলার শ্লোক পড়ি’ করেন স্তবন ।
+> রাসলীলার শ্লোক পড়ি’ করেন স্তবন ।\
 > “জয়তি তেঽধিকং” অধ্যায় করেন পঠন ॥৮॥
 
-> rāsa-līlāra śloka paḍi' karena stavana
+> rāsa-līlāra śloka paḍi' karena stavana\
 > "jayati te 'dhikaṁ" adhyāya karena paṭhana
 
 *rāsa-līlāra*—de la danza del rāsa-līlā; *śloka*—versos; *paḍi'*—recitando; *karena*—ofrece; *stavana*—oraciones; *jayati te 'dhikam*—que comienza con las palabras jayati te 'dhikam; *adhyāya*—capítulo; *karena*—ejecuta; *paṭhana*—recitación.

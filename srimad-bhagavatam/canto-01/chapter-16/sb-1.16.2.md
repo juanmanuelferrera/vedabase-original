@@ -1,11 +1,11 @@
 ### SB 1.16.2
 
-> स उत्तरस्य तनयामुपयेम इरावतीम् ।
+> स उत्तरस्य तनयामुपयेम इरावतीम् ।\
 > जनमेजयादींश्चतुरस्तस्यामुत्पादयत्सुतान् ॥२॥
 
-> sa uttarasya tanayām
-> upayema irāvatīm
-> janamejayādīṁś caturas
+> sa uttarasya tanayām\
+> upayema irāvatīm\
+> janamejayādīṁś caturas\
 > tasyām utpādayat sutān
 
 *saḥ*—he; *uttarasya*—of King Uttara; *tanayām*—daughter; *upayeme*—married; *irāvatīm*—Irāvatī; *janamejaya-ādīn*—headed by Mahārāja Janamejaya; *caturaḥ*—four; *tasyām*—in her; *utpādayat*—begot; *sutān*—sons.

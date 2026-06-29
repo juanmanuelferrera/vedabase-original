@@ -1,13 +1,13 @@
 ### SB 7.10.24
 
-> श्रीनारद उवाच
-> प्रह्रादोऽपि तथा चक्रे पितुर्यत्साम्परायिकम
+> श्रीनारद उवाच\
+> प्रह्रादोऽपि तथा चक्रे पितुर्यत्साम्परायिकम\
 > यथाह भगवान्राजन्नभिषिक्तो द्विजातिभिः ॥२४॥
 
-> śrī-nārada uvāca
-> prahrādo 'pi tathā cakre
-> pitur yat sāmparāyikam
-> yathāha bhagavān rājann
+> śrī-nārada uvāca\
+> prahrādo 'pi tathā cakre\
+> pitur yat sāmparāyikam\
+> yathāha bhagavān rājann\
 > abhiṣikto dvijātibhiḥ
 
 *śrī-nāradaḥ uvāca*—Nārada Muni said; *prahrādaḥ*—Prahlāda Mahārāja; *api*—also; *tathā*—in that way; *cakre*—executed; *pituḥ*—of his father; *yat*—whatever; *sāmparāyikam*—ritualistic ceremonies performed after death; *yathā*—even as; *āha*—order; *bhagavān*—the Supreme Personality of Godhead; *rājan*—O King Yudhiṣṭhira; *abhiṣiktaḥ*—he was enthroned in the kingdom; *dvi-jātibhiḥ*—by the *brāhmaṇas* present.

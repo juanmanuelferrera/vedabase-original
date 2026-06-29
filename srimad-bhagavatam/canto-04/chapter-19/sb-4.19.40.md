@@ -1,11 +1,11 @@
 ### SB 4.19.40
 
-> कृतावभृथस्नानाय पृथवे भूरिकर्मणे ।
+> कृतावभृथस्नानाय पृथवे भूरिकर्मणे ।\
 > वरान्ददुस्ते वरदा ये तद्बर्हिषि तर्पिताः ॥४०॥
 
-> kṛtāvabhṛtha-snānāya
-> pṛthave bhūri-karmaṇe
-> varān dadus te varadā
+> kṛtāvabhṛtha-snānāya\
+> pṛthave bhūri-karmaṇe\
+> varān dadus te varadā\
 > ye tad-barhiṣi tarpitāḥ
 
 *kṛta*—having performed; *avabhṛtha-snānāya*—taking a bath after the sacrifice; *pṛthave*—unto King Pṛthu; *bhūri-karmaṇe*—famous for performing many virtuous acts; *varān*—benedictions; *daduḥ*—gave; *te*—all of them; *vara-dāḥ*—the demigods, bestowers of benedictions; *ye*—who; *tat-barhiṣi*—in the performance of such a *yajña*; *tarpitāḥ*—became pleased.

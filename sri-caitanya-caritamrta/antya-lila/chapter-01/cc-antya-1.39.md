@@ -1,9 +1,9 @@
 ### CC Antya 1.39
 
-> অনুপমের লাগি’ তাঁর কিছু বিলম্ব হইল ।
+> অনুপমের লাগি’ তাঁর কিছু বিলম্ব হইল ।\
 > ভক্তগণ-পাশ আইলা, লাগ্ না পাইল ॥৩৯॥
 
-> anupamera lāgi' tāṅra kichu vilamba ha-ila
+> anupamera lāgi' tāṅra kichu vilamba ha-ila\
 > bhakta-gaṇa-pāśa āilā, lāg nā pāila
 
 *anupamera lāgi'*—on account of the passing away of Anupama; *tāṅra*—of Rūpa Gosvāmī; *kichu*—some; *vilamba*—delay; *ha-ila*—there was; *bhakta-gaṇa-pāśa*—to the devotees in Bengal; *āilā*—came; *lāg nā pāila*—he could not contact them.

@@ -1,11 +1,11 @@
 ### SB 6.16.44
 
-> न हि भगवन्नघटितमिदं त्वद्दर्शनान्नृणामखिलपापक्षयः
+> न हि भगवन्नघटितमिदं त्वद्दर्शनान्नृणामखिलपापक्षयः\
 > यन्नाम सकृच्छ्रवणात्पुक्कशोऽपि विमुच्यते संसारात ॥४४॥
 
-> na hi bhagavann aghaṭitam idaṁ
-> tvad-darśanān nṛṇām akhila-pāpa-kṣayaḥ
-> yan-nāma sakṛc chravaṇāt
+> na hi bhagavann aghaṭitam idaṁ\
+> tvad-darśanān nṛṇām akhila-pāpa-kṣayaḥ\
+> yan-nāma sakṛc chravaṇāt\
 > pukkaśo 'pi vimucyate saṁsārāt
 
 *na*—no; *hi*—en verdad; *bhagavan*—¡oh, mi Señor!; *aghaṭitam*—no ha ocurrido; *idam*—esto; *tvat*—de Ti; *darśanāt*—por ver; *nṛṇām*—de todos los seres humanos; *akhila*—todos; *pāpa*—de pecados; *kṣayaḥ*—aniquilación; *yat-nāma*—cuyo nombre; *sakṛt*—solo una vez; *śravaṇāt*—por escuchar; *pukkaśaḥ*—la clase más baja, el *caṇḍāla*; *api*—también; *vimucyate*—se libera; *saṁsārāt*—del enredo de la existencia material.

@@ -1,11 +1,11 @@
 ### SB 9.19.4
 
-> तस्या उद्धरणोपायं बस्तः कामी विचिन्तयन
+> तस्या उद्धरणोपायं बस्तः कामी विचिन्तयन\
 > व्यधत्त तीर्थमुद्धृत्य विषाणाग्रेण रोधसी ॥४॥
 
-> tasyā uddharaṇopāyaṁ
-> bastaḥ kāmī vicintayan
-> vyadhatta tīrtham uddhṛtya
+> tasyā uddharaṇopāyaṁ\
+> bastaḥ kāmī vicintayan\
+> vyadhatta tīrtham uddhṛtya\
 > viṣāṇāgreṇa rodhasī
 
 *tasyāḥ*—a la cabra hembra; *uddharaṇa-upāyam*—la manera de liberar (del pozo); *bastaḥ*—el macho cabrío; *kāmī*—con deseos lujuriosos; *vicintayan*—hacer un plan; *vyadhatta*—puso en práctica; *tīrtham*—una vía de salida; *uddhṛtya*—cavar la tierra; *viṣāṇa-agreṇa*—con las puntas de las astas; *rodhasī*—en la boca del pozo.

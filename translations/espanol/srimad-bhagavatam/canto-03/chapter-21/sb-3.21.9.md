@@ -1,11 +1,11 @@
 ### SB 3.21.9
 
-> स तं विरजमर्काभं सितपद्मोत्पलस्रजम् ।
+> स तं विरजमर्काभं सितपद्मोत्पलस्रजम् ।\
 > स्निग्धनीलालकव्रात वक्त्राब्जं विरजोऽम्बरम् ॥९॥
 
-> sa taṁ virajam arkābhaṁ
-> sita-padmotpala-srajam
-> snigdha-nīlālaka-vrāta-
+> sa taṁ virajam arkābhaṁ\
+> sita-padmotpala-srajam\
+> snigdha-nīlālaka-vrāta-\
 > vaktrābjaṁ virajo 'mbaram
 
 *saḥ*—Kardama Muni; *tam*—a Él; *virajam*—sin contaminación; *arka-ābham*—resplandeciente como el sol; *sita*—blancos; *padma*—lotos; *utpala*—nenúfares; *srajam*—collar; *snigdha*—lisos; *nīla*—azul negruzco; *alaka*—de mechones de cabello; *vrāta*—abundantes; *vaktra*—rostro; *abjam*—como el loto; *virajaḥ*—inmaculado; *ambaram*—vestido.

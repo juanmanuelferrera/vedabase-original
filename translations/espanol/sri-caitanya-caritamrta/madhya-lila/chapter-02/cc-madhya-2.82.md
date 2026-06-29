@@ -1,13 +1,13 @@
 ### CC Madhya 2.82
 
-> এই গুপ্ত ভাব-সিন্ধু, ব্রহ্মা না পায় এক বিন্দু,
-> হেন ধন বিলাইল সংসারে ।
-> ঐছে দয়ালু অবতার, ঐছে দাতা নাহি আর,
+> এই গুপ্ত ভাব-সিন্ধু, ব্রহ্মা না পায় এক বিন্দু,\
+> হেন ধন বিলাইল সংসারে ।\
+> ঐছে দয়ালু অবতার, ঐছে দাতা নাহি আর,\
 > গুণ কেহ নারে বর্ণিবারে ॥৮২॥
 
-> ei gupta bhāva-sindhu, brahmā nā pāya eka bindu,
-> hena dhana vilāila saṁsāre
-> aiche dayālu avatāra, aiche dātā nāhi āra,
+> ei gupta bhāva-sindhu, brahmā nā pāya eka bindu,\
+> hena dhana vilāila saṁsāre\
+> aiche dayālu avatāra, aiche dātā nāhi āra,\
 > guṇa keha nāre varṇibāre
 
 *ei*—este; *gupta*—confidencial; *bhāva-sindhu*—océano de éxtasis; *brahmā*—el Señor Brahmā; *nā*—no; *pāya*—obtiene; *eka*—una; *bindu*—gota; *hena*—tal; *dhana*—riqueza; *vilāila*—distribuyó; *saṁsāre*—por todo el mundo; *aiche*—tal; *dayālu*—misericordioso; *avatāra*—encarnación; *aiche*—tal; *dātā*—donante caritativo; *nāhi*—no hay; *āra*—ningún otro; *guṇa*—esta cualidad; *keha*—alguien; *nāre*—no puede; *varṇibāre*—describir.

@@ -1,11 +1,11 @@
 ### SB 1.17.14
 
-> जनेऽनागस्यघं युञ्जन्सर्वतोऽस्य च मद्भयम् ।
+> जनेऽनागस्यघं युञ्जन्सर्वतोऽस्य च मद्भयम् ।\
 > साधूनां भद्रमेव स्यादसाधुदमने कृते ॥१४॥
 
-> jane 'nāgasy aghaṁ yuñjan
-> sarvato 'sya ca mad-bhayam
-> sādhūnāṁ bhadram eva syād
+> jane 'nāgasy aghaṁ yuñjan\
+> sarvato 'sya ca mad-bhayam\
+> sādhūnāṁ bhadram eva syād\
 > asādhu-damane kṛte
 
 *jane*—to the living beings; *anāgasi*—those who are offenseless; *agham*—sufferings; *yuñjan*—by applying; *sarvataḥ*—anywhere and everywhere; *asya*—of such offenders; *ca*—and; *mat-bhayam*—fear me; *sādhūnām*—of the honest persons; *bhadram*—good fortune; *eva*—certainly; *syāt*—will take place; *asādhu*—dishonest miscreants; *damane*—curbed; *kṛte*—being so done.

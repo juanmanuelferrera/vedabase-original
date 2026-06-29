@@ -1,11 +1,11 @@
 ### Bg 3.35
 
-> श्रेयान्स्वधर्मो विगुणः परधर्मात्स्वनुष्ठितात् ।
+> श्रेयान्स्वधर्मो विगुणः परधर्मात्स्वनुष्ठितात् ।\
 > स्वधर्मे निधनं श्रेयः परधर्मो भयावहः ॥३५॥
 
-> śreyān sva-dharmo viguṇaḥ
-> para-dharmāt svanuṣṭhitāt
-> sva-dharme nidhanaṁ śreyaḥ
+> śreyān sva-dharmo viguṇaḥ\
+> para-dharmāt svanuṣṭhitāt\
+> sva-dharme nidhanaṁ śreyaḥ\
 > para-dharmo bhayāvahaḥ
 
 *śreyān*—muy superior; *sva-dharmaḥ*—deberes prescritos de uno; *viguṇaḥ*—incluso con faltas; *para-dharmāt*—de los deberes asignados a otros; *svanuṣṭhitāt*—que hechos perfectamente; *sva-dharme*—en deberes prescritos de uno; *nidhanam*—destrucción; *śreyaḥ*—mejor; *para-dharmaḥ*—deberes prescritos para otros; *bhaya-āvahaḥ*—peligroso.

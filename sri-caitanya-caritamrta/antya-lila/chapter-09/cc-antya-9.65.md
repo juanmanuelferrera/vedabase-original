@@ -1,9 +1,9 @@
 ### CC Antya 9.65
 
-> আজি তারে জগন্নাথ করিলা রক্ষণ ।
+> আজি তারে জগন্নাথ করিলা রক্ষণ ।\
 > কালি কে রাখিবে, যদি না দিবে রাজধন ? ॥ ৬৫ ॥
 
-> āji tāre jagannātha karilā rakṣaṇa
+> āji tāre jagannātha karilā rakṣaṇa\
 > kāli ke rākhibe, yadi nā dibe rāja-dhana?
 
 *āji*—today; *tāre*—him; *jagannātha*—Lord Jagannātha; *karilā rakṣaṇa*—protected; *kāli*—tomorrow; *ke rākhibe*—who will protect; *yadi*—if; *nā dibe*—he will not pay; *rāja-dhana*—the King's money.

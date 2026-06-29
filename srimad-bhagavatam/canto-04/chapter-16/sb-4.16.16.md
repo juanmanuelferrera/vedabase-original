@@ -1,11 +1,11 @@
 ### SB 4.16.16
 
-> दृढव्रतः सत्यसन्धो ब्रह्मण्यो वृद्धसेवकः ।
+> दृढव्रतः सत्यसन्धो ब्रह्मण्यो वृद्धसेवकः ।\
 > शरण्यः सर्वभूतानां मानदो दीनवत्सलः ॥१६॥
 
-> dṛḍha-vrataḥ satya-sandho
-> brahmaṇyo vṛddha-sevakaḥ
-> śaraṇyaḥ sarva-bhūtānāṁ
+> dṛḍha-vrataḥ satya-sandho\
+> brahmaṇyo vṛddha-sevakaḥ\
+> śaraṇyaḥ sarva-bhūtānāṁ\
 > mānado dīna-vatsalaḥ
 
 *dṛḍha-vrataḥ*—firmly determined; *satya-sandhaḥ*—always situated in truth; *brahmaṇyaḥ*—a lover of the brahminical culture; *vṛddha-sevakaḥ*—a servitor of the old men; *śaraṇyaḥ*—to be taken shelter of; *sarva-bhūtānām*—of all living entities; *māna-daḥ*—one who gives respect to all; *dīna-vatsalaḥ*—very kind to the poor and helpless.

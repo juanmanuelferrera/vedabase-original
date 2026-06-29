@@ -1,11 +1,11 @@
 ### SB 9.18.9
 
-> वीक्ष्य व्रजन्तं गिरिशं सह देव्या वृषस्थितम
+> वीक्ष्य व्रजन्तं गिरिशं सह देव्या वृषस्थितम\
 > सहसोत्तीर्य वासांसि पर्यधुर्व्रीडिताः स्त्रियः ॥९॥
 
-> vīkṣya vrajantaṁ giriśaṁ
-> saha devyā vṛṣa-sthitam
-> sahasottīrya vāsāṁsi
+> vīkṣya vrajantaṁ giriśaṁ\
+> saha devyā vṛṣa-sthitam\
+> sahasottīrya vāsāṁsi\
 > paryadhur vrīḍitāḥ striyaḥ
 
 *vīkṣya*—al ver; *vrajantam*—pasar por allí; *giriśam*—al Señor Śiva; *saha*—con; *devyā*—Pārvatī, la esposa del Señor Śiva; *vṛṣa-sthitam*—sentado sobre su toro; *sahasā*—rápidamente; *uttīrya*—salir del agua; *vāsāṁsi*—ropas; *paryadhuḥ*—se pusieron en el cuerpo; *vrīḍitāḥ*—avergonzadas; *striyaḥ*—las muchachas.

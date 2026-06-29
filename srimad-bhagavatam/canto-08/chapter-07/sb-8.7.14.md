@@ -1,11 +1,11 @@
 ### SB 8.7.14
 
-> उपर्यधश्चात्मनि गोत्रनेत्रयोः परेण ते प्राविशता समेधिताः
+> उपर्यधश्चात्मनि गोत्रनेत्रयोः परेण ते प्राविशता समेधिताः\
 > ममन्थुरब्धिं तरसा मदोत्कटा महाद्रिणा क्षोभितनक्रचक्रम ॥१४॥
 
-> ahīndra-sāhasra-kaṭhora-dṛṅ-mukha-
-> śvāsāgni-dhūmāhata-varcaso 'surāḥ
-> pauloma-kāleya-balīlvalādayo
+> ahīndra-sāhasra-kaṭhora-dṛṅ-mukha-\
+> śvāsāgni-dhūmāhata-varcaso 'surāḥ\
+> pauloma-kāleya-balīlvalādayo\
 > davāgni-dagdhāḥ saralā ivābhavan
 
 *ahīndra*—of the King of serpents; *sāhasra*—by thousands; *kaṭhora*—very, very hard; *dṛk*—all directions; *mukha*—by the mouth; *śvāsa*—breathing; *agni*—fire coming out; *dhūma*—smoke; *āhata*—being affected; *varcasaḥ*—by the rays; *asurāḥ*—the demons; *pauloma*—Pauloma; *kāleya*—Kāleya; *bali*—Bali; *ilvala*—Ilvala; *ādayaḥ*—headed by; *dava-agni*—by a forest fire; *dagdhāḥ*—burned; *saralāḥ*—*sarala* trees; *iva*—like; *abhavan*—all of them became.

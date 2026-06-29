@@ -1,11 +1,11 @@
 ### CC Madhya 7.143
 
-> ক্বাহং দরিদ্রঃ পাপীয়ান্ ক্ব কৃষ্ণঃ শ্রীনিকেতনঃ ৷
+> ক্বাহং দরিদ্রঃ পাপীয়ান্ ক্ব কৃষ্ণঃ শ্রীনিকেতনঃ ৷\
 > ব্রহ্মবন্ধুরিতি স্মাহং বাহুভ্যাং পরিরম্ভিতঃ ৷৷ ১৪৩ ৷৷ ॥১৪৩॥
 
-> kvāhaṁ daridraḥ pāpīyān
-> kva kṛṣṇaḥ śrī-niketanaḥ
-> brahma-bandhur iti smāhaṁ
+> kvāhaṁ daridraḥ pāpīyān\
+> kva kṛṣṇaḥ śrī-niketanaḥ\
+> brahma-bandhur iti smāhaṁ\
 > bāhubhyāṁ parirambhitaḥ
 
 *kva*—quién; *aham*—yo; *daridraḥ*—pobre; *pāpīyān*—pecaminoso; *kva*—quién; *kṛṣṇaḥ*—la Suprema Personalidad de Dios; *śrī-niketanaḥ*—la forma trascendental de toda opulencia; *brahma-bandhuḥ*—el amigo de un *brāhmaṇa*, ni siquiera apto para ser llamado *brāhmaṇa*; *iti*—así; *sma*—ciertamente; *aham*—yo; *bāhubhyām*—con los brazos; *parirambhitaḥ*—abrazado.

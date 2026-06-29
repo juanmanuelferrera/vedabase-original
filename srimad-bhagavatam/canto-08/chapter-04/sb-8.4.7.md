@@ -1,11 +1,11 @@
 ### SB 8.4.7
 
-> स वै पूर्वमभूद्राजा पाण्ड्यो द्रविडसत्तमः
+> स वै पूर्वमभूद्राजा पाण्ड्यो द्रविडसत्तमः\
 > इन्द्रद्युम्न इति ख्यातो विष्णुव्रतपरायणः ॥७॥
 
-> sa vai pūrvam abhūd rājā
-> pāṇḍyo draviḍa-sattamaḥ
-> indradyumna iti khyāto
+> sa vai pūrvam abhūd rājā\
+> pāṇḍyo draviḍa-sattamaḥ\
+> indradyumna iti khyāto\
 > viṣṇu-vrata-parāyaṇaḥ
 
 *saḥ*—this elephant (Gajendra); *vai*—indeed; *pūrvam*—formerly; *abhūt*—was; *rājā*—a king; *pāṇḍyaḥ*—of the country known as Pāṇḍya; *draviḍa-sat-tamaḥ*—the best of those born in Draviḍa-deśa, South India; *indradyumnaḥ*—by the name Mahārāja Indradyumna; *iti*—thus; *khyātaḥ*—celebrated; *viṣṇu-vrata-parāyaṇaḥ*—who was a first-class Vaiṣṇava, always engaged in the service of the Lord.

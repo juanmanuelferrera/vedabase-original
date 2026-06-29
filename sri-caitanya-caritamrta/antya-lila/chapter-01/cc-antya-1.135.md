@@ -2,7 +2,7 @@
 
 > আক্ষিপ্তঃ কালসাম্যেন প্রবেশঃ স্যাৎ প্রবর্তকঃ ॥১৩৫॥
 
-> ākṣiptaḥ kāla-sāmyena
+> ākṣiptaḥ kāla-sāmyena\
 > praveśaḥ syāt pravartakaḥ
 
 *ākṣiptaḥ*—set in motion; *kāla-sāmyena*—by a suitable time; *praveśaḥ*—the entrance; *syāt*—should be; *pravartakaḥ*—named *pravartaka.*

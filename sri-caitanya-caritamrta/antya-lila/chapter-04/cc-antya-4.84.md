@@ -1,9 +1,9 @@
 ### CC Antya 4.84
 
-> তবে সনাতন কহে, — “তোমাকে নমস্কারে ।
+> তবে সনাতন কহে, — “তোমাকে নমস্কারে ।\
 > তোমার গম্ভীর হৃদয় কে বুঝিতে পারে ? ॥ ৮৪ ॥
 
-> tabe sanātana kahe,—"tomāke namaskāre
+> tabe sanātana kahe,—"tomāke namaskāre\
 > tomāra gambhīra hṛdaya ke bujhite pāre?
 
 *tabe*—at that time; *sanātana kahe*—Sanātana Gosvāmī said; *tomāke namaskāre*—I offer my respectful obeisances unto You; *tomāra*—Your; *gambhīra*—deep; *hṛdaya*—heart; *ke*—who; *bujhite pāre*—can understand.

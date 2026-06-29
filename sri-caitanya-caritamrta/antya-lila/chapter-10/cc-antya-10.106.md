@@ -1,9 +1,9 @@
 ### CC Antya 10.106
 
-> চারিমাস বর্ষায় রহিলা সব ভক্তগণ ।
+> চারিমাস বর্ষায় রহিলা সব ভক্তগণ ।\
 > জন্মাষ্টমী আদি যাত্রা কৈলা দরশন ॥১০৬॥
 
-> cāri-māsa varṣāya rahilā saba bhakta-gaṇa
+> cāri-māsa varṣāya rahilā saba bhakta-gaṇa\
 > janmāṣṭamī ādi yātrā kailā daraśana
 
 *cāri-māsa*—for four months; *varṣāya*—of the rainy season; *rahilā*—stayed; *saba bhakta-gaṇa*—all the devotees; *janmāṣṭamī ādi yātrā*—festivals like Lord Kṛṣṇa's birth ceremony; *kailā daraśana*—observed.

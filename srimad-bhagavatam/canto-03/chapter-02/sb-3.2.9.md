@@ -1,11 +1,11 @@
 ### SB 3.2.9
 
-> इङ्गितज्ञाः पुरुप्रौढा एकारामाश्च सात्वताः ।
+> इङ्गितज्ञाः पुरुप्रौढा एकारामाश्च सात्वताः ।\
 > सात्वतामृषभं सर्वे भूतावासममंसत ॥९॥
 
-> iṅgita-jñāḥ puru-prauḍhā
-> ekārāmāś ca sātvatāḥ
-> sātvatām ṛṣabhaṁ sarve
+> iṅgita-jñāḥ puru-prauḍhā\
+> ekārāmāś ca sātvatāḥ\
+> sātvatām ṛṣabhaṁ sarve\
 > bhūtāvāsam amaṁsata
 
 *iṅgita-jñāḥ*—expert in psychic study; *puru-prauḍhāḥ*—highly experienced; *eka*—one; *ārāmāḥ*—relaxation; *ca*—also; *sātvatāḥ*—devotees, or own men; *sātvatām ṛṣabham*—head of the family; *sarve*—all; *bhūta-āvāsam*—all-pervading; *amaṁsata*—could think.

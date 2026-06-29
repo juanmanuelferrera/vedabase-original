@@ -1,9 +1,9 @@
 ### CC Madhya 24.264
 
-> দেখিয়া ব্যাধের মনে হৈল চমৎকার ।
+> দেখিয়া ব্যাধের মনে হৈল চমৎকার ।\
 > ঘরে গেল ব্যাধ, গুরুকে করি’ নমস্কার ॥২৬৪॥
 
-> dekhiyā vyādhera mane haila camatkāra
+> dekhiyā vyādhera mane haila camatkāra\
 > ghare gela vyādha, guruke kari' namaskāra
 
 *dekhiyā*—seeing; *vyādhera*—of the hunter; *mane*—in the mind; *haila*—there was; *camatkāra*—wonder; *ghare*—home; *gela*—went; *vyādha*—the hunter; *guruke*—to the spiritual master; *kari' namaskāra*—offering obeisances.

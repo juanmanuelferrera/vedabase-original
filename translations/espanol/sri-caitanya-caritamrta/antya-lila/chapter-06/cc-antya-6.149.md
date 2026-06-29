@@ -1,9 +1,9 @@
 ### CC Antya 6.149
 
-> অনেক ‘প্রসাদ’ দিলা পথে খাইবারে  ।
+> অনেক ‘প্রসাদ’ দিলা পথে খাইবারে  ।\
 > তবে পুনঃ রঘুনাথ কহে পণ্ডিতেরে ॥১৪৯॥
 
-> aneka 'prasāda' dilā pathe khāibāre
+> aneka 'prasāda' dilā pathe khāibāre\
 > tabe punaḥ raghunātha kahe paṇḍitere
 
 *aneka prasāda*—mucho prasādam; *dilā*—entregó; *pathe khāibāre*—para comer en el camino; *tabe*—entonces; *punaḥ*—de nuevo; *raghunātha kahe*—Raghunātha dāsa dijo; *paṇḍitere*—a Rāghava Paṇḍita.

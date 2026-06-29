@@ -1,13 +1,13 @@
 ### SB 6.7.1
 
-> श्रीराजोवाच
-> कस्य हेतोः परित्यक्ता आचार्येणात्मनः सुराः
+> श्रीराजोवाच\
+> कस्य हेतोः परित्यक्ता आचार्येणात्मनः सुराः\
 > एतदाचक्ष्व भगवञ्छिष्याणामक्रमं गुरौ ॥१॥
 
-> śrī-rājovāca
-> kasya hetoḥ parityaktā
-> ācāryeṇātmanaḥ surāḥ
-> etad ācakṣva bhagavañ
+> śrī-rājovāca\
+> kasya hetoḥ parityaktā\
+> ācāryeṇātmanaḥ surāḥ\
+> etad ācakṣva bhagavañ\
 > chiṣyāṇām akramaṁ gurau
 
 *śrī-rājā uvāca*—the King inquired; *kasya hetoḥ*—for what reason; *parityaktāḥ*—rejected; *ācāryeṇa*—by the spiritual master, Bṛhaspati; *ātmanaḥ*—of himself; *surāḥ*—all the demigods; *etat*—this; *ācakṣva*—kindly describe; *bhagavan*—O great sage (Śukadeva Gosvāmī); *śiṣyāṇām*—of the disciples; *akramam*—the offense; *gurau*—unto the spiritual master.

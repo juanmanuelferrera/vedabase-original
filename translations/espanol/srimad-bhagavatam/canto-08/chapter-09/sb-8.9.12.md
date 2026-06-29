@@ -1,11 +1,11 @@
 ### SB 8.9.12
 
-> ततो गृहीत्वामृतभाजनं हरिर्बभाष ईषत्स्मितशोभया गिरा
+> ततो गृहीत्वामृतभाजनं हरिर्बभाष ईषत्स्मितशोभया गिरा\
 > यद्यभ्युपेतं क्व च साध्वसाधु वा कृतं मया वो विभजे सुधामिमाम ॥१२॥
 
-> tato gṛhītvāmṛta-bhājanaṁ harir
-> babhāṣa īṣat-smita-śobhayā girā
-> yady abhyupetaṁ kva ca sādhv asādhu vā
+> tato gṛhītvāmṛta-bhājanaṁ harir\
+> babhāṣa īṣat-smita-śobhayā girā\
+> yady abhyupetaṁ kva ca sādhv asādhu vā\
 > kṛtaṁ mayā vo vibhaje sudhām imām
 
 *tataḥ*—a continuación; *gṛhītvā*—adueñándose de; *amṛta-bhājanam*—la vasija llena de néctar; *hariḥ*—la Suprema Personalidad de Dios, Hari, en la forma de Mohinī; *babhāṣa*—habló; *īṣat*—ligeramente; *smita-śobhayā girā*—con sonriente belleza y palabras; *yadi*—si; *abhyupetam*—prometido que se aceptará; *kva ca*—lo que sea; *sādhu asādhu vā*—sea honesto o deshonesto; *kṛtam mayā*—hecho por Mí; *vaḥ*—a ustedes; *vibhaje*—les daré la parte correspondiente; *sudhām*—néctar; *imām*—este.

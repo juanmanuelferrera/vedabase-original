@@ -1,9 +1,9 @@
 ### CC Madhya 18.216
 
-> প্রয়াগ-পর্যন্ত দুঁহে তোমা-সঙ্গে যাব ।
+> প্রয়াগ-পর্যন্ত দুঁহে তোমা-সঙ্গে যাব ।\
 > তোমার চরণ-সঙ্গ পুনঃ কাহাঁ পাব ? ॥ ২১৬ ॥
 
-> prayāga-paryanta duṅhe tomā-saṅge yāba
+> prayāga-paryanta duṅhe tomā-saṅge yāba\
 > tomāra caraṇa-saṅga punaḥ kāhāṅ pāba?
 
 *prayāga-paryanta*—up to Prayāga; *duṅhe*—both of us; *tomā-saṅge*—with You; *yāba*—shall go; *tomāra*—Your; *caraṇa-saṅga*—association of the lotus feet; *punaḥ*—again; *kāhāṅ*—where; *pāba*—shall we get.

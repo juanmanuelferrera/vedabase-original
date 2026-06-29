@@ -1,9 +1,9 @@
 ### CC Antya 18.82
 
-> তীরে রহি’ দেখি আমি সখীগণ-সঙ্গে ।
+> তীরে রহি’ দেখি আমি সখীগণ-সঙ্গে ।\
 > একসখী সখীগণে দেখায় সেই রঙ্গে ॥৮২॥
 
-> tīre rahi' dekhi āmi sakhī-gaṇa-saṅge
+> tīre rahi' dekhi āmi sakhī-gaṇa-saṅge\
 > eka-sakhī sakhī-gaṇe dekhāya sei raṅge
 
 *tīre*—en la orilla; *rahi'*—de pie; *dekhi*—veo; *āmi*—yo; *sakhī-gaṇa-saṅge*—con las gopīs; *eka-sakhī*—una gopī; *sakhī-gaṇe*—a otras gopīs; *dekhāya*—muestra; *sei raṅge*—ese pasatiempo.

@@ -1,18 +1,18 @@
 ### SB 6.17.34-35
 
-> तस्य चायं महाभागश्चित्रकेतुः प्रियोऽनुगः
-> सर्वत्र समदृक्षान्तो ह्यहं चैवाच्युतप्रियः ॥३४॥
-> तस्मान्न विस्मयः कार्यः पुरुषेषु महात्मसु
+> तस्य चायं महाभागश्चित्रकेतुः प्रियोऽनुगः\
+> सर्वत्र समदृक्षान्तो ह्यहं चैवाच्युतप्रियः ॥३४॥\
+> तस्मान्न विस्मयः कार्यः पुरुषेषु महात्मसु\
 > महापुरुषभक्तेषु शान्तेषु समदर्शिषु ॥३५॥
 
-> tasya cāyaṁ mahā-bhāgaś
-> citraketuḥ priyo 'nugaḥ
-> sarvatra sama-dṛk śānto
+> tasya cāyaṁ mahā-bhāgaś\
+> citraketuḥ priyo 'nugaḥ\
+> sarvatra sama-dṛk śānto\
 > hy ahaṁ caivācyuta-priyaḥ
 
-> tasmān na vismayaḥ kāryaḥ
-> puruṣeṣu mahātmasu
-> mahāpuruṣa-bhakteṣu
+> tasmān na vismayaḥ kāryaḥ\
+> puruṣeṣu mahātmasu\
+> mahāpuruṣa-bhakteṣu\
 > śānteṣu sama-darśiṣu
 
 *tasya*—de Él (del Señor); *ca*—y; *ayam*—este; *mahā-bhāgaḥ*—el muy afortunado; *citraketuḥ*—el rey Citraketu; *priyaḥ*—querido; *anugaḥ*—muy obediente servidor; *sarvatra*—en todas partes; *sama-dṛk*—ve con ecuanimidad; *śāntaḥ*—muy pacífico; *hi*—en verdad; *aham*—yo; *ca*—también; *eva*—ciertamente; *acyuta-priyaḥ*—muy querido al Señor Kṛṣṇa, quien nunca falla; *tasmāt*—por lo tanto; *na*—no; *vismayaḥ*—sorpresa; *kāryaḥ*—que debe hacerse; *puruṣeṣu*—entre personas; *mahāmasu*—que son almas excelsas; *mahā-puruṣa-bhakteṣu*—devotos del Señor Viṣṇu; *śānteṣu*—pacíficos; *sama-darśiṣu*—ecuánimes con todos.

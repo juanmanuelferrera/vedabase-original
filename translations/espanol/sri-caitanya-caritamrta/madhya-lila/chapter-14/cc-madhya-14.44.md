@@ -1,9 +1,9 @@
 ### CC Madhya 14.44
 
-> প্রভুর আজ্ঞায় গোবিন্দ দীন-হীন জনে ।
+> প্রভুর আজ্ঞায় গোবিন্দ দীন-হীন জনে ।\
 > দুঃখী কাঙ্গাল আনি’ করায় ভোজনে ॥৪৪॥
 
-> prabhura ājñāya govinda dīna-hīna jane
+> prabhura ājñāya govinda dīna-hīna jane\
 > duḥkhī kāṅgāla āni' karāya bhojane
 
 *prabhura ājñāya*—por orden de Śrī Caitanya Mahāprabhu; *govinda*—Su sirviente personal; *dīna-hīna jane*—a todos los hombres pobres; *duḥkhī*—desdichados; *kāṅgāla*—mendigos; *āni'*—invitando; *karāya bhojane*—los alimentó espléndidamente.

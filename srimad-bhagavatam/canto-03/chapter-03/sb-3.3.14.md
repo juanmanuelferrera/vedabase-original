@@ -1,11 +1,11 @@
 ### SB 3.3.14
 
-> कियान्भुवोऽयं क्षपितोरुभारो यद्द्रोणभीष्मार्जुनभीममूलैः ।
+> कियान्भुवोऽयं क्षपितोरुभारो यद्द्रोणभीष्मार्जुनभीममूलैः ।\
 > अष्टादशाक्षौहिणिको मदंशैरास्ते बलं दुर्विषहं यदूनाम् ॥१४॥
 
-> kiyān bhuvo 'yaṁ kṣapitoru-bhāro
-> yad droṇa-bhīṣmārjuna-bhīma-mūlaiḥ
-> aṣṭādaśākṣauhiṇiko mad-aṁśair
+> kiyān bhuvo 'yaṁ kṣapitoru-bhāro\
+> yad droṇa-bhīṣmārjuna-bhīma-mūlaiḥ\
+> aṣṭādaśākṣauhiṇiko mad-aṁśair\
 > āste balaṁ durviṣahaṁ yadūnām
 
 *kiyān*—what is this; *bhuvaḥ*—of the earth; *ayam*—this; *kṣapita*—abated; *uru*—very great; *bhāraḥ*—burden; *yat*—which; *droṇa*—Droṇa; *bhīṣma*—Bhīṣma; *arjuna*—Arjuna; *bhīma*—Bhīma; *mūlaiḥ*—with the help; *aṣṭādaśa*—eighteen; *akṣauhiṇikaḥ*—phalanxes of military strength (vide *SB* 1.16.34); *mat-aṁśaiḥ*—with My descendants; *āste*—are still there; *balam*—great strength; *durviṣaham*—unbearable; *yadūnām*—of the Yadu dynasty.

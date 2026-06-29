@@ -1,9 +1,9 @@
 ### CC Adi 5.128
 
-> অবতার-অবতারী — অভেদ, যে জানে ।
+> অবতার-অবতারী — অভেদ, যে জানে ।\
 > পূর্বে যৈছে কৃষ্ণকে কেহো কাহো করি’ মানে ॥১২৮॥
 
-> avatāra-avatārī—abheda, ye jāne
+> avatāra-avatārī—abheda, ye jāne\
 > pūrve yaiche kṛṣṇake keho kāho kari' māne
 
 *avatāra-avatārī*—an incarnation and the source of all incarnations; *abheda*—identical; *ye jāne*—anyone who knows; *pūrve*—formerly; *yaiche*—just as; *kṛṣṇake*—unto Lord Kṛṣṇa; *keho*—somebody; *kāho*—somewhere; *kari'*—making; *māne*—accepts.

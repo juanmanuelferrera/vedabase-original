@@ -1,9 +1,9 @@
 ### CC Adi 15.25
 
-> কত দিনে প্রভু চিত্তে করিলা চিন্তন ।
+> কত দিনে প্রভু চিত্তে করিলা চিন্তন ।\
 > গৃহস্থ হইলাম, এবে চাহি গৃহধর্ম ॥২৫॥
 
-> kata dine prabhu citte karilā cintana
+> kata dine prabhu citte karilā cintana\
 > gṛhastha ha-ilāma, ebe cāhi gṛha-dharma
 
 *kata dine*—pasados algunos días; *prabhu*—el Señor; *citte*—en Su mente; *karilā*—hizo; *cintana*—consideración; *gṛhastha ha-ilāma*—permanecí en la vida de cabeza de familia; *ebe*—ahora; *cāhi*—deseo; *gṛha-dharma*—actividades de la vida familiar.

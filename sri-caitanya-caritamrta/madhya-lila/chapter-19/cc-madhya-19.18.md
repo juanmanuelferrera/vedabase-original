@@ -1,9 +1,9 @@
 ### CC Madhya 19.18
 
-> আর দিন গৌড়েশ্বর, সঙ্গে একজন ।
+> আর দিন গৌড়েশ্বর, সঙ্গে একজন ।\
 > আচম্বিতে গোসাঞি-সভাতে কৈল আগমন ॥১৮॥
 
-> āra dina gauḍeśvara, saṅge eka-jana
+> āra dina gauḍeśvara, saṅge eka-jana\
 > ācambite gosāñi-sabhāte kaila āgamana
 
 *āra dina*—one day; *gauḍeśvara*—the Nawab of Bengal; *saṅge*—with; *eka-jana*—one other person; *ācambite*—suddenly; *gosāñi-sabhāte*—in the assembly of Sanātana Gosvāmī; *kaila āgamana*—came.

@@ -1,13 +1,13 @@
 ### SB 8.1.9
 
-> श्रीमनुरुवाच
-> येन चेतयते विश्वं विश्वं चेतयते न यम
+> श्रीमनुरुवाच\
+> येन चेतयते विश्वं विश्वं चेतयते न यम\
 > यो जागर्ति शयानेऽस्मिन्नायं तं वेद वेद सः ॥९॥
 
-> śrī-manur uvāca
-> yena cetayate viśvaṁ
-> viśvaṁ cetayate na yam
-> yo jāgarti śayāne 'smin
+> śrī-manur uvāca\
+> yena cetayate viśvaṁ\
+> viśvaṁ cetayate na yam\
+> yo jāgarti śayāne 'smin\
 > nāyaṁ taṁ veda veda saḥ
 
 *śrī-manuḥ uvāca*—Svāyambhuva Manu chanted; *yena*—by whom (the Personality of Godhead); *cetayate*—is brought into animation; *viśvam*—the whole universe; *viśvam*—the whole universe (the material world); *cetayate*—animates; *na*—not; *yam*—He whom; *yaḥ*—He who; *jāgarti*—is always awake (watching all activities); *śayāne*—while sleeping; *asmin*—in this body; *na*—not; *ayam*—this living entity; *tam*—Him; *veda*—knows; *veda*—knows; *saḥ*—He.

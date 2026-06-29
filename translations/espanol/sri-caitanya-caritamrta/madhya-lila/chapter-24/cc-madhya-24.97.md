@@ -1,9 +1,9 @@
 ### CC Madhya 24.97
 
-> সাধুসঙ্গ-কৃপা কিম্বা কৃষ্ণের কৃপায় ।
+> সাধুসঙ্গ-কৃপা কিম্বা কৃষ্ণের কৃপায় ।\
 > কামাদি ‘দুঃসঙ্গ’ ছাড়ি’ শুদ্ধভক্তি পায় ॥৯৭॥
 
-> sādhu-saṅga-kṛpā kimvā kṛṣṇera kṛpāya
+> sādhu-saṅga-kṛpā kimvā kṛṣṇera kṛpāya\
 > kāmādi 'duḥsaṅga' chāḍi' śuddha-bhakti pāya
 
 *sādhu-saṅga-kṛpā*—por la misericordia de la asociación con devotos; *kimvā*—o; *kṛṣṇera kṛpāya*—por la misericordia de Kṛṣṇa; *kāma-ādi*—deseos materiales y demás; *duḥsaṅga*—asociación indeseable; *chāḍi'*—abandonando; *śuddha-bhakti pāya*—uno alcanza la plataforma de la vida devocional pura.

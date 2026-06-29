@@ -1,11 +1,11 @@
 ### SB 4.27.2
 
-> स राजा महिषीं राजन्सुस्नातां रुचिराननाम् ।
+> स राजा महिषीं राजन्सुस्नातां रुचिराननाम् ।\
 > कृतस्वस्त्ययनां तृप्तामभ्यनन्ददुपागताम् ॥२॥
 
-> sa rājā mahiṣīṁ rājan
-> susnātāṁ rucirānanām
-> kṛta-svastyayanāṁ tṛptām
+> sa rājā mahiṣīṁ rājan\
+> susnātāṁ rucirānanām\
+> kṛta-svastyayanāṁ tṛptām\
 > abhyanandad upāgatām
 
 *saḥ*—he; *rājā*—the King; *mahiṣīm*—the Queen; *rājan*—O King; *su-snātām*—nicely bathed; *rucira-ānanām*—attractive face; *kṛta-svasti-ayanām*—dressed with auspicious garments and ornaments; *tṛptām*—satisfied; *abhyanandat*—he welcomed; *upāgatām*—approached.

@@ -1,9 +1,9 @@
 ### CC Madhya 1.126
 
-> সবে মিলি’ যুক্তি করি’ কীর্তন আরম্ভিল ।
+> সবে মিলি’ যুক্তি করি’ কীর্তন আরম্ভিল ।\
 > কীর্তন-আবেশে প্রভুর মন স্থির হৈল ॥১২৬॥
 
-> sabe mili' yukti kari' kīrtana ārambhila
+> sabe mili' yukti kari' kīrtana ārambhila\
 > kīrtana-āveśe prabhura mana sthira haila
 
 *sabe mili'*—reuniéndose todos; *yukti kari'*—tras la debida consideración; *kīrtana*—canto congregacional del santo nombre; *ārambhila*—comenzaron; *kīrtana-āveśe*—en el éxtasis del kīrtana; *prabhura*—del Señor Caitanya Mahāprabhu; *mana*—la mente; *sthira*—sosegada; *haila*—se volvió.

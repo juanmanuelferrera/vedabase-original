@@ -1,11 +1,11 @@
 ### SB 4.26.13
 
-> तृप्तो हृष्टः सुदृप्तश्च कन्दर्पाकृष्टमानसः ।
+> तृप्तो हृष्टः सुदृप्तश्च कन्दर्पाकृष्टमानसः ।\
 > न व्यचष्ट वरारोहां गृहिणीं गृहमेधिनीम् ॥१३॥
 
-> tṛpto hṛṣṭaḥ sudṛptaś ca
-> kandarpākṛṣṭa-mānasaḥ
-> na vyacaṣṭa varārohāṁ
+> tṛpto hṛṣṭaḥ sudṛptaś ca\
+> kandarpākṛṣṭa-mānasaḥ\
+> na vyacaṣṭa varārohāṁ\
 > gṛhiṇīṁ gṛha-medhinīm
 
 *tṛptaḥ*—satisfied; *hṛṣṭaḥ*—joyful; *su-dṛptaḥ*—being very proud; *ca*—also; *kandarpa*—by Cupid; *ākṛṣṭa*—attracted; *mānasaḥ*—his mind; *na*—did not; *vyacaṣṭa*—try; *vara-ārohām*—higher consciousness; *gṛhiṇīm*—wife; *gṛha-medhinīm*—one who keeps her husband in material life.

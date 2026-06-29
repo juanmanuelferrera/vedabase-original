@@ -1,11 +1,11 @@
 ### SB 6.1.53
 
-> न हि कश्चित्क्षणमपि जातु तिष्ठत्यकर्मकृत
+> न हि कश्चित्क्षणमपि जातु तिष्ठत्यकर्मकृत\
 > कार्यते ह्यवशः कर्म गुणैः स्वाभाविकैर्बलात ॥५३॥
 
-> na hi kaścit kṣaṇam api
-> jātu tiṣṭhaty akarma-kṛt
-> kāryate hy avaśaḥ karma
+> na hi kaścit kṣaṇam api\
+> jātu tiṣṭhaty akarma-kṛt\
+> kāryate hy avaśaḥ karma\
 > guṇaiḥ svābhāvikair balāt
 
 *na*—not; *hi*—indeed; *kaścit*—anyone; *kṣaṇam api*—even for a moment; *jātu*—at any time; *tiṣṭhati*—remains; *akarma-kṛt*—without doing anything; *kāryate*—he is caused to perform; *hi*—indeed; *avaśaḥ*—automatically; *karma*—fruitive activities; *guṇaiḥ*—by the three modes of nature; *svābhāvikaiḥ*—which are produced by his own tendencies in previous lives; *balāt*—by force.

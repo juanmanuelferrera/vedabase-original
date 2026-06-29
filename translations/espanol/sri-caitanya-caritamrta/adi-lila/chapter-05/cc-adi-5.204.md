@@ -1,9 +1,9 @@
 ### CC Adi 5.204
 
-> জয় জয় নিত্যানন্দ-চরণারবিন্দ ।
+> জয় জয় নিত্যানন্দ-চরণারবিন্দ ।\
 > যাঁহা হৈতে পাইনু শ্রীরাধাগোবিন্দ ॥২০৪॥
 
-> jaya jaya nityānanda-caraṇāravinda
+> jaya jaya nityānanda-caraṇāravinda\
 > yāṅhā haite pāinu śrī-rādhā-govinda
 
 *jaya jaya*—¡toda gloria!; *nityānanda*—del Señor Nityānanda; *caraṇa-aravinda*—los pies de loto; *yāṅhā haite*—de quien; *pāinu*—obtuve; *śrī-rādhā-govinda*—el refugio de Śrī Rādhā y Govinda.

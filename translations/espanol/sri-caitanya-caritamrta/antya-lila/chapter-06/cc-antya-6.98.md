@@ -1,9 +1,9 @@
 ### CC Antya 6.98
 
-> মালা-চন্দন-তাম্বূল শেষ যে আছিল ।
+> মালা-চন্দন-তাম্বূল শেষ যে আছিল ।\
 > শ্রীহস্তে প্রভু তাহা সবাকারে বাঁটি’ দিল ॥৯৮॥
 
-> mālā-candana-tāmbūla śeṣa ye āchila
+> mālā-candana-tāmbūla śeṣa ye āchila\
 > śrī-haste prabhu tāhā sabākāre bāṅṭi' dila
 
 *mālā-candana-tāmbūla*—las guirnaldas de flores, la pasta de sándalo y el betel; *śeṣa ye āchila*—lo que quedó; *śrī-haste*—con Su propia mano; *prabhu*—Nityānanda Prabhu; *tāhā*—eso; *sabākāre*—a todos; *bāṅṭi' dila*—distribuyó.

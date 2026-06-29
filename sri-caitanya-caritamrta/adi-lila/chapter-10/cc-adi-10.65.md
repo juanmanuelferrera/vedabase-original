@@ -1,9 +1,9 @@
 ### CC Adi 10.65
 
-> শ্রীবিজয়দাস-নাম প্রভুর আখরিয়া ।
+> শ্রীবিজয়দাস-নাম প্রভুর আখরিয়া ।\
 > প্রভুরে অনেক পুঁথি দিয়াছে লিখিয়া ॥৬৫॥
 
-> śrī-vijaya-dāsa-nāma prabhura ākhariyā
+> śrī-vijaya-dāsa-nāma prabhura ākhariyā\
 > prabhure aneka puṅthi diyāche likhiyā
 
 *śrī-vijaya-dāsa*—of the name Śrī Vijaya dāsa; *nāma*—name; *prabhura*—of the Lord; *ākhariyā*—chief singer; *prabhure*—unto the Lord; *aneka*—many; *puṅthi*—literatures; *diyāche*—has given; *likhiyā*—by writing.

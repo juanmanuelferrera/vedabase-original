@@ -1,9 +1,9 @@
 ### CC Madhya 6.203
 
-> দেখাইল তাঁরে আগে চতুর্ভুজ-রূপ ।
+> দেখাইল তাঁরে আগে চতুর্ভুজ-রূপ ।\
 > পাছে শ্যাম-বংশীমুখ স্বকীয় স্বরূপ ॥২০৩॥
 
-> dekhāila tāṅre āge catur-bhuja-rūpa
+> dekhāila tāṅre āge catur-bhuja-rūpa\
 > pāche śyāma-vaṁśī-mukha svakīya svarūpa
 
 *dekhāila*—showed; *tāṅre*—unto him; *āge*—at first; *catur-bhuja-rūpa*—the form with four hands; *pāche*—afterwards; *śyāma*—blackish; *vaṁśī-mukha*—with a flute to the mouth; *svakīya*—personal; *svarūpa*—form.

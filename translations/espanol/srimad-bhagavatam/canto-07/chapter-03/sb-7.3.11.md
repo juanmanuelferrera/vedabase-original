@@ -1,11 +1,11 @@
 ### SB 7.3.11
 
-> अन्यथेदं विधास्येऽहमयथा पूर्वमोजसा
+> अन्यथेदं विधास्येऽहमयथा पूर्वमोजसा\
 > किमन्यैः कालनिर्धूतैः कल्पान्ते वैष्णवादिभिः ॥११॥
 
-> anyathedaṁ vidhāsye 'ham
-> ayathā pūrvam ojasā
-> kim anyaiḥ kāla-nirdhūtaiḥ
+> anyathedaṁ vidhāsye 'ham\
+> ayathā pūrvam ojasā\
+> kim anyaiḥ kāla-nirdhūtaiḥ\
 > kalpānte vaiṣṇavādibhiḥ
 
 *anyathā*—exactamente lo contrario; *idam*—este universo; *vidhāsye*—haré; *aham*—yo; *ayathā*—inadecuado; *pūrvam*—como era antes; *ojasā*—con el poder de mi austeridad; *kim*—de qué sirve; *anyaiḥ*—con otro; *kāla-nirdhūtaiḥ*—destruido con el paso del tiempo; *kalpa-ante*—al final del milenio; *vaiṣṇava-ādibhiḥ*—con planetas como Dhruvaloka o Vaikuṇṭhaloka.

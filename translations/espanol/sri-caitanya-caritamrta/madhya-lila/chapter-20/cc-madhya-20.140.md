@@ -1,9 +1,9 @@
 ### CC Madhya 20.140
 
-> ধন পাইলে যৈছে সুখভোগ ফল পায়  ।
+> ধন পাইলে যৈছে সুখভোগ ফল পায়  ।\
 > সুখভোগ হৈতে দুঃখ আপনি পলায় ॥১৪০॥
 
-> dhana pāile yaiche sukha-bhoga phala pāya
+> dhana pāile yaiche sukha-bhoga phala pāya\
 > sukha-bhoga haite duḥkha āpani palāya
 
 *dhana pāile*—cuando uno obtiene riquezas; *yaiche*—tal como; *sukha-bhoga*—disfrute de la felicidad; *phala*—resultado; *pāya*—uno obtiene; *sukha-bhoga*—verdadero disfrute de la felicidad; *haite*—de; *duḥkha*—todas las aflicciones; *āpani*—por sí mismas; *palāya*—huyen.

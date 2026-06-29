@@ -1,11 +1,11 @@
 ### SB 3.1.12
 
-> पार्थांस्तु देवो भगवान्मुकुन्दो गृहीतवान्सक्षितिदेवदेवः ।
+> पार्थांस्तु देवो भगवान्मुकुन्दो गृहीतवान्सक्षितिदेवदेवः ।\
 > आस्ते स्वपुर्यां यदुदेवदेवो विनिर्जिताशेषनृदेवदेवः ॥१२॥
 
-> pārthāṁs tu devo bhagavān mukundo
-> gṛhītavān sakṣiti-deva-devaḥ
-> āste sva-puryāṁ yadu-deva-devo
+> pārthāṁs tu devo bhagavān mukundo\
+> gṛhītavān sakṣiti-deva-devaḥ\
+> āste sva-puryāṁ yadu-deva-devo\
 > vinirjitāśeṣa-nṛdeva-devaḥ
 
 *pārthān*—the sons of Pṛthā (Kuntī); *tu*—but; *devaḥ*—the Lord; *bhagavān*—the Personality of Godhead; *mukundaḥ*—Śrī Kṛṣṇa, who awards liberation; *gṛhītavān*—has taken up; *sa*—with; *kṣiti-deva-devaḥ*—the *brāhmaṇas* and the demigods; *āste*—is present; *sva-puryām*—along with His family; *yadu-deva-devaḥ*—worshiped by the royal order of the Yadu dynasty; *vinirjita*—who have been conquered; *aśeṣa*—unlimited; *nṛdeva*—kings; *devaḥ*—Lord.

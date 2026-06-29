@@ -1,11 +1,11 @@
 ### Bg 9.15
 
-> ज्ञानयज्ञेन चाप्यन्ये यजन्तो मामुपासते ।
+> ज्ञानयज्ञेन चाप्यन्ये यजन्तो मामुपासते ।\
 > एकत्वेन पृथक्त्वेन बहुधा विश्वतोमुखम् ॥१५॥
 
-> jñāna-yajñena cāpy anye
-> yajanto mām upāsate
-> ekatvena pṛthaktvena
+> jñāna-yajñena cāpy anye\
+> yajanto mām upāsate\
+> ekatvena pṛthaktvena\
 > bahudhā viśvato-mukham
 
 *jñāna-yajñena*—by cultivation of knowledge; *ca*—also; *api*—certainly; *anye*—others; *yajantaḥ*—worshiping; *mām*—Me; *upāsate*—worship; *ekatvena*—in oneness; *pṛthaktvena*—in duality; *bahudhā*—diversity; *viśvataḥ-mukham*—in the universal form.

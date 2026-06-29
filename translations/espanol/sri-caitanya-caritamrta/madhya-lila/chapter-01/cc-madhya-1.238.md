@@ -1,9 +1,9 @@
 ### CC Madhya 1.238
 
-> বলভদ্র ভট্টাচার্য রহে মাত্র সঙ্গে ।
+> বলভদ্র ভট্টাচার্য রহে মাত্র সঙ্গে ।\
 > ঝারিখণ্ড-পথে কাশী আইলা মহারঙ্গে ॥২৩৮॥
 
-> balabhadra bhaṭṭācārya rahe mātra saṅge
+> balabhadra bhaṭṭācārya rahe mātra saṅge\
 > jhārikhaṇḍa-pathe kāśī āilā mahā-raṅge
 
 *balabhadra bhaṭṭācārya*—llamado Balabhadra Bhaṭṭācārya; *rahe*—permanece; *mātra*—solo; *saṅge*—con Él; *jhārikhaṇḍa-pathe*—por el camino a través de Jhārikhaṇḍa (Madhya Pradesh); *kāśī*—en Benarés; *āilā*—llegó; *mahā-raṅge*—con gran deleite.

@@ -1,9 +1,9 @@
 ### CC Madhya 11.63
 
-> গোপীভাবে বিরহে প্রভু ব্যাকুল হঞা ।
+> গোপীভাবে বিরহে প্রভু ব্যাকুল হঞা ।\
 > আলালনাথে গেলা প্রভু সবারে ছাড়িয়া ॥৬৩॥
 
-> gopī-bhāve virahe prabhu vyākula hañā
+> gopī-bhāve virahe prabhu vyākula hañā\
 > ālālanāthe gelā prabhu sabāre chāḍiyā
 
 *gopī-bhāve*—in the mood of the *gopīs*; *virahe*—in separation; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *vyākula*—agitated; *hañā*—being; *ālālanāthe*—to Ālālanātha; *gelā*—went; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *sabāre*—all; *chāḍiyā*—having given up.

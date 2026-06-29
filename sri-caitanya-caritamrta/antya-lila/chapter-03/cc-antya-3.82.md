@@ -1,9 +1,9 @@
 ### CC Antya 3.82
 
-> অবতরি’ তুমি ঐছে পাতিয়াছ হাট ।
+> অবতরি’ তুমি ঐছে পাতিয়াছ হাট ।\
 > কেহ না বুঝিতে পারে তোমার গূঢ় নাট ॥৮২॥
 
-> avatari' tumi aiche pātiyācha hāṭa
+> avatari' tumi aiche pātiyācha hāṭa\
 > keha nā bujhite pāre tomāra gūḍha nāṭa
 
 *avatari'*—descending; *tumi*—You; *aiche*—like that; *pātiyācha hāṭa*—have set up a market; *keha nā bujhite pāre*—no one can understand; *tomāra*—Your; *gūḍha nāṭa*—deep acting.

@@ -1,32 +1,32 @@
 ### SB 2.5.26-29
 
-> नभसोऽथ विकुर्वाणादभूत्स्पर्शगुणोऽनिलः ।
-> परान्वयाच्छब्दवांश्च प्राण ओजः सहो बलम् ॥२६॥
-> वायोरपि विकुर्वाणात्कालकर्मस्वभावतः ।
-> उदपद्यत तेजो वै रूपवत्स्पर्शशब्दवत् ॥२७॥
-> तेजसस्तु विकुर्वाणादासीदम्भो रसात्मकम् ।
-> रूपवत्स्पर्शवच्चाम्भो घोषवच्च परान्वयात् ॥२८॥
-> विशेषस्तु विकुर्वाणादम्भसो गन्धवानभूत् ।
+> नभसोऽथ विकुर्वाणादभूत्स्पर्शगुणोऽनिलः ।\
+> परान्वयाच्छब्दवांश्च प्राण ओजः सहो बलम् ॥२६॥\
+> वायोरपि विकुर्वाणात्कालकर्मस्वभावतः ।\
+> उदपद्यत तेजो वै रूपवत्स्पर्शशब्दवत् ॥२७॥\
+> तेजसस्तु विकुर्वाणादासीदम्भो रसात्मकम् ।\
+> रूपवत्स्पर्शवच्चाम्भो घोषवच्च परान्वयात् ॥२८॥\
+> विशेषस्तु विकुर्वाणादम्भसो गन्धवानभूत् ।\
 > परान्वयाद्रसस्पर्श शब्दरूपगुणान्वितः ॥२९॥
 
-> nabhaso 'tha vikurvāṇād
-> abhūt sparśa-guṇo 'nilaḥ
-> parānvayāc chabdavāṁś ca
+> nabhaso 'tha vikurvāṇād\
+> abhūt sparśa-guṇo 'nilaḥ\
+> parānvayāc chabdavāṁś ca\
 > prāṇa ojaḥ saho balam
 
-> vāyor api vikurvāṇāt
-> kāla-karma-svabhāvataḥ
-> udapadyata tejo vai
+> vāyor api vikurvāṇāt\
+> kāla-karma-svabhāvataḥ\
+> udapadyata tejo vai\
 > rūpavat sparśa-śabdavat
 
-> tejasas tu vikurvāṇād
-> āsīd ambho rasātmakam
-> rūpavat sparśavac cāmbho
+> tejasas tu vikurvāṇād\
+> āsīd ambho rasātmakam\
+> rūpavat sparśavac cāmbho\
 > ghoṣavac ca parānvayāt
 
-> viśeṣas tu vikurvāṇād
-> ambhaso gandhavān abhūt
-> parānvayād rasa-sparśa-
+> viśeṣas tu vikurvāṇād\
+> ambhaso gandhavān abhūt\
+> parānvayād rasa-sparśa-\
 > śabda-rūpa-guṇānvitaḥ
 
 *nabhasaḥ*—del cielo; *atha*—así; *vikurvāṇāt*—siendo transformado; *abhūt*—generado; *sparśa*—tacto; *gunaḥ*—cualidad; *anilaḥ*—aire; *para*—anterior; *anvayāt*—por sucesión; *śabdavān*—lleno de sonido; *ca*—también; *prāṇaḥ*—vida; *ojaḥ*—percepción sensual; *sahaḥ*—grasa; *balam*—fuerza; *vāyoḥ*—del aire; *api*—también; *vikurvāṇāt*—por transformación; *kāla*—tiempo; *karma*—reacción del pasado; *sva-bhāvataḥ*—sobre la base de la naturaleza; *udapadyata*—generado; *tejaḥ*—fuego; *vai*—debidamente; *rūpavat*—con forma; *sparśa*—tacto; *śabdavat*—con sonido también; *tejasaḥ*—del fuego; *tu*—pero; *vikurvāṇāt*—al ser transformado; *āsīt*—así ocurrió; *ambhaḥ*—agua; *rasa-ātmakam*—compuesto de jugo; *rūpavat*—con forma; *sparśavat*—con tacto; *ca*—y; *ambhaḥ*—agua; *ghoṣavat*—con sonido; *ca*—y; *para*—anterior; *anvayāt*—por sucesión; *viśeṣaḥ*—variedad; *tu*—pero; *vikurvāṇāt*—por la transformación; *ambhasaḥ*—del agua; *gandhavān*—olorosa; *abhūt*—se volvió; *para*—anterior; *anvayāt*—por sucesión; *rasa*—jugo; *sparśa*—tacto; *śabda*—sonido; *rūpa-guṇa-anvitaḥ*—cualitativo.

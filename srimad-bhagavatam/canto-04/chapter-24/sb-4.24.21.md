@@ -1,11 +1,11 @@
 ### SB 4.24.21
 
-> नीलरक्तोत्पलाम्भोज कह्लारेन्दीवराकरम् ।
+> नीलरक्तोत्पलाम्भोज कह्लारेन्दीवराकरम् ।\
 > हंससारसचक्राह्व कारण्डवनिकूजितम् ॥२१॥
 
-> nīla-raktotpalāmbhoja-
-> kahlārendīvarākaram
-> haṁsa-sārasa-cakrāhva-
+> nīla-raktotpalāmbhoja-\
+> kahlārendīvarākaram\
+> haṁsa-sārasa-cakrāhva-\
 > kāraṇḍava-nikūjitam
 
 *nīla*—blue; *rakta*—red; *utpala*—lotus; *ambhaḥ-ja*—born from the water; *kahlāra*—another kind of lotus; *indīvara*—another kind of lotus; *ākaram*—the mine; *haṁsa*—swans; *sārasa*—cranes; *cakrāhva*—the ducks of the name; *kāraṇḍava*—birds of the name; *nikūjitam*—vibrated by their sounds.

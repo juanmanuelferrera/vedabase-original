@@ -1,11 +1,11 @@
 ### SB 5.12.10
 
-> एवं कृशं स्थूलमणुर्बृहद्यदसच्च सज्जीवमजीवमन्यत
+> एवं कृशं स्थूलमणुर्बृहद्यदसच्च सज्जीवमजीवमन्यत\
 > द्रव्यस्वभावाशयकालकर्म नाम्नाजयावेहि कृतं द्वितीयम ॥१०॥
 
-> evaṁ kṛśaṁ sthūlam aṇur bṛhad yad
-> asac ca saj jīvam ajīvam anyat
-> dravya-svabhāvāśaya-kāla-karma-
+> evaṁ kṛśaṁ sthūlam aṇur bṛhad yad\
+> asac ca saj jīvam ajīvam anyat\
+> dravya-svabhāvāśaya-kāla-karma-\
 > nāmnājayāvehi kṛtaṁ dvitīyam
 
 *evam*—así; *kṛśam*—delgado o bajo; *sthūlam*—grueso; *aṇuḥ*—diminuto; *bṛhat*—grande; *yat*—lo que; *asat*—no permanente; *ca*—y; *sat*—que existen; *jīvam*—las entidades vivientes; *ajīvam*—la materia inerte e inanimada; *anyat*—otras causas; *dravya*—fenómenos; *sva-bhāva*—naturaleza; *āśaya*—disposición; *kāla*—tiempo; *karma*—actividades; *nāmnā*—solo por esos nombres; *ajayā*—por la naturaleza material; *avehi*—debes entender; *kṛtam*—hecho; *dvitīyam*—dualidad.

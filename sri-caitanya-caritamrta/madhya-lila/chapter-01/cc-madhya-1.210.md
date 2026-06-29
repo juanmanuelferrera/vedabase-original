@@ -1,9 +1,9 @@
 ### CC Madhya 1.210
 
-> তোমার হৃদয় আমি জানি পত্রীদ্বারে ।
+> তোমার হৃদয় আমি জানি পত্রীদ্বারে ।\
 > তোমা শিখাইতে শ্লোক পাঠাইল তোমারে ॥২১০॥
 
-> tomāra hṛdaya āmi jāni patrī-dvāre
+> tomāra hṛdaya āmi jāni patrī-dvāre\
 > tomā śikhāite śloka pāṭhāila tomāre
 
 *tomāra*—your; *hṛdaya*—hearts; *āmi*—I; *jāni*—understand; *patrī-dvāre*—by those letters; *tomā*—you; *śikhāite*—to instruct; *śloka*—a verse; *pāṭhāila*—I sent; *tomāre*—unto you.

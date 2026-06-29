@@ -1,13 +1,13 @@
 ### CC Adi 1.91
 
-> ধর্মঃ প্রোজ্ঝিতকৈতবোঽত্র পরমো নির্মৎসরাণাং সতাং
-> বেদ্যং বাস্তবমত্র বস্তু শিবদং তাপত্রয়োন্মূলনম্ ।
-> শ্রীমদ্ভাগবতে মহামুনিকৃতে কিংবাপরৈরীশ্বরঃ
+> ধর্মঃ প্রোজ্ঝিতকৈতবোঽত্র পরমো নির্মৎসরাণাং সতাং\
+> বেদ্যং বাস্তবমত্র বস্তু শিবদং তাপত্রয়োন্মূলনম্ ।\
+> শ্রীমদ্ভাগবতে মহামুনিকৃতে কিংবাপরৈরীশ্বরঃ\
 > সদ্যো হৃদ্যবরুধ্যতেঽত্র কৃতিভিঃ শুশ্রূষুভিস্তৎক্ষণাৎ ॥৯১॥
 
-> dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satāṁ
-> vedyaṁ vāstavam atra vastu śiva-daṁ tāpa-trayonmūlanam
-> śrīmad-bhāgavate mahā-muni-kṛte kiṁ vā parair īśvaraḥ
+> dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satāṁ\
+> vedyaṁ vāstavam atra vastu śiva-daṁ tāpa-trayonmūlanam\
+> śrīmad-bhāgavate mahā-muni-kṛte kiṁ vā parair īśvaraḥ\
 > sadyo hṛdy avarudhyate 'tra kṛtibhiḥ śuśrūṣubhis tat-kṣaṇāt
 
 *dharmaḥ*—religiosidad; *projjhita*—completamente rechazada; *kaitavaḥ*—en la que hay intención fruitiva; *atra*—en este; *paramaḥ*—el más elevado; *nirmatsarāṇām*—de los cien por ciento puros de corazón; *satām*—devotos; *vedyam*—a ser comprendido; *vāstavam*—factual; *atra*—en este; *vastu*—sustancia; *śiva-dam*—que otorga bienestar; *tāpa-traya*—de las tres miserias; *unmūlanam*—que causa el desarraigo; *śrīmat*—hermoso; *bhāgavate*—en el Bhāgavata Purāṇa; *mahā-muni*—por el gran sabio (Vyāsadeva); *kṛte*—compilado; *kim*—qué; *vā*—ciertamente; *paraiḥ*—con otros; *īśvaraḥ*—el Señor Supremo; *sadyaḥ*—de inmediato; *hṛdi*—dentro del corazón; *avarudhyate*—queda confinado; *atra*—en este; *kṛtibhiḥ*—por personas piadosas; *śuśrūṣubhiḥ*—que desean escuchar; *tat-kṣaṇāt*—sin demora.

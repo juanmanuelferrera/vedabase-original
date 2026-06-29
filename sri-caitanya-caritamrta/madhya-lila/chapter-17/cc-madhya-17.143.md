@@ -1,9 +1,9 @@
 ### CC Madhya 17.143
 
-> অতএব ‘কৃষ্ণনাম’ না আইসে তার মুখে ।
+> অতএব ‘কৃষ্ণনাম’ না আইসে তার মুখে ।\
 > মায়াবাদি-গণ যাতে মহা বহির্মুখে ॥১৪৩॥
 
-> ataeva 'kṛṣṇa-nāma' nā āise tāra mukhe
+> ataeva 'kṛṣṇa-nāma' nā āise tāra mukhe\
 > māyāvādi-gaṇa yāte mahā bahirmukhe
 
 *ataeva*—therefore; *kṛṣṇa-nāma*—the holy name of Kṛṣṇa; *nā*—does not; *āise*—come; *tāra mukhe*—in their mouths; *māyāvādi-gaṇa*—all the Māyāvādīs; *yāte*—because; *mahā bahiḥ-mukhe*—great offenders by dint of strong atheism.

@@ -1,13 +1,13 @@
 ### CC Madhya 22.86
 
-> সতাং প্রসঙ্গান্মম বীর্যসম্বিদো
-> ভবন্তি হৃৎকর্ণরসায়নাঃ কথাঃ ।
-> তজ্জোষণাদাশ্বপবর্গবর্ত্মনি
+> সতাং প্রসঙ্গান্মম বীর্যসম্বিদো\
+> ভবন্তি হৃৎকর্ণরসায়নাঃ কথাঃ ।\
+> তজ্জোষণাদাশ্বপবর্গবর্ত্মনি\
 > শ্রদ্ধা রতির্ভক্তিরনুক্রমিষ্যতি ॥৮৬॥
 
-> satāṁ prasaṅgān mama vīrya-samvido
-> bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ
-> taj-joṣaṇād āśv apavarga-vartmani
+> satāṁ prasaṅgān mama vīrya-samvido\
+> bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ\
+> taj-joṣaṇād āśv apavarga-vartmani\
 > śraddhā ratir bhaktir anukramiṣyati
 
 *satām*—de los devotos; *prasaṅgāt*—por la asociación íntima; *mama*—de Mí; *vīrya-samvidaḥ*—conversaciones llenas de potencia espiritual; *bhavanti*—aparecen; *hṛt*—al corazón; *karṇa*—y a los oídos; *rasa-āyanāḥ*—una fuente de dulzura; *kathāḥ*—conversaciones; *tat*—de ellas; *joṣaṇāt*—del cultivo apropiado; *āśu*—rápidamente; *apavarga*—de la liberación; *vartmani*—en el sendero; *śraddhā*—fe; *ratiḥ*—atracción; *bhaktiḥ*—amor; *anukramiṣyati*—seguirán una tras otra.

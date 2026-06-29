@@ -1,9 +1,9 @@
 ### CC Antya 3.233
 
-> তাঁর অঙ্গ-গন্ধে দশ দিক্ আমোদিত ।
+> তাঁর অঙ্গ-গন্ধে দশ দিক্ আমোদিত ।\
 > ভূষণ-ধ্বনিতে কর্ণ হয় চমকিত ॥২৩৩॥
 
-> tāṅra aṅga-gandhe daśa dik āmodita
+> tāṅra aṅga-gandhe daśa dik āmodita\
 > bhūṣaṇa-dhvanite karṇa haya camakita
 
 *tāṅra*—her; *aṅga-gandhe*—the scent of the body; *daśa dik*—ten directions; *āmodita*—perfumed; *bhūṣaṇa-dhvanite*—by the tinkling of her ornaments; *karṇa*—the ear; *haya*—becomes; *camakita*—startled.

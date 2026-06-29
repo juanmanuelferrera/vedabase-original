@@ -1,11 +1,11 @@
 ### SB 3.4.2
 
-> तेषां मैरेयदोषेण विषमीकृतचेतसाम् ।
+> तेषां मैरेयदोषेण विषमीकृतचेतसाम् ।\
 > निम्लोचति रवावासीद्वेणूनामिव मर्दनम् ॥२॥
 
-> teṣāṁ maireya-doṣeṇa
-> viṣamīkṛta-cetasām
-> nimlocati ravāv āsīd
+> teṣāṁ maireya-doṣeṇa\
+> viṣamīkṛta-cetasām\
+> nimlocati ravāv āsīd\
 > veṇūnām iva mardanam
 
 *teṣām*—de ellos; *maireya*—de la embriaguez; *doṣeṇa*—por los males; *viṣamīkṛta*—se trastornaron; *cetasām*—de aquellos cuyas mentes; *nimlocati*—se pone; *ravau*—el sol; *āsīt*—ocurre; *veṇūnām*—de los bambúes; *iva*—como; *mardanam*—destrucción.

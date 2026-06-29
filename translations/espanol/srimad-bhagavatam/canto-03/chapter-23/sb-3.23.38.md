@@ -1,13 +1,13 @@
 ### SB 3.23.38
 
-> तस्मिन्नलुप्तमहिमा प्रिययानुरक्तो
-> विद्याधरीभिरुपचीर्णवपुर्विमाने ।
-> बभ्राज उत्कचकुमुद्गणवानपीच्यस्
+> तस्मिन्नलुप्तमहिमा प्रिययानुरक्तो\
+> विद्याधरीभिरुपचीर्णवपुर्विमाने ।\
+> बभ्राज उत्कचकुमुद्गणवानपीच्यस्\
 > ताराभिरावृत इवोडुपतिर्नभःस्थः ॥३८॥
 
-> tasminn alupta-mahimā priyayānurakto
-> vidyādharībhir upacīrṇa-vapur vimāne
-> babhrāja utkaca-kumud-gaṇavān apīcyas
+> tasminn alupta-mahimā priyayānurakto\
+> vidyādharībhir upacīrṇa-vapur vimāne\
+> babhrāja utkaca-kumud-gaṇavān apīcyas\
 > tārābhir āvṛta ivoḍu-patir nabhaḥ-sthaḥ
 
 *tasmin*—en esa; *alupta*—no perdida; *mahimā*—gloria; *priyayā*—con su querida consorte; *anuraktaḥ*—apegado; *vidyādharībhiḥ*—por las muchachas *gandharvas*; *upacīrṇa*—servida; *vapuḥ*—su persona; *vimāne*—en el avión; *babhrāja*—él brillaba; *utkaca*—abierta; *kumut-gaṇavān*—la Luna, a la que siguen hileras de nenúfares; *apīcyaḥ*—muy encantadora; *tārābhiḥ*—por estrellas; *āvṛtaḥ*—rodeada; *iva*—como; *uḍu-patiḥ*—la Luna (la principal de las estrellas); *nabhaḥ-sthaḥ*—en el cielo.

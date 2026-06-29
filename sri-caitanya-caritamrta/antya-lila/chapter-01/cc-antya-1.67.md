@@ -1,11 +1,11 @@
 ### CC Antya 1.67
 
-> কৃষ্ণোঽন্যো যদুসম্ভূতো যঃ পূর্ণঃ সোঽস্ত্যতঃ পরঃ ।
+> কৃষ্ণোঽন্যো যদুসম্ভূতো যঃ পূর্ণঃ সোঽস্ত্যতঃ পরঃ ।\
 > বৃন্দাবনং পরিত্যজ্য স ক্কচিন্নৈব গচ্ছতি ॥৬৭॥
 
-> kṛṣṇo 'nyo yadu-sambhūto
-> yaḥ pūrṇaḥ so 'sty ataḥ paraḥ
-> vṛndāvanaṁ parityajya
+> kṛṣṇo 'nyo yadu-sambhūto\
+> yaḥ pūrṇaḥ so 'sty ataḥ paraḥ\
+> vṛndāvanaṁ parityajya\
 > sa kvacin naiva gacchati
 
 *kṛṣṇaḥ*—Lord Kṛṣṇa; *anyaḥ*—another Lord Vāsudeva; *yadu-sambhūtaḥ*—born in the Yadu dynasty; *yaḥ*—who; *pūrṇaḥ*—the full Supreme Personality of Godhead, Kṛṣṇa; *saḥ*—He; *asti*—is; *ataḥ*—than Him (Vāsudeva); *paraḥ*—different; *vṛndāvanam*—he place Vṛndāvana; *parityajya*—giving up; *saḥ*—He; *kvacit*—at any time; *na eva gacchati*—does not go.

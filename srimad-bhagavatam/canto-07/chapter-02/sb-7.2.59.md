@@ -1,11 +1,11 @@
 ### SB 7.2.59
 
-> यम एतदुपाख्याय तत्रैवान्तरधीयत
+> यम एतदुपाख्याय तत्रैवान्तरधीयत\
 > ज्ञआतयो हि सुयज्ञअस्य चक्रुर्यत्साम्परायिकम ॥५९॥
 
-> yama etad upākhyāya
-> tatraivāntaradhīyata
-> jñātayo hi suyajñasya
+> yama etad upākhyāya\
+> tatraivāntaradhīyata\
+> jñātayo hi suyajñasya\
 > cakrur yat sāmparāyikam
 
 *yamaḥ*—Yamarāja in the form of a boy; *etat*—this; *upākhyāya*—instructing; *tatra*—there; *eva*—indeed; *antaradhīyata*—disappeared; *jñātayaḥ*—the relatives; *hi*—indeed; *suyajñasya*—of King Suyajña; *cakruḥ*—performed; *yat*—which is; *sāmparāyikam*—the funeral ceremony.

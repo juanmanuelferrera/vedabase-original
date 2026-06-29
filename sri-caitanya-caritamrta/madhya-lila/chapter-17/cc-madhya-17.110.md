@@ -1,9 +1,9 @@
 ### CC Madhya 17.110
 
-> ‘মহাভাগবত’-লক্ষণ শুনি ভাগবতে ।
+> ‘মহাভাগবত’-লক্ষণ শুনি ভাগবতে ।\
 > সে-সব লক্ষণ প্রকট দেখিয়ে তাঁহাতে ॥১১০॥
 
-> 'mahā-bhāgavata'-lakṣaṇa śuni bhāgavate
+> 'mahā-bhāgavata'-lakṣaṇa śuni bhāgavate\
 > se-saba lakṣaṇa prakaṭa dekhiye tāṅhāte
 
 *mahā-bhāgavata*—of a first-class devotee; *lakṣaṇa*—symptoms; *śuni*—we hear; *bhāgavate*—in *Śrīmad-Bhāgavatam*; *se-saba lakṣaṇa*—all those symptoms; *prakaṭa*—manifest; *dekhiye*—I see; *tāṅhāte*—in Him.

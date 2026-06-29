@@ -1,13 +1,13 @@
 ### SB 4.9.30
 
-> ध्रुव उवाच
-> समाधिना नैकभवेन यत्पदं विदुः सनन्दादय ऊर्ध्वरेतसः ।
+> ध्रुव उवाच\
+> समाधिना नैकभवेन यत्पदं विदुः सनन्दादय ऊर्ध्वरेतसः ।\
 > मासैरहं षड्भिरमुष्य पादयोश्छायामुपेत्यापगतः पृथङ्मतिः ॥३०॥
 
-> dhruva uvāca
-> samādhinā naika-bhavena yat padaṁ
-> viduḥ sanandādaya ūrdhva-retasaḥ
-> māsair ahaṁ ṣaḍbhir amuṣya pādayoś
+> dhruva uvāca\
+> samādhinā naika-bhavena yat padaṁ\
+> viduḥ sanandādaya ūrdhva-retasaḥ\
+> māsair ahaṁ ṣaḍbhir amuṣya pādayoś\
 > chāyām upetyāpagataḥ pṛthaṅ-matiḥ
 
 *dhruvaḥ uvāca*—Dhruva Mahārāja dijo; *samādhinā*—con la práctica del *yoga* en trance; *na*—nunca; *eka-bhavena*—en una vida; *yat*—la cual; *padam*—posición; *viduḥ*—entendida; *sananda-ādayaḥ*—los cuatro *brahmacārīs* encabezados por Sanandana; *ūrdhva-retasaḥ*—célibes infalibles; *māsaiḥ*—en meses; *aham*—yo; *ṣaḍbhiḥ*—seis; *amuṣya*—de Él; *pādayoḥ*—de los pies de loto; *chāyām*—refugio; *upetya*—alcanzar; *apagataḥ*—caí; *pṛthak-matiḥ*—mi mente fija en cosas aparte del Señor.

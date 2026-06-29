@@ -1,11 +1,11 @@
 ### SB 3.24.9
 
-> तत्कर्दमाश्रमपदं सरस्वत्या परिश्रितम् ।
+> तत्कर्दमाश्रमपदं सरस्वत्या परिश्रितम् ।\
 > स्वयम्भूः साकमृषिभिर्मरीच्यादिभिरभ्ययात् ॥९॥
 
-> tat kardamāśrama-padaṁ
-> sarasvatyā pariśritam
-> svayambhūḥ sākam ṛṣibhir
+> tat kardamāśrama-padaṁ\
+> sarasvatyā pariśritam\
+> svayambhūḥ sākam ṛṣibhir\
 > marīcy-ādibhir abhyayāt
 
 *tat*—that; *kardama*—of Kardama; *āśrama-padam*—to the place of the hermitage; *sarasvatyā*—by the River Sarasvatī; *pariśritam*—surrounded; *svayambhūḥ*—Brahmā (the self-born); *sākam*—along with; *ṛṣibhiḥ*—the sages; *marīci*—the great sage Marīci; *ādibhiḥ*—and others; *abhyayāt*—he came there.

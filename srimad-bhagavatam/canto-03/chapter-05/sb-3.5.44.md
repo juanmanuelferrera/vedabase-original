@@ -1,11 +1,11 @@
 ### SB 3.5.44
 
-> यत्सानुबन्धेऽसति देहगेहे ममाहमित्यूढदुराग्रहाणाम् ।
+> यत्सानुबन्धेऽसति देहगेहे ममाहमित्यूढदुराग्रहाणाम् ।\
 > पुंसां सुदूरं वसतोऽपि पुर्यां भजेम तत्ते भगवन्पदाब्जम् ॥४४॥
 
-> yat sānubandhe 'sati deha-gehe
-> mamāham ity ūḍha-durāgrahāṇām
-> puṁsāṁ sudūraṁ vasato 'pi puryāṁ
+> yat sānubandhe 'sati deha-gehe\
+> mamāham ity ūḍha-durāgrahāṇām\
+> puṁsāṁ sudūraṁ vasato 'pi puryāṁ\
 > bhajema tat te bhagavan padābjam
 
 *yat*—because; *sa-anubandhe*—due to becoming entangled; *asati*—thus being; *deha*—the gross material body; *gehe*—in the home; *mama*—mine; *aham*—I; *iti*—thus; *ūḍha*—great, deep; *durāgrahāṇām*—undesirable eagerness; *puṁsām*—of persons; *su-dūram*—far away; *vasataḥ*—dwelling; *api*—although; *puryām*—within the body; *bhajema*—let us worship; *tat*—therefore; *te*—Your; *bhagavan*—O Lord; *pada-abjam*—lotus feet.

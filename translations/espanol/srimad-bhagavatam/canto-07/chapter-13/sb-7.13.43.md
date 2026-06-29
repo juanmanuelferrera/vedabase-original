@@ -1,11 +1,11 @@
 ### SB 7.13.43
 
-> विकल्पं जुहुयाच्चित्तौ तां मनस्यर्थविभ्रमे
+> विकल्पं जुहुयाच्चित्तौ तां मनस्यर्थविभ्रमे\
 > मनो वैकारिके हुत्वा तं मायायां जुहोत्यनु ॥४३॥
 
-> vikalpaṁ juhuyāc cittau
-> tāṁ manasy artha-vibhrame
-> mano vaikārike hutvā
+> vikalpaṁ juhuyāc cittau\
+> tāṁ manasy artha-vibhrame\
+> mano vaikārike hutvā\
 > taṁ māyāyāṁ juhoty anu
 
 *vikalpam*—distinción (entre bueno y malo, una persona y otra, una nación y otra, y todas las distinciones de este tipo); *juhuyāt*—se deben ofrecer como oblaciones; *cittau*—en el fuego de la conciencia; *tām*—esa conciencia; *manasi*—en la mente; *artha-vibhrame*—la raíz de toda aceptación y rechazo; *manaḥ*—esa mente; *vaikārike*—en el ego falso, la identificación del propio ser con la materia; *hutvā*—ofrecer como oblaciones; *tam*—ese ego falso; *māyāyām*—en la energía material total; *juhoti*—ofrece como oblaciones; *anu*—siguiendo este principio.

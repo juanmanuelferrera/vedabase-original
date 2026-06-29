@@ -1,9 +1,9 @@
 ### CC Antya 6.79
 
-> সকল কুণ্ডীর, হোল্নার চিড়ার এক এক গ্রাস ।
+> সকল কুণ্ডীর, হোল্নার চিড়ার এক এক গ্রাস ।\
 > মহাপ্রভুর মুখে দেন করি’ পরিহাস ॥৭৯॥
 
-> sakala kuṇḍīra, holnāra ciḍāra eka eka grāsa
+> sakala kuṇḍīra, holnāra ciḍāra eka eka grāsa\
 > mahāprabhura mukhe dena kari' parihāsa
 
 *sakala kuṇḍīra*—from all the pots; *holnāra*—from the big pots; *ciḍāra*—of chipped rice; *eka eka grāsa*—one morsel; *mahāprabhura mukhe*—into the mouth of Śrī Caitanya Mahāprabhu; *dena*—puts; *kari' parihāsa*—making a joke.

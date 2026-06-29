@@ -1,9 +1,9 @@
 ### CC Adi 13.30
 
-> যারে দেখে, তারে কহে, — কহ কৃষ্ণনাম ।
+> যারে দেখে, তারে কহে, — কহ কৃষ্ণনাম ।\
 > কৃষ্ণনামে ভাসাইল নবদ্বীপ-গ্রাম ॥৩০॥
 
-> yāre dekhe, tāre kahe,—kaha kṛṣṇa-nāma
+> yāre dekhe, tāre kahe,—kaha kṛṣṇa-nāma\
 > kṛṣṇa-nāme bhāsāila navadvīpa-grāma
 
 *yāre*—whomever; *dekhe*—He sees; *tāre*—to him; *kahe*—He says; *kaha*—speak; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *kṛṣṇa-nāme*—by the holy name of Lord Kṛṣṇa; *bhāsāila*—was inundated; *navadvīpa*—the place of the name Navadvīpa; *grāma*—village.

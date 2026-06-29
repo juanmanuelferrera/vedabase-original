@@ -1,11 +1,11 @@
 ### SB 6.14.16
 
-> महर्षिस्तमुपासीनं प्रश्रयावनतं क्षितौ
+> महर्षिस्तमुपासीनं प्रश्रयावनतं क्षितौ\
 > प्रतिपूज्य महाराज समाभाष्येदमब्रवीत ॥१६॥
 
-> maharṣis tam upāsīnaṁ
-> praśrayāvanataṁ kṣitau
-> pratipūjya mahārāja
+> maharṣis tam upāsīnaṁ\
+> praśrayāvanataṁ kṣitau\
+> pratipūjya mahārāja\
 > samābhāṣyedam abravīt
 
 *mahā-ṛṣiḥ*—the great sage; *tam*—unto him (the King); *upāsīnam*—sitting near; *praśraya-avanatam*—bowing in humility; *kṣitau*—on the ground; *pratipūjya*—congratulating; *mahārāja*—O King Parīkṣit; *samābhāṣya*—addressing; *idam*—this; *abravīt*—said.

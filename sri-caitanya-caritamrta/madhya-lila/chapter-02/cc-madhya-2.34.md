@@ -1,13 +1,13 @@
 ### CC Madhya 2.34
 
-> কৃষ্ণ-কর-পদতল, কোটিচন্দ্র-সুশীতল,
-> তার স্পর্শ যেন স্পর্শমণি ।
-> তার স্পর্শ নাহি যার, সে যাউক্ ছারখার,
+> কৃষ্ণ-কর-পদতল, কোটিচন্দ্র-সুশীতল,\
+> তার স্পর্শ যেন স্পর্শমণি ।\
+> তার স্পর্শ নাহি যার, সে যাউক্ ছারখার,\
 > সেই বপু লৌহ-সম জানি ॥৩৪॥
 
-> kṛṣṇa-kara-pada-tala, koṭi-candra-suśītala,
-> tāra sparśa yena sparśa-maṇi
-> tāra sparśa nāhi yāra, se yāuk chārakhāra,
+> kṛṣṇa-kara-pada-tala, koṭi-candra-suśītala,\
+> tāra sparśa yena sparśa-maṇi\
+> tāra sparśa nāhi yāra, se yāuk chārakhāra,\
 > sei vapu lauha-sama jāni
 
 *kṛṣṇa*—of Lord Kṛṣṇa; *kara*—the palms; *pada-tala*—the soles of His feet; *koṭi-candra*—like the light of millions of moons; *su-śītala*—cool and pleasing; *tāra*—of them; *sparśa*—the touch; *yena*—like; *sparśa-maṇi*—touchstone; *tāra*—his; *sparśa*—touch; *nāhi*—not; *yāra*—of whom; *se*—that person; *yāuk*—let him go; *chārakhāra*—to ruin; *sei vapu*—that body; *lauha-sama*—like iron; *jāni*—I know.

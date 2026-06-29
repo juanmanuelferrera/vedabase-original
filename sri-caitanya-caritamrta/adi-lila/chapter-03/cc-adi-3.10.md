@@ -1,9 +1,9 @@
 ### CC Adi 3.10
 
-> অষ্টাবিংশ চতুর্যুগে দ্বাপরের শেষে ।
+> অষ্টাবিংশ চতুর্যুগে দ্বাপরের শেষে ।\
 > ব্রজের সহিতে হয় কৃষ্ণের প্রকাশে ॥১০॥
 
-> aṣṭāviṁśa catur-yuge dvāparera śeṣe
+> aṣṭāviṁśa catur-yuge dvāparera śeṣe\
 > vrajera sahite haya kṛṣṇera prakāśe
 
 *aṣṭāviṁśa*—twenty-eighth; *catuḥ-yuge*—in the cycle of four ages; *dvāparera*—of the Dvāpara-yuga; *śeṣe*—at the end; *vrajera sahite*—along with Vraja; *haya*—is; *kṛṣṇera*—of Lord Kṛṣṇa; *prakāśe*—manifestation.

@@ -1,11 +1,11 @@
 ### SB 8.5.28
 
-> अजस्य चक्रं त्वजयेर्यमाणं मनोमयं पञ्चदशारमाशु
+> अजस्य चक्रं त्वजयेर्यमाणं मनोमयं पञ्चदशारमाशु\
 > त्रिनाभि विद्युच्चलमष्टनेमि यदक्षमाहुस्तमृतं प्रपद्ये ॥२८॥
 
-> ajasya cakraṁ tv ajayeryamāṇaṁ
-> manomayaṁ pañcadaśāram āśu
-> tri-nābhi vidyuc-calam aṣṭa-nemi
+> ajasya cakraṁ tv ajayeryamāṇaṁ\
+> manomayaṁ pañcadaśāram āśu\
+> tri-nābhi vidyuc-calam aṣṭa-nemi\
 > yad-akṣam āhus tam ṛtaṁ prapadye
 
 *ajasya*—of the living being; *cakram*—the wheel (the cycle of birth and death in this material world); *tu*—but; *ajayā*—by the external energy of the Supreme Lord; *īryamāṇam*—going around with great force; *manaḥ-mayam*—which is nothing but a mental creation depending chiefly on the mind; *pañcadaśa*—fifteen; *aram*—possessing spokes; *āśu*—very quick; *tri-nābhi*—having three naves (the three modes of material nature); *vidyut*—like electricity; *calam*—moving; *aṣṭa-nemi*—made of eight fellies (the eight external energies of the Lord—*bhūmir āpo 'nalo vāyuḥ,* etc.); *yat*—who; *akṣam*—the hub; *āhuḥ*—they say; *tam*—unto Him; *ṛtam*—the fact; *prapadye*—let us offer our respectful obeisances.

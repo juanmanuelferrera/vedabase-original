@@ -1,11 +1,11 @@
 ### SB 1.8.45
 
-> तां बाढमित्युपामन्त्र्य प्रविश्य गजसाह्वयम् ।
+> तां बाढमित्युपामन्त्र्य प्रविश्य गजसाह्वयम् ।\
 > स्त्रियश्च स्वपुरं यास्यन्प्रेम्णा राज्ञा निवारितः ॥४५॥
 
-> tāṁ bāḍham ity upāmantrya
-> praviśya gajasāhvayam
-> striyaś ca sva-puraṁ yāsyan
+> tāṁ bāḍham ity upāmantrya\
+> praviśya gajasāhvayam\
+> striyaś ca sva-puraṁ yāsyan\
 > premṇā rājñā nivāritaḥ
 
 *tām*—all those; *bāḍham*—accepted; *iti*—thus; *upāmantrya*—subsequently informed; *praviśya*—entering; *gajasāhvayam*—the palace of Hastināpura; *striyaḥ ca*—other ladies; *sva-puram*—own residence; *yāsyan*—while starting for; *premṇā*—with love; *rājñā*—by the King; *nivāritaḥ*—stopped.

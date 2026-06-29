@@ -1,11 +1,11 @@
 ### SB 8.4.15
 
-> यथानुकीर्तयन्त्येतच्छ्रेयस्कामा द्विजातयः
+> यथानुकीर्तयन्त्येतच्छ्रेयस्कामा द्विजातयः\
 > शुचयः प्रातरुत्थाय दुःस्वप्नाद्युपशान्तये ॥१५॥
 
-> yathānukīrtayanty etac
-> chreyas-kāmā dvijātayaḥ
-> śucayaḥ prātar utthāya
+> yathānukīrtayanty etac\
+> chreyas-kāmā dvijātayaḥ\
+> śucayaḥ prātar utthāya\
 > duḥsvapnādy-upaśāntaye
 
 *yathā*—without deviation; *anukīrtayanti*—they chant; *etat*—this narration of the deliverance of Gajendra; *śreyaḥ-kāmāḥ*—persons who desire their own auspiciousness; *dvi-jātayaḥ*—the twice-born (*brāhmaṇas, kṣatriyas* and *vaiśyas*); *śucayaḥ*—especially the *brāhmaṇas,* who are always clean; *prātaḥ*—in the morning; *utthāya*—after getting up from sleep; *duḥsvapna-ādi*—beginning with sleeping badly at night; *upaśāntaye*—to counteract all troublesome positions.

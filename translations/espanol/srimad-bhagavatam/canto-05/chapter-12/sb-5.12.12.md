@@ -1,11 +1,11 @@
 ### SB 5.12.12
 
-> रहूगणैतत्तपसा न याति न चेज्यया निर्वपणाद्गृहाद्वा
+> रहूगणैतत्तपसा न याति न चेज्यया निर्वपणाद्गृहाद्वा\
 > न च्छन्दसा नैव जलाग्निसूर्यैर्विना महत्पादरजोऽभिषेकम ॥१२॥
 
-> rahūgaṇaitat tapasā na yāti
-> na cejyayā nirvapaṇād gṛhād vā
-> na cchandasā naiva jalāgni-sūryair
+> rahūgaṇaitat tapasā na yāti\
+> na cejyayā nirvapaṇād gṛhād vā\
+> na cchandasā naiva jalāgni-sūryair\
 > vinā mahat-pāda-rajo-'bhiṣekam
 
 *rahūgaṇa*—¡oh, rey Rahūgaṇa!; *etat*—este conocimiento; *tapasā*—con severas austeridades y penitencias; *na yāti*—no es revelado; *na*—no; *ca*—también; *ijyayā*—con una espléndida adoración de la Deidad; *nirvapaṇāt*—o de poner fin a todos los deberes materiales y entrar en la orden de *sannyāsa*; *gṛhāt*—de la vida de casado ideal; *vā*—o; *na*—ni; *chandasā*—por observar celibato o estudiar las Escrituras védicas; *na eva*—ni; *jala-agni-sūryaiḥ*—por severas austeridades, como permanecer bajo el agua, en un fuego ardiente o bajo un sol abrasador; *vinā*—sin; *mahat*—de los grandes devotos; *pāda-rajaḥ*—el polvo de los pies de loto; *abhiṣekam*—ungir todo el cuerpo.

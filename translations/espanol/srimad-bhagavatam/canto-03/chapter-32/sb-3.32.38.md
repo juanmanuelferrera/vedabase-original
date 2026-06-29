@@ -1,11 +1,11 @@
 ### SB 3.32.38
 
-> जीवस्य संसृतीर्बह्वीरविद्याकर्मनिर्मिताः ।
+> जीवस्य संसृतीर्बह्वीरविद्याकर्मनिर्मिताः ।\
 > यास्वङ्ग प्रविशन्नात्मा न वेद गतिमात्मनः ॥३८॥
 
-> jīvasya saṁsṛtīr bahvīr
-> avidyā-karma-nirmitāḥ
-> yāsv aṅga praviśann ātmā
+> jīvasya saṁsṛtīr bahvīr\
+> avidyā-karma-nirmitāḥ\
+> yāsv aṅga praviśann ātmā\
 > na veda gatim ātmanaḥ
 
 *jīvasya*—de la entidad viviente; *saṁsṛtīḥ*—rumbos de la existencia material; *bahvīḥ*—muchos; *avidyā*—influenciada por la ignorancia; *karma*—por la actividad; *nirmitāḥ*—producidos; *yāsu*—en los cuales; *aṅga*—Mi querida madre; *praviśan*—entrar; *ātmā*—la entidad viviente; *na*—no; *veda*—entiende; *gatim*—el movimiento; *ātmanaḥ*—de sí misma.

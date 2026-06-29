@@ -1,11 +1,11 @@
 ### CC Madhya 21.1
 
-> অগত্যেকগতিং নত্বা হীনার্থাধিকসাধকম্ ।
+> অগত্যেকগতিং নত্বা হীনার্থাধিকসাধকম্ ।\
 > শ্রীচৈতন্যং লিখাম্যস্য মাধুর্যৈশ্বর্য-শীকরম্ ॥১॥
 
-> agaty-eka-gatiṁ natvā
-> hīnārthādhika-sādhakam
-> śrī-caitanyaṁ likhāmy asya
+> agaty-eka-gatiṁ natvā\
+> hīnārthādhika-sādhakam\
+> śrī-caitanyaṁ likhāmy asya\
 > mādhuryaiśvarya-śīkaram
 
 *agati-eka-gatim*—to the only shelter for the conditioned souls who do not know the goal of life; *natvā*—offering obeisances; *hīna-artha*—of the necessities of the conditioned souls, who are poor in spiritual knowledge; *adhika*—increase; *sādhakam*—bringing about; *śrī-caitanyam*—unto Lord Śrī Caitanya Mahāprabhu; *likhāmi*—I am writing; *asya*—of Him; *mādhurya-aiśvarya*—of the sweetness and opulence; *śīkaram*—a small portion.

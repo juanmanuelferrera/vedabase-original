@@ -1,11 +1,11 @@
 ### SB 9.4.62
 
-> अजानता ते परमानुभावं कृतं मयाघं भवतः प्रियाणाम
+> अजानता ते परमानुभावं कृतं मयाघं भवतः प्रियाणाम\
 > विधेहि तस्यापचितिं विधातर्मुच्येत यन्नाम्न्युदिते नारकोऽपि ॥६२॥
 
-> ajānatā te paramānubhāvaṁ
-> kṛtaṁ mayāghaṁ bhavataḥ priyāṇām
-> vidhehi tasyāpacitiṁ vidhātar
+> ajānatā te paramānubhāvaṁ\
+> kṛtaṁ mayāghaṁ bhavataḥ priyāṇām\
+> vidhehi tasyāpacitiṁ vidhātar\
 > mucyeta yan-nāmny udite nārako 'pi
 
 *ajānatā*—sin conocimiento; *te*—de Tu Señoría; *parama-anubhāvam*—el inconcebible poderío; *kṛtam*—cometida; *mayā*—por mí; *agham*—una gran ofensa; *bhavataḥ*—de Tu Señoría; *priyāṇām*—a los pies de los devotos; *vidhehi*—ten ahora la bondad de hacer lo necesario; *tasya*—de semejante ofensa; *apacitim*—neutralización; *vidhātaḥ*—¡oh, controlador supremo!; *mucyeta*—puede ser liberado; *yat*—de cuya; *nāmni*—cuando el nombre; *udite*—despierta; *nārakaḥ api*—hasta una persona que merece el infierno.

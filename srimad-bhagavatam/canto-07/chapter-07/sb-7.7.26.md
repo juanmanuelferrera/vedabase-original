@@ -1,11 +1,11 @@
 ### SB 7.7.26
 
-> एभिस्त्रिवर्णैः पर्यस्तैर्बुद्धिभेदैः क्रियोद्भवैः
+> एभिस्त्रिवर्णैः पर्यस्तैर्बुद्धिभेदैः क्रियोद्भवैः\
 > स्वरूपमात्मनो बुध्येद्गन्धैर्वायुमिवान्वयात ॥२६॥
 
-> ebhis tri-varṇaiḥ paryastair
-> buddhi-bhedaiḥ kriyodbhavaiḥ
-> svarūpam ātmano budhyed
+> ebhis tri-varṇaiḥ paryastair\
+> buddhi-bhedaiḥ kriyodbhavaiḥ\
+> svarūpam ātmano budhyed\
 > gandhair vāyum ivānvayāt
 
 *ebhiḥ*—by these; *tri-varṇaiḥ*—composed of the three modes of nature; *paryastaiḥ*—completely rejected (due to not touching the living force); *buddhi*—of intelligence; *bhedaiḥ*—the differentiations; *kriyā-udbhavaiḥ*—produced from different activities; *svarūpam*—the constitutional position; *ātmanaḥ*—of the self; *budhyet*—one should understand; *gandhaiḥ*—by the aromas; *vāyum*—the air; *iva*—exactly like; *anvayāt*—from close connection.

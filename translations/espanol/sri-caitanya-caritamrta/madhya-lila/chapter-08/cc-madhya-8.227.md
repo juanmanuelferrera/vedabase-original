@@ -1,11 +1,11 @@
 ### CC Madhya 8.227
 
-> নায়ং সুখাপো ভগবান্ দেহিনাং গোপিকাসুতঃ ৷
+> নায়ং সুখাপো ভগবান্ দেহিনাং গোপিকাসুতঃ ৷\
 > জ্ঞানিনাঞ্চাত্মভূতানাং যথা ভক্তিমতামিহ ৷৷ ২২৭ ৷৷ ॥২২৭॥
 
-> nāyaṁ sukhāpo bhagavān
-> dehināṁ gopikā-sutaḥ
-> jñānināṁ cātma-bhūtānāṁ
+> nāyaṁ sukhāpo bhagavān\
+> dehināṁ gopikā-sutaḥ\
+> jñānināṁ cātma-bhūtānāṁ\
 > yathā bhakti-matām iha
 
 *na*—no; *ayam*—este Señor Śrī Kṛṣṇa; *sukha-āpaḥ*—fácilmente accesible; *bhagavān*—la Suprema Personalidad de Dios; *dehinām*—para las personas materialistas que han aceptado el cuerpo como el ser; *gopikā-sutaḥ*—el hijo de la madre Yaśodā; *jñāninām*—para las personas adictas a la especulación mental; *ca*—y; *ātma-bhūtānām*—para las personas que realizan austeridades y penitencias severas; *yathā*—como; *bhakti-matām*—para las personas dedicadas al servicio devocional espontáneo; *iha*—en este mundo.

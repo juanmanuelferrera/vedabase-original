@@ -1,11 +1,11 @@
 ### SB 3.31.31
 
-> तदर्थं कुरुते कर्म यद्बद्धो याति संसृतिम् ।
+> तदर्थं कुरुते कर्म यद्बद्धो याति संसृतिम् ।\
 > योऽनुयाति ददत्क्लेशमविद्याकर्मबन्धनः ॥३१॥
 
-> tad-arthaṁ kurute karma
-> yad-baddho yāti saṁsṛtim
-> yo 'nuyāti dadat kleśam
+> tad-arthaṁ kurute karma\
+> yad-baddho yāti saṁsṛtim\
+> yo 'nuyāti dadat kleśam\
 > avidyā-karma-bandhanaḥ
 
 *tat-artham*—for the sake of the body; *kurute*—he performs; *karma*—actions; *yat-baddhaḥ*—bound by which; *yāti*—he goes; *saṁsṛtim*—to repeated birth and death; *yaḥ*—which body; *anuyāti*—follows; *dadat*—giving; *kleśam*—misery; *avidyā*—by ignorance; *karma*—by fruitive activities; *bandhanaḥ*—the cause of bondage.

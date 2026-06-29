@@ -1,9 +1,9 @@
 ### CC Madhya 20.123
 
-> ‘শাস্ত্র-গুরু-আত্ম’-রূপে আপনারে জানান ।
+> ‘শাস্ত্র-গুরু-আত্ম’-রূপে আপনারে জানান ।\
 > ‘কৃষ্ণ মোর প্রভু, ত্রাতা’ — জীবের হয় জ্ঞান ॥১২৩॥
 
-> 'śāstra-guru-ātma'-rūpe āpanāre jānāna
+> 'śāstra-guru-ātma'-rūpe āpanāre jānāna\
 > 'kṛṣṇa mora prabhu, trātā'—jīvera haya jñāna
 
 *śāstra-guru-ātma-rūpe*—in the form of Vedic literature, the spiritual master and the Supersoul; *āpanāre jānāna*—informs about Himself; *kṛṣṇa*—Lord Kṛṣṇa; *mora*—my; *prabhu*—Lord; *trātā*—deliver; *jīvera*—of the conditioned soul; *haya*—there is; *jñāna*—knowledge.

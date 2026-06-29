@@ -1,9 +1,9 @@
 ### CC Madhya 9.63
 
-> এইরূপে কৌতুক করি’ শচীর নন্দন ।
+> এইরূপে কৌতুক করি’ শচীর নন্দন ।\
 > অন্তর্ধান কৈল, কেহ না পায় দর্শন ॥৬৩॥
 
-> ei-rūpe kautuka kari' śacīra nandana
+> ei-rūpe kautuka kari' śacīra nandana\
 > antardhāna kaila, keha nā pāya darśana
 
 *ei-rūpe*—in this way; *kautuka kari'*—making fun; *śacīra nandana*—the son of mother Śacī; *antardhāna kaila*—disappeared; *keha*—anyone; *nā*—does not; *pāya*—get; *darśana*—audience.

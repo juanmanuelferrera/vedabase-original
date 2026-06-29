@@ -1,11 +1,11 @@
 ### SB 7.10.64
 
-> स्मयन्विशोकः शोकार्तान्स्मरन्दैवगतिं च ताम
+> स्मयन्विशोकः शोकार्तान्स्मरन्दैवगतिं च ताम\
 > देवोऽसुरो नरोऽन्यो वा नेश्वरोऽस्तीह कश्चन ॥६४॥
 
-> devo 'suro naro 'nyo vā
-> neśvaro 'stīha kaścana
-> ātmano 'nyasya vā diṣṭaṁ
+> devo 'suro naro 'nyo vā\
+> neśvaro 'stīha kaścana\
+> ātmano 'nyasya vā diṣṭaṁ\
 > daivenāpohituṁ dvayoḥ
 
 *devaḥ*—the demigods; *asuraḥ*—the demons; *naraḥ*—humans; *anyaḥ*—or anyone else; *vā*—either; *na*—not; *īśvaraḥ*—the supreme controller; *asti*—is; *iha*—in this world; *kaścana*—anyone; *ātmanaḥ*—one's own; *anyasya*—another's; *vā*—either; *diṣṭam*—destiny; *daivena*—which is given by the Supreme Lord; *apohitum*—to undo; *dvayoḥ*—of both of them.

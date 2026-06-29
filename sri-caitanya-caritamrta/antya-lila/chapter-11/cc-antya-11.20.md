@@ -1,9 +1,9 @@
 ### CC Antya 11.20
 
-> এত বলি’ মহাপ্রসাদ করিলা বন্দন ।
+> এত বলি’ মহাপ্রসাদ করিলা বন্দন ।\
 > এক রঞ্চ লঞা তার করিলা ভক্ষণ ॥২০॥
 
-> eta bali' mahā-prasāda karilā vandana
+> eta bali' mahā-prasāda karilā vandana\
 > eka rañca lañā tāra karilā bhakṣaṇa
 
 *eta bali'*—saying this; *mahā-prasāda*—to the *mahā-prasāda*; *karilā vandana*—he offered respect; *eka rañca*—one fractional part; *lañā*—taking; *tāra karilā bhakṣaṇa*—ate it.

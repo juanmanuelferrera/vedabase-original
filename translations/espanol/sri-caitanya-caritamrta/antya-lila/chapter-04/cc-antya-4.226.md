@@ -1,9 +1,9 @@
 ### CC Antya 4.226
 
-> ‘দানকেলিকৌমুদী’ আদি লক্ষগ্রন্থ কৈল ।
+> ‘দানকেলিকৌমুদী’ আদি লক্ষগ্রন্থ কৈল ।\
 > সেই সব গ্রন্থে ব্রজের রস বিচারিল ॥২২৬॥
 
-> 'dāna-keli-kaumudī' ādi lakṣa-grantha kaila
+> 'dāna-keli-kaumudī' ādi lakṣa-grantha kaila\
 > sei saba granthe vrajera rasa vicārila
 
 *dāna-keli-kaumudī*—el libro llamado Dāna-keli-kaumudī; *ādi*—comenzando con; *lakṣa*—100.000; *grantha*—versos; *kaila*—compiló; *sei*—esos; *saba*—todos; *granthe*—en las escrituras; *vrajera*—de Vṛndāvana; *rasa vicārila*—explicó detalladamente los mellows trascendentales.

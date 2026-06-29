@@ -1,11 +1,11 @@
 ### Bg 9.30
 
-> अपि चेत्सुदुराचारो भजते मामनन्यभाक् ।
+> अपि चेत्सुदुराचारो भजते मामनन्यभाक् ।\
 > साधुरेव स मन्तव्यः सम्यग्व्यवसितो हि सः ॥३०॥
 
-> api cet su-durācāro
-> bhajate mām ananya-bhāk
-> sādhur eva sa mantavyaḥ
+> api cet su-durācāro\
+> bhajate mām ananya-bhāk\
+> sādhur eva sa mantavyaḥ\
 > samyag vyavasito hi saḥ
 
 *api*—in spite of; *cet*—although; *sudurācāraḥ*—one committing the most abominable actions; *bhajate*—engaged in devotional service; *mām*—unto Me; *ananya-bhāk*—without deviation; *sādhuḥ*—saint; *eva*—certainly; *saḥ*—he; *mantavyaḥ*—to be considered; *samyak*—completely; *vyavasitaḥ*—situated; *hi*—certainly; *saḥ*—he.

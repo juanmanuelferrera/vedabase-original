@@ -1,9 +1,9 @@
 ### CC Madhya 8.76
 
-> প্রভু কহে, — “এহো উত্তম, আগে কহ আর ।”
+> প্রভু কহে, — “এহো উত্তম, আগে কহ আর ।”\
 > রায় কহে, “বাৎসল্য-প্রেম — সর্বসাধ্যসার ।।” ॥৭৬॥
 
-> prabhu kahe,—"eho uttama, āge kaha āra"
+> prabhu kahe,—"eho uttama, āge kaha āra"\
 > rāya kahe, "vātsalya-prema—sarva-sādhya-sāra"
 
 *prabhu kahe*—the Lord said; *eho uttama*—it is very good; *āge*—still further; *kaha*—speak; *āra*—more; *rāya kahe*—Rāya replied; *vātsalya-prema*—loving service to the Lord in the stage of paternal love; *sarva-sādhya-sāra*—the highest perfectional stage.

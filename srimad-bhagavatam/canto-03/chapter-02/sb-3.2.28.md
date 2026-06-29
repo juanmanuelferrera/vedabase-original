@@ -1,11 +1,11 @@
 ### SB 3.2.28
 
-> कौमारीं दर्शयंश्चेष्टां प्रेक्षणीयां व्रजौकसाम् ।
+> कौमारीं दर्शयंश्चेष्टां प्रेक्षणीयां व्रजौकसाम् ।\
 > रुदन्निव हसन्मुग्ध बालसिंहावलोकनः ॥२८॥
 
-> kaumārīṁ darśayaṁś ceṣṭāṁ
-> prekṣaṇīyāṁ vrajaukasām
-> rudann iva hasan mugdha-
+> kaumārīṁ darśayaṁś ceṣṭāṁ\
+> prekṣaṇīyāṁ vrajaukasām\
+> rudann iva hasan mugdha-\
 > bāla-siṁhāvalokanaḥ
 
 *kaumārīm*—just suitable to childhood; *darśayan*—while showing; *ceṣṭām*—activities; *prekṣaṇīyām*—worthy to be seen; *vraja-okasām*—by the inhabitants of the land of Vṛndāvana; *rudan*—crying; *iva*—just like; *hasan*—laughing; *mugdha*—struck with wonder; *bāla-siṁha*—lion cub; *avalokanaḥ*—looking like that.

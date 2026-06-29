@@ -1,11 +1,11 @@
 ### SB 3.12.41
 
-> विद्या दानं तपः सत्यं धर्मस्येति पदानि च ।
+> विद्या दानं तपः सत्यं धर्मस्येति पदानि च ।\
 > आश्रमांश्च यथासङ्ख्यमसृजत्सह वृत्तिभिः ॥४१॥
 
-> vidyā dānaṁ tapaḥ satyaṁ
-> dharmasyeti padāni ca
-> āśramāṁś ca yathā-saṅkhyam
+> vidyā dānaṁ tapaḥ satyaṁ\
+> dharmasyeti padāni ca\
+> āśramāṁś ca yathā-saṅkhyam\
 > asṛjat saha vṛttibhiḥ
 
 *vidyā*—educación; *dānam*—caridad; *tapaḥ*—penitencia; *satyam*—veracidad; *dharmasya*—de la religión; *iti*—de este modo; *padāni*—cuatro piernas; *ca*—también; *āśramān*—órdenes de vida; *ca*—también; *yathā*—tal y como son; *saṅkhyam*—en número; *asṛjat*—creó; *saha*—junto con; *vṛttibhiḥ*—por vocaciones.

@@ -1,18 +1,18 @@
 ### SB 4.1.46-47
 
-> त एते मुनयः क्षत्तर्लोकान्सर्गैरभावयन् ।
-> एष कर्दमदौहित्र सन्तानः कथितस्तव ॥४६॥
-> शृण्वतः श्रद्दधानस्य सद्यः पापहरः परः ।
+> त एते मुनयः क्षत्तर्लोकान्सर्गैरभावयन् ।\
+> एष कर्दमदौहित्र सन्तानः कथितस्तव ॥४६॥\
+> शृण्वतः श्रद्दधानस्य सद्यः पापहरः परः ।\
 > प्रसूतिं मानवीं दक्ष उपयेमे ह्यजात्मजः ॥४७॥
 
-> ta ete munayaḥ kṣattar
-> lokān sargair abhāvayan
-> eṣa kardama-dauhitra-
+> ta ete munayaḥ kṣattar\
+> lokān sargair abhāvayan\
+> eṣa kardama-dauhitra-\
 > santānaḥ kathitas tava
 
-> śṛṇvataḥ śraddadhānasya
-> sadyaḥ pāpa-haraḥ paraḥ
-> prasūtiṁ mānavīṁ dakṣa
+> śṛṇvataḥ śraddadhānasya\
+> sadyaḥ pāpa-haraḥ paraḥ\
+> prasūtiṁ mānavīṁ dakṣa\
 > upayeme hy ajātmajaḥ
 
 *te*—ellos; *ete*—todos; *munayaḥ*—grandes sabios; *kṣattaḥ*—¡oh, Vidura!; *lokān*—los tres mundos; *sargaiḥ*—con sus descendientes; *abhāvayan*—llenaron; *eṣaḥ*—esta; *kardama*—del sabio Kardama; *dauhitra*—nietos; *santānaḥ*—descendencia; *kathitaḥ*—ya narrada; *tava*—a ti; *śṛṇvataḥ*—escuchar; *śraddadhānasya*—de los fieles; *sadyaḥ*—inmediatamente; *pāpa-haraḥ*—reducir todas las actividades pecaminosas; *paraḥ*—grandes; *prasūtim*—Prasūti; *mānavīm*—hija de Manu; *dakṣaḥ*—el rey Dakṣa; *upayeme*—se casó con; *hi*—ciertamente; *aja-ātmajaḥ*—hijo de Brahmā.

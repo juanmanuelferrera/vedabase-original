@@ -1,11 +1,11 @@
 ### SB 4.20.38
 
-> अदृष्टाय नमस्कृत्य नृपः सन्दर्शितात्मने ।
+> अदृष्टाय नमस्कृत्य नृपः सन्दर्शितात्मने ।\
 > अव्यक्ताय च देवानां देवाय स्वपुरं ययौ ॥३८॥
 
-> adṛṣṭāya namaskṛtya
-> nṛpaḥ sandarśitātmane
-> avyaktāya ca devānāṁ
+> adṛṣṭāya namaskṛtya\
+> nṛpaḥ sandarśitātmane\
+> avyaktāya ca devānāṁ\
 > devāya sva-puraṁ yayau
 
 *adṛṣṭāya*—unto one who is beyond the purview of material vision; *namaḥ-kṛtya*—offering obeisances; *nṛpaḥ*—the King; *sandarśita*—revealed; *ātmane*—unto the Supreme Soul; *avyaktāya*—who is beyond the manifestation of the material world; *ca*—also; *devānām*—of the demigods; *devāya*—unto the Supreme Lord; *sva-puram*—to his own house; *yayau*—returned.

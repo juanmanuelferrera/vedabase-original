@@ -1,11 +1,11 @@
 ### SB 4.1.6
 
-> तां कामयानां भगवानुवाह यजुषां पतिः ।
+> तां कामयानां भगवानुवाह यजुषां पतिः ।\
 > तुष्टायां तोषमापन्नोऽ जनयद्द्वादशात्मजान् ॥६॥
 
-> tāṁ kāmayānāṁ bhagavān
-> uvāha yajuṣāṁ patiḥ
-> tuṣṭāyāṁ toṣam āpanno
+> tāṁ kāmayānāṁ bhagavān\
+> uvāha yajuṣāṁ patiḥ\
+> tuṣṭāyāṁ toṣam āpanno\
 > 'janayad dvādaśātmajān
 
 *tām*—a ella; *kāmayānām*—deseando; *bhagavān*—el Señor; *uvāha*—Se casó; *yajuṣām*—de los sacrificios; *patiḥ*—amo; *tuṣṭāyām*—en Su esposa, que estaba muy complacida; *toṣam*—gran placer; *āpannaḥ*—habiendo obtenido; *ajanayat*—engendró; *dvādaśa*—a doce; *ātmajān*—hijos.

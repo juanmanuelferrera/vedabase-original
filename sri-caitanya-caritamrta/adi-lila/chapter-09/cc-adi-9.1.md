@@ -1,11 +1,11 @@
 ### CC Adi 9.1
 
-> তং শ্রীমৎকৃষ্ণচৈতন্যদেবং বন্দে জগদ্গুরুম্ ।
+> তং শ্রীমৎকৃষ্ণচৈতন্যদেবং বন্দে জগদ্গুরুম্ ।\
 > যস্যানুকম্পয়া শ্বাপি মহাব্ধিং সন্তরেৎ সুখম্ ॥১॥
 
-> taṁ śrīmat-kṛṣṇa-caitanya-
-> devaṁ vande jagad-gurum
-> yasyānukampayā śvāpi
+> taṁ śrīmat-kṛṣṇa-caitanya-\
+> devaṁ vande jagad-gurum\
+> yasyānukampayā śvāpi\
 > mahābdhiṁ santaret sukham
 
 *tam*—unto Him; *śrīmat*—with all opulence; *kṛṣṇa-caitanya-devam*—unto Lord Kṛṣṇa Caitanyadeva; *vande*—I offer obeisances; *jagat-gurum*—spiritual master of the world; *yasya*—whose; *anukampayā*—by the mercy of; *śvā api*—even a dog; *mahā-abdhīm*—great ocean; *santaret*—can swim; *sukham*—without difficulty.

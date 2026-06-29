@@ -1,18 +1,18 @@
 ### SB 5.11.13-14
 
-> क्षेत्रज्ञअ आत्मा पुरुषः पुराणः साक्षात्स्वयं ज्योतिरजः परेशः
-> नारायणो भगवान्वासुदेवः स्वमाययात्मन्यवधीयमानः ॥१३॥
-> यथानिलः स्थावरजङ्गमानामात्मस्वरूपेण निविष्ट ईशेत
+> क्षेत्रज्ञअ आत्मा पुरुषः पुराणः साक्षात्स्वयं ज्योतिरजः परेशः\
+> नारायणो भगवान्वासुदेवः स्वमाययात्मन्यवधीयमानः ॥१३॥\
+> यथानिलः स्थावरजङ्गमानामात्मस्वरूपेण निविष्ट ईशेत\
 > एवं परो भगवान्वासुदेवः क्षेत्रज्ञअ आत्मेदमनुप्रविष्टः ॥१४॥
 
-> kṣetrajña ātmā puruṣaḥ purāṇaḥ
-> sākṣāt svayaṁ jyotir ajaḥ pareśaḥ
-> nārāyaṇo bhagavān vāsudevaḥ
+> kṣetrajña ātmā puruṣaḥ purāṇaḥ\
+> sākṣāt svayaṁ jyotir ajaḥ pareśaḥ\
+> nārāyaṇo bhagavān vāsudevaḥ\
 > sva-māyayātmany avadhīyamānaḥ
 
-> yathānilaḥ sthāvara-jaṅgamānām
-> ātma-svarūpeṇa niviṣṭa īśet
-> evaṁ paro bhagavān vāsudevaḥ
+> yathānilaḥ sthāvara-jaṅgamānām\
+> ātma-svarūpeṇa niviṣṭa īśet\
+> evaṁ paro bhagavān vāsudevaḥ\
 > kṣetrajña ātmedam anupraviṣṭaḥ
 
 *kṣetra-jñaḥ*—the Supreme Personality of Godhead; *ātmā*—all-pervading, present everywhere; *puruṣaḥ*—the unrestricted controller, who has unlimited power; *purāṇaḥ*—the original; *sākṣāt*—perceivable by hearing from the authorities and by direct perception; *svayam*—personal; *jyotiḥ*—manifesting His bodily rays (the Brahman effulgence); *ajaḥ*—never born; *pareśaḥ*—the Supreme Personality of Godhead; *nārāyaṇaḥ*—the resting place of all living entities; *bhagavān*—the Personality of Godhead with six full opulences; *vāsudevaḥ*—the shelter of everything, manifested and nonmanifest; *sva-māyayā*—by His own potency; *ātmani*—in His own self, or in the ordinary living entities; *avadhīyamānaḥ*—existing as the controller; *yathā*—as much as; *anilaḥ*—the air; *sthāvara*—of nonmoving living entities; *jaṅgamānām*—and of the moving living entities; *ātma-svarūpeṇa*—by His expansion as the Supersoul; *niviṣṭaḥ*—entered; *īśet*—controls; *evam*—thus; *paraḥ*—transcendental; *bhagavān*—the Supreme Personality of Godhead; *vāsudevaḥ*—the shelter of everything; *kṣetra-jñaḥ*—known as *kṣetrajña*; *ātmā*—the vital force; *idam*—this material world; *anupraviṣṭaḥ*—entered within.

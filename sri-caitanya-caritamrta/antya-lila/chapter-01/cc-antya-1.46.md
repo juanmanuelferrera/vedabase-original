@@ -1,9 +1,9 @@
 ### CC Antya 1.46
 
-> হরিদাস-ঠাকুর তাঁরে বহুকৃপা কৈলা ।
+> হরিদাস-ঠাকুর তাঁরে বহুকৃপা কৈলা ।\
 > ‘তুমি আসিবে, — মোরে প্রভু যে কহিলা’ ॥৪৬॥
 
-> haridāsa-ṭhākura tāṅre bahu-kṛpā kailā
+> haridāsa-ṭhākura tāṅre bahu-kṛpā kailā\
 > 'tumi āsibe,—more prabhu ye kahilā'
 
 *hari-dāsa-ṭhākura*—of the name Haridāsa Ṭhākura; *tāṅre*—unto him; *bahu-kṛpā kailā*—showed much affection because of love and mercy; *tumi āsibe*—you will come; *more*—me; *prabhu*—Śrī Caitanya Mahāprabhu; *ye*—that; *kahilā*—informed.

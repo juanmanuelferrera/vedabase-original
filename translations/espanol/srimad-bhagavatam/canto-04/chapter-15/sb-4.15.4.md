@@ -1,11 +1,11 @@
 ### SB 4.15.4
 
-> अयं तु प्रथमो राज्ञां पुमान्प्रथयिता यशः ।
+> अयं तु प्रथमो राज्ञां पुमान्प्रथयिता यशः ।\
 > पृथुर्नाम महाराजो भविष्यति पृथुश्रवाः ॥४॥
 
-> ayaṁ tu prathamo rājñāṁ
-> pumān prathayitā yaśaḥ
-> pṛthur nāma mahārājo
+> ayaṁ tu prathamo rājñāṁ\
+> pumān prathayitā yaśaḥ\
+> pṛthur nāma mahārājo\
 > bhaviṣyati pṛthu-śravāḥ
 
 *ayam*—este; *tu*—entonces; *prathamaḥ*—el primero; *rājñām*—de los reyes; *pumān*—el varón; *prathayitā*—expandirá; *yaśaḥ*—reputación; *pṛthuḥ*—Mahārāja Pṛthu; *nāma*—de nombre; *mahā-rājaḥ*—el gran rey; *bhaviṣyati*—será; *pṛthu-śravāḥ*—de amplio renombre.

@@ -1,9 +1,9 @@
 ### CC Adi 7.38
 
-> সবা নিস্তারিতে প্রভু কৃপা-অবতার ।
+> সবা নিস্তারিতে প্রভু কৃপা-অবতার ।\
 > সবা নিস্তারিতে করে চাতুরী অপার ॥৩৮॥
 
-> sabā nistārite prabhu kṛpā-avatāra
+> sabā nistārite prabhu kṛpā-avatāra\
 > sabā nistārite kare cāturī apāra
 
 *sabā*—all; *nistārite*—to deliver; *prabhu*—the Lord; *kṛpā*—mercy; *avatāra*—incarnation; *sabā*—all; *nistārite*—to deliver; *kare*—did; *cāturī*—devices; *apāra*—unlimited.

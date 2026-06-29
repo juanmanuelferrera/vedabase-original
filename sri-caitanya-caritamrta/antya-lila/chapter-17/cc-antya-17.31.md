@@ -1,13 +1,13 @@
 ### CC Antya 17.31
 
-> কাস্ত্র্যঙ্গ তে কলপদামৃতবেণুগীত-
-> সম্মোহিতার্যচরিতান্ন চলেত্ ত্রিলোক্যাম্ ।
-> ত্রৈলোক্য-সৌভগমিদঞ্চ নিরীক্ষ্য রূপং
+> কাস্ত্র্যঙ্গ তে কলপদামৃতবেণুগীত-\
+> সম্মোহিতার্যচরিতান্ন চলেত্ ত্রিলোক্যাম্ ।\
+> ত্রৈলোক্য-সৌভগমিদঞ্চ নিরীক্ষ্য রূপং\
 > যদ্গোদ্বিজদ্রুমমৃগাঃ পুলকান্যবিভ্রন্ ॥৩১॥
 
-> kā stry aṅga te kala-padāmṛta-veṇu-gīta-
-> sammohitārya-caritān na calet trilokyām
-> trailokya-saubhagam idaṁ ca nirīkṣya rūpaṁ
+> kā stry aṅga te kala-padāmṛta-veṇu-gīta-\
+> sammohitārya-caritān na calet trilokyām\
+> trailokya-saubhagam idaṁ ca nirīkṣya rūpaṁ\
 > yad go-dvija-druma-mṛgāḥ pulakāny abibhran
 
 *kā*—what; *strī*—woman; *aṅga*—O Kṛṣṇa; *te*—of You; *kala-pada*—by the rhythms; *amṛta-veṇu-gīta*—of the sweet songs of the flute; *sammohitā*—being captivated; *ārya-caritāt*—from the path of chastity according to Vedic civilization; *na*—not; *calet*—would wander; *tri-lokyām*—in the three worlds; *trai-lokya-saubhagam*—which is the fortune of the three worlds; *idam*—this; *ca*—and; *nirīkṣya*—by observing; *rūpam*—beauty; *yat*—which; *go*—the cows; *dvija*—birds; *druma*—trees; *mṛgāḥ*—forest animals like the deer; *pulakāni*—transcendental jubilation; *abibhran*—manifested.

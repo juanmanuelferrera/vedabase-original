@@ -1,9 +1,9 @@
 ### CC Antya 3.175
 
-> হরিদাসের গুণ সবে কহে পঞ্চমুখে ।
+> হরিদাসের গুণ সবে কহে পঞ্চমুখে ।\
 > শুনিয়া ত’ দুই ভাই পাইলা বড় সুখে ॥১৭৫॥
 
-> haridāsera guṇa sabe kahe pañca-mukhe
+> haridāsera guṇa sabe kahe pañca-mukhe\
 > śuniyā ta' dui bhāi pāilā baḍa sukhe
 
 *haridāsera*—of Haridāsa Ṭhākura; *guṇa*—the qualities; *sabe*—all of them; *kahe*—began to speak; *pañca-mukhe*—as if speaking with five mouths; *śuniyā*—hearing; *ta'*—certainly; *dui bhāi*—the two brothers; *pāilā*—got; *baḍa sukhe*—very great happiness.

@@ -1,9 +1,9 @@
 ### CC Antya 7.107
 
-> পতির আজ্ঞা, — নিরন্তর তাঁর নাম লইতে ।
+> পতির আজ্ঞা, — নিরন্তর তাঁর নাম লইতে ।\
 > পতির আজ্ঞা পতিব্রতা না পারে লঙ্ঘিতে ॥১০৭॥
 
-> patira ājñā,—nirantara tāṅra nāma la-ite
+> patira ājñā,—nirantara tāṅra nāma la-ite\
 > patira ājñā pati-vratā nā pāre laṅghite
 
 *patira ājñā*—the husband's order; *nirantara*—always; *tāṅra*—His; *nāma*—name; *la-ite*—to chant; *patira ājñā*—the order of the husband; *pati-vratā*—a chaste, devoted wife; *nā pāre laṅghite*—cannot deny.

@@ -1,9 +1,9 @@
 ### CC Antya 20.31
 
-> অতিদৈন্যে পুনঃ মাগে দাস্যভক্তি-দান ।
+> অতিদৈন্যে পুনঃ মাগে দাস্যভক্তি-দান ।\
 > আপনারে করে সংসারী জীব-অভিমান ॥৩১॥
 
-> ati-dainye punaḥ māge dāsya-bhakti-dāna
+> ati-dainye punaḥ māge dāsya-bhakti-dāna\
 > āpanāre kare saṁsārī jīva-abhimāna
 
 *ati-dainye*—con gran humildad; *punaḥ*—de nuevo; *māge*—suplica; *dāsya-bhakti-dāna*—la concesión de devoción en servidumbre; *āpanāre*—a Sí mismo; *kare*—se presenta; *saṁsārī*—materialista; *jīva-abhimāna*—como si fuese un alma condicionada.

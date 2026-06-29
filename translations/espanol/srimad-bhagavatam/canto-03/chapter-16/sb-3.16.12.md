@@ -1,13 +1,13 @@
 ### SB 3.16.12
 
-> तन्मे स्वभर्तुरवसायमलक्षमाणौ
-> युष्मद्व्यतिक्रमगतिं प्रतिपद्य सद्यः ।
-> भूयो ममान्तिकमितां तदनुग्रहो मे
+> तन्मे स्वभर्तुरवसायमलक्षमाणौ\
+> युष्मद्व्यतिक्रमगतिं प्रतिपद्य सद्यः ।\
+> भूयो ममान्तिकमितां तदनुग्रहो मे\
 > यत्कल्पतामचिरतो भृतयोर्विवासः ॥१२॥
 
-> tan me sva-bhartur avasāyam alakṣamāṇau
-> yuṣmad-vyatikrama-gatiṁ pratipadya sadyaḥ
-> bhūyo mamāntikam itāṁ tad anugraho me
+> tan me sva-bhartur avasāyam alakṣamāṇau\
+> yuṣmad-vyatikrama-gatiṁ pratipadya sadyaḥ\
+> bhūyo mamāntikam itāṁ tad anugraho me\
 > yat kalpatām acirato bhṛtayor vivāsaḥ
 
 *tat*—por tanto; *me*—Mía; *sva-bhartuḥ*—de su amo; *avasāyam*—la intención; *alakṣamāṇau*—sin conocer; *yuṣmat*—contra ustedes; *vyatikrama*—ofensa; *gatim*—resultado; *pratipadya*—cosechando; *sadyaḥ*—inmediatamente; *bhūyaḥ*—de nuevo; *mama antikam*—cerca de Mí; *itām*—obtener; *tat*—ese; *anugrahaḥ*—un favor; *me*—a Mí; *yat*—el cual; *kalpatām*—que se disponga; *acirataḥ*—no largo; *bhṛtayoḥ*—de estos dos sirvientes; *vivāsaḥ*—exilio.

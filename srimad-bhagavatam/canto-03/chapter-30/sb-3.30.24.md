@@ -1,11 +1,11 @@
 ### SB 3.30.24
 
-> योजनानां सहस्राणि नवतिं नव चाध्वनः ।
+> योजनानां सहस्राणि नवतिं नव चाध्वनः ।\
 > त्रिभिर्मुहूर्तैर्द्वाभ्यां वा नीतः प्राप्नोति यातनाः ॥२४॥
 
-> yojanānāṁ sahasrāṇi
-> navatiṁ nava cādhvanaḥ
-> tribhir muhūrtair dvābhyāṁ vā
+> yojanānāṁ sahasrāṇi\
+> navatiṁ nava cādhvanaḥ\
+> tribhir muhūrtair dvābhyāṁ vā\
 > nītaḥ prāpnoti yātanāḥ
 
 *yojanānām*—of *yojanas*; *sahasrāṇi*—thousands; *navatim*—ninety; *nava*—nine; *ca*—and; *adhvanaḥ*—from a distance; *tribhiḥ*—three; *muhūrtaiḥ*—within moments; *dvābhyām*—two; *vā*—or; *nītaḥ*—brought; *prāpnoti*—he receives; *yātanāḥ*—punishments.

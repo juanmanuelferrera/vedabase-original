@@ -1,11 +1,11 @@
 ### SB 8.5.29
 
-> य एकवर्णं तमसः परं तदलोकमव्यक्तमनन्तपारम
+> य एकवर्णं तमसः परं तदलोकमव्यक्तमनन्तपारम\
 > आसां चकारोपसुपर्णमेनमुपासते योगरथेन धीराः ॥२९॥
 
-> ya eka-varṇaṁ tamasaḥ paraṁ tad
-> alokam avyaktam ananta-pāram
-> āsāṁ cakāropasuparṇam enam
+> ya eka-varṇaṁ tamasaḥ paraṁ tad\
+> alokam avyaktam ananta-pāram\
+> āsāṁ cakāropasuparṇam enam\
 > upāsate yoga-rathena dhīrāḥ
 
 *yaḥ*—la Suprema Personalidad de Dios que; *eka-varṇam*—absoluto, situado en el plano de la bondad pura; *tamasaḥ*—a la oscuridad del mundo material; *param*—trascendental; *tat*—aquello; *alokam*—que no puede ser visto; *avyaktam*—no manifestado; *ananta-pāram*—ilimitado, más allá de la medida del tiempo y el espacio materiales; *āsāṁ cakāra*—situado; *upa-suparṇam*—a lomos de Garuḍa; *enam*—a Él; *upāsate*—adoran; *yoga-rathena*—con el vehículo del *yoga*místico; *dhīrāḥ*—personas sobrias, que no se perturban con las agitaciones materiales.

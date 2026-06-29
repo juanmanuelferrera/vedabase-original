@@ -1,11 +1,11 @@
 ### Bg 8.13
 
-> ओमित्येकाक्षरं ब्रह्म व्याहरन्मामनुस्मरन् ।
+> ओमित्येकाक्षरं ब्रह्म व्याहरन्मामनुस्मरन् ।\
 > यः प्रयाति त्यजन्देहं स याति परमां गतिम् ॥१३॥
 
-> om ity ekākṣaraṁ brahma-
-> vyāharan mām anusmaran
-> yaḥ prayāti tyajan dehaṁ
+> om ity ekākṣaraṁ brahma-\
+> vyāharan mām anusmaran\
+> yaḥ prayāti tyajan dehaṁ\
 > sa yāti paramāṁ gatim
 
 *om*—la combinación de letras omkāra; *iti*—así pues; *eka-akṣaram*—supremo indestructible; *brahma*—absoluto; *vyāharan*—vibrando; *mām*—a Mí (Kṛṣṇa); *anusmaran*—recordando; *yaḥ*—todo aquel; *prayāti*—deje; *tyajan*—abandonando; *deham*—este cuerpo; *saḥ*—él; *yāti*—alcanza; *paramām*—el supremo; *gatim*—destino.

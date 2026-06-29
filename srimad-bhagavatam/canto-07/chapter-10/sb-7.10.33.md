@@ -1,11 +1,11 @@
 ### SB 7.10.33
 
-> ततः काव्यादिभिः सार्धं मुनिभिः कमलासनः
+> ततः काव्यादिभिः सार्धं मुनिभिः कमलासनः\
 > दैत्यानां दानवानां च प्रह्रादमकरोत्पतिम ॥३३॥
 
-> tataḥ kāvyādibhiḥ sārdhaṁ
-> munibhiḥ kamalāsanaḥ
-> daityānāṁ dānavānāṁ ca
+> tataḥ kāvyādibhiḥ sārdhaṁ\
+> munibhiḥ kamalāsanaḥ\
+> daityānāṁ dānavānāṁ ca\
 > prahrādam akarot patim
 
 *tataḥ*—thereafter; *kāvya-ādibhiḥ*—with Śukrācārya and others; *sārdham*—and with; *munibhiḥ*—great saintly persons; *kamala-āsanaḥ*—Lord Brahmā; *daityānām*—of all the demons; *dānavānām*—of all the giants; *ca*—and; *prahrādam*—Prahlāda Mahārāja; *akarot*—created; *patim*—the master or king.

@@ -1,9 +1,9 @@
 ### CC Adi 2.97
 
-> কৃষ্ণের স্বরূপের হয় ষড়্বিধ বিলাস ।
+> কৃষ্ণের স্বরূপের হয় ষড়্বিধ বিলাস ।\
 > প্রাভব-বৈভব-রূপে দ্বিবিধ প্রকাশ ॥৯৭॥
 
-> kṛṣṇera svarūpera haya ṣaḍ-vidha vilāsa
+> kṛṣṇera svarūpera haya ṣaḍ-vidha vilāsa\
 > prābhava-vaibhava-rūpe dvi-vidha prakāśa
 
 *kṛṣṇera*—del Señor Kṛṣṇa; *svarūpera*—de la forma; *haya*—hay; *ṣaṭ-vidha*—seis clases; *vilāsa*—formas de pasatiempo; *prābhava-vaibhava-rūpe*—en las divisiones de *prābhava* y *vaibhava*; *dvi-vidha*—dos clases; *prakāśa*—manifestaciones.

@@ -1,9 +1,9 @@
 ### CC Adi 10.138
 
-> ঈশ্বরপুরীর শিষ্য — ব্রহ্মচারী কাশীশ্বর ।
+> ঈশ্বরপুরীর শিষ্য — ব্রহ্মচারী কাশীশ্বর ।\
 > শ্রীগোবিন্দ নাম তাঁর প্রিয় অনুচর ॥১৩৮॥
 
-> īśvara-purīra śiṣya—brahmacārī kāśīśvara
+> īśvara-purīra śiṣya—brahmacārī kāśīśvara\
 > śrī-govinda nāma tāṅra priya anucara
 
 *īśvara-purīra śiṣya*—disciple of Īśvara Purī; *brahmacārī kāśīśvara*—of the name Brahmacārī Kāśīśvara; *śrī-govinda*—of the name Śrī Govinda; *nāma*—name; *tāṅra*—his; *priya*—very dear; *anucara*—follower.

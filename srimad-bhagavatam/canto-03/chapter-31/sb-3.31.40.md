@@ -1,11 +1,11 @@
 ### SB 3.31.40
 
-> योपयाति शनैर्माया योषिद्देवविनिर्मिता ।
+> योपयाति शनैर्माया योषिद्देवविनिर्मिता ।\
 > तामीक्षेतात्मनो मृत्युं तृणैः कूपमिवावृतम् ॥४०॥
 
-> yopayāti śanair māyā
-> yoṣid deva-vinirmitā
-> tām īkṣetātmano mṛtyuṁ
+> yopayāti śanair māyā\
+> yoṣid deva-vinirmitā\
+> tām īkṣetātmano mṛtyuṁ\
 > tṛṇaiḥ kūpam ivāvṛtam
 
 *yā*—she who; *upayāti*—approaches; *śanaiḥ*—slowly; *māyā*—representation of *māyā*; *yoṣit*—woman; *deva*—by the Lord; *vinirmitā*—created; *tām*—her; *īkṣeta*—one must regard; *ātmanaḥ*—of the soul; *mṛtyum*—death; *tṛṇaiḥ*—with grass; *kūpam*—a well; *iva*—like; *āvṛtam*—covered.

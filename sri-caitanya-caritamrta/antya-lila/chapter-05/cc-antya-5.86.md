@@ -1,9 +1,9 @@
 ### CC Antya 5.86
 
-> হরিদাস-দ্বারা নাম-মাহাত্ম্য-প্রকাশ ।
+> হরিদাস-দ্বারা নাম-মাহাত্ম্য-প্রকাশ ।\
 > সনাতন-দ্বারা ভক্তিসিদ্ধান্তবিলাস ॥৮৬॥
 
-> haridāsa-dvārā nāma-māhātmya-prakāśa
+> haridāsa-dvārā nāma-māhātmya-prakāśa\
 > sanātana-dvārā bhakti-siddhānta-vilāsa
 
 *haridāsa-dvārā*—by Haridāsa Ṭhākura; *nāma-māhātmya*—of the glories of chanting the Hare Kṛṣṇa *mahā-mantra*; *prakāśa*—manifestation; *sanātana-dvārā*—by Sanātana Gosvāmī; *bhakti-siddhānta-vilāsa*—spreading the essence of devotional life.

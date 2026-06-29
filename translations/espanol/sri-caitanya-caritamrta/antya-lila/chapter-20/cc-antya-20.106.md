@@ -1,9 +1,9 @@
 ### CC Antya 20.106
 
-> তৃতীয়ে — হরিদাসের মহিমা প্রচণ্ড ।
+> তৃতীয়ে — হরিদাসের মহিমা প্রচণ্ড ।\
 > দামোদর-পণ্ডিত কৈলা প্রভুরে বাক্যদণ্ড ॥১০৬॥
 
-> tṛtīye--haridāsera mahimā pracaṇḍa
+> tṛtīye--haridāsera mahimā pracaṇḍa\
 > dāmodara-paṇḍita kailā prabhure vākya-danda
 
 *tṛtīye*—en el tercer capítulo; *haridāsera*—de Ṭhākura Haridāsa; *mahimā pracaṇḍa*—glorias muy poderosas; *dāmodara-paṇḍita*—Dāmodara Paṇḍita; *kailā*—hizo; *prabhure*—a Śrī Caitanya Mahāprabhu; *vākya-daṇḍa*—la imprudencia de criticar con palabras.

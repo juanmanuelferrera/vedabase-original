@@ -1,11 +1,11 @@
 ### Bg 2.25
 
-> अव्यक्तोऽयमचिन्त्योऽयमविकार्योऽयमुच्यते ।
+> अव्यक्तोऽयमचिन्त्योऽयमविकार्योऽयमुच्यते ।\
 > तस्मादेवं विदित्वैनं नानुशोचितुमर्हसि ॥२५॥
 
-> avyakto 'yam acintyo 'yam
-> avikāryo 'yam ucyate
-> tasmād evaṁ viditvainaṁ
+> avyakto 'yam acintyo 'yam\
+> avikāryo 'yam ucyate\
+> tasmād evaṁ viditvainaṁ\
 > nānuśocitum arhasi
 
 *avyaktaḥ*—invisible; *ayam*—this soul; *acintyaḥ*—inconceivable; *ayam*—this soul; *avikāryaḥ*—unchangeable; *ayam*—this soul; *ucyate*—is said; *tasmāt*—therefore; *evam*—like this; *viditvā*—knowing it well; *enam*—this soul; *na*—do not; *anuśocitum*—may lament over; *arhasi*—you deserve.

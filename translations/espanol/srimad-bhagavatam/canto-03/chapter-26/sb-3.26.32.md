@@ -1,11 +1,11 @@
 ### SB 3.26.32
 
-> तामसाच्च विकुर्वाणाद्भगवद्वीर्यचोदितात् ।
+> तामसाच्च विकुर्वाणाद्भगवद्वीर्यचोदितात् ।\
 > शब्दमात्रमभूत्तस्मान्नभः श्रोत्रं तु शब्दगम् ॥३२॥
 
-> tāmasāc ca vikurvāṇād
-> bhagavad-vīrya-coditāt
-> śabda-mātram abhūt tasmān
+> tāmasāc ca vikurvāṇād\
+> bhagavad-vīrya-coditāt\
+> śabda-mātram abhūt tasmān\
 > nabhaḥ śrotraṁ tu śabdagam
 
 *tāmasāt*—del egoísmo influido por la ignorancia; *ca*—y; *vikurvāṇāt*—transformándose; *bhagavat-vīrya*—por la energía de la Suprema Personalidad de Dios; *coditāt*—impulsado; *śabda-mātram*—el elemento sutil denominado sonido; *abhūt*—se manifestó; *tasmāt*—de él; *nabhaḥ*—éter; *śrotram*—el sentido del oído; *tu*—entonces; *śabda-gam*—que capta el sonido.

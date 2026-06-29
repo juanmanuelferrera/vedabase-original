@@ -1,13 +1,13 @@
 ### CC Madhya 21.109
 
-> মুক্তাহার — বকপাঁতি, ইন্দ্রধনু-পিঞ্ছ ততি,
-> পীতাম্বর — বিজুরী-সঞ্চার ।
-> কৃষ্ণ নব-জলধর, জগৎ-শস্য-উপর,
+> মুক্তাহার — বকপাঁতি, ইন্দ্রধনু-পিঞ্ছ ততি,\
+> পীতাম্বর — বিজুরী-সঞ্চার ।\
+> কৃষ্ণ নব-জলধর, জগৎ-শস্য-উপর,\
 > বরিষয়ে লীলামৃত-ধার ॥১০৯॥
 
-> muktā-hāra—baka-pāṅti, indra-dhanu-piñcha tati,
-> pītāmbara—vijurī-sañcāra
-> kṛṣṇa nava-jaladhara, jagat-śasya-upara,
+> muktā-hāra—baka-pāṅti, indra-dhanu-piñcha tati,\
+> pītāmbara—vijurī-sañcāra\
+> kṛṣṇa nava-jaladhara, jagat-śasya-upara,\
 > variṣaye līlāmṛta-dhāra
 
 *muktā-hāra*—a necklace of pearls; *baka-pāṅti*—like a row of white ducks; *indra-dhanu*—like a rainbow; *piñcha*—a peacock feather; *tati*—there; *pīta-ambara*—yellow garments; *vijurī-sañcāra*—like the appearance of lightning in the sky; *kṛṣṇa*—Lord Kṛṣṇa; *nava*—new; *jala-dhara*—cloud carrying water; *jagat*—the universe; *śasya*—like crops of grains; *upara*—upon; *variṣaye*—rains; *līlā-amṛta*—the pastimes of Lord Kṛṣṇa; *dhāra*—like a shower.
