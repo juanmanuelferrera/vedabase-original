@@ -54,7 +54,7 @@ tāṁs titikṣofva bhārata
 
 
 
-"O son of Kuntī, the nonpermanent appearance of heat and cold, happiness and distress, and their disappearance in due course, are like the appearance and disappearance of winter and summer seasons. They arise from sense perception, O scion of Bharata, and one must learn to tolerate them without being disturbed." (Bg. 2.14) In the summertime we may feel pleasure from contact with water, but in the winter we may shun that very water because it is too cold. In either case, the water is the same, but we perceive it of pleasant or painful due to its contact with the body.
+"O son of Kuntī, the nonpermanent appearance of heat and cold, happiness and distress, and their disappearance in due course, are like the appearance and disappearance of winter and summer seasons. They arise from sense perception, O scion of Bharata, and one must learn to tolerate them without being disturbed." (Bg. 2.14) In the summertime we may feel pleasure from contact with water, but in the winter we may shun that very water because it is too cold. In either case, the water is the same, but we perceive it as pleasant or painful due to its contact with the body.
 
 
 

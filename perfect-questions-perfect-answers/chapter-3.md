@@ -51,7 +51,7 @@ That's all right. But how the energy is working in the future—that science doe
 > vāsāṁsi jīrṇāni yathā vihāya
 > [[bg/2/22|[Bg. 2.22] ]]
 
-You are covered by a dress, by a shirt. When this shirt is unuesable, you change it. Similarly, this body is just like a shirt and coat. When it is no longer workable, we have to change it.
+You are covered by a dress, by a shirt. When this shirt is unusable, you change it. Similarly, this body is just like a shirt and coat. When it is no longer workable, we have to change it.
 
 **Bob:**
 What is the "we" that has to change? What is constant?

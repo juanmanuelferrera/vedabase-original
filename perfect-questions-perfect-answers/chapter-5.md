@@ -164,7 +164,7 @@ So better not to teach—because you do not know what to teach.
 If you are serious, you can keep yourself pure anywhere. It doesn't matter whether you stay in America or India. But you must know how to keep yourself purified. That's all.
 
 **Bob:**
-You mean by folllowing these principles?
+You mean by following these principles?
 
 **Śrīla Prabhupāda:**
 Yes, I went to America, for instance, but either in America or India, I am the same man.

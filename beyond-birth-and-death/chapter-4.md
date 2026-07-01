@@ -172,7 +172,7 @@ santaḥ sadaiva hṛdayeṣu vilokayanti
 
 
 
-Due to our material bondage, the covering of the material senses, we cannot understand what is spiritual. But this ignorance can be removed by this process of chanting Hare Kṛṣṇa. How is this? A sleeping man may be awakened by sound vibration. Although a man may be for all intents and purposes unconscious-he cannot see, feel, smell, etc.-the sense of hearing is so prominent that a sleeping man may be awakened just by sound vibration. Similarly, the spirit soul, although now overpowered by the sleep of material contact, can be revived by this transcendental sound vibration of Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. Hare Kṛṣṇa is simply an address to the Supreme Lord and His energies. Hare means energy, and Kṛṣṇa is the name of the Supreme Lord, so when we chant Hare Kṛṣṇa we are saying, "Ohhhh energy of the Lord, O Lord, please accept me." We have no other prayer for acceptance by the Lord. There is no question of praying for daily bread, for the bread is always there. Hare Kṛṣṇa is but an address to the Supreme Lord, requesting Him to accept us. Lord Caitanya Mahāprabhu Himself prayed,
+Due to our material bondage, the covering of the material senses, we cannot understand what is spiritual. But this ignorance can be removed by this process of chanting Hare Kṛṣṇa. How is this? A sleeping man may be awakened by sound vibration. Although a man may be for all intents and purposes unconscious-he cannot see, feel, smell, etc.-the sense of hearing is so prominent that a sleeping man may be awakened just by sound vibration. Similarly, the spirit soul, although now overpowered by the sleep of material contact, can be revived by this transcendental sound vibration of Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. Hare Kṛṣṇa is simply an address to the Supreme Lord and His energies. Hare means energy, and Kṛṣṇa is the name of the Supreme Lord, so when we chant Hare Kṛṣṇa we are saying, "Oh, energy of the Lord, O Lord, please accept me." We have no other prayer for acceptance by the Lord. There is no question of praying for daily bread, for the bread is always there. Hare Kṛṣṇa is but an address to the Supreme Lord, requesting Him to accept us. Lord Caitanya Mahāprabhu Himself prayed,
 
 
 
@@ -186,7 +186,7 @@ sthita-dhūlī-sadṛśaṁ vicintaya
 
 
 
-"Ohhhh son of Mahārāja Nanda, I am Your eternal servitor, and although I am so, somehow or other I have fallen in the ocean of birth and death. Please, therefore, pick me up from this ocean of death and fix me as one of the atoms at Your lotus feet." (Śikṣāṣṭaka 5) The only hope for a man fallen in the middle of the ocean is that someone will come and pick him up. If someone just comes and hauls him but a few feet out of the water, he is immediately relieved. Similarly, if we are somehow lifted from the ocean of birth and death by the process of Kṛṣṇa consciousness, we are immediately relieved.
+"Oh, son of Mahārāja Nanda, I am Your eternal servitor, and although I am so, somehow or other I have fallen in the ocean of birth and death. Please, therefore, pick me up from this ocean of death and fix me as one of the atoms at Your lotus feet." (Śikṣāṣṭaka 5) The only hope for a man fallen in the middle of the ocean is that someone will come and pick him up. If someone just comes and hauls him but a few feet out of the water, he is immediately relieved. Similarly, if we are somehow lifted from the ocean of birth and death by the process of Kṛṣṇa consciousness, we are immediately relieved.
 
 
 
@@ -216,7 +216,7 @@ mad-bhaktiṁ labhate parām
 
 
 
-"Ohhhhne who is thus transcendentally situated at once realizes the Supreme Brahman. He never laments or desires to have anything; he is equally disposed to every living entity. In that state he attains pure devotional service unto Me." (Bg. 18.54)
+"One who is thus transcendentally situated at once realizes the Supreme Brahman. He never laments or desires to have anything; he is equally disposed to every living entity. In that state he attains pure devotional service unto Me." (Bg. 18.54)
 
 
 
