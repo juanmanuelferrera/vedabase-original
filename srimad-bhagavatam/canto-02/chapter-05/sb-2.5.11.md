@@ -22,7 +22,7 @@ tad brahma niṣkalam anantam aśeṣa-bhūtam
 
 govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
-"I serve the Supreme Personality of Godhead Govinda, the primeval Lord whose effulgence of His transcendental body, known as the brahmajyoti, unlimited, unfathomed and all-pervasive, is the cause of the creation of unlimited numbers of planets, etc., with varieties of climates and specific conditions of life."
+"I worship the Supreme Personality of Godhead Govinda, the primeval Lord whose effulgence of His transcendental body, known as the brahmajyoti, unlimited, unfathomed and all-pervasive, is the cause of the creation of unlimited numbers of planets, etc., with varieties of climates and specific conditions of life."
 
 The same statement is in the Bhagavad-gītā (Bg. 14.27). Lord Kṛṣṇa is the background of the brahmajyoti (brahmaṇe hi pratiṣṭhāham). In the Nirukti, or Vedic dictionary, the import of pratiṣṭhā is mentioned as that which establishes. So the brahmajyoti is not independent or self-sufficient. Lord Śrī Kṛṣṇa is ultimately the creator of the brahmajyoti, mentioned in this verse as sva-rociṣā, or the effulgence of the transcendental body of the Lord. This brahmajyoti is all-pervading, and all creation is made possible by its potential power; therefore the Vedic hymns declare that everything that exists is being sustained by the brahmajyoti (sarvaṁ khalv idaṁ brahma). Therefore the potential seed of all creation is the brahmajyoti, and the same brahmajyoti, unlimited and unfathomed, is established by the Lord. Therefore the Lord (Śrī Kṛṣṇa) is ultimately the supreme cause of all creation (ahaṁ sarvasya prabhavaḥ).
 
