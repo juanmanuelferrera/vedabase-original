@@ -584,7 +584,7 @@ A Russian fiction writer is now contributing suggestions to the rest of the worl
 
 
 
-As mentioned, every living being is eternal in form, but he has to change his outer coverings, gross and subtle, and this changing process is technically known as life and death. As long as a living being has to put on the shackles of material bondage, there is no relief from this changing process, which continues even in the highest stage of material life. The Russian fiction writer may speculate, as fiction writers are apt to do, but saner people with some knowledge of natural law will not agree that man can life forever within this material world.
+As mentioned, every living being is eternal in form, but he has to change his outer coverings, gross and subtle, and this changing process is technically known as life and death. As long as a living being has to put on the shackles of material bondage, there is no relief from this changing process, which continues even in the highest stage of material life. The Russian fiction writer may speculate, as fiction writers are apt to do, but saner people with some knowledge of natural law will not agree that man can live forever within this material world.
 
 
 
