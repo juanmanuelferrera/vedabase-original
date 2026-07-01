@@ -14,4 +14,4 @@
 
 **Men become strong and stout by eating sufficient grains, but the devotee who simply eats ordinary grains but does not taste the transcendental pastimes of Lord Caitanya Mahāprabhu and Kṛṣṇa gradually becomes weak and falls down from the transcendental position. However, if one drinks but a drop of the nectar of Kṛṣṇa's pastimes, his body and mind begin to bloom, and he begins to laugh, sing and dance.**
 
-All the devotees connected with this Kṛṣṇa consciousness movement must read all the books that have been tran i ted (*Caitanya-caritāmṛta, Śrīmad-Bhāgavatam, Bhagavad-gītā* and others); otherwise, after some time, they will simply eat, sleep and fall down from their position. Thus they will miss the opportunity to attain an eternal, blissful life of transcendental pleasure.
+All the devotees connected with this Kṛṣṇa consciousness movement must read all the books that have been translated (*Caitanya-caritāmṛta, Śrīmad-Bhāgavatam, Bhagavad-gītā* and others); otherwise, after some time, they will simply eat, sleep and fall down from their position. Thus they will miss the opportunity to attain an eternal, blissful life of transcendental pleasure.

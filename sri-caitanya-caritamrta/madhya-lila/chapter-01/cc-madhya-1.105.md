@@ -6,7 +6,7 @@
 > trimalla-tripadī-sthāna kaila daraśana\
 > sarvatra karila kṛṣṇa-nāma pracāraṇa
 
-*trimalla*—a place named Trimalla; *tripadī*—or Tirupati; *sthāna*—the pace; *kaila*—did; *daraśana*—visit; *sarvatra*—everywhere; *karila*—did; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *pracāraṇa*—preaching.
+*trimalla*—a place named Trimalla; *tripadī*—or Tirupati; *sthāna*—the place; *kaila*—did; *daraśana*—visit; *sarvatra*—everywhere; *karila*—did; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *pracāraṇa*—preaching.
 
 **He visited the place known as Trimalla, or Tirupati, and there He extensively preached the chanting of the Lord's holy name.**
 
