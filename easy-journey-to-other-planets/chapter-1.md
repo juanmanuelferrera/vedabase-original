@@ -576,7 +576,7 @@ A devotee of the Lord is never a disturbing element in society-on the contrary, 
 
 
 
-This spiritual art and science of devotional service is the highest contribution of Indian sages to the rest of the world. Therefore everyone who has taken his birth in India has an obligation to perfect his life by adopting the principles of this great art and science and distributing it to the rest of the world, which is still ignorant of the ultimate aim of life. Human society is destined to reach this stage of perfection by gradual development of knowledge. Indian sages, however, have already reached that position. Why do others have to wait for thousands and thousands of years to attain their heights? Why not give them the information immediately in a systematic way, so that they may save time and energy? They should take advantage of a life for which they may have labored millions of years to attain.
+This spiritual art and science of devotional service is the highest contribution of Indian sages to the rest of the world. Everyone interested in God realization has an obligation to perfect his life by adopting the principles of this great art and science and distributing it to the rest of the world, which is still ignorant of the ultimate aim of life. Human society is destined to reach this stage of perfection by gradual development of knowledge. Indian sages, however, have already reached that position. Why do others have to wait for thousands and thousands of years to attain their heights? Why not give them the information immediately in a systematic way, so that they may save time and energy? They should take advantage of a life for which they may have labored millions of years to attain.
 
 
 
