@@ -1,6 +1,6 @@
 ### 5
 
-5. Practicing Yoga in the Modern Age
+V. Practicing Yoga in the Modern Age
 
 ## Superconsciousness
 
@@ -193,7 +193,7 @@ Nowadays, we find yoga being taught in numerous courses and touted in mass-marke
 
 All glories to the *saṅkīrtana* movement. *Paraṁ vijayate śrī-kṛṣṇa-saṅkīrtanam.* Lord Caitanya Mahāprabhu, when He was only a sixteen-year-old boy, introduced this *saṅkīrtana* movement five hundred years ago in Navadvīpa, India. It was not that He manufactured some religious system, just as nowadays so many religious systems are being manufactured. Actually, religion cannot be manufactured. *Dharmaṁ tu sākṣād bhagavat-praṇītam* [[sb/6/3/19|[SB 6.3.19] ]]. Religion means the codes of God, the laws of God, that's all. Certainly we cannot live without obeying the state laws, and similarly we cannot live without obeying the laws of God. And in the *Bhagavad-gītā* (4.7) the Lord says that whenever there are discrepancies in the prosecution of religious activities (*yadā yadā hi dharmasya glānir bhavati bhārata*) and there is a predominance of irreligious activities (*abhyutthānam adharmasya*), at that time I (Kṛṣṇa) appear (*tadātmānaṁ sṛjāmy aham*). And in the material world we can see the same principle demonstrated, for whenever there is disobedience of state laws, there is the advent of some particular state officer or policeman to "set things right."
 
-Lord Caitanya Mahāprabhu is worshiped by the Gosvāmīs. There were six Gosvāmīs: Rūpa Gosvāmī, Sanātana Gosvāmī, Raghunātha Bhaṭṭa Gosvāmī, Jīva Gosvāmī, Gopāla Bhaṭṭa Gosvāmī, and Śrī Raghunātha dāsa Gosvāmī. There are three meanings of *go. Go* means "land," *go* means "cow," and *go* means "senses." And *svāmī* means "master." So *gosvāmī* means that they were masters of the senses. When one becomes master of the senses, or *gosvāmī,* he can make progress in spiritual life. That is the real meaning of *swami. Swami* means that one is not servant of the senses, but master of them.
+Lord Caitanya Mahāprabhu is worshiped by the Gosvāmīs. There were six Gosvāmīs: Rūpa Gosvāmī, Sanātana Gosvāmī, Raghunātha Bhaṭṭa Gosvāmī, Jīva Gosvāmī, Gopāla Bhaṭṭa Gosvāmī, and Śrī Raghunātha dāsa Gosvāmī. There are three meanings of *go. Go* means "land," *go* means "cow," and *go* means "senses." And *swami* means "master." So *goswami* means that they were masters of the senses. When one becomes master of the senses, or *gosvāmī,* he can make progress in spiritual life. That is the real meaning of *swami. Swami* means that one is not servant of the senses, but master of them.
 
 One of these six Gosvāmīs, Rūpa Gosvāmī, was the head, and he compiled a nice verse in honor of Lord Caitanya Mahāprabhu. He says:
 

@@ -346,7 +346,7 @@ Hare Kṛṣṇa.
 
 ## The Absolute Necessity of a Spiritual Master
 
-In February 1936, in Bombay, India, the members of a reputed religious society, the Gauḍīya Maṭha, were astonished by the powerful and eloquent words of a young member who spoke in honor of his spiritual master, Śrīla Bhaktisiddhānta Sarasvatī Gosvāmī. Three decades later, the young speaker would become the world-renowned founder and spiritual master of the Kṛṣṇa consciousness movement. Śrīla Prabhupāda's presentation is a memorable statement on the importance of the guru in spiritual life.
+In February 1936, in Bombay, India, the members of a reputed religious society, the Gauḍīya Maṭha, were astonished by the powerful and eloquent words of a young member who spoke in honor of his spiritual master, Śrīla Bhaktisiddhānta Sarasvatī Gosvāmī. Three decades later, will become the world-renowned founder and spiritual master of the Kṛṣṇa consciousness movement. Śrīla Prabhupāda's presentation is a memorable statement on the importance of the guru in spiritual life.
 
 > sākṣād-dharitvena samasta-śāstrair
 > uktas tathā bhāvyata eva sadbhiḥ

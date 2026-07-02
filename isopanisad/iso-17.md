@@ -8,7 +8,7 @@
 > oṁ krato smara kṛtaṁ smara\
 > krato smara kṛtaṁ smara
 
-*vāyuḥ*—air of life; *anilam*—total reservoir of air; *amṛtam*—indestructible; *atha*—now; *idam*—this; *bhasmāntam*—after being turned to ashes; *śarīram*—body; *oṁ*—O Lord; *krato*—O enjoyer of all sacrifices; *smara*—please remember; *kṛtam*—all that has been done by me; *smara*—please remember; *krato*—O supreme beneficiary; *smara*—please remember; *kṛtam*—all that I have done for You; *smara*—please remember.
+*vāyuḥ*—air of life; *anilam*—total reservoir of air; *amṛtam*—indestructible; *atha*—now; *idam*—this; *bhasmāntam*—after being turned into ashes; *śarīram*—body; *oṁ*—O Lord; *krato*—the Enjoyer of all sacrifices; *smara*—please remember; *kṛtam*—all that has been done by me; *smara*—please remember; *krato*—the Supreme Beneficiary; *smara*—please remember; *kṛtam*—all that I have done for You; *smara*—please remember.
 
 **Let this temporary body be burnt into ashes, and let the air of life be merged with the totality of air. Now, O my Lord, please remember all my sacrifices, and because You are the ultimate Beneficiary, please remember all that I have done for You.**
 
