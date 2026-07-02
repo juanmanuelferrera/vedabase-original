@@ -8,4 +8,4 @@
 
 *ei-mata*—in this way; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *rātri-divase*—night and day; *unmādera*—of a madman; *ceṣṭā*—activities; *pralāpa kare*—talks insanely; *prema-āveśe*—in ecstatic love.
 
-**Absorbed in ecstasy, Śrī Caitanya Mahāprabhu acted and talked like a madman day and night.**
+**Absorbed in ecstasy, Śrī Caitanya Mahāprabhu spoke like a madman day and night.**

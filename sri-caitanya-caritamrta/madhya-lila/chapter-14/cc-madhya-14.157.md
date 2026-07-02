@@ -10,7 +10,7 @@
 
 **"There is no flaw or adulteration in the love of the gopīs; therefore they give Kṛṣṇa the highest pleasure.**
 
-*Rasābhāsa* occurs when one's relationship with Kṛṣṇa is adulterated. There are different types of *rasābhāsa*-first-, second-and third-class. The word *rāsa* means "mellow," and *ābhāsa* means "a shadow." If one tastes one kind of mellow and something extra is imposed, that is *uparasa.* If something is derived from the original mellow, it is called *anurasa.* If something is appreciated that is far removed from the original mellow, it is called *aparasa. Uparasa, anurasa* and *aparasa* are, respectively, first-, second-and third-class *rasābhāsas.* As stated in the *Bhakti-rasāmṛta-sindhu* (4.9):
+*Rasābhāsa* occurs when one's relationship with Kṛṣṇa is adulterated. There are different types of *rasābhāsa*-first-, second-and third-class. The word *rāsa* means "mellow," and *ābhāsa* means "a shadow." If one tastes one kind of mellow and something extra is imposed, that is *uparasa.* If something is derived from the original mellow, it is called *anurasa.* If something is appreciated which is far removed from the original mellow, it is called *aparasa. Uparasa, anurasa* and *aparasa* are, respectively, first-, second-and third-class *rasābhāsas.* As stated in the *Bhakti-rasāmṛta-sindhu* (4.9):
 
 > pūrvam evānuśiṣṭena vikalā rasa-lakṣaṇā
 > rasā eva rasābhāsā rasa-jñair anukīrtitāḥ

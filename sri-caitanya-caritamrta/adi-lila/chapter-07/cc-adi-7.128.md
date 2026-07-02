@@ -26,7 +26,7 @@ vyāharan mām anusmaran
 yaḥ prayāti tyajan dehaṁ
 sa yāti paramaṁ gatim
 
-"After being situated in this *yoga* practice and vibrating the sacred syllable *oṁ,* the supreme combination of letters, if one thinks of the Supreme Personality of Godhead and quits his body, he will certainly reach the spiritual planets."
+"After being situated in the *yoga* practice and vibrating the sacred syllable *oṁ,* the supreme combination of letters, if one thinks of the Supreme Personality of Godhead and quits his body, he will certainly reach the spiritual planets."
 
 If one actually understands that *oṁkāra* is the sound representation of the Supreme Personality of Godhead, whether he chants *oṁkāra* or the Hare Kṛṣṇa *mantra,* the result is certainly the same.
 

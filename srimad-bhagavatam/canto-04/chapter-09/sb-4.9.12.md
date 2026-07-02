@@ -10,7 +10,7 @@
 > ye tv abja-nābha bhavadīya-padāravinda-\
 > saugandhya-lubdha-hṛdayeṣu kṛta-prasaṅgāḥ
 
-*te*—they; *na*—never; *smaranti*—remember; *atitarām*—highly; *priyam*—dear; *īśa*—O Lord; *martyam*—material body; *ye*—they who; *ca*—also; *anu*—in relationship with; *adaḥ*—that; *suta*—sons; *suhṛt*—friends; *gṛha*—home; *vitta*—wealth; *dārāḥ*—and wife; *ye*—those who; *tu*—then; *abja-nābha*—O Lord who have a lotus navel; *bhavadīya*—of Your; *pada-aravinda*—lotus feet; *saugandhya*—the fragrance; *lubdha*—have achieved; *hṛdayeṣu*—with devotees whose hearts; *kṛta-prasaṅgāḥ*—have association.
+*te*—they; *na*—never; *smaranti*—remember; *atitarām*—highly; *priyam*—dear; *īśa*—O Lord; *martyam*—material body; *ye*—they who; *ca*—also; *anu*—in relationship with; *adaḥ*—that; *suta*—sons; *suhṛt*—friends; *gṛha*—home; *vitta*—wealth; *dārāḥ*—and wife; *ye*—those who; *tu*—then; *abja-nābha*—O Lord who has a lotus navel; *bhavadīya*—of Your; *pada-aravinda*—lotus feet; *saugandhya*—the fragrance; *lubdha*—have achieved; *hṛdayeṣu*—with devotees whose hearts; *kṛta-prasaṅgāḥ*—have association.
 
 **O Lord who has a lotus navel, if a person happens to associate with a devotee whose heart always hankers after Your lotus feet, seeking always their fragrance, he is never attached to the material body or, in relationship with it, offspring, friends, home, wealth, and wife, which are very, very dear to materialistic persons. He does not care for them.**
 

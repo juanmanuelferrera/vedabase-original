@@ -8,4 +8,4 @@
 
 *rāvaṇa*—the demon Rāvaṇa; *āsitei*—as soon as he arrived; *sītā*—mother Sītā; *antardhāna kaila*—disappeared; *rāvaṇera āge*—before the demon Rāvaṇa; *māyā-sītā*—illusory, material form of Sītā; *pāṭhāila*—sent.
 
-**"As soon as Rāvaṇa arrived before Sītā, she disappeared. Then just to cheat Rāvaṇa she sent an illusory, material form.**
+**"As soon as Rāvaṇa arrived before Sītā, she disappeared. It was just to cheat Rāvaṇa she sent an illusory, material form.**

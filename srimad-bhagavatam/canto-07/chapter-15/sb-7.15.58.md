@@ -8,7 +8,7 @@
 > durghaṭatvād aindriyakaṁ\
 > tadvad artha-vikalpitam
 
-*ābādhitaḥ*—rejected; *api*—although; *hi*—certainly; *ābhāsaḥ*—a reflection; *yathā*—as; *vastutayā*—a form of reality; *smṛtaḥ*—accepted; *durghaṭatvāt*—because of being very difficult to prove the reality; *aindriyakam*—knowledge derived from the senses; *tadvat*—similarly; *artha*—reality; *vikalpitam*—speculated or doubtful.
+*ābādhitaḥ*—rejected; *api*—although; *hi*—certainly; *ābhāsaḥ*—a reflection; *yathā*—as; *vastutayā*—a form of reality; *smṛtaḥ*—accepted; *durghaṭatvāt*—because of being very difficult to prove the reality; *aindriyakam*—knowledge derived from the senses; *tadvat*—similarly; *artha*—Him; *vikalpitam*—speculated or doubtful.
 
 **Although one may consider the reflection of the sun from a mirror to be false, it has its factual existence. Accordingly, to prove by speculative knowledge that there is no reality would be extremely difficult.**
 

@@ -10,4 +10,4 @@
 
 **Lord Śrī Caitanya Mahāprabhu then visited the holy place named Gajendra-mokṣaṇa, where He went to a temple of Lord Viṣṇu. He then came to Pānāgaḍi, a holy place where He saw the Deities of Lord Rāmacandra and Sītā.**
 
-The Gajendra-mokṣaṇa temple is sometimes mistaken for a temple of Lord Śiva. It is about two miles south of the city of Kaivera. Actually the Deity is not of Lord Śiva but of Viṣṇu. Pānāgaḍi is about thirty miles south of Tirunelveli. Formerly the temple there contained the Deity of Śrī Rāmacandra, but later the devotees of Lord Śiva replaced Lord Rāmacandra with a deity of Lord Śiva named Rāmeśvara or Rāma-liṅga Śiva.
+The Gajendra-mokṣaṇa temple is sometimes mistaken for a temple of Lord Śiva. It is about two miles south of the city of Kaivera. Actually the Deity is not of Lord Śiva but of Viṣṇu. Pānāgaḍi is about thirty miles south of the Tinebheli. Formerly the temple there contained the Deity of Śrī Rāmacandra, but later the devotees of Lord Śiva replaced Lord Rāmacandra with a deity of Lord Śiva named Rāmeśvara or Rāma-liṅga Śiva.
