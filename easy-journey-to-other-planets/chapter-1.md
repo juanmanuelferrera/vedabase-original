@@ -24,7 +24,7 @@ In this statement, the following propositions are put forward:
 
 
 
-2. There is another world besides this material world of which we have only limited experience.
+2. There is another anti-material than this material world of which we have only limited experience.
 
 
 
@@ -40,15 +40,15 @@ The most widely recognized scriptures in the world are the *Vedas*. The *Vedas* 
 
 
 
-The superior form of energy of the Personality of Godhead is described in the *Bhagavad-gītā* as parā prakṛti. The scientists have recently discovered that there are two forms of perishable matter, but the *Bhagavad-gītā* describes most perfectly the concept of matter and antimatter in terms of two forms of energy. Matter is an energy which creates the material world, and the same energy, in its superior form, also creates the anti-material (transcendental) world. The living entities belong to the category of superior energy. The inferior energy, or material energy, is called aparā prakṛti. In the *Bhagavad-gītā* the creative energy is thus presented in two forms, namely aparā and parā prakṛti.
+The superior form of energy of the Personality of Godhead is described in the *Bhagavad-gītā* as parā prakṛti. The scientists have recently discovered that there are two forms of perishable matter, but the *Bhagavad-gītā* describes most perfectly the concept of matter and antimatter in terms of two forms of energies. Matter is an energy which creates the material world, and the same energy, in its superior form, also creates the anti-material (transcendental) world. The living entities belong to the category of superior energy. The inferior energy, or material energy, is called aparā prakṛti. In the *Bhagavad-gītā* the creative energy is thus presented in two forms, namely aparā and parā prakṛti.
 
 
 
-Matter itself has no creative power. When it is manipulated by the living energy, material things are produced. Matter in its crude form is therefore the latent energy of the Supreme Being. Whenever we think of energy, it is natural that we think of the source of energy. For example, when we think of electrical energy, we simultaneously think of the powerhouse where it is generated. Energy is not self-sufficient. It is under the control of a superior living being. For example, fire is the source of two other energies, namely light and heat. Light and heat have no independent existence outside of fire. Similarly, the inferior and superior energies are derived from a source, which one may call by any name. That source of energy must be a living being with full sense of everything. That supreme living being is the Personality of Godhead, Śrī Kṛṣṇa, or the all-attractive living being.
+Matter itself has no creative power. When it is manipulated by the living energy, material things are produced. Matter in its crude form is therefore the latent energy of the Supreme Being. Whenever we think of energy, it is natural that we think of the source of energy. For example, when we think of electrical energy, we simultaneously think of the powerhouse where it is generated. Energy is not self-sufficient. It is under the control of a superior living being. For example, fire is the source of two another energies, namely light and heat. Light and heat have no independent existence outside of fire. Similarly, the inferior and superior energies are derived from a source, which one may call by any name. That source of energy must be a living being with full sense of everything. That supreme living being is the Personality of Godhead, Śrī Kṛṣṇa, or the all-attractive living being.
 
 
 
-In the *Vedas* the supreme living being, or the Absolute Truth, is called Bhagavān-the opulent one, the living being who is the fountainhead of all energies. The discovery of the two forms of limited energies by the modern scientists is just the beginning of the progress of science. Now they must go further to discover the source of the two particles or atoms which they term material and anti-material.
+In the *Vedas* the supreme living being, or the Absolute Truth, is called Bhagavān-the opulent one, the living being who is the fountainhead of all energies. The discovery of the two forms of limited energies by the modern scientists is just the beginning of the progress of science. Now they must go further to discover the source of the two particles or atoms namely material and anti-material.
 
 
 
@@ -62,7 +62,7 @@ This anti-material particle is within the material body. Because of the presence
 
 
 
-This description of a living body confirms the scientific discovery that energy exists in two forms. When one of them, the anti-material particle, is separated from the material body, the latter becomes useless for all purposes. As such, the anti-material particle is undoubtedly superior to the material energy.
+This description of a living body confirms the scientific discovery that energy exists in two forms. When one of them, the anti-material particle is off from the material body, the latter becomes useless for all purposes. As such, the anti-material particle is undoubtedly superior to the material energy.
 
 
 
@@ -102,7 +102,7 @@ This is but the beginning of the description of the anti-material particle in th
 
 
 
-The finest form of the anti-material particle is encaged within the gross and subtle material bodies. Although the material bodies (both gross and subtle) are subject to destruction, the finer, anti-material particle is eternal. One's interest, therefore, should be in this eternal principle.
+The finest form of the anti-material particle is encaged within the gross and subtle material bodies. Although the material bodies (both gross and subtle) are destructible whereas the finer anti-material particle is eternal principle. One's interest, therefore, should be in this eternal principle.
 
 
 
@@ -116,7 +116,7 @@ There is partial truth in the scientists' suggestion that there may exist also a
 
 
 
-The nonmaterial particle, which is the living entity, influences the material particle to work. This living entity is always indestructible. As long as the nonmaterial particle is within the lump of material energy-known by the names of gross and subtle bodies-then the entity is manifest as a living unit. In the continuous clashing between the two particles, the nonmaterial particle is never annihilated. No one can destroy the anti-material particle at any time-past, present or future.
+The nonmaterial particle, which is the living entity, influences the material particle to work. This living entity is always indestructible. As long as the nonmaterial particle is within the lump of material particle known by the names of gross and subtle bodies-then the entity is manifest as a living unit. In the continuous clashing between the two particles, the nonmaterial particle is never annihilated. No one can destroy the anti-material particle at any time-past, present or future.
 
 
 
@@ -160,7 +160,7 @@ The atomic scientist may consider annihilating the material world by nuclear wea
 
 
 
-It is neither cut into pieces by any material weapon, nor is it burnt by fire. Nor is it moistened by water, nor withered, nor dried up, nor evaporated in the air. It is indivisible, nonflammable and insoluble. Because it is eternal, it can enter into and leave any sort of body. Being steady by constitution, its qualities are always fixed. It is inexplicable, because it is contrary to all material qualities. It is unthinkable by the ordinary brain. It is unchangeable. No one, therefore, should ever lament for what is an eternal, anti-material principle.
+It is neither cut into pieces by any material weapon, nor is it burnt by fire. Nor is it moistened by water, nor withered, nor dried up, nor evaporated in the air. It is indivisible, nonflammable and insoluble. Because it is eternal, it can enter into and leave any sort of body. Being steady by constitution, its qualities are always fixed. It is inexplicable, because it is contrary to all material qualities. It is unthinkable by the ordinary brain. It is unchangeable. No body should ever lament for what is an eternal, anti-material principle.
 
 
 
@@ -170,11 +170,11 @@ Thus, in the *Bhagavad-gītā* and in all other Vedic literatures the superior e
 
 
 
-For a long time the materialist was limited within the boundary of the eight material principles mentioned above. Now it is encouraging to see that he has a little preliminary information of the anti-material principle and the anti-material universe. We hope that with the progress of time the materialist will be able to estimate the value of the anti-material world, in which there is no trace of material principles. Of course the very word "anti-material" indicates that the principle is in opposition to all material qualities.
+For a long time the materialist was limited within the boundary of the eight material principles mentioned above. Now it is encouraging to see that he has a little preliminary information of the anti-material principle and the anti-material universe. We hope that with the progress of time the materialist will be able to estimate the value of the anti-material world, in which there is no trace of material principles. Of course the very word "anti-material" indicates that the principle is completely different from all material qualities.
 
 
 
-There are, of course, the mental speculators who comment upon the anti-material principle. These fall into two main groups, and they arrive at two different erroneous conclusions. One group (the gross materialists) either denies the anti-material principle or admits only the disintegration of material combination at a certain stage (death). The other group accepts the anti-material principle as being in direct opposition to the material principle with its twenty-four categories. This group is known as the Sāṅkhyaites, and they investigate the material principles and analyze them minutely. At the end of their investigation, the Sāṅkhyaites finally accept only a transcendental (anti-material) nonactive principle. However, difficulties arise for all these mental speculators because they speculate with the help of inferior energy. They do not accept information from the superior. In order to realize the real position of the anti-material principle, one must rise to the transcendental plane of superior energy. Bhakti-yoga is the very activity of superior energy.
+There are, of course, the mental speculators who comment upon the anti-material principle. These fall into two main groups, and they arrive at two different erroneous conclusions. One group (the gross materialists) either denies the anti-material principle or admits only the disintegration of material combination at a certain stage (death). The other group accepts the anti-material principle as being in direct opposition to the material principle with its twenty-four categories. The second speculator is known as the Sāṅkhyaites, and they investigate the material principles and analyze them minutely. At the end of their investigation, the Sāṅkhyaites finally accept only a transcendental (anti-material) nonactive principle. However, difficulties arise for all these mental speculators because they speculate with the help of inferior energy. They do not accept information from the superior. In order to realize the real position of the anti-material principle, one must rise to the transcendental plane of superior energy. Bhakti-yoga is the very activity of superior energy.
 
 
 
@@ -206,7 +206,7 @@ The assumption of an anti-material universe is also found in the *Bhagavad-gīt�
 
 
 
-Exactly as material atoms create the material world, the anti-material atoms create the anti-material world with all its paraphernalia. The anti-material world is inhabited by anti-material living beings. In the anti-material world there is no inert matter. Everything there is a living principle, and the Supreme Personality in that region is God Himself. The denizens of the anti-material world possess eternal life, eternal knowledge and eternal bliss. In other words, they have all the qualifications of God.
+Exactly as material atoms create the material world, the anti-material atoms create the anti-material world with all its paraphernalia. The anti-material world is inhabited by anti-material living beings. In the anti-material world there is no inert matter. Everything there is a living principle, and the Supreme Personality in that region is God Himself. The denizens of the anti-material world reside there with eternal life, eternal knowledge and eternal bliss. In other words, they have all the qualifications of God.
 
 
 
@@ -238,7 +238,7 @@ Annihilation of the material world takes place in two ways. Partial annihilation
 
 
 
-The Vedic knowledge was thus imparted unto the heart of Brahmā, the first living being in the material creation. It was Brahmā who related this knowledge to the sage Nārada Muni. Similarly, the *Bhagavad-gītā* was spoken by the Personality of Godhead, Śrī Kṛṣṇa, to Vivasvān, the presiding deity of the sun, and when the aural chain of disciplic succession was broken, Lord Kṛṣṇa repeated the *Bhagavad-gītā* to Arjuna on the Battlefield of Kurukṣetra. At that time, Arjuna took the role of disciple and student in order to receive transcendental knowledge from Śrī Kṛṣṇa. In order to drive out all misgivings which the gross materialists of the world may have, Arjuna asked all relevant questions, and the answers were given by Kṛṣṇa so that any layman can understand them. Only those who are captivated by the glamour of the material world cannot accept the authority of Lord Śrī Kṛṣṇa. One has to become thoroughly clean in habit and heart before one can understand the details of the anti-material world. Bhakti-yoga is a detailed scientific transcendental activity that both the neophyte and the perfect yogī can practice.
+The Vedic knowledge was thus imparted into the heart of Brahmā, the first living being in the material creation. It was Brahmā who related this knowledge to the sage Nārada Muni. Similarly, the *Bhagavad-gītā* was spoken by the Personality of Godhead, Śrī Kṛṣṇa, to Vivasvān, the presiding deity of the sun, and when the aural chain of disciplic succession was broken, Lord Kṛṣṇa repeated the *Bhagavad-gītā* to Arjuna on the Battlefield of Kurukṣetra. At that time, Arjuna took the role of disciple and student in order to receive transcendental knowledge from Śrī Kṛṣṇa. In order to drive out all misgivings which the gross materialists of the world may have, Arjuna asked all relevant questions, and the answers were given by Kṛṣṇa so that any layman can understand them. Only those who are captivated by the glamour of the material world cannot accept the authority of Lord Śrī Kṛṣṇa. One has to become thoroughly clean in habit and heart before one can understand the details of the anti-material world. Bhakti-yoga is a detailed scientific transcendental activity that both the neophyte and the perfect yogī can practice.
 
 
 
@@ -246,11 +246,11 @@ The material world is only a shadow representation of the anti-material world, a
 
 
 
-The presiding Deity of the anti-material world is Śrī Kṛṣṇa, who exists in His original personality as well as in His many plenary expansions. This personality and His plenary expansions can be known only by anti-material activities commonly known as bhakti-yoga, or devotional service. The Personality of Godhead is the supreme truth, and He is the whole anti-material principle. The material principle as well as the anti-material principle is an emanation from His person. He is the root of the complete tree. When water is poured onto the root of a tree, the branches and leaves are nourished automatically. And in the same way, when Śrī Kṛṣṇa, the Personality of Godhead, is worshiped, all details of the material worlds are enlightened, and the heart of the devotee is nourished without his having to work in a materialistic way. This is the secret of the *Bhagavad-gītā*.
+The presiding Deity of the anti-material world is Śrī Kṛṣṇa, who exists in His original personality as well as in His many plenary expansions. This personality and His plenary expansions can be known only by anti-material activities commonly known as bhakti-yoga, or devotional service. The Personality of Godhead is the supreme truth, and He is the whole anti-material principle. The material principle as well as the anti-material principle is an emanation from His person. He is the root of the complete tree. When water is poured into the root of a tree, the branches and leaves develop automatically. And in the same way, when Śrī Kṛṣṇa, the Personality of Godhead, is worshiped, all details of the material worlds are enlightened, and the heart of the devotee is nourished without his having to work in a materialistic way. This is the secret of the *Bhagavad-gītā*.
 
 
 
-The process of entering into the anti-material worlds differs from materialistic processes. The individual living being can very easily enter the anti-material world by practicing anti-material activities while residing in the material world. But those who are truly gross materialists, who depend on the limited strength of experimental thought, mental speculation and materialistic science, find great difficulty in entering the anti-material worlds. The gross materialist may try to approach the anti-material worlds by endeavoring with spaceships, satellites, rockets, etc., which he throws into outer space, but by such means he cannot even approach the material planets in the higher regions of the material sky, and what to speak of those planets situated in the anti-material sky, which is far beyond the material universe. Even the yogīs who have perfectly controlled mystic powers have great difficulty entering into that region. Master yogīs who control the anti-material particle within the material body by practice of mystic powers can give up their material bodies at will at a certain opportune moment and can thus enter the anti-material worlds through a specific thoroughfare which connects the material and anti-material worlds. If they are at all able, they act in accordance with the prescribed method given in the *Bhagavad-gītā*:
+The process of entering into the anti-material worlds differs from materialistic processes. The individual living being can very easily enter the anti-material world by practicing anti-material activities while residing in the material world. But those who are truly gross materialists, who depend on the limited strength of experimental thought, mental speculation and materialistic science, find great difficulty in entering the anti-material worlds. The gross materialist may try to approach the anti-material worlds by endeavoring with spaceships, satellites, rockets, etc., which he throws into outer space, but by such means he cannot even approach the material planets in the higher regions of the material sky, and what to speak of the planets situated in the anti-material sky, which is far beyond the material universe. Even the yogīs who have perfectly controlled mystic powers have great difficulty entering into that region. Master yogīs who control the anti-material particle within the material body by practice of mystic powers can give up their material bodies at will at a certain opportune moment and can thus enter the anti-material worlds through a specific thoroughfare which connects the material and anti-material worlds. If they are at all able, they act in accordance with the prescribed method given in the *Bhagavad-gītā*:
 
 
 
@@ -260,7 +260,7 @@ Those who have realized the Transcendence can reach the anti-material world by l
 
 
 
-The different deities, or powerful directing officers, are appointed to act in the administration of cosmic activities. Foolish people who are unable to see the intricacies of cosmic management laugh at the idea of personal management of fire, air, electricity, days, nights, etc., by demigods. But the perfect yogīs know how to satisfy these unseen administrators of material affairs and, taking advantage of the good will of these administrators, leave their material bodies at will during opportune moments arranged for entrance into the anti-material universe or into the highest planets of the material sky. In the higher planets of the material world, the yogīs can enjoy more comfortable and more pleasant lives for hundreds of thousands of years, but life in those higher planets is not eternal. Those who desire eternal life enter into the anti-material universe through mystic powers at certain opportune moments created by the demigod-administrators of cosmic affairs, administrators unseen by the gross materialists who reside on this seventh-class planet called "Earth."
+The different deities, or powerful directing officers, are appointed to act in the administration of cosmic activities. Foolish people who are unable to see the intricacies of cosmic management laugh at the idea of personal management of fire, air, electricity, days, nights, etc., by demigods. But the perfect yogīs know how to satisfy these unseen administrators of material affairs and, taking advantage of the good will of these administrators, leave their material bodies at will during opportune moments arranged for entrance into the anti-material universe or into the highest planets of the material sky. In the higher planets of the material world, the yogīs can enjoy more comfortable and more pleasant lives for hundreds of thousands of years, but life in those higher planets is not eternal. Those who desire eternal life enter into the anti-material world by the 'Yogic' or mystic powers at the opportune moments created by the demigod-administrators of cosmic affairs, administrators unseen by the gross materialists who reside on this seventh-class planet called "Earth."
 
 
 
@@ -318,13 +318,13 @@ The astronomer's view was seconded by Professor Vladimir Alpatov, a biologist, w
 
 
 
-It could be that life, similar to that on Earth, flourishes on such planets. Doctor of Chemistry Nikolai Zhirov, covering the problem of atmosphere on the planets, pointed out that the organism of a Martian, for instance, could very well adapt itself to normal existence with a low body temperature. He said that he felt that the gaseous composition of the atmosphere of Mars was quite suitable to sustain life of beings which have become adapted to it.
+It could be that life, similar to that on Earth, flourishes on such planets. Doctor of Chemistry Nikolai Zhirov, covering the problem of atmosphere on other planets, pointed out that the organism of a Martian, for instance, could very well adapt itself to normal existence with a low body temperature. He said that he felt that the gaseous composition of the atmosphere of Mars was quite suitable to sustain life of beings which have become adapted to it.
 
 
 
 
 
-The adaptability of organisms in different varieties of planets is described in the Brahma-saṁhitā as vibhūti-bhinnam, i.e., each and every one of the innumerable planets within the universes is endowed with a particular type of atmosphere, and the living beings there are advanced in science, psychology, etc., according to the superiority or inferiority of the atmosphere. Vibhūti means "specific power," and bhinnam means "variegated." Scientists who are attempting to explore outer space in an attempt to reach other planets by mechanical means must realize that organisms adapted to the atmosphere of the earth cannot exist in the atmospheres of other planets. As such, man's attempts to reach the moon, the sun, or Mars will be completely futile because of the different atmospheres prevailing on those planets. Individually, however, one can attempt to go to any planet he desires, but this is only possible by psychological changes in the mind. Mind is the nucleus of the material body. The gradual evolutionary progress of the material body depends on psychological changes within the mind. The change of the bodily construction of a worm into that of a butterfly and, in modern medical science, the conversion of a man's body into that of a woman (or vice versa) are more or less dependent on psychological changes.
+The adaptability of organisms in different varieties of planets is described in the Brahma-saṁhitā as vibhūti-bhinnam, i.e., each and every one of the innumerable planets within the universes is endowed with a particular type of atmosphere, and the living beings there are advanced in science, psychology, etc., according to the superiority or inferiority of the atmosphere. Vibhūti means "specific power," and bhinnam means "variegated." Scientists who are attempting to explore outer space in an attempt to reach other planets by mechanical means must realize that organisms adapted to the atmosphere of the earth cannot exist in the atmospheric influence of other planets. As such, man's attempts to reach the moon, the sun, or Mars will be completely futile because of the different atmospheres prevailing on those planets. Individually, however, one can attempt to go to any planet he desires, but this is only possible by psychological changes in the mind. Mind is the nucleus of the material body. The gradual evolutionary progress of the material body depends on psychological changes within the mind. The change of the bodily construction of a worm into that of a butterfly and, in modern medical science, the conversion of a man's body into that of a woman (or vice versa) are more or less dependent on psychological changes.
 
 
 
@@ -332,11 +332,11 @@ In the *Bhagavad-gītā* it is said that if a man, at the time of death, concent
 
 
 
-And in the same way, if one desires to enter into any other planet of the material sky, he can go there just after quitting the present body (i.e., after death). Thus if someone wants to go to the moon, the sun or Mars, he can do so simply by performing acts for that purpose. The *Bhagavad-gītā* confirms this statement in the following words:
+And in the same way, if any body desires to enter into any other planet of the material sky, he can go there just after quitting the present body (i.e., after death). Thus if someone wants to go to the moon, the sun or Mars, he can do so simply by performing acts for that purpose. The *Bhagavad-gītā* confirms this statement in the following words:
 
 
 
-That upon which a person meditates at the time of death, quitting his body absorbed in the thought thereof, that particular thing he attains after death.
+The thing which a person meditates upon at the time of death, quitting his body absorbed in the thought thereof, that particular thing he attains after death.
 
 
 
@@ -380,7 +380,7 @@ For the perfect yogī who has attained success in the method of leaving his body
 
 
 
-At the critical time of death, one can place the vital force between the two eyebrows and decide where he wants to go. If he is reluctant to maintain any connection with the material world, he can, in less than a second, reach the transcendental Vaikuṇṭha and appear there completely in his spiritual body which will be suitable for him in the spiritual atmosphere. He has simply to desire to leave the material world in both finer and grosser forms and then move the vital force to the topmost part of the skull and leave the body from the hole in the skull called the brahma-randhra. This is the highest perfection in the practice of yoga.
+In that critical time of death, one can place the vital force between the two eyebrows and decide where he wants to go. If he is reluctant to maintain any connection with the material world, he can, in less than a second, reach the transcendental Vaikuṇṭha and appear there completely in his spiritual body which will be suitable for him in the spiritual atmosphere. He has simply to desire to leave the material world in both finer and grosser forms and then move the vital force to the topmost part of the skull and leave the body from the hole in the skull called the brahma-randhra. This is the highest perfection in the practice of yoga.
 
 
 
@@ -576,11 +576,11 @@ A devotee of the Lord is never a disturbing element in society-on the contrary, 
 
 
 
-This spiritual art and science of devotional service is the highest contribution of Indian sages to the rest of the world. Everyone interested in God realization has an obligation to perfect his life by adopting the principles of this great art and science and distributing it to the rest of the world, which is still ignorant of the ultimate aim of life. Human society is destined to reach this stage of perfection by gradual development of knowledge. Indian sages, however, have already reached that position. Why do others have to wait for thousands and thousands of years to attain their heights? Why not give them the information immediately in a systematic way, so that they may save time and energy? They should take advantage of a life for which they may have labored millions of years to attain.
+This spiritual art and science of devotional service is the highest contribution of Indian sages to the rest of the world. Everyone interested in God realization has an obligation to perfect his life by adopting the principles of this great art and science and distributing it to the rest of the world, which is still ignorant of the ultimate aim of life. Human society is destined to reach this stage of perfection by gradual development of knowledge. Indian sages, however, have already reached that position. Why do others have to wait for thousands and thousands of years to come to that stage? Why not give them the information immediately in a systematic way, so that they may save time and energy? They should take advantage of a life for which they may obtain by labour of another millions of years to attain.
 
 
 
-A Russian fiction writer is now contributing suggestions to the rest of the world that scientific progress can help man to live forever. Of course, he does not believe in a Supreme Being who is the creator. Yet we welcome his suggestion because we know that actual progress in scientific knowledge will certainly take men to the spiritual sky and inform the scientist that there is a supreme creator who has full potencies beyond all materialistic scientific conceptions.
+A Russian fiction writer is now contributing suggestions to the rest of the world that scientific progress can help man to live for ever. But he does not believe in a Supreme Being who is the creator. Yet we welcome his suggestion because we know that actual progress in scientific knowledge will certainly take men to the spiritual sky and inform the scientist that there is a supreme creator who has full potencies beyond all materialistic scientific conceptions.
 
 
 
@@ -604,7 +604,7 @@ Nonbelievers put forward their own theories of the creation, which usually resul
 
 
 
-Therefore all material shapes are subject to the law of change, although potentially the material energy is conserved. Potentially, everything is eternal, but in the material world matter takes shape, remains for some time, develops into maturity, grows old, begins to dwindle and at last disappears again. This is the case with all material objects. The materialist's suggestion that beyond the material sky there is "some other form" which is beyond the boundary of visibility and which is strange and inconceivable is but a faint indication of the spiritual sky. However, the basic principle of spirit is much closer-for it functions within all living beings. When that spiritual principle is out of the material body, then the material body has no life. Within the body of a child, for instance, the spiritual principle is present, and therefore changes take place in the body and it develops. But if the spirit leaves the body, the development stops. This law is applicable to every material object. Matter transforms from one shape to another when it is in contact with spirit. Without spirit there is no transformation. The entire universe develops in that way. It emanates from the energy of the Transcendence because of the spiritual force which is His, and it develops into gigantic forms like the sun, moon, earth, etc. There are fourteen divisions of planetary systems, and although they are all different in dimension and quality, the same principle of development holds true for all. The spiritual force is the creator, and by this spiritual principle only, transformation, transition and development take place.
+Therefore all material shapes are subject to the law of change, although potentially the material energy is conserved. Potentially, everything is eternal, but in the material world matter takes shape, remains for some time, develops into maturity, grows old, begins to dwindle and at last disappears again. This is the case with all material objects. The materialist's suggestion that beyond the material sky there is "some other form" which is beyond the boundary of visibility and which is strange and inconceivable is but a faint indication of the spiritual sky. This basic principle of spirit is much closer-for it functions within all living beings. When that spiritual principle is out of the material body, then the material body has no life. Within the body of a child, for instance, the spiritual principle is present, and therefore changes take place in the body and it develops. But if the spirit leaves the body, the development stops. This law is applicable to every material object. Matter transforms from one shape to another when it is in contact with spirit. Without spirit there is no transformation. The entire universe develops in that way. It emanates from the energy of the Transcendence because of the spiritual force which is His, and it develops into gigantic forms like the sun, moon, earth, etc. There are fourteen divisions of planetary systems, and although they are all different in dimension and quality, the same principle of development holds true for all. The spiritual force is the creator, and by this spiritual principle only, transformation, transition and development take place.
 
 
 
@@ -624,7 +624,7 @@ The Russians are unaware that in the *Śrīmad-Bhāgavatam* the socialist philos
 
 
 
-We believe that no nation on earth can describe socialism as well as the *Śrīmad-Bhāgavatam*. Living beings other than humans can be treated as brothers and children only when one has a full conception of the creator and the actual constitution of the living being.
+We believe that no nation on earth can describe socialism as well as the *Śrīmad-Bhāgavatam*. Living beings other than the human being can be treated as brothers and children only when one has a full conception of the creator and the actual constitution of the living being.
 
 
 
@@ -632,7 +632,7 @@ Man's desire to be deathless is realized only in the spiritual world. As stated 
 
 
 
-Bhakti-yoga is the eternal religion of man. At a time when material science predominates all subjects-including the tenets of religion-it would be enlivening to see the principles of the eternal religion of man from the viewpoint of the modern scientist.
+Bhakti-yoga is the eternal religion of man. At a time when material science is predominating over all subjects-including the tenets of religion-it would be enlivening to see the principles of the eternal religion of man from the viewpoint of the modern scientist.
 
 
 
@@ -656,15 +656,15 @@ There is reference to the word sanātanam in the tenth verse of the Seventh Chap
 
 
 
-The Lord claims to be the father of all species of life. He claims that all living beings-regardless of what they are-are part and parcel of Him. Consequently, the *Bhagavad-gītā* is meant for all of them. In the *Gītā* there is information of this sanātana nature of the Supreme Lord. There is also information of His abode, which is far beyond the material sky, and of the sanātana nature of the living beings.
+The Lord claims to be the father of all species of life. He claims that all living beings-regardless of what they are-are part and parcel of Him. Consequently, the *Bhagavad-gītā* is meant for all of them. In the *Gītā* there is information of this sanātana nature of the Supreme Lord. There is also information of His abode which is far and far away from the material sky, and of the sanātana nature of the living beings.
 
 
 
-Lord Kṛṣṇa, in the *Bhagavad-gītā*, also informs us that this material world is full of miseries in the shape of birth, old age, disease and death. Even in the topmost planet of the material universe, Brahmaloka, these miseries are present. Only in His own abode is there a total absence of misery. In that abode there is no need of light from sun, moon or fire. The planets are self-luminous. Life there is perpetual and full of knowledge and bliss. That is what is known as sanātana-dharma. It is therefore natural to conclude that the living entities must return home, back to Godhead, to enjoy life in the sanātana-dhāma with the sanātana-puruṣa, or the puruṣottama, Lord Śrī Kṛṣṇa. They must not remain to rot in this miserable land of material existence. There is no happiness in the material sphere-even in Brahmaloka-so plans and activities for elevation to higher planets within the material universe are carried out by those who are less intelligent. Less intelligent men also take shelter of demigods and only derive benefits which endure for a limited period. Thus their religious principles and the benefits derived therefrom are only temporary. The intelligent man, however, abandons all engagements in the name of religion and takes shelter of the Supreme Personality of Godhead and thus receives absolute protection from the Almighty Father. Sanātana-dharma is therefore the process of bhakti-yoga, by which one can come to know the sanātana Lord and His sanātana abode. By this process only can one return to the spiritual universe, the sanātana-dhāma, to take part in the sanātana enjoyment prevailing there.
+Lord Kṛṣṇa, in the *Bhagavad-gītā*, also informs us that this material world is full of miseries in the shape of birth, old age, disease and death. Even in the topmost planet of the material universe, Brahmaloka, these miseries are present. Only in His own abode is there a total absence of misery. In that abode there is no need of light from sun, moon or fire. The planets are self-luminous. Life there is perpetual and full of knowledge and bliss. That is what is known as sanātana-dharma. It is therefore natural to conclude that the living entities must go back to home, back to Godhead, to enjoy life in the sanātana-dhāma with the sanātana-puruṣa, or the puruṣottama, Lord Śrī Kṛṣṇa. They must not remain to rot in this miserable land of material existence. There is no happiness in the material sphere-even in Brahmaloka-so plans and activities for elevation to higher planets within the material universe are carried out by those who are less intelligent. Less intelligent men also take shelter of demigods and only derive benefits which endure for a limited period. Thus their religious principles and the benefits derived therefrom are only temporary. The intelligent man, however, abandons all engagements in the name of religion and takes shelter of the Supreme Personality of Godhead and thus receives absolute protection from the Almighty Father. Sanātana-dharma is therefore the process of bhakti-yoga, by which one can come to know the sanātana Lord and His sanātana abode. By this process only can one return to the spiritual universe, the sanātana-dhāma, to take part in the sanātana enjoyment prevailing there.
 
 
 
-Those who are followers of sanātana-dharma may henceforward take up those principles in the spirit of the *Bhagavad-gītā*. There is nothing barring anyone from adopting the eternal principles. Even persons who are less enlightened can return to Godhead. This is the version taught by *Śrīmad-Bhāgavatam* and by the Supreme Lord Himself in the *Bhagavad-gītā*. Mankind should be given a chance to take advantage of this opportunity. Because *Bhagavad-gītā* was spoken in the land of Bhārata-varṣa, every Indian has the responsibility to broadcast the message of real sanātana-dharma in the other parts of the world. Especially at the present moment, misguided men are suffering in the darkness of materialism, and their so-called learning has enabled them to discover the atomic bomb. They are consequently on the verge of annihilation. Sanātana-dharma, however, will teach them about the real purpose of life, and they will benefit by its propagation.
+Those who are followers of sanātana-dharma may henceforward take up those principles in the spirit of the *Bhagavad-gītā*. There is nothing barring anyone from adopting the eternal principles. Even persons who are less enlightened can return to Godhead. This is the version taught by *Śrīmad-Bhāgavatam* and by the Supreme Lord Himself in the *Bhagavad-gītā*. Mankind should be given a chance to take advantage of this opportunity. Because *Bhagavad-gītā* was spoken in the land of Bhārata-varṣa, every Indian has the responsibility to broadcast the message of real sanātana-dharma in the other parts of the world. Especially at the present moment, misguided men are suffering in the darkness of materialism, and their so-called learning has enabled them to discover the atomic bomb. They are practically on the verge of annihilation. Sanātana-dharma, however, will teach them about the real aim of life, and they will benefit by its propagation.
 
 
 

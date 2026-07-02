@@ -10,7 +10,7 @@
 > tiṣṭhan vraje tad-anurāgi janānugāmī\
 > kālaṁ nayed akhilam ity upadeśa-sāram
 
-*tat*—of Lord Kṛṣṇa; *nāma*—the holy name; *rūpa*—form; *carita-ādi*—character, pastimes and so on; *su-kīrtana*—in discussing or chanting nicely; *anusmṛtyoḥ*—and in remembering; *krameṇa*—gradually; *rasanā*—the tongue; *manasī*—and one's mind; *niyojya*—engaging; *tiṣṭhan*—residing; *vraje*—in Vraja; *tat*—to Lord Kṛṣṇa; *anurāgi*—attached; *jana*—persons; *anugāmī*—following; *kālam*—time; *nayet*—should utilize; *akhilam*—full; *iti*—thus; *upadeśa*—of advice or instruction; *sāram*—the essence.
+*tat*—of Lord Kṛṣṇa; *nāma*—the holy name; *rūpa*—form; *carita-ādi*—character, pastimes and so on; *su-kīrtana*—in discussing or chanting nicely; *anusmṛtyoḥ*—and in remembering; *krameṇa*—gradually; *rasanā*—the tongue; *manasī*—and the mind; *niyojya*—engaging; *tiṣṭhan*—residing; *vraje*—in Vraja; *tat*—to Lord Kṛṣṇa; *anurāgi*—attached; *jana*—persons; *anugāmī*—following; *kālam*—time; *nayet*—should utilize; *akhilam*—full; *iti*—thus; *upadeśa*—of advice or instruction; *sāram*—the essence.
 
 **The essence of all advice is that one should utilize one's full time—twenty-four hours a day—in nicely chanting and remembering the Lord's divine name, transcendental form, qualities and eternal pastimes, thereby gradually engaging one's tongue and mind. In this way one should reside in Vraja [Goloka Vṛndāvana dhāma] and serve Kṛṣṇa under the guidance of devotees. One should follow in the footsteps of the Lord's beloved devotees, who are deeply attached to His devotional service.**
 
