@@ -384,7 +384,7 @@ In that critical time of death, one can place the vital force between the two ey
 
 
 
-Of course man is endowed with free will, and as such if he does not want to free himself of the material world he may enjoy the life of brahma-pāda (occupation of the post of Brahmā) and visit Siddhaloka, the planets of materially perfect beings who have full abilities to control gravity, space, time, etc. To visit these higher planets in the material universe, one need not give up his mind and intelligence (finer matter), but need only give up grosser matter (the material body).
+Of course man is endowed with the freedom of will, and as such if he does not want to free himself of the material world he may enjoy the life of brahma-pāda (occupation of the post of Brahmā) and visit Siddhaloka, the planets of materially perfect beings who have full abilities to control gravity, space, time, etc. To visit these higher planets in the material universe, one need not give up his mind and intelligence (finer matter), but need only give up grosser matter (the material body).
 
 
 
@@ -640,7 +640,7 @@ Even Dr. S. Radhakrishnan admitted in the world religion conference held sometim
 
 
 
-Śrīpāda Rāmānujācārya defines the word sanātana, or "eternal," as that which has neither beginning nor end. When we speak of sanātana-dharma, eternal religion, we take this definition for granted. That which has neither beginning nor end is unlike anything sectarian, which has limits and boundaries. In the light of modern science it will be possible for us to see sanātana-dharma as the main occupation of all the people of the world-nay, of all living entities of the universe. Non-sanātana religious faith may have some beginning in the annals of man, but there is no historic origin of sanātana-dharma because it eternally remains with the living entities.
+Śrīpāda Rāmānujācārya defines the word sanātana, or "eternal," as that which has neither beginning nor end. When we speak of sanātana-dharma, eternal religion, we take this definition for granted. That which has neither beginning nor end is unlike anything sectarian, which has limits and boundaries. In the light of modern science it will be possible for us to see sanātana-dharma as the business of all the people of the world-nay, of all living entities of the universe. Non-sanātana religious faith may have some beginning in the annals of man, but there is no historic origin of sanātana-dharma because it eternally remains with the living entities.
 
 
 
