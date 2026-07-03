@@ -14,4 +14,4 @@
 
 The false prestige of thinking "I am very rich, and I possess such vast property" is another side of material life. Everything belongs to the Supreme Personality of Godhead, and no one else possesses anything. This is the real fact. *Īśāvāsyam idaṁ samaṁ yat kiñca jagatyāṁ jagat.* Bali Mahārāja was undoubtedly the most exalted devotee, whereas previously he had maintained a misunderstanding due to false prestige. By the supreme will of the Lord, he now had to go to the hellish planets, but because he went there by the order of the Supreme Personality of Godhead, he lived there more opulently than one could expect to live in the planets of heaven. A devotee always lives with the Supreme Personality of Godhead, engaging in His service, and therefore he is always transcendental to hellish or heavenly residences.
 
-Thus end the Bhaktivedanta purports of the Eighth Canto, Twenty-first Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Bali Mahārāja Arrested by the Lord"
+Thus end the Bhaktivedanta purports of the Eighth Canto, Twenty-Twenty-second Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Bali Mahārāja Arrested by the Lord"

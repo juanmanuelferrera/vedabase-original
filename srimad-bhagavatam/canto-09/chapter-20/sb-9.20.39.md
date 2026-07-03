@@ -14,4 +14,4 @@
 
 From this verse it is understood that those who are rejected from the higher planetary system are given a chance to take birth in the most exalted families on this planet earth.
 
-Thus end the Bhaktivedanta purports of the Ninth Canto, Twentieth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "The Dynasty of Pūru."
+Thus end the Bhaktivedanta purports of the Ninth Canto, Ninth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "The Dynasty of Pūru."

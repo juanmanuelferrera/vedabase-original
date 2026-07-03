@@ -163,7 +163,7 @@ The universal planetary systems are very nicely explained in the fifth Canto of 
 
 We have experience of different atmospheric conditions even on this planet. In the Western countries near the North Pole, the climate is different than in India, which is near the equator. Just as there are differences in atmosphere and living conditions on this planet, similarly there are many planets which have different atmospheres and conditions of life.
 
-After hearing a description of the hellish planets from Śukadeva Gosvāmī, Parīkṣit Mahārāja said,
+After hearing a description of the hellish planets from Śukadeva Goswami, Parīkṣit Mahārāja said,
 
 > adhuneha mahā-bhāga
 > yathaiva narakān naraḥ

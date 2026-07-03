@@ -12,4 +12,4 @@
 
 **By the grace of the Lord, those who hear about the activities of Mahārāja Ambarīṣa, the great devotee, certainly become liberated or become devotees without delay.**
 
-Thus end the Bhaktivedanta purports of the Ninth Canto, Fifth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Durvāsā Muni's Life Spared."
+Thus end the Bhaktivedanta purports of the Ninth Canto, Seventh Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Durvāsā Muni's Life Spared."

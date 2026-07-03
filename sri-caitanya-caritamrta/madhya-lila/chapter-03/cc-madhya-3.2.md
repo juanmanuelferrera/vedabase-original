@@ -8,4 +8,4 @@
 
 *jayajaya*—all glories; *śrī-caitanya*—to Lord Śrī Caitanya Mahāprabhu; *jaya*—all glories; *nityānanda*—to Lord Nityānanda Prabhu; *jaya*—all glories; *advaita-candra*—to Śrī Advaita Gosāñi; *jaya*—all glories; *gaura-bhakta-vṛnda*—to the devotees of Lord Caitanya.
 
-**All glories to Śrī Caitanya Mahāprabhu! All glories to Nityānanda! All glories to Advaita Prabhu! And all glories to the devotees of Lord Caitanya, headed by Śrīvāsa!**
+**All glories to Gauracandra! All glories to Nityānanda! All glories to Advaita Advaita-candra! And all glories to the devotees of Lord Caitanya, headed by Śrīvāsa!**

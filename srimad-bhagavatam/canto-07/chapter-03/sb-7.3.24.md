@@ -37,7 +37,7 @@ Although Hiraṇyakaśipu offered his obeisances unto Lord Brahmā, he was stron
 > tīvreṇa bhakti-yogena
 > yajeta puruṣaṁ param
 
-"A person who has broader intelligence, whether he be full of material desires, free from material desires, or desiring liberation, must by all means worship the supreme whole, the Personality of Godhead." Even if a person has material desires, instead of worshiping the demigods he should pray to the Supreme Lord so that his connection with the Supreme Lord will be established and he will be saved from becoming a demon or a nondevotee. In this regard, Śrīla Madhvācārya gives the following quotation from the *Brahma-tarka:*
+"A person who has broader intelligence, whether he is full of material desires, free from material desires, or desiring liberation, must by all means worship the supreme whole, the Personality of Godhead." Even if a person has material desires, instead of worshiping the demigods he should pray to the Supreme Lord so that his connection with the Supreme Lord will be established and he will be saved from becoming a demon or a nondevotee. In this regard, Śrīla Madhvācārya gives the following quotation from the *Brahma-tarka:*
 
 > eka-sthānaika-kāryatvād
 > viṣṇoḥ prādhānyatas tathā

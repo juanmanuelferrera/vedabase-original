@@ -54,7 +54,7 @@ But if you become Kṛṣṇa conscious, you will feel happy always.
 They had implied that you cannot feel happy without Kṛṣṇa consciousness.
 
 **Śrīla Prabhupāda:**
-That is a fact. For example, if you are an animal of the land and you are thrown into the water, you cannot be happy in water in any condition. When you are again taken up a the land, then you'll be happy. Similarly, we are part and parcel of Kṛṣṇa. We cannot be happy without being part and parcel of Kṛṣṇa. The same example: the machine part, without the machine, has no value, but when it is again put into the machine it has value. We are part of Kṛṣṇa; we must join Kṛṣṇa. And you can join Kṛṣṇa immediately by your consciousness, simply by thinking, "I am Kṛṣṇa's, Kṛṣṇa is mine:' That's all.
+That is a fact. For example, if you are an animal of the land and you are thrown into the water, you cannot be happy in water in any condition. When you are again taken up to the land, then you'll be happy. Similarly, we are part and parcel of Kṛṣṇa. We cannot be happy without being part and parcel of Kṛṣṇa. The same example: the machine part, without the machine, has no value, but when it is again put into the machine it has value. We are part of Kṛṣṇa; we must join Kṛṣṇa. And you can join Kṛṣṇa immediately by your consciousness, simply by thinking, "I am Kṛṣṇa's, Kṛṣṇa is mine:' That's all.
 
 **Bob:**
 What is that? Kṛṣṇa is...

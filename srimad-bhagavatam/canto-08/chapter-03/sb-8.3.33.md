@@ -14,4 +14,4 @@
 
 **Thereafter, seeing Gajendra in such an aggrieved position, the unborn Supreme Personality of Godhead, Hari, immediately got down from the back of Garuḍa by His causeless mercy and pulled the King of the elephants, along with the crocodile, out of the water. Then, in the presence of all the demigods, who were looking on, the Lord severed the crocodile's mouth from its body with His disc. In this way He saved Gajendra, the King of the elephants.**
 
-Thus end the Bhaktivedanta purports of the Eighth Canto, Third Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Gajendra's Prayers of Surrender."
+Thus end the Bhaktivedanta purports of the Eighth Canto, Tenth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Gajendra's Prayers of Surrender."

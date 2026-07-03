@@ -10,4 +10,4 @@
 
 **CHAPTER 20 Lord Śrī Rūpa and Śrī Raghunātha, always desiring their mercy, I, Kṛṣṇadāsa, narrate Śrī Caitanya-caritāmṛta, following in their footsteps.**
 
-*Thus end the Bhaktivedanta purports to Śrī Caitanya-caritāmṛta, Madhya-līlā,  Nineteenth Chapter, describing the Lord's instructions to Śrīla Rūpa Gosvāmī at Prayāga in the science of devotional service.*
+*Thus end the Bhaktivedanta purports to Śrī Caitanya-caritāmṛta, Madhya-līlā,  Twenty-first Chapter, describing the Lord's instructions to Śrīla Rūpa Gosvāmī at Prayāga in the science of devotional service.*

@@ -14,4 +14,4 @@
 
 According to the Vedic system, one within the institution of *varṇa* and *āśrama* must leave his family life after he reaches fifty years of age (*pañcāśad ūrdhvaṁ vanaṁ vrajet*). Thus Sudyumna followed the prescribed regulations of *varṇāśrama* by leaving the kingdom and going to the forest to complete his spiritual life.
 
-Thus end the Bhaktivedanta purports of the Ninth Canto, First Chapter, of the *Śrīmad-Bhāgavatam,* entitled "King Sudyumna Becomes a Woman."
+Thus end the Bhaktivedanta purports of the Ninth Canto, Sixth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "King Sudyumna Becomes a Woman."

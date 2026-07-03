@@ -12,4 +12,4 @@
 
 **Without transgressing the religious principles, Lord Rāmacandra, whose lotus feet are worshiped by devotees in meditation, enjoyed with all the paraphernalia of transcendental pleasure for as long as needed.**
 
-Thus end the Bhaktivedanta purports of the Ninth Canto, Eleventh Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Lord Rāmacandra Rules the World."
+Thus end the Bhaktivedanta purports of the Ninth Canto, Fourteenth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Lord Rāmacandra Rules the World."

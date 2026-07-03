@@ -19,7 +19,7 @@ As long as a living entity wants to fulfill various types of material desire, he
 > tīvreṇa bhakti-yogena
 > yajeta puruṣaṁ param
 
-"A person who has broader intelligence, whether he be full of all material desire, without any material desire, or desiring liberation, must by all means worship the supreme whole, the Personality of Godhead." [[sb/2/3/10|(SB 2.3.10)]]
+"A person who has broader intelligence, whether he be full of all material desire, without any material desire, or desiring liberation, must by all means worship the supreme whole, the Personality of Godhead." [[Bhāg./2/3/10|(SB 2.3.10)]]
 
 > anyābhilāṣitā-śūnyaṁ
 > jñāna-karmādy-anāvṛtam

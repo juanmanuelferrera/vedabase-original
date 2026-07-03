@@ -49,4 +49,4 @@
 
 Because of the Supreme Lord's assuming the form of a beautiful woman to arouse the lusty desires of the demons, a description of Her complete beauty is given here.
 
-Thus end the Bhaktivedanta purports of the Eighth Canto, Eighth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "The Churning of the Milk Ocean."
+Thus end the Bhaktivedanta purports of the Eighth Canto, Tenth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "The Churning of the Milk Ocean."

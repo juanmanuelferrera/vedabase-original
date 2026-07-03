@@ -10,4 +10,4 @@
 
 **Praying at the lotus feet of Śrī Rūpa and Śrī Raghunātha, always desiring their mercy, I, Kṛṣṇadāsa, narrate Śrī Caitanya-caritāmṛta, following in their footsteps.**
 
-*Thus end the Bhaktivedanta purports of the Śrī Caitanya-caritāmṛta, Madhya-līlā,  Chapter One, summarizing the later pastimes of Lord Śrī Caitanya Mahāprabhu.*
+*Thus end the Bhaktivedanta purports to the Śrī Caitanya-caritāmṛta, Madhya-līlā,  Chapter One, summarizing the later pastimes of Lord Śrī Caitanya Mahāprabhu.*

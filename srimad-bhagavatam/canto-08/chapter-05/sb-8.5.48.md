@@ -21,4 +21,4 @@ The Supreme Personality of Godhead is actually the only object of our love. As l
 > tīvreṇa bhakti-yogena
 > yajeta puruṣaṁ param
 
-"Whether one desires everything or nothing or desires to merge into the existence of the Lord, he is intelligent only if he worships Lord Kṛṣṇa, the Supreme Personality of Godhead, by rendering transcendental loving service." [[sb/2/3/10|(SB 2.3.10)]] Even if one has material desires, one can undoubtedly achieve what he wants by rendering service to the Lord.
+"Whether one desires everything or nothing or desires to merge into the existence of the Lord, he is intelligent only if he worships Lord Kṛṣṇa, the Supreme Personality of Godhead, by rendering transcendental loving service." [[Bhāg./2/3/10|(SB 2.3.10)]] Even if one has material desires, one can undoubtedly achieve what he wants by rendering service to the Lord.

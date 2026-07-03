@@ -14,4 +14,4 @@
 
 This is the history of a monarchy that began with Jarāsandha and continues for one thousand years as the above-mentioned kings appear on the surface of the globe.
 
-Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, of the *Śrīmad-Bhāgavatam,* entitled "The Descendants of Ajamīḍha."
+Thus end the Bhaktivedanta purports of the Ninth Canto, Tenth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "The Descendants of Ajamīḍha."
