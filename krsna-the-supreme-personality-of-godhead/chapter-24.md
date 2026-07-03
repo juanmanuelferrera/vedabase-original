@@ -40,4 +40,4 @@ When everything was complete, Kṛṣṇa assumed a great transcendental form an
 
 Thus performing the Govardhana Pūjā sacrifice, all the inhabitants of Vṛndāvana followed the instructions of Kṛṣṇa, the son of Vasudeva, and afterwards they returned to their respective homes.
 
-*Thus ends the Bhaktivedanta purport of the Twenty-fourth Chapter of* Kṛṣṇa, *"Worshiping Govardhana Hill."*
+*Thus ends the Bhaktivedanta purport of the Forty-fourth Chapter of* Kṛṣṇa, *"Worshiping Govardhana Hill."*
