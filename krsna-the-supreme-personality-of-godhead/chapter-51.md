@@ -38,4 +38,4 @@ She also explained to Kṛṣṇa why she was so anxious to be married to Him, e
 
 After explaining Rukmiṇīdevī's statement to Kṛṣṇa, the *brāhmaṇa* said: "My dear Kṛṣṇa, chief of the Yadu dynasty, I have brought this confidential message for You from Rukmiṇī; now it is placed before You for Your consideration. After due deliberation You can act as You please, but if You want to do something, You must do it immediately. There is not much time left for action."
 
-*Thus ends the Bhaktivedanta purport of the Fifty-first Chapter of* Kṛṣṇa, *"Kṛṣṇa, the Ranchor."*
+*Thus ends the Bhaktivedanta purport of the Twenty-sixth Chapter of* Kṛṣṇa, *"Kṛṣṇa, the Ranchor."*

@@ -62,4 +62,4 @@ In the *Caitanya-caritāmṛta* it is said that Kṛṣṇa is just like sunligh
 
 Mother Yaśodā understood that a child was born of her, but because she was very tired from the labor of childbirth, she was fast asleep. When she awoke, she could not remember whether she had given birth to a male or female child.
 
-*Thus ends the Bhaktivedanta purport of the Third Chapter of* Kṛṣṇa, *"Birth of Lord Kṛṣṇa."*
+*Thus ends the Bhaktivedanta purport of the Forty-first Chapter of* Kṛṣṇa, *"Birth of Lord Kṛṣṇa."*

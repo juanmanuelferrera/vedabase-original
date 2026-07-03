@@ -58,4 +58,4 @@ Kṛṣṇa had another aunt, His father's sister, whose name was Śrutakīrti, 
 
 The description of Kṛṣṇa's marriage with the five girls mentioned in this chapter is not sufficient. He had many other thousands of wives besides them. The other thousands of wives were accepted by Kṛṣṇa after killing one demon named Bhaumāsura. All these thousands of girls were held captive in the palace of Bhaumāsura, and Kṛṣṇa released them and married them.
 
-*Thus ends the Bhaktivedanta purport of the Fifty-seventh Chapter of* Kṛṣṇa, *"Five Queens Married by Kṛṣṇa."*
+*Thus ends the Bhaktivedanta purport of the Twenty-eighth Chapter of* Kṛṣṇa, *"Five Queens Married by Kṛṣṇa."*

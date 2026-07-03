@@ -8,7 +8,7 @@
 > jana-saṅgaś ca laulyaṁ ca\
 > ṣaḍbhir bhaktir vinaśyati
 
-*ati-āhāraḥ*—overeating or too much collecting; *prayāsaḥ*—overendeavouring; *ca*—and; *prajalpaḥ*—idle talking; *niyama*—rules and regulations; *āgrahaḥ*—too much attachment to (or *agrahaḥ*—too much neglect of); *jana-saṅgaḥ*—association with worldly-minded persons; *ca*—and; *laulyam*—ardent longing or greed; *ca*—and; *ṣaḍbhiḥ*—by these six; *bhaktiḥ*—devotional service; *vinaśyati*—is destroyed.
+*ati-āhāraḥ*—overeating or too much collecting; *prayāsaḥ*—overendeavoring; *ca*—and; *prajalpaḥ*—idle talking; *niyama*—rules and regulations; *āgrahaḥ*—too much attachment to (or *agrahaḥ*—too much neglect of); *jana-saṅgaḥ*—association with worldly-minded persons; *ca*—and; *laulyam*—ardent longing or greed; *ca*—and; *ṣaḍbhiḥ*—by these six; *bhaktiḥ*—devotional service; *vinaśyati*—is destroyed.
 
 **One's devotional service is spoiled when he becomes too entangled in the following six activities: (1) eating more than necessary or collecting more funds than required; (2) overendeavoring for mundane things that are very difficult to obtain; (3) talking unnecessarily about mundane subject matters; (4) Practicing the scriptural rules and regulations only for the sake of following them and not for the sake of spiritual advancement, or rejecting the rules and regulations of the scriptures and working independently or whimsically; (5) associating with worldly-minded persons who are not interested in Kṛṣṇa consciousness; and (6) being greedy for mundane achievements.**
 

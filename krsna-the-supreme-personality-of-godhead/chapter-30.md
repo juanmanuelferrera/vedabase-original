@@ -24,4 +24,4 @@ All the *gopīs* then went further and further into the forest, searching out K�
 
 When they saw that it was getting gradually darker, they stopped. Their mind and intelligence became absorbed in the thoughts of Kṛṣṇa; they all imitated the activities of Kṛṣṇa and His speeches. Due to their heart and soul being completely given to Kṛṣṇa, they began to chant His glories, completely forgetting their family interests. In this way, all the *gopīs* assembled together on the bank of Yamunā, and expecting that Kṛṣṇa must return to them, they simply engaged in the chanting of the glories of Śrī Kṛṣṇa—Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare, Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
 
-*Thus ends the Bhaktivedanta purport of the Thirtieth Chapter of* Kṛṣṇa, *"Kṛṣṇa's Hiding from the* Gopīs.*"*
+*Thus ends the Bhaktivedanta purport of the Forty-second Chapter of* Kṛṣṇa, *"Kṛṣṇa's Hiding from the* Gopīs.*"*

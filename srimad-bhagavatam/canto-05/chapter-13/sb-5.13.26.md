@@ -12,4 +12,4 @@
 
 There are many stories and incidents in *Śrīmad-Bhāgavatam* that are described figuratively. Such allegorical descriptions may not be understood by unintelligent men; therefore it is the duty of the student to approach a bona fide spiritual master for the direct explanation.
 
-Thus end the Bhaktivedanta purports of the Fifth Canto, Thirteenth Chapter, of the *Śrīmad-Bhāgavatam,* entitled, "Further Talks Between King Rahūgaṇa and Jaḍa Bharata."
+Thus end the Bhaktivedanta purports of the Fourth Canto, Thirteenth Chapter, of the *Śrīmad-Bhāgavatam,* entitled, "Further Talks Between King Rahūgaṇa and Jaḍa Bharata."

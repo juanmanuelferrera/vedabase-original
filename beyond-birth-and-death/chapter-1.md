@@ -32,7 +32,7 @@ Consciousness cannot be denied. A body without consciousness is a dead body. of 
 
 
 
-The impersonalist school of Śaṅkarācārya, of well of the Vaiṣṇavas following in the disciplic succession from Lord Śrī Kṛṣṇa, acknowledge the factual existence of the soul, but the Buddhist philosophers do not. The Buddhists contend that at a certain stage the combination of matter produces consciousness, but this argument is refuted by the fact that although we may have all the constituents of matter at our disposal, we cannot produce consciousness from them. All the material elements may be present in a dead man, but we cannot revive that man to consciousness. This body is not like a machine. When a part of a machine breaks down, it can be replaced, and the machine will work again, but when the body breaks down and consciousness leaves the body, there is no possibility of our replacing the broken part and rejuvenating the consciousness. The soul is different from the body, and of long of the soul is there, the body is animate. But there is no possibility of making the body animate in the absence of the soul.
+The impersonalist school of Śaṅkarācārya, of well of the Vaiṣṇavas following in the discipline succession from Lord Śrī Kṛṣṇa, acknowledge the factual existence of the soul, but the Buddhist philosophers do not. The Buddhists contend that at a certain stage the combination of matter produces consciousness, but this argument is refuted by the fact that although we may have all the constituents of matter at our disposal, we cannot produce consciousness from them. All the material elements may be present in a dead man, but we cannot revive that man to consciousness. This body is not like a machine. When a part of a machine breaks down, it can be replaced, and the machine will work again, but when the body breaks down and consciousness leaves the body, there is no possibility of our replacing the broken part and rejuvenating the consciousness. The soul is different from the body, and of long of the soul is there, the body is animate. But there is no possibility of making the body animate in the absence of the soul.
 
 
 
@@ -146,7 +146,7 @@ jñātvā māṁ śāntim ṛcchati
 
 
 
-"The sages, knowing Me as the ultimate enjoyer of all sacrifices and austerities, the Supreme Lord of all planets and demigods, and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries." Bhoga means "enjoyment," and our enjoyment comes from understanding our position of the enjoyed. The real enjoyer is the Supreme Lord, and we are enjoyed by Him.
+"The sages, knowing Me as the ultimate enjoyer of all sacrifices and austerities, the Supreme Lord of all planets and demigods, and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries." Bhoga means "enjoyment," and our enjoyment comes from understanding our position as the enjoyed. The real enjoyer is the Supreme Lord, and we are enjoyed by Him.
 
 
 

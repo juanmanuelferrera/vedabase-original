@@ -4,13 +4,13 @@
 
 ## Ways of Meeting Kṛṣṇa
 
-When Kṛṣṇa and His devotees meet, the meeting is technically called *yoga,* or linking up with the Lord. Such meetings between Kṛṣṇa and His devotees can be divided into three classes-namely, perfection, satisfaction, and steadiness. When the devotee meets with Kṛṣṇa in great eagerness, that state of meeting is called perfection.
+When Kṛṣṇa and His devotees meet, it is technically called *yoga,* or linking up with the Lord. Such meetings between Kṛṣṇa and His devotees can be divided into three classes-namely, perfection, satisfaction, and steadiness. When the devotee meets with Kṛṣṇa in great eagerness, that state of meeting is called perfection.
 
 In the *Kṛṣṇa-karṇāmṛta,* Bilvamaṅgala Thākur describes how Kṛṣṇa meets His devotee-with peacock feather on His head, with *marakata* jewels on His chest, and with His ever enchanting smile, His restless eyes and His very delicate body.
 
 In the Tenth Canto of *Śrīmad-Bhāgavatam,* 38th Chapter, 31st verse, Śukadeva Gosvāmī tells King Parīkṣit: "My dear King, as soon as Akrūra the chariot driver saw Lord Kṛṣṇa and His elder brother Balarāma in Vṛndāvana, he immediately got down from the chariot and, being greatly afflicted by affection for the transcendental Lord, fell down upon His lotus feet to offer respectful obeisances." These are some of the instances of perfectional meetings with Kṛṣṇa.
 
-When a devotee meets Kṛṣṇa after long separation, it is called satisfaction. In the First Canto of *Śrīmad-Bhāgavatam,* 11th Chapter, 9th verse, it is stated that when Lord Kṛṣṇa returned to His capital, Dvārakā, the inhabitants began to say, "My dear Lord, if You remain in foreign countries for so long, we shall certainly be bereft of seeing Your smiling face! Upon observing Your face, we, Your eternal servitors, become greatly satisfied. All the anxieties of our existence are immediately mitigated. If we cannot see You because You are long absent from Dvārakā, then it will be impossible for us to live anymore." This is an instance of satisfaction in meeting Kṛṣṇa after long separation.
+When a devotee meets Kṛṣṇa after long separation, it is called satisfaction. In the First Canto of *Śrīmad-Bhāgavatam,* 11th Chapter, 9th verse, it is stated that when Lord Kṛṣṇa returned to His capital, Dvārakā, the inhabitants began to say, "My dear Lord, if You remain in foreign countries for so long, we shall certainly be bereft of seeing Your smiling face! And observing Your face, we, Your eternal servitors, become greatly satisfied. All the anxieties of our existence are immediately mitigated. If we cannot see You because You are long absent from Dvārakā, then it will be impossible for us to live anymore." This is an instance of satisfaction in meeting Kṛṣṇa after long separation.
 
 Kṛṣṇa's personal servant, Dāruka, seeing Kṛṣṇa at the door of Dvārakā, forgot to offer Him respects with folded hands.
 

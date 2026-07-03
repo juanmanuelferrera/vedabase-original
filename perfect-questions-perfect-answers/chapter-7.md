@@ -158,7 +158,7 @@ This is knowledge. For instance, a child will sometimes take something important
 And then he may not go to hell?
 
 **Śrīla Prabhupāda:**
-Yes. You save him from going to hell. Because a farthing spent for Kṛṣṇa it will be accounted: "Oh, this man has given a farthing." This is called *ajñāta-sukṛti [*spiritual activity one performs unknowingly]. They are very poor in their thought. Therefore the saintly persons move just to enlighten him little. To give them a chance. Giving them a chance to serve Kṛṣṇa. That is saintly person's study.
+Yes. You save him from going to hell. Because a farthing spent for Kṛṣṇa it will be accounted: "Oh, this man has given a farthing." This is called *ajñāta-sukṛti [*spiritual activity one performs unknowingly]. They are very poor in their thought. Therefore the saintly persons move just to enlighten them a little. To give them a chance. Giving them a chance to serve Kṛṣṇa. That is saintly person's duty.
 
 **Bob:**
 That is what?

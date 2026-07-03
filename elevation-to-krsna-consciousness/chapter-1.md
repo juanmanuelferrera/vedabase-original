@@ -20,7 +20,7 @@ tasmai śrī-gurave namaḥ
 
 
 
-It is customary with this verse to offer obeisances to the spiritual master who enlightens his disciples in the matter of transcendental knowledge. The Vedic process does not involve research work. In mundane scholarship, we have to show our academic learning by some research, but the Vedic process is different. In the Vedic process the research work is already done; it is complete, and it is simply handed down by disciplic succession from teacher to student. There is no question of research work because the instruments and the means with which one conducts such research work are blunt and imperfect.
+It is customary with this verse to offer obeisances to the spiritual master who enlightens his disciples in the matter of transcendental knowledge. The Vedic process does not involve research work. In mundane scholarship, we have to show our academic learning by some research, but the Vedic process is different. In the Vedic process the research work is already done; it is complete, and it is simply handed down by disciplinary succession from teacher to student. There is no question of research work because the instruments and the means with which one conducts such research work are blunt and imperfect.
 
 
 

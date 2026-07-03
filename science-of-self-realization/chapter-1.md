@@ -660,7 +660,7 @@ Not only is the foolish *gṛhamedhī* ignorant of the temporary nature of the p
 
 In a public vehicle like a railway carriage, we meet and sit down together with some unknown friends and become members of the same vehicle for a short time, but in due course we separate, never to meet again. Similarly, in a long sojourn of life, we get a temporary sitting accommodation in a so-called family, country, or society, but when the time is up, we are unwillingly separated from one another, never to meet again. There are so many questions relevant to our temporary arrangements in life and our friends in these temporary arrangements, but a man who is a *gṛhamedhī* never inquires about things of a permanent nature. We are all busy making permanent plans in various degrees of leadership, without knowing the permanent nature of things as they are. Śrīpāda Śaṅkarācārya, who especially strove to remove this ignorance in society and who advocated the cult of spiritual knowledge in regard to the all-pervading impersonal Brahman, said in despair, "Children are engaged in playing, young boys are engaged in so-called love affairs with young girls, and the old are seriously thoughtful about adjusting a baffled life of struggle. But, alas, no one is prepared to *inquire* relevantly into the science of Brahman, the Absolute Truth."
 
-Śrī Śukadeva Gosvāmī, who was asked for direction by Mahārāja Parīkṣit, responded to the king's relevant inquiries by advising him as follows:
+Śrī Śukadeva Goswami, who was asked for direction by Mahārāja Parīkṣit, responded to the king's relevant inquiries by advising him as follows:
 
 > tasmād bhārata sarvātmā
 > bhagavān īśvaro hariḥ

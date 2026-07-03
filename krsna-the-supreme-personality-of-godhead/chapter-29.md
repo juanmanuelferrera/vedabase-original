@@ -86,4 +86,4 @@ Upon hearing the anxious plea of the *gopīs,* the Supreme Personality of Godhea
 
 The *gopīs,* however, soon began to feel very proud, thinking themselves to be the most fortunate women in the universe by being favored by the company of Kṛṣṇa. Lord Kṛṣṇa, who is known as Keśava, could immediately understand their pride caused by their great fortune of enjoying Him personally, and in order to show them His causeless mercy and to curb their false pride, He immediately disappeared from the scene, exhibiting His opulence of renunciation. The Supreme Personality of Godhead is always full with six kinds of opulences, and this is an instance of the opulence of renunciation. This renunciation confirms Kṛṣṇa's total nonattachment. He is always self-sufficient and is not dependent on anything. This is the platform on which the transcendental pastimes are enacted.
 
-*Thus ends the Bhaktivedanta purport of the Twenty-ninth Chapter of* Kṛṣṇa, *"The* Rāsa *Dance: Introduction."*
+*Thus ends the Bhaktivedanta purport of the Forty-third Chapter of* Kṛṣṇa, *"The* Rāsa *Dance: Introduction."*

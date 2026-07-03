@@ -56,4 +56,4 @@ If someone denies Kṛṣṇa's self-sufficiency on hearing that He was tending 
 
 The *brāhmaṇas* repented for their sinful activities. They wanted to go personally to offer their obeisances unto Him, but being afraid of Kaṁsa, they could not go. In other words, it is very difficult for one to surrender fully unto the Personality of Godhead without being purified by devotional service. The example of the learned *brāhmaṇas* and their wives is vivid. The wives of the *brāhmaṇas,* because they were infused by pure devotional service, did not care for any kind of opposition. They immediately went to Kṛṣṇa. But although the *brāhmaṇas* had come to know the supremacy of the Lord and were repenting, they were still afraid of King Kaṁsa because they were too addicted to fruitive activities.
 
-*Thus ends the Bhaktivedanta purport of the Twenty-third Chapter of* Kṛṣṇa, *"Delivering the Wives of the* Brahmanas *Who Performed Sacrifices."*
+*Thus ends the Bhaktivedanta purport of the Forty-third-third Chapter of* Kṛṣṇa, *"Delivering the Wives of the* Brahmanas *Who Performed Sacrifices."*

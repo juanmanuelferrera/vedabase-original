@@ -1,0 +1,2060 @@
+[
+ {
+  "chapter": "SB 1.1",
+  "sample_ref": "SB 1.1.1",
+  "similarity": 0.045,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/1/1"
+ },
+ {
+  "chapter": "SB 1.2",
+  "sample_ref": "SB 1.2.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/sb/1/2/1"
+ },
+ {
+  "chapter": "SB 1.3",
+  "sample_ref": "SB 1.3.1",
+  "similarity": 0.163,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/3/1"
+ },
+ {
+  "chapter": "SB 1.4",
+  "sample_ref": "SB 1.4.1",
+  "similarity": 0.174,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/4/1"
+ },
+ {
+  "chapter": "SB 1.5",
+  "sample_ref": "SB 1.5.1",
+  "similarity": 0.4,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/5/1"
+ },
+ {
+  "chapter": "SB 1.6",
+  "sample_ref": "SB 1.6.1",
+  "similarity": 0.416,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/6/1"
+ },
+ {
+  "chapter": "SB 1.7",
+  "sample_ref": "SB 1.7.1",
+  "similarity": 0.348,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/7/1"
+ },
+ {
+  "chapter": "SB 1.8",
+  "sample_ref": "SB 1.8.1",
+  "similarity": 0.366,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/8/1"
+ },
+ {
+  "chapter": "SB 1.9",
+  "sample_ref": "SB 1.9.1",
+  "similarity": 0.373,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/9/1"
+ },
+ {
+  "chapter": "SB 1.10",
+  "sample_ref": "SB 1.10.1",
+  "similarity": 0.375,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/10/1"
+ },
+ {
+  "chapter": "SB 1.11",
+  "sample_ref": "SB 1.11.1",
+  "similarity": 0.281,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/11/1"
+ },
+ {
+  "chapter": "SB 1.12",
+  "sample_ref": "SB 1.12.1",
+  "similarity": 0.328,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/12/1"
+ },
+ {
+  "chapter": "SB 1.13",
+  "sample_ref": "SB 1.13.1",
+  "similarity": 0.168,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/13/1"
+ },
+ {
+  "chapter": "SB 1.14",
+  "sample_ref": "SB 1.14.1",
+  "similarity": 0.406,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/14/1"
+ },
+ {
+  "chapter": "SB 1.15",
+  "sample_ref": "SB 1.15.1",
+  "similarity": 0.574,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/1/15/1"
+ },
+ {
+  "chapter": "SB 1.16",
+  "sample_ref": "SB 1.16.1",
+  "similarity": 0.179,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/16/1"
+ },
+ {
+  "chapter": "SB 1.17",
+  "sample_ref": "SB 1.17.1",
+  "similarity": 0.255,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/17/1"
+ },
+ {
+  "chapter": "SB 1.18",
+  "sample_ref": "SB 1.18.1",
+  "similarity": 0.475,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/18/1"
+ },
+ {
+  "chapter": "SB 1.19",
+  "sample_ref": "SB 1.19.1",
+  "similarity": 0.427,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/1/19/1"
+ },
+ {
+  "chapter": "SB 2.1",
+  "sample_ref": "SB 2.1.0",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/sb/2/1/0"
+ },
+ {
+  "chapter": "SB 2.2",
+  "sample_ref": "SB 2.2.1",
+  "similarity": 0.17,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/2/2/1"
+ },
+ {
+  "chapter": "SB 2.3",
+  "sample_ref": "SB 2.3.1",
+  "similarity": 0.142,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/2/3/1"
+ },
+ {
+  "chapter": "SB 2.4",
+  "sample_ref": "SB 2.4.1",
+  "similarity": 0.13,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/2/4/1"
+ },
+ {
+  "chapter": "SB 2.5",
+  "sample_ref": "SB 2.5.1",
+  "similarity": 0.31,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/2/5/1"
+ },
+ {
+  "chapter": "SB 2.6",
+  "sample_ref": "SB 2.6.1",
+  "similarity": 0.208,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/2/6/1"
+ },
+ {
+  "chapter": "SB 2.7",
+  "sample_ref": "SB 2.7.1",
+  "similarity": 0.166,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/2/7/1"
+ },
+ {
+  "chapter": "SB 2.8",
+  "sample_ref": "SB 2.8.1",
+  "similarity": 0.223,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/2/8/1"
+ },
+ {
+  "chapter": "SB 2.9",
+  "sample_ref": "SB 2.9.1",
+  "similarity": 0.122,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/2/9/1"
+ },
+ {
+  "chapter": "SB 2.10",
+  "sample_ref": "SB 2.10.1",
+  "similarity": 0.822,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/2/10/1"
+ },
+ {
+  "chapter": "SB 3.1",
+  "sample_ref": "SB 3.1.1",
+  "similarity": 0.82,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/3/1/1"
+ },
+ {
+  "chapter": "SB 3.2",
+  "sample_ref": "SB 3.2.1",
+  "similarity": 0.876,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/3/2/1"
+ },
+ {
+  "chapter": "SB 3.3",
+  "sample_ref": "SB 3.3.1",
+  "similarity": 0.311,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/3/1"
+ },
+ {
+  "chapter": "SB 3.4",
+  "sample_ref": "SB 3.4.1",
+  "similarity": 0.369,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/4/1"
+ },
+ {
+  "chapter": "SB 3.5",
+  "sample_ref": "SB 3.5.1",
+  "similarity": 0.38,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/5/1"
+ },
+ {
+  "chapter": "SB 3.6",
+  "sample_ref": "SB 3.6.1",
+  "similarity": 0.504,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/3/6/1"
+ },
+ {
+  "chapter": "SB 3.7",
+  "sample_ref": "SB 3.7.1",
+  "similarity": 0.853,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/3/7/1"
+ },
+ {
+  "chapter": "SB 3.8",
+  "sample_ref": "SB 3.8.1",
+  "similarity": 0.498,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/8/1"
+ },
+ {
+  "chapter": "SB 3.9",
+  "sample_ref": "SB 3.9.1",
+  "similarity": 0.272,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/9/1"
+ },
+ {
+  "chapter": "SB 3.10",
+  "sample_ref": "SB 3.10.1",
+  "similarity": 0.879,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/3/10/1"
+ },
+ {
+  "chapter": "SB 3.11",
+  "sample_ref": "SB 3.11.1",
+  "similarity": 0.527,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/3/11/1"
+ },
+ {
+  "chapter": "SB 3.12",
+  "sample_ref": "SB 3.12.1",
+  "similarity": 0.893,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/3/12/1"
+ },
+ {
+  "chapter": "SB 3.13",
+  "sample_ref": "SB 3.13.1",
+  "similarity": 0.496,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/13/1"
+ },
+ {
+  "chapter": "SB 3.14",
+  "sample_ref": "SB 3.14.1",
+  "similarity": 0.86,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/3/14/1"
+ },
+ {
+  "chapter": "SB 3.15",
+  "sample_ref": "SB 3.15.1",
+  "similarity": 0.466,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/15/1"
+ },
+ {
+  "chapter": "SB 3.16",
+  "sample_ref": "SB 3.16.2",
+  "similarity": 0.107,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/16/2"
+ },
+ {
+  "chapter": "SB 3.17",
+  "sample_ref": "SB 3.17.1",
+  "similarity": 0.255,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/17/1"
+ },
+ {
+  "chapter": "SB 3.18",
+  "sample_ref": "SB 3.18.1",
+  "similarity": 0.425,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/18/1"
+ },
+ {
+  "chapter": "SB 3.19",
+  "sample_ref": "SB 3.19.1",
+  "similarity": 0.212,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/19/1"
+ },
+ {
+  "chapter": "SB 3.20",
+  "sample_ref": "SB 3.20.1",
+  "similarity": 0.281,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/20/1"
+ },
+ {
+  "chapter": "SB 3.21",
+  "sample_ref": "SB 3.21.1",
+  "similarity": 0.297,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/21/1"
+ },
+ {
+  "chapter": "SB 3.22",
+  "sample_ref": "SB 3.22.1",
+  "similarity": 0.788,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/3/22/1"
+ },
+ {
+  "chapter": "SB 3.23",
+  "sample_ref": "SB 3.23.1",
+  "similarity": 0.16,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/23/1"
+ },
+ {
+  "chapter": "SB 3.24",
+  "sample_ref": "SB 3.24.1",
+  "similarity": 0.781,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/3/24/1"
+ },
+ {
+  "chapter": "SB 3.25",
+  "sample_ref": "SB 3.25.1",
+  "similarity": 0.178,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/25/1"
+ },
+ {
+  "chapter": "SB 3.26",
+  "sample_ref": "SB 3.26.1",
+  "similarity": 0.205,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/26/1"
+ },
+ {
+  "chapter": "SB 3.27",
+  "sample_ref": "SB 3.27.1",
+  "similarity": 0.211,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/27/1"
+ },
+ {
+  "chapter": "SB 3.28",
+  "sample_ref": "SB 3.28.1",
+  "similarity": 0.243,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/28/1"
+ },
+ {
+  "chapter": "SB 3.29",
+  "sample_ref": "SB 3.29.3",
+  "similarity": 0.287,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/29/3"
+ },
+ {
+  "chapter": "SB 3.30",
+  "sample_ref": "SB 3.30.1",
+  "similarity": 0.364,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/30/1"
+ },
+ {
+  "chapter": "SB 3.31",
+  "sample_ref": "SB 3.31.1",
+  "similarity": 0.204,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/31/1"
+ },
+ {
+  "chapter": "SB 3.32",
+  "sample_ref": "SB 3.32.1",
+  "similarity": 0.207,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/32/1"
+ },
+ {
+  "chapter": "SB 3.33",
+  "sample_ref": "SB 3.33.1",
+  "similarity": 0.418,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/3/33/1"
+ },
+ {
+  "chapter": "SB 4.1",
+  "sample_ref": "SB 4.1.1",
+  "similarity": 0.087,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/1/1"
+ },
+ {
+  "chapter": "SB 4.2",
+  "sample_ref": "SB 4.2.1",
+  "similarity": 0.256,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/2/1"
+ },
+ {
+  "chapter": "SB 4.3",
+  "sample_ref": "SB 4.3.1",
+  "similarity": 0.211,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/3/1"
+ },
+ {
+  "chapter": "SB 4.4",
+  "sample_ref": "SB 4.4.1",
+  "similarity": 0.624,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/4/4/1"
+ },
+ {
+  "chapter": "SB 4.5",
+  "sample_ref": "SB 4.5.1",
+  "similarity": 0.196,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/5/1"
+ },
+ {
+  "chapter": "SB 4.6",
+  "sample_ref": "SB 4.6.3",
+  "similarity": 0.415,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/6/3"
+ },
+ {
+  "chapter": "SB 4.7",
+  "sample_ref": "SB 4.7.1",
+  "similarity": 0.754,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/4/7/1"
+ },
+ {
+  "chapter": "SB 4.8",
+  "sample_ref": "SB 4.8.1",
+  "similarity": 0.181,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/8/1"
+ },
+ {
+  "chapter": "SB 4.9",
+  "sample_ref": "SB 4.9.1",
+  "similarity": 0.596,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/4/9/1"
+ },
+ {
+  "chapter": "SB 4.10",
+  "sample_ref": "SB 4.10.1",
+  "similarity": 0.227,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/10/1"
+ },
+ {
+  "chapter": "SB 4.11",
+  "sample_ref": "SB 4.11.1",
+  "similarity": 0.374,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/11/1"
+ },
+ {
+  "chapter": "SB 4.12",
+  "sample_ref": "SB 4.12.1",
+  "similarity": 0.867,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/4/12/1"
+ },
+ {
+  "chapter": "SB 4.13",
+  "sample_ref": "SB 4.13.1",
+  "similarity": 0.31,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/13/1"
+ },
+ {
+  "chapter": "SB 4.14",
+  "sample_ref": "SB 4.14.1",
+  "similarity": 0.348,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/14/1"
+ },
+ {
+  "chapter": "SB 4.15",
+  "sample_ref": "SB 4.15.1",
+  "similarity": 0.828,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/4/15/1"
+ },
+ {
+  "chapter": "SB 4.16",
+  "sample_ref": "SB 4.16.1",
+  "similarity": 0.195,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/16/1"
+ },
+ {
+  "chapter": "SB 4.17",
+  "sample_ref": "SB 4.17.1",
+  "similarity": 0.876,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/4/17/1"
+ },
+ {
+  "chapter": "SB 4.18",
+  "sample_ref": "SB 4.18.1",
+  "similarity": 0.912,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/4/18/1"
+ },
+ {
+  "chapter": "SB 4.19",
+  "sample_ref": "SB 4.19.1",
+  "similarity": 0.889,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/4/19/1"
+ },
+ {
+  "chapter": "SB 4.20",
+  "sample_ref": "SB 4.20.1",
+  "similarity": 0.884,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/4/20/1"
+ },
+ {
+  "chapter": "SB 4.21",
+  "sample_ref": "SB 4.21.1",
+  "similarity": 0.51,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/4/21/1"
+ },
+ {
+  "chapter": "SB 4.22",
+  "sample_ref": "SB 4.22.1",
+  "similarity": 0.849,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/4/22/1"
+ },
+ {
+  "chapter": "SB 4.23",
+  "sample_ref": "SB 4.23.4",
+  "similarity": 0.25,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/23/4"
+ },
+ {
+  "chapter": "SB 4.24",
+  "sample_ref": "SB 4.24.1",
+  "similarity": 0.37,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/24/1"
+ },
+ {
+  "chapter": "SB 4.25",
+  "sample_ref": "SB 4.25.1",
+  "similarity": 0.227,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/25/1"
+ },
+ {
+  "chapter": "SB 4.26",
+  "sample_ref": "SB 4.26.4",
+  "similarity": 0.344,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/26/4"
+ },
+ {
+  "chapter": "SB 4.27",
+  "sample_ref": "SB 4.27.1",
+  "similarity": 0.088,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/27/1"
+ },
+ {
+  "chapter": "SB 4.28",
+  "sample_ref": "SB 4.28.1",
+  "similarity": 0.287,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/28/1"
+ },
+ {
+  "chapter": "SB 4.29",
+  "sample_ref": "SB 4.29.1",
+  "similarity": 0.324,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/29/1"
+ },
+ {
+  "chapter": "SB 4.30",
+  "sample_ref": "SB 4.30.1",
+  "similarity": 0.219,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/30/1"
+ },
+ {
+  "chapter": "SB 4.31",
+  "sample_ref": "SB 4.31.1",
+  "similarity": 0.155,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/4/31/1"
+ },
+ {
+  "chapter": "SB 5.1",
+  "sample_ref": "SB 5.1.1",
+  "similarity": 0.135,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/5/1/1"
+ },
+ {
+  "chapter": "SB 5.2",
+  "sample_ref": "SB 5.2.1",
+  "similarity": 0.153,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/5/2/1"
+ },
+ {
+  "chapter": "SB 5.3",
+  "sample_ref": "SB 5.3.1",
+  "similarity": 0.897,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/5/3/1"
+ },
+ {
+  "chapter": "SB 5.4",
+  "sample_ref": "SB 5.4.1",
+  "similarity": 0.539,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/5/4/1"
+ },
+ {
+  "chapter": "SB 5.5",
+  "sample_ref": "SB 5.5.1",
+  "similarity": 0.225,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/5/5/1"
+ },
+ {
+  "chapter": "SB 5.6",
+  "sample_ref": "SB 5.6.1",
+  "similarity": 0.351,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/5/6/1"
+ },
+ {
+  "chapter": "SB 5.7",
+  "sample_ref": "SB 5.7.1",
+  "similarity": 0.916,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/5/7/1"
+ },
+ {
+  "chapter": "SB 5.8",
+  "sample_ref": "SB 5.8.1",
+  "similarity": 0.848,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/5/8/1"
+ },
+ {
+  "chapter": "SB 5.9",
+  "sample_ref": "SB 5.9.3",
+  "similarity": 0.46,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/5/9/3"
+ },
+ {
+  "chapter": "SB 5.10",
+  "sample_ref": "SB 5.10.1",
+  "similarity": 0.937,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/5/10/1"
+ },
+ {
+  "chapter": "SB 5.11",
+  "sample_ref": "SB 5.11.1",
+  "similarity": 0.455,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/5/11/1"
+ },
+ {
+  "chapter": "SB 5.12",
+  "sample_ref": "SB 5.12.1",
+  "similarity": 0.585,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/5/12/1"
+ },
+ {
+  "chapter": "SB 5.13",
+  "sample_ref": "SB 5.13.1",
+  "similarity": 0.622,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/5/13/1"
+ },
+ {
+  "chapter": "SB 5.14",
+  "sample_ref": "SB 5.14.1",
+  "similarity": 0.505,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/5/14/1"
+ },
+ {
+  "chapter": "SB 5.15",
+  "sample_ref": "SB 5.15.1",
+  "similarity": 0.393,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/5/15/1"
+ },
+ {
+  "chapter": "SB 5.16",
+  "sample_ref": "SB 5.16.1",
+  "similarity": 0.283,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/5/16/1"
+ },
+ {
+  "chapter": "SB 5.17",
+  "sample_ref": "SB 5.17.1",
+  "similarity": 0.632,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/5/17/1"
+ },
+ {
+  "chapter": "SB 5.18",
+  "sample_ref": "SB 5.18.1",
+  "similarity": 0.942,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/5/18/1"
+ },
+ {
+  "chapter": "SB 5.19",
+  "sample_ref": "SB 5.19.1",
+  "similarity": 0.876,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/5/19/1"
+ },
+ {
+  "chapter": "SB 5.20",
+  "sample_ref": "SB 5.20.1",
+  "similarity": 0.82,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/5/20/1"
+ },
+ {
+  "chapter": "SB 5.21",
+  "sample_ref": "SB 5.21.1",
+  "similarity": 0.864,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/5/21/1"
+ },
+ {
+  "chapter": "SB 5.22",
+  "sample_ref": "SB 5.22.1",
+  "similarity": 0.933,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/5/22/1"
+ },
+ {
+  "chapter": "SB 5.23",
+  "sample_ref": "SB 5.23.1",
+  "similarity": 0.951,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/5/23/1"
+ },
+ {
+  "chapter": "SB 5.24",
+  "sample_ref": "SB 5.24.1",
+  "similarity": 0.945,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/5/24/1"
+ },
+ {
+  "chapter": "SB 5.25",
+  "sample_ref": "SB 5.25.1",
+  "similarity": 0.537,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/5/25/1"
+ },
+ {
+  "chapter": "SB 5.26",
+  "sample_ref": "SB 5.26.1",
+  "similarity": 0.39,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/5/26/1"
+ },
+ {
+  "chapter": "SB 6.1",
+  "sample_ref": "SB 6.1.1",
+  "similarity": 0.17,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/6/1/1"
+ },
+ {
+  "chapter": "SB 6.2",
+  "sample_ref": "SB 6.2.1",
+  "similarity": 0.845,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/6/2/1"
+ },
+ {
+  "chapter": "SB 6.3",
+  "sample_ref": "SB 6.3.1",
+  "similarity": 0.719,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/6/3/1"
+ },
+ {
+  "chapter": "SB 6.4",
+  "sample_ref": "SB 6.4.3",
+  "similarity": 0.774,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/6/4/3"
+ },
+ {
+  "chapter": "SB 6.5",
+  "sample_ref": "SB 6.5.1",
+  "similarity": 0.857,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/6/5/1"
+ },
+ {
+  "chapter": "SB 6.6",
+  "sample_ref": "SB 6.6.1",
+  "similarity": 0.348,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/6/6/1"
+ },
+ {
+  "chapter": "SB 6.7",
+  "sample_ref": "SB 6.7.1",
+  "similarity": 0.56,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/6/7/1"
+ },
+ {
+  "chapter": "SB 6.8",
+  "sample_ref": "SB 6.8.3",
+  "similarity": 0.837,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/6/8/3"
+ },
+ {
+  "chapter": "SB 6.9",
+  "sample_ref": "SB 6.9.1",
+  "similarity": 0.4,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/6/9/1"
+ },
+ {
+  "chapter": "SB 6.10",
+  "sample_ref": "SB 6.10.1",
+  "similarity": 0.857,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/6/10/1"
+ },
+ {
+  "chapter": "SB 6.11",
+  "sample_ref": "SB 6.11.1",
+  "similarity": 0.889,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/6/11/1"
+ },
+ {
+  "chapter": "SB 6.12",
+  "sample_ref": "SB 6.12.1",
+  "similarity": 0.472,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/6/12/1"
+ },
+ {
+  "chapter": "SB 6.13",
+  "sample_ref": "SB 6.13.1",
+  "similarity": 0.844,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/6/13/1"
+ },
+ {
+  "chapter": "SB 6.14",
+  "sample_ref": "SB 6.14.1",
+  "similarity": 0.364,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/6/14/1"
+ },
+ {
+  "chapter": "SB 6.15",
+  "sample_ref": "SB 6.15.1",
+  "similarity": 0.876,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/6/15/1"
+ },
+ {
+  "chapter": "SB 6.16",
+  "sample_ref": "SB 6.16.1",
+  "similarity": 0.857,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/6/16/1"
+ },
+ {
+  "chapter": "SB 6.17",
+  "sample_ref": "SB 6.17.1",
+  "similarity": 0.853,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/6/17/1"
+ },
+ {
+  "chapter": "SB 6.18",
+  "sample_ref": "SB 6.18.1",
+  "similarity": 0.879,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/6/18/1"
+ },
+ {
+  "chapter": "SB 6.19",
+  "sample_ref": "SB 6.19.1",
+  "similarity": 0.874,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/6/19/1"
+ },
+ {
+  "chapter": "SB 7.1",
+  "sample_ref": "SB 7.1.1",
+  "similarity": 0.245,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/7/1/1"
+ },
+ {
+  "chapter": "SB 7.2",
+  "sample_ref": "SB 7.2.1",
+  "similarity": 0.542,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/7/2/1"
+ },
+ {
+  "chapter": "SB 7.3",
+  "sample_ref": "SB 7.3.1",
+  "similarity": 0.423,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/7/3/1"
+ },
+ {
+  "chapter": "SB 7.4",
+  "sample_ref": "SB 7.4.1",
+  "similarity": 0.821,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/7/4/1"
+ },
+ {
+  "chapter": "SB 7.5",
+  "sample_ref": "SB 7.5.1",
+  "similarity": 0.314,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/7/5/1"
+ },
+ {
+  "chapter": "SB 7.6",
+  "sample_ref": "SB 7.6.1",
+  "similarity": 0.264,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/7/6/1"
+ },
+ {
+  "chapter": "SB 7.7",
+  "sample_ref": "SB 7.7.1",
+  "similarity": 0.5,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/7/7/1"
+ },
+ {
+  "chapter": "SB 7.8",
+  "sample_ref": "SB 7.8.1",
+  "similarity": 0.253,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/7/8/1"
+ },
+ {
+  "chapter": "SB 7.9",
+  "sample_ref": "SB 7.9.1",
+  "similarity": 0.269,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/7/9/1"
+ },
+ {
+  "chapter": "SB 7.10",
+  "sample_ref": "SB 7.10.1",
+  "similarity": 0.275,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/7/10/1"
+ },
+ {
+  "chapter": "SB 7.11",
+  "sample_ref": "SB 7.11.1",
+  "similarity": 0.901,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/7/11/1"
+ },
+ {
+  "chapter": "SB 7.12",
+  "sample_ref": "SB 7.12.1",
+  "similarity": 0.893,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/7/12/1"
+ },
+ {
+  "chapter": "SB 7.13",
+  "sample_ref": "SB 7.13.1",
+  "similarity": 0.913,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/7/13/1"
+ },
+ {
+  "chapter": "SB 7.14",
+  "sample_ref": "SB 7.14.1",
+  "similarity": 0.243,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/7/14/1"
+ },
+ {
+  "chapter": "SB 7.15",
+  "sample_ref": "SB 7.15.1",
+  "similarity": 0.887,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/7/15/1"
+ },
+ {
+  "chapter": "SB 8.1",
+  "sample_ref": "SB 8.1.1",
+  "similarity": 0.884,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/1/1"
+ },
+ {
+  "chapter": "SB 8.2",
+  "sample_ref": "SB 8.2.1",
+  "similarity": 0.864,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/2/1"
+ },
+ {
+  "chapter": "SB 8.3",
+  "sample_ref": "SB 8.3.1",
+  "similarity": 0.164,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/8/3/1"
+ },
+ {
+  "chapter": "SB 8.4",
+  "sample_ref": "SB 8.4.1",
+  "similarity": 0.406,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/8/4/1"
+ },
+ {
+  "chapter": "SB 8.5",
+  "sample_ref": "SB 8.5.1",
+  "similarity": 0.891,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/5/1"
+ },
+ {
+  "chapter": "SB 8.6",
+  "sample_ref": "SB 8.6.1",
+  "similarity": 0.874,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/6/1"
+ },
+ {
+  "chapter": "SB 8.7",
+  "sample_ref": "SB 8.7.1",
+  "similarity": 0.915,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/7/1"
+ },
+ {
+  "chapter": "SB 8.8",
+  "sample_ref": "SB 8.8.1",
+  "similarity": 0.372,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/8/8/1"
+ },
+ {
+  "chapter": "SB 8.9",
+  "sample_ref": "SB 8.9.1",
+  "similarity": 0.867,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/9/1"
+ },
+ {
+  "chapter": "SB 8.10",
+  "sample_ref": "SB 8.10.1",
+  "similarity": 0.884,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/10/1"
+ },
+ {
+  "chapter": "SB 8.11",
+  "sample_ref": "SB 8.11.1",
+  "similarity": 0.891,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/11/1"
+ },
+ {
+  "chapter": "SB 8.12",
+  "sample_ref": "SB 8.12.3",
+  "similarity": 0.841,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/8/12/3"
+ },
+ {
+  "chapter": "SB 8.13",
+  "sample_ref": "SB 8.13.1",
+  "similarity": 0.871,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/13/1"
+ },
+ {
+  "chapter": "SB 8.14",
+  "sample_ref": "SB 8.14.1",
+  "similarity": 0.861,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/14/1"
+ },
+ {
+  "chapter": "SB 8.15",
+  "sample_ref": "SB 8.15.3",
+  "similarity": 0.906,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/15/3"
+ },
+ {
+  "chapter": "SB 8.16",
+  "sample_ref": "SB 8.16.1",
+  "similarity": 0.811,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/8/16/1"
+ },
+ {
+  "chapter": "SB 8.17",
+  "sample_ref": "SB 8.17.1",
+  "similarity": 0.157,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/8/17/1"
+ },
+ {
+  "chapter": "SB 8.18",
+  "sample_ref": "SB 8.18.1",
+  "similarity": 0.454,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/8/18/1"
+ },
+ {
+  "chapter": "SB 8.19",
+  "sample_ref": "SB 8.19.1",
+  "similarity": 0.876,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/19/1"
+ },
+ {
+  "chapter": "SB 8.20",
+  "sample_ref": "SB 8.20.1",
+  "similarity": 0.15,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/8/20/1"
+ },
+ {
+  "chapter": "SB 8.21",
+  "sample_ref": "SB 8.21.1",
+  "similarity": 0.933,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/21/1"
+ },
+ {
+  "chapter": "SB 8.22",
+  "sample_ref": "SB 8.22.1",
+  "similarity": 0.879,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/22/1"
+ },
+ {
+  "chapter": "SB 8.23",
+  "sample_ref": "SB 8.23.1",
+  "similarity": 0.906,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/8/23/1"
+ },
+ {
+  "chapter": "SB 8.24",
+  "sample_ref": "SB 8.24.1",
+  "similarity": 0.733,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/8/24/1"
+ },
+ {
+  "chapter": "SB 9.1",
+  "sample_ref": "SB 9.1.1",
+  "similarity": 0.893,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/1/1"
+ },
+ {
+  "chapter": "SB 9.2",
+  "sample_ref": "SB 9.2.1",
+  "similarity": 0.884,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/2/1"
+ },
+ {
+  "chapter": "SB 9.3",
+  "sample_ref": "SB 9.3.1",
+  "similarity": 0.879,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/3/1"
+ },
+ {
+  "chapter": "SB 9.4",
+  "sample_ref": "SB 9.4.1",
+  "similarity": 0.578,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/9/4/1"
+ },
+ {
+  "chapter": "SB 9.5",
+  "sample_ref": "SB 9.5.1",
+  "similarity": 0.841,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/9/5/1"
+ },
+ {
+  "chapter": "SB 9.6",
+  "sample_ref": "SB 9.6.1",
+  "similarity": 0.845,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/9/6/1"
+ },
+ {
+  "chapter": "SB 9.7",
+  "sample_ref": "SB 9.7.1",
+  "similarity": 0.811,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/9/7/1"
+ },
+ {
+  "chapter": "SB 9.8",
+  "sample_ref": "SB 9.8.1",
+  "similarity": 0.811,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/9/8/1"
+ },
+ {
+  "chapter": "SB 9.9",
+  "sample_ref": "SB 9.9.1",
+  "similarity": 0.864,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/9/1"
+ },
+ {
+  "chapter": "SB 9.10",
+  "sample_ref": "SB 9.10.1",
+  "similarity": 0.857,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/10/1"
+ },
+ {
+  "chapter": "SB 9.11",
+  "sample_ref": "SB 9.11.1",
+  "similarity": 0.241,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/9/11/1"
+ },
+ {
+  "chapter": "SB 9.12",
+  "sample_ref": "SB 9.12.1",
+  "similarity": 0.884,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/12/1"
+ },
+ {
+  "chapter": "SB 9.13",
+  "sample_ref": "SB 9.13.1",
+  "similarity": 0.897,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/13/1"
+ },
+ {
+  "chapter": "SB 9.14",
+  "sample_ref": "SB 9.14.1",
+  "similarity": 0.904,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/14/1"
+ },
+ {
+  "chapter": "SB 9.15",
+  "sample_ref": "SB 9.15.1",
+  "similarity": 0.831,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/9/15/1"
+ },
+ {
+  "chapter": "SB 9.16",
+  "sample_ref": "SB 9.16.1",
+  "similarity": 0.865,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/16/1"
+ },
+ {
+  "chapter": "SB 9.17",
+  "sample_ref": "SB 9.17.4",
+  "similarity": 0.909,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/17/4"
+ },
+ {
+  "chapter": "SB 9.18",
+  "sample_ref": "SB 9.18.1",
+  "similarity": 0.825,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/9/18/1"
+ },
+ {
+  "chapter": "SB 9.19",
+  "sample_ref": "SB 9.19.1",
+  "similarity": 0.887,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/19/1"
+ },
+ {
+  "chapter": "SB 9.20",
+  "sample_ref": "SB 9.20.1",
+  "similarity": 0.338,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/9/20/1"
+ },
+ {
+  "chapter": "SB 9.21",
+  "sample_ref": "SB 9.21.1",
+  "similarity": 0.865,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/21/1"
+ },
+ {
+  "chapter": "SB 9.22",
+  "sample_ref": "SB 9.22.1",
+  "similarity": 0.841,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/9/22/1"
+ },
+ {
+  "chapter": "SB 9.23",
+  "sample_ref": "SB 9.23.1",
+  "similarity": 0.861,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/9/23/1"
+ },
+ {
+  "chapter": "SB 9.24",
+  "sample_ref": "SB 9.24.1",
+  "similarity": 0.849,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/9/24/1"
+ },
+ {
+  "chapter": "SB 10.1",
+  "sample_ref": "SB 10.1.1",
+  "similarity": 0.085,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/10/1/1"
+ },
+ {
+  "chapter": "SB 10.2",
+  "sample_ref": "SB 10.2.3",
+  "similarity": 0.836,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/10/2/3"
+ },
+ {
+  "chapter": "SB 10.3",
+  "sample_ref": "SB 10.3.6",
+  "similarity": 0.836,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/10/3/6"
+ },
+ {
+  "chapter": "SB 10.4",
+  "sample_ref": "SB 10.4.1",
+  "similarity": 0.224,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/10/4/1"
+ },
+ {
+  "chapter": "SB 10.5",
+  "sample_ref": "SB 10.5.3",
+  "similarity": 0.864,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/10/5/3"
+ },
+ {
+  "chapter": "SB 10.6",
+  "sample_ref": "SB 10.6.1",
+  "similarity": 0.621,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/10/6/1"
+ },
+ {
+  "chapter": "SB 10.7",
+  "sample_ref": "SB 10.7.3",
+  "similarity": 0.275,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/10/7/3"
+ },
+ {
+  "chapter": "SB 10.8",
+  "sample_ref": "SB 10.8.1",
+  "similarity": 0.864,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/10/8/1"
+ },
+ {
+  "chapter": "SB 10.9",
+  "sample_ref": "SB 10.9.3",
+  "similarity": 0.502,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/10/9/3"
+ },
+ {
+  "chapter": "SB 10.10",
+  "sample_ref": "SB 10.10.1",
+  "similarity": 0.844,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/10/10/1"
+ },
+ {
+  "chapter": "SB 10.11",
+  "sample_ref": "SB 10.11.1",
+  "similarity": 0.845,
+  "verdict": "MIXED",
+  "url": "https://prabhupadabooks.com/sb/10/11/1"
+ },
+ {
+  "chapter": "SB 10.12",
+  "sample_ref": "SB 10.12.1",
+  "similarity": 0.92,
+  "verdict": "ORIGINAL (match)",
+  "url": "https://prabhupadabooks.com/sb/10/12/1"
+ },
+ {
+  "chapter": "SB 10.13",
+  "sample_ref": "SB 10.13.1",
+  "similarity": 0.318,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/sb/10/13/1"
+ },
+ {
+  "chapter": "BG 1",
+  "sample_ref": "Bg 1.1",
+  "similarity": 0.079,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/1/1"
+ },
+ {
+  "chapter": "BG 2",
+  "sample_ref": "Bg 2.1",
+  "similarity": 0.167,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/2/1"
+ },
+ {
+  "chapter": "BG 3",
+  "sample_ref": "Bg 3.1",
+  "similarity": 0.199,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/3/1"
+ },
+ {
+  "chapter": "BG 4",
+  "sample_ref": "Bg 4.1",
+  "similarity": 0.081,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/4/1"
+ },
+ {
+  "chapter": "BG 5",
+  "sample_ref": "Bg 5.1",
+  "similarity": 0.207,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/5/1"
+ },
+ {
+  "chapter": "BG 6",
+  "sample_ref": "Bg 6.1",
+  "similarity": 0.18,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/6/1"
+ },
+ {
+  "chapter": "BG 7",
+  "sample_ref": "Bg 7.1",
+  "similarity": 0.085,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/7/1"
+ },
+ {
+  "chapter": "BG 8",
+  "sample_ref": "Bg 8.1",
+  "similarity": 0.327,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/8/1"
+ },
+ {
+  "chapter": "BG 9",
+  "sample_ref": "Bg 9.1",
+  "similarity": 0.099,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/9/1"
+ },
+ {
+  "chapter": "BG 10",
+  "sample_ref": "Bg 10.1",
+  "similarity": 0.216,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/10/1"
+ },
+ {
+  "chapter": "BG 11",
+  "sample_ref": "Bg 11.1",
+  "similarity": 0.174,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/11/1"
+ },
+ {
+  "chapter": "BG 12",
+  "sample_ref": "Bg 12.1",
+  "similarity": 0.091,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/12/1"
+ },
+ {
+  "chapter": "BG 13",
+  "sample_ref": "Bg 13.3",
+  "similarity": 0.07,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/13/3"
+ },
+ {
+  "chapter": "BG 14",
+  "sample_ref": "Bg 14.1",
+  "similarity": 0.203,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/14/1"
+ },
+ {
+  "chapter": "BG 15",
+  "sample_ref": "Bg 15.1",
+  "similarity": 0.088,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/15/1"
+ },
+ {
+  "chapter": "BG 16",
+  "sample_ref": "Bg 16.4",
+  "similarity": 0.208,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/16/4"
+ },
+ {
+  "chapter": "BG 17",
+  "sample_ref": "Bg 17.1",
+  "similarity": 0.245,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/17/1"
+ },
+ {
+  "chapter": "BG 18",
+  "sample_ref": "Bg 18.1",
+  "similarity": 0.122,
+  "verdict": "REVISED (differs)",
+  "url": "https://prabhupadabooks.com/bg/18/1"
+ },
+ {
+  "chapter": "CC Adi 1",
+  "sample_ref": "CC Adi 1.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/1/1"
+ },
+ {
+  "chapter": "CC Adi 2",
+  "sample_ref": "CC Adi 2.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/2/1"
+ },
+ {
+  "chapter": "CC Adi 3",
+  "sample_ref": "CC Adi 3.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/3/1"
+ },
+ {
+  "chapter": "CC Adi 4",
+  "sample_ref": "CC Adi 4.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/4/1"
+ },
+ {
+  "chapter": "CC Adi 5",
+  "sample_ref": "CC Adi 5.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/5/1"
+ },
+ {
+  "chapter": "CC Adi 6",
+  "sample_ref": "CC Adi 6.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/6/1"
+ },
+ {
+  "chapter": "CC Adi 7",
+  "sample_ref": "CC Adi 7.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/7/1"
+ },
+ {
+  "chapter": "CC Adi 8",
+  "sample_ref": "CC Adi 8.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/8/1"
+ },
+ {
+  "chapter": "CC Adi 9",
+  "sample_ref": "CC Adi 9.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/9/1"
+ },
+ {
+  "chapter": "CC Adi 10",
+  "sample_ref": "CC Adi 10.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/10/1"
+ },
+ {
+  "chapter": "CC Adi 11",
+  "sample_ref": "CC Adi 11.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/11/1"
+ },
+ {
+  "chapter": "CC Adi 12",
+  "sample_ref": "CC Adi 12.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/12/1"
+ },
+ {
+  "chapter": "CC Adi 13",
+  "sample_ref": "CC Adi 13.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/13/1"
+ },
+ {
+  "chapter": "CC Adi 14",
+  "sample_ref": "CC Adi 14.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/14/1"
+ },
+ {
+  "chapter": "CC Adi 15",
+  "sample_ref": "CC Adi 15.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/15/1"
+ },
+ {
+  "chapter": "CC Adi 16",
+  "sample_ref": "CC Adi 16.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/16/1"
+ },
+ {
+  "chapter": "CC Adi 17",
+  "sample_ref": "CC Adi 17.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/adi/17/1"
+ },
+ {
+  "chapter": "CC Madhya 1",
+  "sample_ref": "CC Madhya 1.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/1/1"
+ },
+ {
+  "chapter": "CC Madhya 2",
+  "sample_ref": "CC Madhya 2.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/2/1"
+ },
+ {
+  "chapter": "CC Madhya 3",
+  "sample_ref": "CC Madhya 3.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/3/1"
+ },
+ {
+  "chapter": "CC Madhya 4",
+  "sample_ref": "CC Madhya 4.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/4/1"
+ },
+ {
+  "chapter": "CC Madhya 5",
+  "sample_ref": "CC Madhya 5.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/5/1"
+ },
+ {
+  "chapter": "CC Madhya 6",
+  "sample_ref": "CC Madhya 6.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/6/1"
+ },
+ {
+  "chapter": "CC Madhya 7",
+  "sample_ref": "CC Madhya 7.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/7/1"
+ },
+ {
+  "chapter": "CC Madhya 8",
+  "sample_ref": "CC Madhya 8.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/8/1"
+ },
+ {
+  "chapter": "CC Madhya 9",
+  "sample_ref": "CC Madhya 9.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/9/1"
+ },
+ {
+  "chapter": "CC Madhya 10",
+  "sample_ref": "CC Madhya 10.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/10/1"
+ },
+ {
+  "chapter": "CC Madhya 11",
+  "sample_ref": "CC Madhya 11.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/11/1"
+ },
+ {
+  "chapter": "CC Madhya 12",
+  "sample_ref": "CC Madhya 12.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/12/1"
+ },
+ {
+  "chapter": "CC Madhya 13",
+  "sample_ref": "CC Madhya 13.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/13/1"
+ },
+ {
+  "chapter": "CC Madhya 14",
+  "sample_ref": "CC Madhya 14.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/14/1"
+ },
+ {
+  "chapter": "CC Madhya 15",
+  "sample_ref": "CC Madhya 15.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/15/1"
+ },
+ {
+  "chapter": "CC Madhya 16",
+  "sample_ref": "CC Madhya 16.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/16/1"
+ },
+ {
+  "chapter": "CC Madhya 17",
+  "sample_ref": "CC Madhya 17.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/17/1"
+ },
+ {
+  "chapter": "CC Madhya 18",
+  "sample_ref": "CC Madhya 18.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/18/1"
+ },
+ {
+  "chapter": "CC Madhya 19",
+  "sample_ref": "CC Madhya 19.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/19/1"
+ },
+ {
+  "chapter": "CC Madhya 20",
+  "sample_ref": "CC Madhya 20.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/20/1"
+ },
+ {
+  "chapter": "CC Madhya 21",
+  "sample_ref": "CC Madhya 21.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/21/1"
+ },
+ {
+  "chapter": "CC Madhya 22",
+  "sample_ref": "CC Madhya 22.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/22/1"
+ },
+ {
+  "chapter": "CC Madhya 23",
+  "sample_ref": "CC Madhya 23.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/23/1"
+ },
+ {
+  "chapter": "CC Madhya 24",
+  "sample_ref": "CC Madhya 24.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/24/1"
+ },
+ {
+  "chapter": "CC Madhya 25",
+  "sample_ref": "CC Madhya 25.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/madhya/25/1"
+ },
+ {
+  "chapter": "CC Antya 1",
+  "sample_ref": "CC Antya 1.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/1/1"
+ },
+ {
+  "chapter": "CC Antya 2",
+  "sample_ref": "CC Antya 2.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/2/1"
+ },
+ {
+  "chapter": "CC Antya 3",
+  "sample_ref": "CC Antya 3.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/3/1"
+ },
+ {
+  "chapter": "CC Antya 4",
+  "sample_ref": "CC Antya 4.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/4/1"
+ },
+ {
+  "chapter": "CC Antya 5",
+  "sample_ref": "CC Antya 5.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/5/1"
+ },
+ {
+  "chapter": "CC Antya 6",
+  "sample_ref": "CC Antya 6.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/6/1"
+ },
+ {
+  "chapter": "CC Antya 7",
+  "sample_ref": "CC Antya 7.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/7/1"
+ },
+ {
+  "chapter": "CC Antya 8",
+  "sample_ref": "CC Antya 8.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/8/1"
+ },
+ {
+  "chapter": "CC Antya 9",
+  "sample_ref": "CC Antya 9.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/9/1"
+ },
+ {
+  "chapter": "CC Antya 10",
+  "sample_ref": "CC Antya 10.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/10/1"
+ },
+ {
+  "chapter": "CC Antya 11",
+  "sample_ref": "CC Antya 11.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/11/1"
+ },
+ {
+  "chapter": "CC Antya 12",
+  "sample_ref": "CC Antya 12.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/12/1"
+ },
+ {
+  "chapter": "CC Antya 13",
+  "sample_ref": "CC Antya 13.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/13/1"
+ },
+ {
+  "chapter": "CC Antya 14",
+  "sample_ref": "CC Antya 14.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/14/1"
+ },
+ {
+  "chapter": "CC Antya 15",
+  "sample_ref": "CC Antya 15.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/15/1"
+ },
+ {
+  "chapter": "CC Antya 16",
+  "sample_ref": "CC Antya 16.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/16/1"
+ },
+ {
+  "chapter": "CC Antya 17",
+  "sample_ref": "CC Antya 17.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/17/1"
+ },
+ {
+  "chapter": "CC Antya 18",
+  "sample_ref": "CC Antya 18.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/18/1"
+ },
+ {
+  "chapter": "CC Antya 19",
+  "sample_ref": "CC Antya 19.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/19/1"
+ },
+ {
+  "chapter": "CC Antya 20",
+  "sample_ref": "CC Antya 20.1",
+  "similarity": null,
+  "verdict": "NO_DATA",
+  "url": "https://prabhupadabooks.com/cc/antya/20/1"
+ }
+]

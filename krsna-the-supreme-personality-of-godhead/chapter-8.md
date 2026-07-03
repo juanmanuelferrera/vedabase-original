@@ -44,4 +44,4 @@ In this way, Nanda Mahārāja and his wife, mother Yaśodā, developed their una
 
 Therefore, just to fulfill the benediction of Lord Brahmā, Lord Kṛṣṇa appeared along with His plenary expansion, Balarāma, and performed all kinds of childhood pastimes in order to increase the transcendental pleasure of all residents of Vṛndāvana.
 
-*Thus ends the Bhaktivedanta purport of the Eighth Chapter of* Kṛṣṇa, *"Vision of the Universal Form."*
+*Thus ends the Bhaktivedanta purport of the Thirty-third Chapter of* Kṛṣṇa, *"Vision of the Universal Form."*

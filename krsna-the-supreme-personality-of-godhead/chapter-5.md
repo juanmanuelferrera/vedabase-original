@@ -40,4 +40,4 @@ Vasudeva then replied, "My dear Nanda, if you have already paid the government t
 
 After the friendly conversation between Nanda Mahārāja and Vasudeva, Vasudeva returned to his home. The cowherd men headed by Nanda Mahārāja, who had come to Mathurā to pay their taxes, also returned.
 
-*Thus ends the Bhaktivedanta purport of the Fifth Chapter of* Kṛṣṇa, *"Meeting of Nanda and Vasudeva."*
+*Thus ends the Bhaktivedanta purport of the Twenty-third Chapter of* Kṛṣṇa, *"Meeting of Nanda and Vasudeva."*

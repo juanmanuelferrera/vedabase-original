@@ -48,4 +48,4 @@ King Satrājit was eager to get relief from the anxiety he had foolishly created
 
 Lord Kṛṣṇa, being pleased upon Satrājit, informed him that He did not have any need of the Syamantaka jewel. "It is better to let it remain in the temple as you have kept it," He said, "and every one of us will derive benefit from the jewel. Because of the jewel's presence in the city of Dvārakā, there will be no more famine or disturbances created by pestilence or excessive heat and cold."
 
-*Thus ends the Bhaktivedanta purport of the Fifty-fifth Chapter of* Kṛṣṇa, *"The Story of the Syamantaka Jewel."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Twenty-sixth Chapter of* Kṛṣṇa, *"The Story of the Syamantaka Jewel."*

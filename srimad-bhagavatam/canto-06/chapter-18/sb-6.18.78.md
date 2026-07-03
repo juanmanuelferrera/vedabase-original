@@ -12,4 +12,4 @@
 
 **My dear King Parīkṣit, I have replied as far as possible to the questions you have asked me, especially in regard to this pure, auspicious narration about the Maruts. Now you may inquire further, and I shall explain more.**
 
-*Thus end the Bhaktivedanta purports to the Sixth Canto, Eighteenth Chapter, of the* Śrīmad-Bhāgavatam, *entitled "Diti Vows to Kill King Indra."*
+*Thus end the Bhaktivedanta purports to the Sixth Canto, Sixth Chapter, of the* Śrīmad-Bhāgavatam, *entitled "Diti Vows to Kill King Indra."*
