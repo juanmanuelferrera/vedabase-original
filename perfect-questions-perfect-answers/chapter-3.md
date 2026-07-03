@@ -1,6 +1,6 @@
 ### 3
 
-3. The Real Goal of life
+THREE. The Real Goal of life
 
 **Śrīla Prabhupāda:**
 This movement is especially meant to enable a human being to reach the real goal of life.
@@ -46,7 +46,7 @@ Therefore I say that science is imperfect.
 Science may. though, say something. It is said in science that energy is never destroyed; it is changed.
 
 **Śrīla Prabhupāda:**
-That's all right. But how the energy is working in the future—that science does not know. How is the energy diverted? How, by different manipulations, is the energy working differently? For instance, electrical energy. By different handling it is operating the heats and it is operating the refrigerator. They are just the opposite, but the electrical energy is the same. Similarly, this energy—living energy—how is it being directed? Which way is it going? How is it fructifying in the next life? That they do not know. But in *Bhagavad-gītā* it is very simply stated.
+That's all right. But how the energy is working in the future—that science does not know. How is the energy diverted? How, by different manipulations, is the energy working differently? For instance, electrical energy. By different handling it is operating the heater and it is operating the refrigerator. They are just the opposite, but the electrical energy is the same. Similarly, this energy—living energy—how is it being directed? Which way is it going? How is it fructifying in the next life? That they do not know. But in *Bhagavad-gītā* it is very simply stated.
 
 > vāsāṁsi jīrṇāni yathā vihāya
 > [[bg/2/22|[Bg. 2.22] ]]

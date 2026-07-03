@@ -73,7 +73,7 @@ It is because the mind is agitated and not fixed on Kṛṣṇa that it goes fro
 > upaiti śānta-rajasaṁ
 > brahma-bhūtam akalmaṣam
 
-**"The *yogī* whose mind is fixed on Me verily attains the highest happiness. By virtue of his identity with Brahman, he is liberated; his mind is peaceful, his passions are quieted, and he is freed from sin."** [[bg/6/27|(Bg. 6.27)]]
+**"The *yogī* whose mind is fixed on Me verily attains the highest happiness. By virtue of his identity with Brahman, he is liberated; his mind is peaceful, his passions are quieted, and he is freed from sin."** [[bg/6/27|(Bg. 6.28)]]
 
 The mind is always concocting objects for happiness. I am always thinking, "This will make me happy," or "That will make me happy. Happiness is here. Happiness is there." In this way the mind is taking us anywhere and everywhere. It is as though we are riding on a chariot behind an unbridled horse. We have no power over where we are going but can only sit in horror and watch helplessly. As soon as the mind is engaged in the Kṛṣṇa consciousness process—specifically by chanting Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare—then the wild horses of the mind will gradually come under our control. We must engage in Kṛṣṇa's service every moment of our lives in order to keep the restless and turbulent mind from dragging us from one object to another in a vain search for happiness in the temporary material world.
 

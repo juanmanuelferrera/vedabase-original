@@ -82,7 +82,7 @@ Thus whoever follows in the footsteps of Arjuna, approaching Kṛṣṇa in a sp
 
 
 
-There are four *Vedas*-Sāma, Ṛg, Yajur and Atharva, and there are 108 *Upaniṣads*, including the *Īśopaniṣad*, Kaṭha Upaniṣad and Taittirīya Upaniṣad, as well as the *Vedānta-sūtra*, *Śrīmad-Bhāgavatam* and *Bhagavad-gītā*. These literatures are not meant for any particular class of men but for the totality of human society. All societies can take advantage of Vedic knowledge to perfect human life. As pointed out before, human life is not meant for sense gratification, but for understanding God, the universe and our own identity.
+There are four *Vedas*-Sāma, R.k, Yajur and Atharva, and there are 108 *Upaniṣads*, including the *Īśopaniṣad*, Kaṭha Upaniṣad and Taittirīya Upaniṣad, as well as the *Vedānta-sūtra*, *Śrīmad-Bhāgavatam* and *Bhagavad-gītā*. These literatures are not meant for any particular class of men but for the totality of human society. All societies can take advantage of Vedic knowledge to perfect human life. As pointed out before, human life is not meant for sense gratification, but for understanding God, the universe and our own identity.
 
 
 

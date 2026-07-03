@@ -172,7 +172,7 @@ govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 
 
-"I worship Govinda, the primeval Lord, Who is Śyāmasundara, Kṛṣṇa Himself, with inconceivable innumerable attributes, whom the pure devotees see in their heart of hearts with the eye of devotion tinged with the salve of love." (Brahma-saṁhitā 5.38)
+"I worship Govinda, the primeval Lord, Who is Śyāmasundara, Kṛṣṇa Himself, with inconceivable innumerable attributes, whom the pure devotees see in their heart of hearts with the eye of devotion tinged with the salve of love." (Bs. 5.38)
 
 
 
@@ -194,7 +194,7 @@ govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 
 
-"I worship Govinda, the primeval Lord, the first progenitor, who is tending the cows, fulfilling all desire, in abodes built with spiritual gems, surrounded by millions of wish-fulfilling trees, always served with great reverence and affection by hundreds of thousands of Lakṣmīs, or gopīs." (Brahma-saṁhitā 5.29)
+"I worship Govinda, the primeval Lord, the first progenitor, who is tending the cows, fulfilling all desire, in abodes built with spiritual gems, surrounded by millions of wish-fulfilling trees, always served with great reverence and affection by hundreds of thousands of Lakṣmīs, or gopīs." (Bs. 5.29)
 
 
 
@@ -226,7 +226,7 @@ govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 
 
-"I worship Govinda, the primeval Lord, who is adept at playing on His flute, with blooming eyes like lotus petals, with head bedecked with a peacock's feather, with the figure of beauty tinged with the hue of blue clouds, and His unique loveliness charming millions of Cupids. I worship Govinda, the primeval Lord, whose transcendental form is full of bliss, truth and substantiality and is thus full of the most dazzling splendor. Each of the limbs of that transcendental figure possesses, in Himself, the full-fledged functions of all the organs, and eternally sees, maintains and manifests the infinite universes, both spiritual and mundane." (Brahma-saṁhitā 5.30, 32)
+"I worship Govinda, the primeval Lord, who is adept at playing on His flute, with blooming eyes like lotus petals, with head bedecked with a peacock's feather, with the figure of beauty tinged with the hue of blue clouds, and His unique loveliness charming millions of Cupids. I worship Govinda, the primeval Lord, whose transcendental form is full of bliss, truth and substantiality and is thus full of the most dazzling splendor. Each of the limbs of that transcendental figure possesses, in Himself, the full-fledged functions of all the organs, and eternally sees, maintains and manifests the infinite universes, both spiritual and mundane." (Bs. 5.30,32)
 
 
 
@@ -260,7 +260,7 @@ sarva-kāraṇa-kāraṇam
 
 
 
-"Kṛṣṇa, who is known as Govinda, is the Supreme Godhead. He has an eternal, blissful spiritual body. He is the origin of all. He has no other origin and He is the prime cause of all causes." (Brahma-saṁhitā 5.1)
+"Kṛṣṇa, who is known as Govinda, is the Supreme Godhead. He has an eternal, blissful spiritual body. He is the origin of all. He has no other origin and He is the prime cause of all causes." (Bs. 5.1)
 
 
 

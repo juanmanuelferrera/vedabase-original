@@ -157,7 +157,7 @@ We therefore invite the most intelligent men in the world to understand this K�
 
 Every religion has its own saints, but all saints share one transcendent spiritual quality: compassion. Śrīla Prabhupāda explains....
 
-Today I shall speak to you about the glorification of the holy name of God. This was discussed between Mahārāja Parīkṣit and Śukadeva Gosvāmī in connection with a *brāhmaṇa* who was very fallen and addicted to all kinds of sinful activities but was saved simply by chanting the holy name. This is found in the Sixth Canto of the *Śrīmad-Bhāgavatam.*
+Today I shall speak to you about the glorification of the holy name of God. This was discussed between Mahārāja Parīkṣit and Śukadeva Goswami in connection with a *brāhmaṇa* who was very fallen and addicted to all kinds of sinful activities but was saved simply by chanting the holy name. This is found in the Sixth Canto of the *Śrīmad-Bhāgavatam.*
 
 The universal planetary systems are very nicely explained in the fifth Canto of the *Śrīmad-Bhāgavatam.* Within the universe there are some planets which are hellish. Actually, not only the *Bhāgavatam* but all religious scriptures contain descriptions of hell and heaven. In the *Śrīmad-Bhāgavatam* you can find out where those hellish planets are and how distant they are from this planet, just as you can obtain information from modern astronomy. Astronomers have calculated how far the moon is from here and what the distance is between this planet and the sun; similarly, the *Bhāgavatam* contains descriptions of the hellish planets.
 
@@ -225,9 +225,9 @@ The Vaiṣṇava knows that as soon as one surrenders, one's path is clear. *Nai
 > rādhā-kṛṣṇa-padāravinda-bhajanānandena mattālikau
 > vande rūpa-sanātanau raghu-yugau śrī-jīva-gopālakau
 
-"The six Gosvāmīs, namely, Śrī Sanātana Gosvāmī, Śrī Rūpa Gosvāmī, Śrī Raghunātha Bhaṭṭa Gosvāmī, Śrī Raghunātha dāsa Gosvāmī, Śrī Jīva Gosvāmī, and Śrī Gopāla Bhaṭṭa Gosvāmī, are very expert in scrutinizingly studying the revealed scriptures with the aim of establishing eternal religious principles for the benefit of all human beings. They are always absorbed in the mood of the *gopīs* and are engaged in the transcendental loving service of Rādhā and Kṛṣṇa." (*Ṣaḍ-gosvāmy-aṣṭaka* 2)
+"The six Gosvāmīs, namely, Śrī Sanātana Gosvāmī, Śrī Rūpa Gosvāmī, Śrī Raghunātha Bhaṭṭa Goswami, Śrī Raghunātha dāsa Gosvāmī, Śrī Jīva Gosvāmī, and Śrī Gopāla Bhaṭṭa Goswami, are very expert in scrutinizingly studying the revealed scriptures with the aim of establishing eternal religious principles for the benefit of all human beings. They are always absorbed in the mood of the *gopīs* and are engaged in the transcendental loving service of Rādhā and Kṛṣṇa." (*Ṣaḍ-gosvāmy-aṣṭaka* 2)
 
-With similar Vaiṣṇava compassion, Parīkṣit Mahārāja says to Śukadeva Gosvāmī: "You have described the different types of hellish conditions of life. Now, tell me how those who are suffering can be delivered. Kindly explain this to me.
+With similar Vaiṣṇava compassion, Parīkṣit Mahārāja says to Śukadeva Goswami: "You have described the different types of hellish conditions of life. Now, tell me how those who are suffering can be delivered. Kindly explain this to me.
 
 > adhuneha mahā-bhāga
 > yathaiva narakān naraḥ
@@ -273,11 +273,11 @@ There are two kinds of activities—good and bad. If you act nicely and perform 
 > bhiṣak cikitseta rujāṁ nidāna-vit
 > [[sb/6/1/8|(SB 6.1.8)]]
 
-There are different kinds of atonement. If you commit some sin and counteract it by something else, that is atonement. There are examples of this in the Christian Bible. Śukadeva Gosvāmī says, "You should know that you are responsible, and according to the gravity of sinful life, you should accept some type of atonement as described in the *śāstras,* the scriptures."
+There are different kinds of atonement. If you commit some sin and counteract it by something else, that is atonement. There are examples of this in the Christian Bible. Śukadeva Goswami says, "You should know that you are responsible, and according to the gravity of sinful life, you should accept some type of atonement as described in the *śāstras,* the scriptures."
 
 Actually, just as when one is diseased he must go to a doctor and pay doctor bills as a form of atonement, according to the Vedic way of life there is a class of *brāhmaṇas* to whom one should go for the prescribed atonement according to the sins one commits.
 
-Śukadeva Gosvāmī says that one has to execute the prescribed atonement according to the gravity of one's sinful life. He continues the example: *doṣasya dṛṣṭvā guru-lāghavaṁ yathā bhiṣak cikitseta rujāṁ nidāna-vit* [[sb/6/1/8|[SB 6.1.8] ]]. When you consult a physician, he prescribes an inexpensive medicine or a costly medicine, according to the gravity of the disease. If you simply have a headache, he may prescribe an aspirin, but if you have something very severe, he immediately prescribes a surgical operation which will cost a thousand dollars. Similarly, sinful life is a diseased condition, so one must follow the prescribed cure to become healthy.
+Śukadeva Goswami says that one has to execute the prescribed atonement according to the gravity of one's sinful life. He continues the example: *doṣasya dṛṣṭvā guru-lāghavaṁ yathā bhiṣak cikitseta rujāṁ nidāna-vit* [[sb/6/1/8|[SB 6.1.8] ]]. When you consult a physician, he prescribes an inexpensive medicine or a costly medicine, according to the gravity of the disease. If you simply have a headache, he may prescribe an aspirin, but if you have something very severe, he immediately prescribes a surgical operation which will cost a thousand dollars. Similarly, sinful life is a diseased condition, so one must follow the prescribed cure to become healthy.
 
 Acceptance of the chain of birth and death is a diseased condition of the soul. The soul has no birth and death and no disease, because it is spirit. Kṛṣṇa says in the *Bhagavad-gītā* (2.20)/ *na jāyate,* the soul has no birth, and *mriyate,* it has no death. *Nityaḥ śāśvato 'yaṁ purāṇo/ na hanyate hanyamāne śarīre.* The soul is eternal and everlasting. It is not lost with the dissolution of this body. *Na hanyate hanyamāne śarīre* [[bg/2/20|[Bg. 2.20] ]].* Na hanyate* means that it is not killed or destroyed, even after the destruction of this body.
 
