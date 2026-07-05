@@ -4,7 +4,6 @@ Preface
 
 
 
-
 A living being, especially civilized man, has a natural desire to live forever in happiness. This is quite natural because, in his original state, the living being is both eternal and joyful. However, in the present conditioned state of life, he is engaged in a struggle against recurring birth and death. Therefore he has attained neither happiness nor immortality.
 
 
@@ -14,9 +13,3 @@ The latest desire man has developed is the desire to travel to other planets. Th
 
 
 One can attain this stage of perfection very easily by his individual effort. He can simply follow, in his own home, the prescribed method of bhakti-yoga. This method, under proper guidance, is simple and enjoyable. An attempt is made herein to give information to the people in general, and to philosophers and religionists in particular, as to how one can transfer oneself to other planets by this process of bhakti-yoga-the highest of all yogic processes.
-
-
-
-
-
-Chapter One

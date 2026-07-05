@@ -16,9 +16,15 @@ Since we are Kṛṣṇa conscious, we take what Kṛṣṇa says to be the Abso
 
 yac-cakṣur eṣa savitā sakala-grahāṇāṁ
 
+
+
 rājā samasta-sura-mūrtir aśeṣa-tejāḥ
 
+
+
 yasyājñayā bhramati saṁbhṛta-kāla-cakro
+
+
 
 govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
@@ -34,9 +40,15 @@ There is not only one sun in the cosmic manifestation; there are millions and tr
 
 yasya prabhā prabhavato jagad-aṇḍa-koṭi-
 
+
+
 koṭiṣv aśeṣa-vasudhādi-vibhūti-bhinnam
 
+
+
 tad brahma niṣkalam anantam aśeṣa-bhūtaṁ
+
+
 
 govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
@@ -60,6 +72,8 @@ How one goes to the moon, how he comes back, etc., is a great story, and this is
 
 keha pāpe, keha puṇye kare viṣaya-bhoga
 
+
+
 bhakti-gandha nāhi, yāte yāya bhava-roga
 
 
@@ -78,9 +92,15 @@ The duration of life on the moon, according to Vedic information, is ten thousan
 
 yānti deva-vratā devān
 
+
+
 pitṝn yānti pitṛ-vratāḥ
 
+
+
 bhūtāni yānti bhūtejyā
+
+
 
 yānti mad-yājino 'pi mām
 
@@ -104,9 +124,15 @@ Many people claim, "God is great," but this is a hackneyed phrase. One must know
 
 avajānanti māṁ mūḍhā
 
+
+
 mānuṣīṁ tanum āśritam
 
+
+
 paraṁ bhāvam ajānanto
+
+
 
 mama bhūta-maheśvaram
 
@@ -152,7 +178,7 @@ There is a spiritual sky, where there are innumerable spiritual planets and innu
 
 
 
-We are only a fractional portion of all the living entities in the many universes of the material world. Those who are in the material world and material body are condemned. For example, the population in prison is condemned by the government, but their number is only a fraction of the whole population. It is not that the whole population goes to prison; some, who are disobedient, are confined in prison. Similarly, the conditioned souls within this material world are only a fraction of all the living entities in the creation of God, and because they have disobeyed God-because they did not abide by the order of Kṛṣṇa-they have been put into this material world. If one is sensible and inquisitive, he should try to understand: "Why have I been put into this conditional life? I do not wish to suffer."
+We are only a fractional portion of all the living entities in the many universes of the material world. Those who are in the material world and material body are condemned. For example, the population in prison is condemned by the government, but their number is only a fraction of the whole population. It is not that the whole population goes to prison; some, who are disobedient, are confined in prison. Similarly, the conditioned souls within this material world are only a fraction of all the living entities in the creation of God, and because they have disobeyed God-they did not abide by the order of Kṛṣṇa-they have been put into this material world. If one is sensible and inquisitive, he should try to understand: "Why have I been put into this conditional life? I do not wish to suffer."
 
 
 
@@ -160,15 +186,15 @@ There are three kinds of suffering, including miseries pertaining to the body an
 
 
 
-Suffering without knowledge, without remedy, is animal life. One who cannot understand that he is suffering and who thinks that he is very well off is in animal consciousness, not human consciousness. The human being should be cognizant of suffering the threefold miseries of this planet. One should know that he is suffering in birth, suffering in death, suffering in old age and suffering in disease, and one should be inquisitive as to how he may avoid the suffering. That is real research work.
+Suffering without knowledge, without remedy, is animal life. One who cannot understand that he is suffering and who thinks that he is very well off is in animal consciousness, not human consciousness. The human should be cognizant of suffering the threefold miseries of this planet. One should know that he is suffering in birth, suffering in death, suffering in old age and suffering in disease, and one should be inquisitive as to how he may avoid the suffering. That is real research work.
 
 
 
-We have suffered from the beginning of our birth. As a baby, the human being is tightly placed in the abdomen of the mother in an airtight bag for nine months. He cannot even move, there are insects biting him, and he cannot protest. After the child comes out, the suffering continues. The mother undoubtedly takes much care, but still the child cries because he is suffering. There are bugs biting or there are pains in his stomach; the child is crying, and the mother does not know how to pacify him. His suffering begins in the womb of his mother. Then, after his birth, as he grows up, there is more suffering. He does not want to go to school, but he is forced to. He does not want to study, but the teacher gives him tasks. If we analyze our life, we will find that it is full of suffering. Why then are we coming here? The conditioned souls are not very bright. We should inquire, "Why am I suffering?" If there is a remedy, we must take advantage of it.
+We have suffered from the beginning of our birth. As a baby, the human is tightly placed in the abdomen of the mother in an airtight bag for nine months. He cannot even move, there are insects biting him, and he cannot protest. After the child comes out, the suffering continues. The mother undoubtedly takes much care, but still the child cries because he is suffering. There are bugs biting or there are pains in his stomach; the child is crying, and the mother does not know how to pacify him. His suffering begins in the womb of his mother. Then, after his birth, as he grows up, there is more suffering. He does not want to go to school, but he is forced to. He does not want to study, but the teacher gives him tasks. If we analyze our life, we will find that it is full of suffering. Why then are we coming here? The conditioned souls are not very bright. We should inquire, "Why am I suffering?" If there is a remedy, we must take advantage of it.
 
 
 
-We are eternally connected with the Supreme Lord, but somehow or other we are now in material contamination. Therefore, we must take up a process by which to go back again to the spiritual world. That linking process is called yoga. The actual translation of the word yoga is "plus." At the present moment we are minus God, or minus the Supreme. But when we make ourselves plus-connected-then our human form of life is perfect. During our lifetime we have to practice approaching that point of perfection, and at the time of death, when we give up this material body, that perfection has to be realized. At the time of death, one must be prepared. Students, for instance, prepare for two to five years in college, and the final test of their education is the examination. If they pass the examination, they get a degree. Similarly, in the subject of life, if we prepare for the examination at the time of death and pass it, then we are transferred to the spiritual world. Everything is examined at the time of death.
+We are eternally connected with the Supreme Lord, but somehow or other we are now in material contamination. Therefore, we must take up a process to go back again to the spiritual world. That linking process is called yoga. The actual translation of the word yoga is "plus," which is just the opposite of minus. At the present moment we are minus God, or minus the Supreme. When we make ourselves plus-connected-then our human form of life is perfected. During our lifetime we have to practice approaching that point of perfection, and at the time of death, when we give up this material body, that perfection has to be realized. At the time of death, one must be prepared. Students, for instance, prepare for two to five years in college, and the final test of their education is the examination. If they pass the examination, they get a degree. Similarly, in the subject of life, if we prepare for the examination at the time of death and pass it, then we are transferred to the spiritual world. Everything is examined at the time of death.
 
 
 
@@ -178,9 +204,15 @@ There is a very common Bengali proverb that says that whatever one does for perf
 
 yad akṣaraṁ veda-vido vadanti
 
+
+
 viśanti yad yatayo vīta-rāgāḥ
 
+
+
 yad icchanto brahmacaryaṁ caranti
+
+
 
 tat te padaṁ saṅgraheṇa pravakṣye
 
@@ -188,23 +220,35 @@ tat te padaṁ saṅgraheṇa pravakṣye
 
 sarva-dvārāṇi saṁyamya
 
+
+
 mano hṛdi nirudhya ca
 
+
+
 mūrdhny ādhāyātmanaḥ prāṇam
+
+
 
 āsthito yoga-dhāraṇām
 
 
 
-"Persons learned in the *Vedas*, who utter oṁkāra and who are great sages in the renounced order, enter into Brahman. Desiring such perfection, one practices celibacy. I shall now explain to you this process by which one may attain salvation. The yogic situation is that of detachment from all sensual engagements. Closing all the doors of the senses and fixing the mind on the heart and the life air at the top of the head, one establishes himself in yoga." (Bg. 8.11-12) In the yoga system this process is called pratyāhāra, which means, in technical language, "the opposite." Now the eyes are engaged in seeing worldly beauty, so one has to withdraw them from enjoying that beauty and concentrate on seeing beauty inside. That is called pratyāhāra. Similarly, one has to hear the oṁkāra sound from within.
+"Persons learned in the *Vedas*, who utter oṁkāra and who are great sages in the renounced order, enter into Brahman. Desiring such perfection, one practices celibacy. I shall now explain to you this process by which one may attain salvation. The yogic situation is that of detachment from all sensual engagements. Closing all the doors of the senses and fixing the mind on the heart and the life air at the top of the head, one establishes himself in yoga." (Bg. 8.11-12) In the yoga system this process is called pratyāhāra, which means, in technical language, "the opposite." Now the eyes are engaged in seeing worldly beauty, so one has to withdraw them enjoying that beauty and concentrate on seeing beauty inside. That is called pratyāhāra. Similarly, one has to hear the oṁkāra sound from within.
 
 
 
 oṁ ity ekākṣaraṁ brahma
 
+
+
 vyāharan mām anusmaran
 
+
+
 yaḥ prayāti tyajan dehaṁ
+
+
 
 sa yāti paramāṁ gatim
 
@@ -278,11 +322,11 @@ We are taking advice from the Supreme Person. He says, "My dear Arjuna, you may 
 
 
 
-The people I have seen in America are very restless. They go from one apartment to another apartment or from one country to another country. That restlessness is there because we are searching after our real home. To go from this place to that place will not give eternal life. Eternal life is with Kṛṣṇa. Therefore Kṛṣṇa says, "Everything belongs to Me, and I have the superexcellent abode, which is called Goloka Vṛndāvana." If one wants to go there, he must simply become Kṛṣṇa conscious and try to understand how Kṛṣṇa appears and disappears, what His constitutional position is, what our constitutional position is, what our relationship with Him is, and how to live. Simply try to understand these ideas scientifically. Everything in Kṛṣṇa consciousness is scientific. It is not bogus, whimsical, sentimental, fanatical or imaginary. It is truth, fact, reality. One must understand Kṛṣṇa in truth.
+The people I have seen in America are very restless. They go from one apartment to another apartment or from one country to another country. That restlessness is there because we are searching after our real home. To go from this place to that place will not give eternal life. Eternal life is with Kṛṣṇa. Therefore Kṛṣṇa says, "Everything belongs to Me, and I have the superexcellent abode, which is called Goloka Vṛndāvana." If one wants to go there, he must simply become Kṛṣṇa conscious and try to understand how Kṛṣṇa appears and disappears, what His constitutional position is, what our constitutional position is, what our relationship with Him is, and how to live. Simply try to understand these ideas scientifically. Everything in Kṛṣṇa consciousness is scientific. It is not bogus, whimsical, sentimental, fanatical or imaginative. It is truth, fact, reality. One must understand Kṛṣṇa in truth.
 
 
 
-We have to give up this body, willingly or unwillingly. The day will come when we will have to submit to the laws of nature and give up this body. Even President Kennedy in his procession had to submit to nature's law and change his body for another body. He could not say, "Oh, I am the President; I am Mr. Kennedy. I cannot do that." He was forced to do it. That is the way nature works.
+We have to give up this body, willingly or unwillingly. The day will come when we will have to submit to the laws of nature and give up this body. Even President Kennedy in his procession had to submit to nature's law and change his body for another body. He could not say, "Oh, I am the President; I am Mr. Kennedy. I cannot do that." He was forced to do it. That is the way that nature works.
 
 
 
