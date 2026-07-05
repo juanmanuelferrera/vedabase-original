@@ -592,7 +592,7 @@ A naturalist can see the general course of material nature simply by studying a 
 
 
 
-Similarly, a living being (as a spiritual spark, a part of the Supreme Being) takes its organic form in the womb of the mother just after the sexual intercourse. It grows little by little within the womb, is born, then continues growing, becomes a child, boy, youth, adult, old man, then finally dwindles and meets death, despite all the good wishes and hopeful pipe dreams of fiction writers. By comparison, there is no difference between man and the fruit. Like the fruit, the man may leave behind him his seeds of numerous children, but he cannot exist eternally within his material body due to the law of material nature.
+Similarly, a living being (as a spiritual spark, a part of the Supreme Being) takes its organic form in the womb of the mother just after the sexual intercourse. It grows little by little within the womb, is born, then continues growing, becomes a child, boy, youth, adult, old man, then finally dwindles and meets death, despite all the good wishes and hopeful pipe dreams of fiction writers. By comparison, there is no difference between man and the fruit. And as such, the man may leave behind him his seeds of numerous children, but he cannot exist eternally within his material body due to the law of material nature.
 
 
 

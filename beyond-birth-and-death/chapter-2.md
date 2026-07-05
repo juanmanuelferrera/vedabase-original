@@ -114,11 +114,11 @@ na hanyate hanyamāne śarīre
 
 
 
-"For the soul there is never birth nor death. Nor, once having been, does he ever cease to be. He is unborn, eternal, ever-existing, undying, and primeval. He is not slain when the body is slain." (Bg. 2.20)
+"For the soul there is never birth nor death. Nor, once having been, does he ever cease to be. He is unborn, eternal, ever-existing, undying, and primeval. He is not slain when the body is slain."
 
 
 
-We are spirit soul, and as such we are eternal. Why, then, should we subject ourselves to birth and death? One who asks this question is to be considered intelligent. Those who are Kṛṣṇa conscious are very intelligent, because they are not interested in gaining entrance to any planet where there is death. They will reject a long duration of life in order to attain a body like God's. Īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ [Bs. 5.1] . Sat means "eternal," cit means "full of knowledge," and ānanda means "full of pleasure." Kṛṣṇa is the reservoir of all pleasure. If we transfer ourselves from this body into the spiritual world-either to Kṛṣṇaloka (Kṛṣṇa's planet) or any other spiritual planet-we will receive a similar sac-cid-ānanda body. Thus the aim of those who are in Kṛṣṇa consciousness is different from those who are trying to promote themselves to higher planets within this material world.
+We are spirit soul, and as such we are eternal. Why, then, should we subject ourselves to birth and death? One who asks this question is to be considered intelligent. Those who are Kṛṣṇa conscious are very intelligent, because they are not interested in gaining entrance to any planet where there is death. They will reject a long duration of life in order to attain a body like unto God's. Īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ. Sat means "eternal," cit means "full of knowledge," and ānanda means "full of pleasure." Kṛṣṇa is the reservoir of all pleasure. If we transfer ourselves from this body into the spiritual world-either to Kṛṣṇaloka (Kṛṣṇa's planet) or any other spiritual planet-we will receive a similar sac-cid-ānanda body. Thus the aim of those who are in Kṛṣṇa consciousness is different from those who are trying to promote themselves to higher planets within this material world.
 
 
 
@@ -126,7 +126,7 @@ The self, or soul, of the individual is a minute spiritual spark. The perfection
 
 
 
-Oṁ ity ekākṣaraṁ brahma: at the point of death the yogī can pronounce oṁ, oṁkāra, the concise form of transcendental sound vibration. If the yogī can vibrate this sound and at the same time remember Kṛṣṇa, or Viṣṇu (mām anusmaran), he attains the highest goal. It is the process of yoga to concentrate the mind on Viṣṇu. The impersonalists imagine some form of the Supreme Lord, but the personalists do not imagine this; they actually see. Whether one imagines Him or actually sees Him, one has to concentrate his mind on the personal form of Kṛṣṇa.
+Oṁ ity ekākṣaraṁ brahma: at the point of death the yogī can pronounce oṁ, oṁkāra, the concise form of transcendental sound vibration. If the yogī can vibrate this sound and at the same time mām anusmaran, remember Kṛṣṇa, or Viṣṇu, he attains the highest goal. It is the process of yoga to concentrate the mind on Viṣṇu. The impersonalists imagine some form of the Supreme Lord, but the personalists do not imagine this; they actually see. Whether one imagines Him or actually sees Him, one has to concentrate his mind on the personal form of Kṛṣṇa.
 
 
 
@@ -144,7 +144,7 @@ nitya-yuktasya yoginaḥ
 
 
 
-Those who are satisfied with temporary life, temporary pleasure, and temporary facilities are not to be considered intelligent, at least not according to *Bhagavad-gītā*. According to the *Gītā*, one whose brain substance is very small is interested in temporary things. We are eternal, so why should we be interested in temporary things? No one wants a nonpermanent situation. If we are living in an apartment and the landlord asks us to vacate, we are sorry, but we are not sorry if we move into a better apartment. It is our nature, because we are permanent, to want permanent residence. We don't wish to die, because in actuality we are permanent. Nor do we want to grow old or be diseased, because these are all external or nonpermanent states. Although we are not meant to suffer from fever, sometimes fever comes, and we have to take precautions and remedies to get well again. The fourfold miseries are like a fever, and they are all due to the material body. If somehow we can get out of the material body, we can escape the miseries that are integral with it.
+Those who are satisfied with temporary life, temporary pleasure, and temporary facilities are not to be considered intelligent, at least not according to *Bhagavad-gītā*. One whose brain substance is very small is interested in temporary things. According to the *Gītā*, we are eternal, so why should we be interested in temporary things? No one wants a nonpermanent situation. If we are living in an apartment and the landlord asks us to vacate, we are sorry, but we are not sorry if we move into a better apartment. It is our nature, because we are permanent, to want permanent residence. We don't wish to die, because in actuality we are permanent. Nor do we want to grow old or be diseased, because these are all external or nonpermanent states. Although we are not meant to suffer from fever, sometimes fever comes, and we have to take precautions and remedies to get well again. The fourfold miseries are like a fever, and they are all due to the material body. If somehow we can get out of the material body, we can escape the miseries that are integral with it.
 
 
 
@@ -156,7 +156,7 @@ However, as living entities we want enjoyment. Being, in itself, is not enough. 
 
 
 
-It is of utmost importance, therefore, that we know the nature of our constitutional position: we want eternity, complete knowledge, and also pleasure. When we are left alone for a long time, we cannot have pleasure, and therefore we accept the pleasure given by the material world. But in Kṛṣṇa consciousness, real pleasure is enjoyed. In the material world it is generally accepted that the highest pleasure is sex. This is a perverted reflection of the sex pleasure in the spiritual world, the pleasure of association with Kṛṣṇa. But we should not think that the pleasure there is like the sex pleasure in the material world. No, it is different. But unless sex life is there in the spiritual world, it cannot be reflected here. Here it is simply a perverted reflection, but the actual life is there in Kṛṣṇa, who is full of all pleasure. Therefore, the best process is to train ourselves now, so that at the time of death we may transfer ourselves to the spiritual universe, to Kṛṣṇaloka, and there associate with Kṛṣṇa. In Brahma-saṁhitā (5.29) Śrī Kṛṣṇa and His abode are described thus:
+It is of utmost importance, therefore, that we know the nature of our constitutional position: we want eternity, complete knowledge, and also pleasure. When we are left alone for a long time, we cannot have pleasure, we accept the pleasure given by the material world. In Kṛṣṇa consciousness, real pleasure is enjoyed. In the material world it is generally accepted that the highest pleasure is sex. This is a perverted reflection of the sex pleasure in the spiritual world, the pleasure of association with Kṛṣṇa. But we should not think that pleasure there is like the sex pleasure in the material world. No, it is different. But unless sex life is there in the spiritual world, it cannot be reflected here. Here it is simply a perverted reflection, but the actual life is there in Kṛṣṇa, who is full of all pleasure. Therefore, the best process is to train ourselves now, so that at the time of death we may transfer ourselves to the spiritual universe, to Kṛṣṇaloka, and there associate with Kṛṣṇa. In Brahma-saṁhitā (5.29) Śrī Kṛṣṇa and His abode are described thus:
 
 
 
@@ -170,7 +170,7 @@ govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 
 
-"I worship Govinda, the primeval Lord, the first progenitor, who is tending the cows, fulfilling all desire, in abodes built with spiritual gems, surrounded by millions of wish-fulfilling trees, always served with great reverence and affection by hundreds and thousands of lakṣmīs, or gopīs." This is a description of Kṛṣṇaloka. The houses are made of what is called "touchstone." Whatever touchstone touches immediately turns into gold. The trees are wish-fulfilling trees, or "desire trees," for one can receive from them whatever he wishes. In this world we get mangoes from mango trees and apples from apple trees, but there from any tree one can get whatever he desires. Similarly, the cows are called surabhi, and they yield an endless supply of milk. These are descriptions of the spiritual planets found in Vedic scriptures.
+"I worship Govinda, the primeval Lord, the first progenitor, who is tending the cows, fulfilling all desire, in abodes built with spiritual gems, surrounded by millions of wish-fulfilling trees, always served with great reverence and affection by hundreds and thousands of lakṣmīs, or gopīs." [Bs. 5.29] This is a description of Kṛṣṇaloka. The houses are made of what is called "touchstone." Whatever touchstone touches immediately turns into gold. The trees are wish-fulfilling trees, or "desire trees," for one can receive from them whatever he wishes. In this world we get mangoes from mango trees and apples from apple trees, but there from any tree one can get whatever he desires. Similarly, the cows are called surabhi, and they yield an endless supply of milk. These are descriptions of the spiritual planets found in Vedic scriptures.
 
 
 
