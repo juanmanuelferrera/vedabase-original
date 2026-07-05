@@ -302,7 +302,7 @@ What is that higher platform? The animal eats to maintain his body, and you also
 But only in human beings do we find a metaphysical search for the meaning of life.
 
 **Śrīla Prabhupāda:**
-Yes. So metaphysically search out why you believe that there is no soul within the animal—that is metaphysics. If you are thinking metaphysically, that's all right. But if you are thinking like an animal, then what is the use of your metaphysical study? *Metaphysical* means "above the physical" or, in other words, "spiritual." In the *Bhagavad-gītā* Kṛṣṇa says, *sarva-yoniṣu kaunteya:* [[bg/14/4|[Bg. 14.4] ]] "In every living being there is a spirit soul." That is metaphysical understanding. Now either you accept Kṛṣṇa's teachings as metaphysical, or you'll have to take a third-class fool's opinion as metaphysical. Which do you accept?
+Yes. So metaphysically search out why you believe that there is no soul within the animal—that is metaphysics. If you are thinking metaphysically, that's all right. But if you are thinking like an animal, then what is the use of your metaphysical study? *Metaphysical* means "above the physical" or, in other words, "spiritual." In the *Bhagavad-gītā* Kṛṣṇa says, *sarva-yoniṣu kaunteya:* "In every living being there is a spirit soul." That is metaphysical understanding. Now either you accept Kṛṣṇa's teachings as metaphysical, or you'll have to take a third-class fool's opinion as metaphysical. Which do you accept?
 
 **Cardinal Danielou:**
 But why does God create some animals who eat other animals? There is a fault in the creation, it seems.
