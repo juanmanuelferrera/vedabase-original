@@ -1,6 +1,6 @@
 ### 3
 
-.r--._ CHAPTER THREE Learning How to See God
+3. Learning How to See God
 
 > bandhur ātmātmanas tasya
 > yenātmaivātmanā jitaḥ

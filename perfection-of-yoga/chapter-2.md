@@ -2,7 +2,7 @@
 
 2. Yoga as Work in Devotion
 
-We have heard the names of so many different *yogas* and *yogīs,* but in *Bhagavad-gītā* Kṛṣṇa says that the actual *yogī* is he who has surrendered himself "fully unto Me." Kṛṣṇa proclaims that there is no difference between renunciation (*sannyāsa*) and *yoga.*
+We have heard the names of so many different *yogas* and *yogīs,* but in *Bhagavad-gītā* Kṛṣṇa says that he is the actual *yogī* who has surrendered himself "fully unto Me." Kṛṣṇa proclaims that there is no difference between renunciation (*sannyāsa*) and *yoga.*
 
 > yaṁ sannyāsam iti prāhur
 > yogaṁ taṁ viddhi pāṇḍava

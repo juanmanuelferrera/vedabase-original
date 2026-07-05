@@ -1,6 +1,6 @@
 ### 1
 
-· CHAPTER ONE Yoga as Action
+1. Yoga as Action
 
 In the Sixth and Eighth Chapters of *Bhagavad-gītā,* Lord Śrī Kṛṣṇa, the Supreme Personality of Godhead, explains that the eightfold *yoga* system is a means to control the mind and senses. This method, however, is very difficult for people to perform, especially in this age of Kali, an age characterized by ignorance and chaos.
 
