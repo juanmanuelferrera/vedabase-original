@@ -36,4 +36,4 @@ Lord Kṛṣṇa continued: "If some foolish king who is puffed up by his wealth
 
 Thus Lord Kṛṣṇa, who is always engaged in purifying the conditioned living entities, gave instruction not only to His family members and the inhabitants of Dvārakā, but to all the members of human society. After this the Lord entered His palace.
 
-*Thus ends the Bhaktivedanta purport of the Sixty-third Chapter of* Kṛṣṇa, *"The Story of King Nṛga."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Ninth Chapter of* Kṛṣṇa, *"The Story of King Nṛga."*

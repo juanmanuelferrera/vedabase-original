@@ -36,4 +36,4 @@ Thus, not finding any other weapon, Aniruddha took hold of a big iron rod and st
 
 Bāṇāsura knew various arts of fighting, and by the grace of Lord Śiva he knew how to arrest his opposing enemy by the use of a *nāgapāśa,* snake-noose, and so Aniruddha was seized as he came out of the palace. When Uṣā received the news that her father had arrested Aniruddha, she became overwhelmed with grief and confusion. Tears began to glide down her eyes, and being unable to check herself, she began to cry very loudly.
 
-*Thus ends the Bhaktivedanta purport of the Thirty-First-first Chapter of* Kṛṣṇa, *"The Meeting of Uṣā and Aniruddha."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Seventh Chapter of* Kṛṣṇa, *"The Meeting of Uṣā and Aniruddha."*

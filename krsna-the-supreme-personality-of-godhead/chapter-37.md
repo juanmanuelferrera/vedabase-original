@@ -36,4 +36,4 @@ After Akrūra was thus properly received and seated, Nanda Mahārāja, the foste
 
 As Nanda Mahārāja spoke to Akrūra with pleasing words, Akrūra forgot all the fatigue of his day's journey from Mathurā to Vṛndāvana.
 
-*Thus ends the Bhaktivedanta purport of the Nineteenth Chapter of* Kṛṣṇa, *"Akrūra's Arrival in Vṛndāvana."*
+*Thus ends the Bhaktivedanta purport of the Thirty-seventh Chapter of* Kṛṣṇa, *"Akrūra's Arrival in Vṛndāvana."*

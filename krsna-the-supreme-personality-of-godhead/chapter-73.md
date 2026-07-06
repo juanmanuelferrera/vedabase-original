@@ -48,4 +48,4 @@ When Śukadeva Gosvāmī was narrating these incidents of Kṛṣṇa's killing 
 
 Śukadeva Gosvāmī assured Mahārāja Parīkṣit that the pastimes of Lord Kṛṣṇa—the killing of Śiśupāla and Jarāsandha and the releasing of the imprisoned kings—are all transcendental vibrations, and anyone who hears these narrations from the authorized persons will be immediately freed from all the reactions of the sinful activities of his life.
 
-*Thus ends the Bhaktivedanta purport of the Seventy-third Chapter of* Kṛṣṇa, *"The Deliverance of Śiśupāla."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Nineteenth Chapter of* Kṛṣṇa, *"The Deliverance of Śiśupāla."*

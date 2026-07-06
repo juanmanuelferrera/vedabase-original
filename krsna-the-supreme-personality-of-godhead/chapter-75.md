@@ -24,4 +24,4 @@ Pradyumna's chariot was being driven by the son of Dāruka. According to Vedic m
 
 The charioteer of Pradyumna replied, "My dear sir, I wish a long life for you. I think I did not do anything wrong, as it is the duty of the charioteer to help the fighter in the chariot when he is in a precarious condition. My dear sir, you are completely competent in the battlefield activities. It is the mutual duty of the charioteer and the warrior to give protecion to each other in a precarious condition. I was completely aware of the regulative principles of fighting, and I did my duty. The enemy all of a sudden struck you with his club so severely that you lost consciousness. You were in a dangerous position, surrounded by your enemies. Therefore I was obliged to act as I did."
 
-*Thus ends the Bhaktivedanta purport of the Seventy-fifth Chapter of* Kṛṣṇa, *"The Battle Between Śālva and Members of the Yadu Dynasty."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Twenty-first Chapter of* Kṛṣṇa, *"The Battle Between Śālva and Members of the Yadu Dynasty."*

@@ -46,4 +46,4 @@ The friendly kings of the Kurus and the Pāṇḍavas were represented by Dhṛt
 
 The story of Rukmiṇī's being kidnapped by Kṛṣṇa was poeticized, and the professional readers recited it everywhere. All the assembled kings and, especially, their daughters were struck with wonder and became very pleased upon hearing the chivalrous activities of Kṛṣṇa. In this way, all visitors as well as the inhabitants of Dvārakā City became joyful seeing Kṛṣṇa and Rukmiṇī together. In other words, the Supreme Lord, the maintainer of everyone, and the goddess of fortune were united, and all the people felt extremely jubilant.
 
-*Thus ends the Bhaktivedanta purport of the Twenty-Ninth Chapter of* Kṛṣṇa, *"Kṛṣṇa Defeats all the Princes and Takes Rukmiṇī Home to Dvārakā."*
+*Thus ends the Bhaktivedanta purport of the Fifty-third Chapter of* Kṛṣṇa, *"Kṛṣṇa Defeats all the Princes and Takes Rukmiṇī Home to Dvārakā."*

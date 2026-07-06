@@ -30,4 +30,4 @@ Upon displaying this submissive attitude, Yamunā was forgiven, and when she cam
 
 Lord Balarāma and the *gopīs* enjoyed transcendental pastimes together every night for two months, and time passed away so quickly that all those nights appeared to be only one night. In the presence of Lord Balarāma, all the *gopīs* and inhabitants of Vṛndāvana became as cheerful as they had been before in the presence of both brothers, Lord Kṛṣṇa and Lord Balarāma.
 
-*Thus ends the Bhaktivedanta purport of the Sixty-fourth Chapter of* Kṛṣṇa, *"Lord Balarāma Visits Vṛndāvana."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Tenth Chapter of* Kṛṣṇa, *"Lord Balarāma Visits Vṛndāvana."*

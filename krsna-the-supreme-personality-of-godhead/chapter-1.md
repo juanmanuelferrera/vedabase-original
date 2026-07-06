@@ -54,4 +54,4 @@ Kaṁsa was made aware of his previous birth by the grace of Nārada. He learned
 
 He first of all imprisoned his father Ugrasena because he was the chief king among the Yadu, Bhoja, and Andhaka dynasties, and he also occupied the kingdom of Śūrasena, Vasudeva's father. He declared himself the king of all such places.
 
-*Thus ends the Bhaktivedanta purport of the Seventh Chapter of* Kṛṣṇa, *"Advent of Lord Kṛṣṇa."*
+*Thus ends the Bhaktivedanta purport of the First Chapter of* Kṛṣṇa, *"Advent of Lord Kṛṣṇa."*

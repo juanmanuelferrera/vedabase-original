@@ -40,4 +40,4 @@ King Parīkṣit was a bit astonished to understand that the killing of the Agh�
 
 Generally, the *kṣatriyas* or the administrative class are always busy with their political affairs, and they have very little chance to hear about the transcendental pastimes of Lord Kṛṣṇa. But while Parīkṣit Mahārāja was hearing these transcendental pastimes, he considered himself to be very fortunate because he was hearing from Śukadeva Gosvāmī, the greatest authority on the *Śrīmad-Bhāgavatam.* Thus being requested by Mahārāja Parīkṣit, Śukadeva Gosvāmī continued to speak about the transcendental pastimes of Lord Kṛṣṇa in the matter of His form, quality, fame and paraphernalia.
 
-*Thus ends the Bhaktivedanta purport of the Seventh Chapter of* Kṛṣṇa, *"The Killing of the Aghāsura Demon."*
+*Thus ends the Bhaktivedanta purport of the Twelfth Chapter of* Kṛṣṇa, *"The Killing of the Aghāsura Demon."*

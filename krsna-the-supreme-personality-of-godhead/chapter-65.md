@@ -36,4 +36,4 @@ Following just behind the fiery demon, the Sudarśana-cakra also entered Vārā�
 
 This narration of the devastation of Vārāṇasī by Kṛṣṇa's disc weapon, the Sudarśana-cakra, is transcendental and auspicious. Anyone who narrates this story or anyone who hears this story with faith and attention will be released from all reaction to sinful activities. This is the assurance of Śukadeva Gosvāmī who narrated this story to Parīkṣit Mahārāja.
 
-*Thus ends the Bhaktivedanta purport of the Sixty-fifth Chapter of* Kṛṣṇa, *"Deliverance of Pauṇḍraka and the King of Kāśī."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Eleventh Chapter of* Kṛṣṇa, *"Deliverance of Pauṇḍraka and the King of Kāśī."*

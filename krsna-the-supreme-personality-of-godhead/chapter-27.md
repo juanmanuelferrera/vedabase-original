@@ -26,4 +26,4 @@ In this way, Kṛṣṇa was bathed by the milk of the *surabhi* cows, and Indra
 
 After satisfying Kṛṣṇa, who is the Lord of all the cows in Vṛndāvana, who is known as Govinda, King Indra took His permission to return to his heavenly kingdom. He was surrounded by all kinds of demigods who passed with him through cosmic space. This great incident is a powerful example of how Kṛṣṇa consciousness can benefit the world. Even the lower animals forget their envious nature and become elevated to the qualities of the demigods.
 
-*Thus ends the Bhaktivedanta purport of the Fifty-second Chapter of* Kṛṣṇa, *"Prayers by Indra, the King of Heaven."*
+*Thus ends the Bhaktivedanta purport of the Twenty-seventh Chapter of* Kṛṣṇa, *"Prayers by Indra, the King of Heaven."*

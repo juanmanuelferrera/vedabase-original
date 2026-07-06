@@ -30,4 +30,4 @@ These things are not very uncommon in *kṣatriya* society, and the King of Kali
 
 During this strife between Balarāma and Rukmī, Lord Kṛṣṇa did not utter a word, for He knew that if He supported Balarāma, Rukmiṇī would be unhappy, and if He said that the killing of Rukmī was unjust, then Balarāma would be unhappy. Therefore, Lord Kṛṣṇa was silent on the death of His brother-in-law, Rukmī, on the occasion of His grandson's marriage. He did not disturb either His affectionate relationship with Balarāma or with Rukmiṇī. After this, the bride and the bridegroom were ceremoniously seated on the chariot, and they started for Dvārakā, accompanied by the bridegroom's party. The bridegroom's party was always protected by Lord Kṛṣṇa, the killer of the Madhu demon. Thus they left Rukmī's kingdom, Bhojakaṭa, and happily started for Dvārakā.
 
-*Thus ends the Bhaktivedanta purport of the Sixtieth Chapter of* Kṛṣṇa, *"The Genealogical Table of the Family of Kṛṣṇa."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Sixth Chapter of* Kṛṣṇa, *"The Genealogical Table of the Family of Kṛṣṇa."*

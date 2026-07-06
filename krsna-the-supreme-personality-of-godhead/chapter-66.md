@@ -16,4 +16,4 @@ When Lord Balarāma personally saw the disturbances created by the gorilla and h
 
 After this horrible incident, all the Siddhas, great sages and saintly persons from the upper planetary system began to shower flowers on the person of Lord Balarāma, and sounds glorifying the supremacy of Lord Balarāma were vibrated. All of them began to chant, "All glories to Lord Balarāma! Let us offer our respectful obeisances unto Your lotus feet. By Your killing this great demon, Dvivida, You have initiated an auspicious era for the world." All such jubilant sounds of victory were heard from outer space. After killing the great demon Dvivida and being worshiped by showers of flowers and glorious sounds of victory, Balarāma returned to His capital city, Dvārakā.
 
-*Thus ends the Bhaktivedanta purport of the Sixty-sixth Chapter of* Kṛṣṇa, *"Deliverance of Dvivida Gorilla."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Twelfth Chapter of* Kṛṣṇa, *"Deliverance of Dvivida Gorilla."*

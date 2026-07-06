@@ -30,4 +30,4 @@ When Śālva thought that Kṛṣṇa had been bewildered by his mystic represen
 
 When Śālva was killed, all his soldiers and followers began to cry, "Alas! Alas!" While Śālva's men were thus crying, the demigods from the heavenly planets showered flowers on Kṛṣṇa and announced the victory by beating on drums and blowing bugles. At this very moment, other friends of Śiśupāla, such as Dantavakra, appeared on the scene to fight with Kṛṣṇa in order to avenge the death of Śiśupāla. When Dantavakra appeared before Lord Kṛṣṇa, he was extremely angry.
 
-*Thus ends the Bhaktivedanta purport of the Seventy-sixth Chapter of* Kṛṣṇa, *"The Deliverance of Śālva."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Twenty-second Chapter of* Kṛṣṇa, *"The Deliverance of Śālva."*

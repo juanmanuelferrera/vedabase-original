@@ -28,4 +28,4 @@ The wrestling arena was nicely cleansed and decorated with flags, festoons and f
 
 When everything was complete, the wrestlers, who were to exhibit their skills before the assembly, walked into the arena. They were decorated with bright ornaments and dress. Some of the famous wrestlers were Cāṇūra, Muṣṭika, Śala, Kūṭa and Tośala. Being enlivened by the musical concert, they passed through with great alacrity. All the respectable cowherd men who came from Vṛndāvana, headed by Nanda, were also welcomed by Kaṁsa. After presenting Kaṁsa with the milk products they had brought with them, the cowherd men also took their respective seats by the side of the King, on a platform especially meant for them.
 
-*Thus ends the Bhaktivedanta purport of the Sixteenth Chapter of* Kṛṣṇa, *"The Breaking of the Bow in the Sacrificial Arena."*
+*Thus ends the Bhaktivedanta purport of the Forty-first Chapter of* Kṛṣṇa, *"The Breaking of the Bow in the Sacrificial Arena."*

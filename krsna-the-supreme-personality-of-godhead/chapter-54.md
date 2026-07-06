@@ -24,4 +24,6 @@ At that very moment, Lord Kṛṣṇa, along with His father and mother, Devakī
 
 Śrīla Śukadeva Gosvāmī has explained that, in the beginning, all the residents of the palace, who were all mothers and stepmothers of Pradyumna, mistook him to be Kṛṣṇa and were all bashful, infected by the desire for conjugal love. The explanation is that Pradyumna's personal appearance is exactly like Kṛṣṇa's, and he was factually Cupid himself. There was no cause of astonishment, therefore, when the mothers of Pradyumna and other women mistook him in that way. It is clear from the statement that Pradyumna's bodily characteristics were so similar to Kṛṣṇa's that he was mistaken to be Kṛṣṇa even by his mother.
 
+*Thus ends the Bhaktivedanta purport of the Fifty-fourth Chapter of* Kṛṣṇa, *"Pradyumna Born to Kṛṣṇa and Rukmiṇī."*
+
 *Thus ends Volume One of* Kṛṣṇa, the Supreme Personality of Godhead.

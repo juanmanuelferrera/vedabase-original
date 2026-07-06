@@ -34,4 +34,4 @@ When Lord Kṛṣṇa, in friendly terms and in sweet language, impressed Akrūr
 
 This story of the Syamantaka jewel is very significant. In the *Śrīmad-Bhāgavatam* it is said that anyone who hears the story of the Syamantaka jewel or describes it or simply remembers it will be free from all kinds of defamation and the reactions of all impious activities and thus will attain the highest perfectional condition of peace.
 
-*Thus ends the Bhaktivedanta purport of the Second Volume, Twenty-eighth Chapter of* Kṛṣṇa, *"The Killing of Satrājit and Śatadhanvā."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Second Chapter of* Kṛṣṇa, *"The Killing of Satrājit and Śatadhanvā."*

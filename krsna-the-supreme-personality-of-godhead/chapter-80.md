@@ -42,4 +42,4 @@ Sudāmā Vipra realized that although Lord Kṛṣṇa is unconquerable, He neve
 
 Śukadeva Gosvāmī has stated that all persons who hear this history of Sudāmā Vipra and Lord Kṛṣṇa will know how affectionate Lord Kṛṣṇa is to the *brāhmaṇa* devotees like Sudāmā. Therefore anyone who hears this history gradually becomes as qualified as Sudāmā Vipra, and he is thus transferred to the spiritual kingdom of Lord Kṛṣṇa.
 
-*Thus ends the Bhaktivedanta purport of the Eightieth Chapter of Kṛṣṇa, "The Brāhmaṇa Sudāmā Benedicted by Lord Kṛṣṇa".*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Twenty-sixth Chapter of Kṛṣṇa, "The Brāhmaṇa Sudāmā Benedicted by Lord Kṛṣṇa".*

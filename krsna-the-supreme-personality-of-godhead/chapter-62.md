@@ -56,4 +56,4 @@ When Bāṇāsura was benedicted by Lord Kṛṣṇa in this way, he came before
 
 This episode of Bāṇāsura's fighting with Kṛṣṇa and later on being saved by the grace of Lord Śiva is confirmation of the statement in the *Bhagavad-gītā* that the worshipers of demigods cannot achieve any benediction without its being sanctioned by the Supreme Lord, Kṛṣṇa. Here, in this narration, we find that although Bāṇāsura was a great devotee of Lord Śiva, when he faced death by Kṛṣṇa, Lord Śiva was not able to save him. But Lord Śiva appealed to Kṛṣṇa to save his devotee, and it was thus sanctioned by the Lord. This is the position of Lord Kṛṣṇa. The exact words used in this connection in the *Bhagavad-gītā* are *mayaiva vihitān hi tān.* This means that without the sanction of the Supreme Lord, no demigod can award any benediction to the worshiper.
 
-*Thus ends the Bhaktivedanta purport of the Sixty-second Chapter of* Kṛṣṇa, *"Lord Kṛṣṇa Fights with Bāṇāsura."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Eighth Chapter of* Kṛṣṇa, *"Lord Kṛṣṇa Fights with Bāṇāsura."*

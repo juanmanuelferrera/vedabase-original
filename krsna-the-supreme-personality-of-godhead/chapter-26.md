@@ -12,4 +12,4 @@ On hearing the praises of the cowherd men in Vṛndāvana, King Nanda said, "My 
 
 When all the cowherd men very attentively heard the statements of Gargācārya through Nanda Mahārāja, they better appreciated the wonderful activities of Kṛṣṇa and became very jubilant and satisfied. They began to praise Nanda Mahārāja, because by consulting him their doubts about Kṛṣṇa were cleared. They said, "Let Kṛṣṇa, who is so kind, beautiful and merciful, protect us. When angry Indra sent torrents of rain, accompanied by showers of ice blocks and high wind, He immediately took compassion upon us and saved us and our families, cows and valuable possessions by picking up the Govardhana Hill, just as a child picks up a mushroom. He saved us so wonderfully. May He continue to mercifully glance over us and our cows. May we live peacefully under the protection of wonderful Kṛṣṇa."
 
-*Thus ends the Bhaktivedanta purport of the Forty-ninth Chapter of* Kṛṣṇa, *"Wonderful Kṛṣṇa."*
+*Thus ends the Bhaktivedanta purport of the Twenty-sixth Chapter of* Kṛṣṇa, *"Wonderful Kṛṣṇa."*

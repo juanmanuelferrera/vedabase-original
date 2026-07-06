@@ -64,4 +64,4 @@ When Vasudeva was speaking to Nanda Mahārāja in this way, he was influenced by
 
 When the members of the Vṛṣṇi family saw all their friends and visitors departing, they observed that the rainy season was approaching, and thus they decided to return to Dvārakā. They were fully satisfied, for they regarded Kṛṣṇa as everything. When they returned to Dvārakā, they began with great satisfaction to describe the sacrifice performed by Vasudeva, their meeting with various friends and well-wishers, and various other incidences which occurred during their travels in the places of pilgrimage.
 
-*Thus ends the Bhaktivedanta purport of the Eighty-third Chapter of* Kṛṣṇa, *"Sacrificial Ceremonies Performed by Vasudeva."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Twenty-ninth Chapter of* Kṛṣṇa, *"Sacrificial Ceremonies Performed by Vasudeva."*

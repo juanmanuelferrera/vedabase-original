@@ -80,4 +80,4 @@ Thus Lord Viṣṇu in the form of a *brahmacārī* released Lord Śiva from the
 
 Thus, by the grace of the Supreme Personality of Godhead Nārāyaṇa, who is transcendental to all material qualities, Lord Śiva was saved from being killed by a demon. Anyone who hears this history with faith and devotion certainly becomes liberated from material entanglement as well as from the clutches of his enemies.
 
-*Thus ends the Bhaktivedanta purport of the Eighty-seventh Chapter of* Kṛṣṇa, *"Deliverance of Lord Śiva."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Thirty-third Chapter of* Kṛṣṇa, *"Deliverance of Lord Śiva."*

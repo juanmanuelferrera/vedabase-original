@@ -24,4 +24,4 @@ After hearing this plan of Kaṁsa's, Akrūra replied, "My dear King, your plan 
 
 After instructing his friends in various ways, Kaṁsa retired, and Akrūra went to Vṛndāvana.
 
-*Thus ends the Bhaktivedanta purport of the Second Volume, Sixteenth Chapter of* Kṛṣṇa, *"Kaṁsa Sends Akrūra for Kṛṣṇa."*
+*Thus ends the Bhaktivedanta purport of the Thirty-fifth Chapter of* Kṛṣṇa, *"Kaṁsa Sends Akrūra for Kṛṣṇa."*

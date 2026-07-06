@@ -50,4 +50,4 @@ Yamarāja returned the boy to the Supreme Personality of Godhead, and Kṛṣṇ
 
 Being ordered by Their teacher, Kṛṣṇa and Balarāma immediately returned home on Their chariots. They traveled at great speeds like the wind and made sounds like the crashing of clouds. All the residents of Mathurā, who had not seen Kṛṣṇa and Balarāma for a long time, were very pleased to see Them again. They felt joyful, like a person who has regained his lost property.
 
-*Thus ends the Bhaktivedanta purport of the Second Volume, Ninth Chapter of* Kṛṣṇa, *"Kṛṣṇa Recovers the Son of His Teacher."*
+*Thus ends the Bhaktivedanta purport of the Forty-fourth Chapter of* Kṛṣṇa, *"Kṛṣṇa Recovers the Son of His Teacher."*

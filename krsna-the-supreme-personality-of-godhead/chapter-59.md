@@ -80,4 +80,4 @@ The Supreme Personality of Godhead Kṛṣṇa certainly has no business being a
 
 According to Vedic culture, although polygamy is allowed, none of the wives should be ill-treated. In other words, one may take many wives only if he is able to satisfy all of them equally as an ideal householder; otherwise it is not allowed. Lord Kṛṣṇa is the world-teacher; therefore, even though He had no need for a wife, He expanded Himself into as many forms as He had wives, and He lived with them as an ideal householder, observing the regulative principles, rules and commitments in accordance with the Vedic injunctions and the social laws and customs of society. For each of His 16,108 wives, He simultaneously maintained different palaces, different establishments and different atmospheres. Thus the Lord, although one, exhibited Himself as 16,108 ideal householders.
 
-*Thus ends the Bhaktivedanta purport of the Twenty-Ninth Chapter-ninth Chapter of* Kṛṣṇa, *"Talks Between Kṛṣṇa and Rukmiṇī."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Fifth Chapter of* Kṛṣṇa, *"Talks Between Kṛṣṇa and Rukmiṇī."*

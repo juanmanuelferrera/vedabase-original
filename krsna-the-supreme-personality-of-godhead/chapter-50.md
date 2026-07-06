@@ -56,4 +56,4 @@ The vivid example verifying this statement is Viśvāmitra Muni. Viśvāmitra Mu
 
 The Lord then assured King Mucukunda, "In your next life you will take your birth as a first-class Vaiṣṇava, the best of *brāhmaṇas,* and in that life your only business will be to engage yourself in My transcendental service." The Vaiṣṇava is the first-class *brāhmaṇa,* because one who has not acquired the qualification of a bona fide *brāhmaṇa* cannot come to the platform of a Vaiṣṇava. When one comes to the platform of a Vaiṣṇava, he is completely engaged in welfare activities for all living entities. The highest welfare activity for living entities is the preaching of Kṛṣṇa consciousness. It is stated herein that those who are specifically favored by the Lord can become absolutely Kṛṣṇa conscious and be engaged in the preaching work of the Vaiṣṇava philosophy.
 
-*Thus ends the Bhaktivedanta purport of the Twenty-sixth Chapter of* Kṛṣṇa, *"Deliverance of Mucukunda."*
+*Thus ends the Bhaktivedanta purport of the Fiftieth Chapter of* Kṛṣṇa, *"Deliverance of Mucukunda."*

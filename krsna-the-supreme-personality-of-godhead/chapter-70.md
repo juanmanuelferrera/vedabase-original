@@ -34,4 +34,4 @@ When Lord Kṛṣṇa entered the palace, all the ladies there became overwhelme
 
 It was during this time that Lord Śrī Kṛṣṇa, with the help of Arjuna, for the satisfaction of the fire-god, Agni, allowed Agni to devour the Khāṇḍava Forest. During the forest fire, Kṛṣṇa saved the demon Mayāsura, who was hiding in the forest. Upon being saved, Mayāsura felt obliged to the Pāṇḍavas and Lord Kṛṣṇa, and he constructed a wonderful assembly house within the city of Hastināpura. In this way, Lord Kṛṣṇa, in order to please King Yudhiṣṭhira, remained in the city of Hastināpura for several months. During His stay, He enjoyed strolling here and there. He used to drive on chariots along with Arjuna, and many warriors and soldiers used to follow them.
 
-*Thus ends the Bhaktivedanta purport of the Seventieth Chapter of* Kṛṣṇa, *"Lord Kṛṣṇa in Indraprastha City."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Sixteenth Chapter of* Kṛṣṇa, *"Lord Kṛṣṇa in Indraprastha City."*

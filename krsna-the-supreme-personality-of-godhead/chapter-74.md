@@ -28,4 +28,4 @@ Once upon a time, King Yudhiṣṭhira was sitting on the golden throne in the p
 
 King Parīkṣit had inquired from Śukadeva Gosvāmī as to why Duryodhana was not satisfied after the termination of the great Rājasūya sacrifice, and thus it was explained by Śukadeva Gosvāmī.
 
-*Thus ends the Bhaktivedanta purport of the Seventy-fourth Chapter of* Kṛṣṇa, *"Why Duryodhana Felt Insulted at the End of the Rājasūya Sacrifice."*
+*Thus ends the Bhaktivedanta purport of the Second Volume, Twentieth Chapter of* Kṛṣṇa, *"Why Duryodhana Felt Insulted at the End of the Rājasūya Sacrifice."*

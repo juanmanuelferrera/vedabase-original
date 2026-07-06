@@ -42,4 +42,4 @@ All the elderly cowherd men, including Nanda Mahārāja, used to talk of the won
 
 Thus both Balarāma and Kṛṣṇa enjoyed Their childhood pastimes, imitating the monkeys of Lord Rāmacandra who constructed the bridge over the ocean and Hanumān, who jumped over the water to Ceylon. And They used to imitate such pastimes among Their friends and so happily passed Their childhood life.
 
-*Thus ends the Bhaktivedanta purport of the Fourteenth Chapter of* Kṛṣṇa, *"Killing the Demons Vatsāsura and Bakāsura."*
+*Thus ends the Bhaktivedanta purport of the Eleventh Chapter of* Kṛṣṇa, *"Killing the Demons Vatsāsura and Bakāsura."*
