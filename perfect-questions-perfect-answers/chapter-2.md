@@ -2,7 +2,7 @@
 
 2. Vedic Culture: Varṇāśrama-dharma
 
-*Original Tape Transcript*
+*February 28, 1972*
 
 **Bob:**
 I've asked devotees about how they feel towards sex in their relations, and I see the way they feel, but I can't see myself acting the same way. See, I'll be getting married at the end of this summer.
@@ -44,7 +44,7 @@ It is said in *Śrīmad-Bhāgavatam* that—
 > janasya moho 'yam ahaṁ mameti
 > [[sb/5/5/8|(SB 5.5.8)]]
 
-This sex life is the basic principle of material life-attachment for man or woman. And when they are united, when a man and woman are united, that attachment becomes increased, and that increased attachment will induce one to accumulate *gṛha* (a home), *kṣetra* (land), *suta* (children), *āpta* (friendship or society) and *vitta. Vitta* means money. In this way—*gṛha-kṣetra-sutāpta-vittaiḥ*—he becomes entangled. *janasya moho 'yam:* this is the illusion. And by this illusion he thinks, *ahaṁ mameti:* [[sb/5/5/8|[SB 5.5.8] ]] "I am this body, and anything in relationship with this body is mine."
+This sex life is the basic principle of material life-attachment for man or woman. And when they are united, when a man and woman are united, that attachment becomes increased, and that increased attachment will induce one to accumulate *gṛha* (a home), *kṣetra* (land), *suta* (children), *āpta* (friendship or society) and *vitta. Vitta* means money. In this way—*gṛha-kṣetra-sutāpta-vittaiḥ*—he becomes entangled. *janasya moho 'yam:* this is the illusion. And by this illusion he thinks, *ahaṁ mameti:* "I am this body, and anything in relationship with this body is mine."
 
 **Bob:**
 What is that again?
@@ -57,7 +57,7 @@ This attachment increases. The material attachment involves thinking, "I am this
 > gatāsūn agatāsūṁś ca
 > nānuśocanti paṇḍitāḥ
 
-"You are talking like a learned man, but you are fool number one because you are talking about the bodily concept of life." [[bg/2/11|[Bg. 2.11] ]] So this sex life increases the bodily concept of life. Therefore, the whole process is to reduce it to nil.
+"You are talking like a learned man, but you are fool number one because you are talking about the bodily concept of life." So this sex life increases the bodily concept of life. Therefore, the whole process is to reduce it to nil.
 
 **Bob:**
 To reduce it over the stages of your life?

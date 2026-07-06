@@ -170,7 +170,7 @@ Yes.
 Yes.
 
 **Śrīla Prabhupāda:**
-And *siddhi* means perfection. In the *Bhagavad-gītā* it is stated that one who goes back home, back to Godhead, has attained the complete perfection. So perfection comes when one realizes that he is not this body; he is spirit soul. *Brahma-bhūta* [[sb/4/30/20|[SB 4.30.20] ]]—that is called Brahman realization. That is perfection. And *saṁsiddhi* comes after Brahman realization, when one engages in devotional service. Therefore if one is already engaged in devotional service, it is to be understood that Brahman realization is there. Therefore it is called *saṁsiddhi.*
+And *siddhi* means perfection. In the *Bhagavad-gītā* it is stated that one who goes back home, back to Godhead, has attained the complete perfection. So perfection comes when one realizes that he is not this body; he is spirit soul. *Brahma-bhūta*—that is called Brahman realization. That is perfection. And *saṁsiddhi* comes after Brahman realization, when one engages in devotional service. Therefore if one is already engaged in devotional service, it is to be understood that Brahman realization is there. Therefore it is called *saṁsiddhi.*
 
 **Bob:**
 I ask you this very humbly, but do you feel diseases and sickness?
@@ -256,7 +256,7 @@ A second-class devotee has the vision that some are envious of God, but this is 
 Who is saying this?
 
 **Śrīla Prabhupāda:**
-Kṛṣṇadāsa Kavirāja, the author of *Caitanya-caritāmṛta: purīṣera kīṭa haite muñi se laghiṣṭha* [[cc/adi/5/205|[Cc. Ādi 5.205] ]]. He is not making a show. He is feeling like that. "I am the lowest. Everyone is best, but I am the lowest. Everyone is engaged in Kṛṣṇa's service. I am not engaged." Caitanya Mahāprabhu said "Oh, I have not a pinch of devotion to Kṛṣṇa. I cry to make a show. If I had been a devotee of Kṛṣṇa, I would have died long ago. But I am living. That is the proof that I do not love Kṛṣṇa." That is the vision of the best devotee. He is so much absorbed in Kṛṣṇa's love that he says, "Everything is going on, but I am the lowest. Therefore I cannot see God." That is the best devotee.
+Kṛṣṇadāsa Kavirāja, the author of *Caitanya-caritāmṛta: purīṣera kīṭa haite muñi se laghiṣṭha*. He is not making a show. He is feeling like that. "I am the lowest. Everyone is best, but I am the lowest. Everyone is engaged in Kṛṣṇa's service. I am not engaged." Caitanya Mahāprabhu said "Oh, I have not a pinch of devotion to Kṛṣṇa. I cry to make a show. If I had been a devotee of Kṛṣṇa, I would have died long ago. But I am living. That is the proof that I do not love Kṛṣṇa." That is the vision of the best devotee. He is so much absorbed in Kṛṣṇa's love that he says, "Everything is going on, but I am the lowest. Therefore I cannot see God." That is the best devotee.
 
 **Bob:**
 So a devotee must work for everybody's liberation?
@@ -358,7 +358,7 @@ The devotee is advised to accept the necessities of life without attachment. He'
 Does a devotee lose some of his individuality, in that—
 
 **Śrīla Prabhupāda:**
-No, he has full individuality for pleasing Kṛṣṇa. Kṛṣṇa says, "You surrender unto Me." So he voluntarily surrenders. It is not that he has lost his individuality. He keeps his individuality. Just like Arjuna—in the beginning, he was declining to fight, on account of his individuality. But when he accepted Kṛṣṇa as his spiritual master, he became *śiṣya* [a disciple]. Then whatever Kṛṣṇa ordered, he said yes. That doesn't mean he lost his individuality. He voluntarily accepted: "Whatever Kṛṣṇa says, I shall do it." Just like all my disciples—they have not lost their individuality, but they have surrendered their individuality. That is required. For example, suppose a man does not use sex. It does not mean he has become impotent. If he likes, he can have sex life a thousand times. But he has voluntarily avoided it. *Paraṁ dṛṣṭvā nivartate:* [[bg/2/59|[Bg. 9.59] ]] he has a higher taste. Sometimes we fast, but that does not mean we are diseased. We voluntarily fast. It does not mean that I am not hungry or cannot eat. But we voluntarily fast.
+No, he has full individuality for pleasing Kṛṣṇa. Kṛṣṇa says, "You surrender unto Me." So he voluntarily surrenders. It is not that he has lost his individuality. He keeps his individuality. Just like Arjuna—in the beginning, he was declining to fight, on account of his individuality. But when he accepted Kṛṣṇa as his spiritual master, he became *śiṣya* [a disciple]. Then whatever Kṛṣṇa ordered, he said yes. That doesn't mean he lost his individuality. He voluntarily accepted: "Whatever Kṛṣṇa says, I shall do it." Just like all my disciples—they have not lost their individuality, but they have surrendered their individuality. That is required. For example, suppose a man does not use sex. It does not mean he has become impotent. If he likes, he can have sex life a thousand times. But he has voluntarily avoided it. *Paraṁ dṛṣṭvā nivartate:* he has a higher taste. Sometimes we fast, but that does not mean we are diseased. We voluntarily fast. It does not mean that I am not hungry or cannot eat. But we voluntarily fast.
 
 **Bob:**
 Does the devotee who surrenders keep his individual taste?

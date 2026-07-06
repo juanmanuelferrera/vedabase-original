@@ -176,7 +176,7 @@ I—I have somewhat tried to follow since I met you the first time. [a brief vis
 Hm-m. But follow—you must strictly follow if you are serious. 
 
 **Bob:**
-Maybe—OK, Maybe—what I say now is—well—the most foolish all I've said. But let me tell you how I feel.
+Maybe—OK, Maybe—what I say now is—well—the most foolish of all I've said. But let me tell you how I feel.
 
 **Śrīla Prabhupāda:**
 No, no, not foolish. I don't say foolish—but imperfect.
@@ -277,7 +277,7 @@ Yes, this is it. I have—when I'm back in Bihar, and—um—my friends may say.
 **Śrīla Prabhupāda:**
 You have to live with *us.* Then your friends will not ask you, "What about marijuana?" [*Bob laughs*.] Keep the association of devotees. We are opening centers to give people a chance to associate with us. Why have we taken so much land [in Māyāpur]? Those who are seriously desirous—they will come and live with us. Association is very influential. If you associate with drunkards, you become drunk; if you associate with *sādhus,* then you become a *sādhu.*
 
-**Śyāmasundara:**
+**Śyāmasundara** [Śrīla Prabhupāda's secretary]**:**
 He can come and stay with you in Bombay.
 
 **Śrīla Prabhupāda:**

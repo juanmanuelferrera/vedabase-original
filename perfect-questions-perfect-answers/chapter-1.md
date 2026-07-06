@@ -132,7 +132,7 @@ Oh, yes.
 Yes.
 
 **Śrīla Prabhupāda:**
-Kṛṣṇa says in *Bhagavad-gītā, api cet sudurācāro bhajate mām ananya-bhāk* [[bg/9/30|[Bg. 9.30] ]]. Have you read it?
+Kṛṣṇa says in *Bhagavad-gītā, api cet sudurācāro bhajate mām ananya-bhāk*. Have you read it?
 
 **Bob:**
 Yes. The Sanskrit I don't know, but the English I do.
@@ -150,7 +150,7 @@ Yes.
 "... He will be elevated."
 
 **Śrīla Prabhupāda:**
-Yes. As soon as he begins to pray to Kṛṣṇa, that is not evil. Therefore He is all-attractive. It is said in the *Vedas* that the Absolute Truth, or the Supreme Personality of Godhead, is the reservoir of all pleasure—*raso vai saḥ.* (*Taittirīya Upaniṣad* 2.7.1) Everyone is hankering after someone because he realizes some mellow in it.
+Yes. As soon as he begins to pray to Kṛṣṇa, that is not evil. Therefore He is all-attractive. It is said in the *Vedas* that the Absolute Truth, or the Supreme Personality of Godhead, is the reservoir of all pleasure—*raso vai saḥ.* Everyone is hankering after someone because he realizes some mellow in it.
 
 **Bob:**
 Excuse me?
@@ -372,7 +372,7 @@ Yes. Oh, I see that.
 Just like—aren't the planets in this universe the sun's energy—a product of the sun's energy?
 
 **Śrīla Prabhupāda:**
-Yes, but who produced the sun? That is Kṛṣṇa's energy. Because it is heat, and Kṛṣṇa says, *bhūmir āpo 'nalo vāyuḥ:* [[bg/7/4|[Bg. 7.4] ]] "Heat—that is My energy." The sun is the representation of the heating energy of Kṛṣṇa. It is not your energy. You cannot say, "The sun is made by me." But somebody must have made it, and Kṛṣṇa says that He did. So, we believe Kṛṣṇa. Therefore we are Kṛṣṇa-ites.
+Yes, but who produced the sun? That is Kṛṣṇa's energy. Because it is heat, and Kṛṣṇa says, *bhūmir āpo 'nalo vāyuḥ:* "Heat—that is My energy." The sun is the representation of the heating energy of Kṛṣṇa. It is not your energy. You cannot say, "The sun is made by me." But somebody must have made it, and Kṛṣṇa says that He did. So, we believe Kṛṣṇa. Therefore we are Kṛṣṇa-ites.
 
 **Bob:**
 Kṛṣṇa-ites?

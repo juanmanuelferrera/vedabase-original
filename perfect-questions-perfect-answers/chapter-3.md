@@ -22,7 +22,7 @@ Yes. To go back home, back to Godhead. That is the real goal of life. The water 
 > nāpnuvanti mahātmānaḥ
 > saṁsiddhiṁ paramāṁ gatāḥ
 
-["After attaining Me, the great souls, who are *yogīs* in devotion, never return to this temporary world, which is full of miseries, because they have attained the highest perfection."] [[bg/8/15|[Bg. 8.15] ]] That is the version of *Bhagavad-gītā.* If anyone comes to Me—*mām upetya*/ he does not come back again. Where? To this place—*duḥkhālayam aśāśvatam.* This place is the abode of miseries. Everyone knows, but they have been befooled by so-called leaders. Material life is miserable life. Kṛṣṇa says, God says, that this place is *duḥkhālayam*—it is a place of miseries. And it is also *aśāśvatam,* temporary. You cannot make a compromise/ "All right, let it be miserable. I shall remain here as an American or Indian." No. That also you cannot do. You cannot remain an American. You may think that, having been born in America, you are very happy. But you cannot remain an American for long. You will have to be kicked out of that place. And your next life you do not know! Therefore, it is *duḥkhālayam aśāśvatam* [[bg/8/15|[Bg. 8.15] ]]—miserable and temporary. That is our philosophy.
+["After attaining Me, the great souls, who are *yogīs* in devotion, never return to this temporary world, which is full of miseries, because they have attained the highest perfection."] That is the version of *Bhagavad-gītā.* If anyone comes to Me—*mām upetya*/ he does not come back again. Where? To this place—*duḥkhālayam aśāśvatam.* This place is the abode of miseries. Everyone knows, but they have been befooled by so-called leaders. Material life is miserable life. Kṛṣṇa says, God says, that this place is *duḥkhālayam*—it is a place of miseries. And it is also *aśāśvatam,* temporary. You cannot make a compromise/ "All right, let it be miserable. I shall remain here as an American or Indian." No. That also you cannot do. You cannot remain an American. You may think that, having been born in America, you are very happy. But you cannot remain an American for long. You will have to be kicked out of that place. And your next life you do not know! Therefore, it is *duḥkhālayam aśāśvatam*—miserable and temporary. That is our philosophy.
 
 **Bob:**
 But when you have some knowledge of God, then life is not so miserable?
@@ -123,7 +123,7 @@ Yes. God is inside also. God is everywhere. God is inside and outside also. This
 How do you feel God inside you?
 
 **Śrīla Prabhupāda:**
-Not in the beginning, but you have to know from the *śāstras* [scriptures], by the Vedic information. For example, in the *Bhagavad-gītā* it is said, *īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati: [[bg/18/61|[Bg. 18.61] ]]* God is there in everyone's heart. *Paramāṇu-cayāntara-stham:* God is also within every atom. So this is the first information. And then, by the yogic process, you have to realize it.
+Not in the beginning, but you have to know from the *śāstras* [scriptures], by the Vedic information. For example, in the *Bhagavad-gītā* it is said, *īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati:* God is there in everyone's heart. *Paramāṇu-cayāntara-stham:* God is also within every atom. So this is the first information. And then, by the yogic process, you have to realize it.
 
 **Bob:**
 Yogic process?
@@ -231,7 +231,7 @@ Lord Caitanya—He was a different type of *guru* than you are?
 No, no. *Gurus* cannot be of different types. All *gurus* are of one type.
 
 **Bob:**
-But He was He also an incarnation at the same time?
+But He was—was He also an incarnation at the same time?
 
 **Śrīla Prabhupāda:**
 Yes, He is Kṛṣṇa Himself, but He is representing the *guru.*
@@ -258,13 +258,13 @@ Because Kṛṣṇa was God, He demanded:
 Doesn't He say in *Bhagavad-gītā,* "I am the spiritual master"?
 
 **Śrīla Prabhupāda:**
-Yes, He is the original spiritual master because He was accepted as spiritual master by Arjuna. So what is the difficulty? *Śiṣyas te 'haṁ śādhi māṁ tvāṁ prapannam* [[bg/2/7|[Bg. 2.7] ]]. Arjuna told the Lord, "I am Your disciple, and a soul surrendered unto You. Please instruct me." So unless He is a spiritual master how does Arjuna become His disciple? He is the original *guru. Tene brahma hṛdā ya ādi-kavaye*/ [[sb/1/1/1|[SB 1.1.1] ]] "It is He only who first imparted Vedic knowledge unto the heart of Brahmā, the first created being." Therefore He is the original *guru.*
+Yes, He is the original spiritual master because He was accepted as spiritual master by Arjuna. So what is the difficulty? *Śiṣyas te 'haṁ śādhi māṁ tvāṁ prapannam* [[bg/2/7|[Bg. 2.7] ]]. Arjuna told the Lord, "I am Your disciple, and a soul surrendered unto You. Please instruct me." So unless He is a spiritual master how does Arjuna become His disciple? He is the original *guru. Tene brahma hṛdā ya ādi-kavaye*/ "It is He only who first imparted Vedic knowledge unto the heart of Brahmā, the first created being." Therefore He is the original *guru.*
 
 **Bob:**
 Kṛṣṇa.
 
 **Śrīla Prabhupāda:**
-Yes. He is the original *guru.* Then His disciple Brahmā is a *guru,* then his disciple Nārada is a *guru,* then his disciple Vyāsa is a *guru*—in this way there is a *guru-paramparā* [disciplic succession of *gurus*]. *Evaṁ paramparā-prāptam:* [[bg/4/2|[Bg. 4.2] ]] the transcendental knowledge is received through the disciplic succession.
+Yes. He is the original *guru.* Then His disciple Brahmā is a *guru,* then his disciple Nārada is a *guru,* then his disciple Vyāsa is a *guru*—in this way there is a *guru-paramparā* [disciplic succession of *gurus*]. *Evaṁ paramparā-prāptam:* the transcendental knowledge is received through the disciplic succession.
 
 **Bob:**
 So a *guru* receives his knowledge through the disciplic succession, not directly from Kṛṣṇa? Do you receive some knowledge directly from Kṛṣṇa?
@@ -312,7 +312,7 @@ Yes, because He is within your heart He is always hearing you—whether you are 
 To Kṛṣṇa's ear, is praying louder than nonsense?
 
 **Śrīla Prabhupāda:**
-No. He is all-perfect. He can hear everything. Even if you don't speak, even if you simply think, "I shall do it," then He hears you. *Sarvasya cāhaṁ hṛdi sanniviṣṭaḥ:* [[bg/15/15|[Bg. 15.15] ]] Kṛṣṇa is seated in everyone's heart.
+No. He is all-perfect. He can hear everything. Even if you don't speak, even if you simply think, "I shall do it," then He hears you. *Sarvasya cāhaṁ hṛdi sanniviṣṭaḥ:* Kṛṣṇa is seated in everyone's heart.
 
 **Bob:**
 But one should pray—is that so?
@@ -324,7 +324,7 @@ That is his business—praying.
 Whose business?
 
 **Śrīla Prabhupāda:**
-Every living entity's. That is the only business. *Eko bahūnāṁ yo vidadhāti kāmān.* (*Kaṭha Upaniṣad* 2.2.13) That is the statement of the *Vedas.*
+Every living entity's. That is the only business. *Eko bahūnāṁ yo vidadhāti kāmān.* That is the statement of the *Vedas.*
 
 **Bob:**
 What does that mean?
