@@ -1,14 +1,14 @@
 ### Bg 6.8
 
 > ज्ञानविज्ञानतृप्तात्मा कूटस्थो विजितेन्द्रियः ।\
-> युक्त इत्युच्यते योगी समलोष्टाश्मकाञ्चनः ॥८॥
+> युक्त इत्युच्यते योगी समलोष्ट्राश्मकाञ्चनः ॥८॥
 
 > jñāna-vijñāna-tṛptātmā\
 > kūṭa-stho vijitendriyaḥ\
 > yukta ity ucyate yogī\
 > sama-loṣṭrāśma-kāñcanaḥ
 
-*jjñāna*—acquired knowledge; *vijñāna*—realized knowledge; *tṛpta*—satisfied; *ātmā*—living entity; *kūṭasthaḥ*—spiritually situated; *vijita-indriyaḥ*—sensually controlled; *yuktaḥ*—competent for self-realization; *iti*—thus; *ucyate*—is said; *yogī*—the mystic; *sama*—equiposed; *loṣṭra*—pebbles; *aśma*—stone; *kāñcanaḥ*—gold.
+*jñāna*—acquired knowledge; *vijñāna*—realized knowledge; *tṛpta*—satisfied; *ātmā*—living entity; *kūṭasthaḥ*—spiritually situated; *vijita-indriyaḥ*—sensually controlled; *yuktaḥ*—competent for self-realization; *iti*—thus; *ucyate*—is said; *yogī*—the mystic; *sama*—equiposed; *loṣṭra*—pebbles; *aśma*—stone; *kāñcanaḥ*—gold.
 
 **A person is said to be established in self-realization and is called a yogī [or mystic] when he is fully satisfied by virtue of acquired knowledge and realization. Such a person is situated in transcendence and is self-controlled. He sees everything—whether it be pebbles, stones or gold—as the same.**
 
