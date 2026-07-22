@@ -7,4 +7,4 @@
 
 *haridāsa ṭhākurera*—of Haridāsa Ṭhākura; *haila*—was; *parama*—topmost; *ānanda*—ecstasy; *vāsudeva datta*—Vāsudeva Datta; *gupta murāri*—Murāri Gupta; *sena śivānanda*—Śivānanda Sena.
 
-**Also hearing this auspicious news, Haridāsa Ṭhākura became very much pleased. So also did Vāsudeva Datta, Murāri Gupta and Śivānanda Sena.**
+**Also hearing this auspicious news, Haridāsa Ṭhākura became very pleased. So also did Vāsudeva Datta, Murāri Gupta and Śivānanda Sena.**

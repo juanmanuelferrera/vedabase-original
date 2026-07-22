@@ -9,4 +9,4 @@
 
 **“ 'Apart from these fifty qualities, there are five other qualities found in the Supreme Personality of Godhead that are partially present in demigods like Śiva.**
 
-This verse and the following seven verses are also found in the *Bhakti-rasāmṛta-sindhu* (2.1.37-44).
+This verse and the following seven verses are also found in *Bhakti-rasāmṛta-sindhu* (2.1.37-44).

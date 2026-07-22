@@ -8,6 +8,6 @@
 
 *tabe*—thereafter; *prabhu*—the Lord; *kaila*—did; *sapta-tāla-vimocana*—deliverance of the Sapta-tāla trees; *setubandhe*—at Cape Comorin; *snāna*—bathing; *rāmeśvara*—temple of Rāmeśvara; *daraśana*—visit.
 
-**After that, Lord Caitanya Mahāprabhu delivered the celebrated Sapta-tāla trees, took His bath at Setubandha Rāmeśvara and visited the temple of Lord Śiva known as Rāmeśvara.**
+**After that, Lord Caitanya Mahāprabhu delivered the celebrated Saptatāla tree, took His bath at Setubandha Rāmeśvara and visited the temple of Lord Śiva known as Rāmeśvara.**
 
-It is said that the Sapta-tāla trees arevery old, massive palm trees. There was once a fight between Vāliand his brother Sugrīva, and Lord Rāmacandra took the side of Sugrīva and killed Vāli, keeping Himself behind one of these celebrated trees. When Lord Caitanya Mahāprabhu toured south India, He embraced these trees, which were delivered and directly promoted to Vaikuṇṭha.
+It is said that the Saptatāla tree is a very old, massive palm tree. There was once a fight between Vāliand his brother Sugrīva, and Lord Rāmacandra took the side of Sugrīva and killed Vāli, keeping Himself behind this celebrated tree. When Lord Caitanya Mahāprabhu toured south India, He embraced this tree, which was delivered and directly promoted to Vaikuṇṭha.

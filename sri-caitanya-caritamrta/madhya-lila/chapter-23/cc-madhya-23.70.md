@@ -12,4 +12,4 @@
 
 **“ 'Kṛṣṇa, the supreme hero, has the most beautiful transcendental body. This body possesses all good features. It is radiant and very pleasing to the eyes. His body is powerful, strong and youthful.**
 
-This verse and the following six verses are also found in the *Bhakti-rasāmṛta-sindhu* (2.1.23-29).
+This verse and the following six verses are also found in *Bhakti-rasāmṛta-sindhu* (2.1.23-29).

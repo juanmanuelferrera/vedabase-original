@@ -17,4 +17,4 @@ The heart of Brahmā was enlightened by the Supreme Personality of Godhead. This
 > taṁ ha devam ātma-buddhi-prakāśaṁ
 > mumukṣur vai śaraṇam ahaṁ prapadye
 
-"Because I desire liberation, let me surrender unto the Supreme Personality of Godhead, who first enlightened Lord Brahmā in Vedic knowledge through Lord Brahmā's heart. The Lord is the original source of all enlightenment and spiritual advancement." In this connection one may also refer to *Śrīmad-Bhāgavatam* 2.9.30-35, 11.14.3, 12.4.40 and 12.13.19.
+"Because I desire liberation, let me surrender unto the Supreme Personality of Godhead, who first enlightened Lord Brahmā in Vedic knowledge through Lord Brahmā's heart. The Lord is the original source of all enlightenment and spiritual advancement." In this connection there are other references given in *Śrīmad-Bhāgavatam* 2.9.30-35, 11.14.3, 12.4.40 and 12.13.19.

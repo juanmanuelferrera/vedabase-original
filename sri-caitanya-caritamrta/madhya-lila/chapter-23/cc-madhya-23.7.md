@@ -12,4 +12,4 @@
 
 **“ 'When that bhāva softens the heart completely, becomes endowed with a great feeling of possessiveness in relation to the Lord and becomes very much condensed and intensified, it is called prema [love of Godhead] by learned scholars.**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (1.4.1).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (1.4.1).

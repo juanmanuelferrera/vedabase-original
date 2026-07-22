@@ -10,7 +10,7 @@
 
 **"When the permanent ecstasies [neutrality, servitorship and so on] are mixed with other ingredients, devotional service in love of Godhead is transformed and becomes composed of transcendental mellows.**
 
-In the *Bhakti-rasāmṛta-sindhu,* the following definition is given:
+In *Bhakti-rasāmṛta-sindhu,* the following definition is given:
 
 > athāsyāḥ keśava-rater
 > lakṣitāyā nigadyate

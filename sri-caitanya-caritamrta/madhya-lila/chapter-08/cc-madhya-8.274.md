@@ -10,7 +10,7 @@
 
 **"The mahā-bhāgavata, the advanced devotee, certainly sees everything mobile and immobile, but he does not exactly see their forms. Rather, everywhere he immediately sees manifest the form of the Supreme Lord."**
 
-Due to his deep ecstatic love for Kṛṣṇa, the *mahā-bhāgavata* sees Kṛṣṇa everywhere and nothing else. This is confirmed in the *Brahma-saṁhitā* (5.38): *premāñjana-cchurita-bhakti-vilocanena santaḥ sadaiva hṛdayeṣu vilokayanti.*
+Due to his deep ecstatic love for Kṛṣṇa, the *mahā-bhāgavata* sees Kṛṣṇa everywhere and nothing else. This is confirmed in *Brahma-saṁhitā* (5.38): *premāñjana-cchurita-bhakti-vilocanena santaḥ sadaiva hṛdayeṣu vilokayanti.*
 
 As soon as a devotee sees something-be it movable or inert-he immediately remembers Kṛṣṇa. An advanced devotee is advanced in knowledge. This knowledge is very natural to a devotee, for he has already read in the *Bhagavad-gītā* how to awaken Kṛṣṇa consciousness. According to Lord Kṛṣṇa in the *Bhagavad-gītā* [[bg/7/8|(Bg. 7.8)]]:
 

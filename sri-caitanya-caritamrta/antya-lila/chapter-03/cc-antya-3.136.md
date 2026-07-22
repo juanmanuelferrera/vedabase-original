@@ -17,7 +17,7 @@ Haridāsa Ṭhākura's instruction that the prostitute should distribute to the 
 > jñānaṁ vijñānam āstikyaṁ
 > brahma-karma svabhāva-jam
 
-The brahminical qualifications are truthfulness, control of the senses and mind, tolerance, simplicity, knowledge, practical application of transcendental knowledge in one's life, and full faith in the Supreme Personality of Godhead. persons engaged in pursuing spiritual understanding have no time to earn their livelihood. They depend completely on the mercy of the Lord, who says in *Bhagavad-gītā* [[bg/9/22|(Bg. 9.22)]] that He personally carries to them all their necessities (*yoga-kṣemaṁ vahāmy aham).*
+The brahminical qualifications are truthfulness, control of the senses and mind, tolerance, simplicity, knowledge, practical application of transcendental knowledge in one's life, and full faith in the Supreme Personality of Godhead. persons engaged in pursuing spiritual understanding have no time to earn their livelihood. They depend completely on the mercy of the Lord, who says in *Bhagavad-gītā* [[bg/9/22|(9.22)]] that He personally carries to them all their necessities (*yoga-kṣemaṁ vahāmy aham).*
 
 The Vedic civilization recommends that one give charity to *brāhmaṇas* and *sannyāsīs,* not to the so-called *daridra-nārāyaṇa.* Nārāyaṇa cannot be *daridra,* nor can *daridra* be Nārāyaṇa, for these are contradictory terms. Atheistic men invent such concoctions and preach them to fools, but charity should actually be given to *brāhmaṇas* and *sannyāsīs* because whatever money they get they spend for Kṛṣṇa. Whatever charity one gives to a *brāhmaṇa* goes to Kṛṣṇa, who says in *Bhagavad-gītā* [[bg/9/27|(Bg. 9.27)]]:
 

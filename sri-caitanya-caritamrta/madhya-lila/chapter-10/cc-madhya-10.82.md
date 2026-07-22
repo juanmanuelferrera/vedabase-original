@@ -8,4 +8,4 @@
 
 *ācāryaratna*—Ācāryaratna; *āra*—and; *paṇḍita vakreśvara*—Vakreśvara Paṇḍita; *ācāryanidhi*—Ācāryanidhi; *āra*—also; *paṇḍita gadādhara*—Gadādhara Paṇḍita.
 
-**Ācāryaratna, Vakreśvara Paṇḍita, Ācāryanidhi and Gadādhara Paṇḍita were all very much pleased to hear this news.**
+**Ācāryaratna, Vakreśvara Paṇḍita, Ācāryanidhi and Gadādhara Paṇḍita were all very pleased to hear this news.**

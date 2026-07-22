@@ -12,4 +12,4 @@
 
 **[The Personality of Godhead, Śrī Kṛṣṇa, said:] "What more shall I say to you? I live throughout this cosmic manifestation merely by My single plenary portion."**
 
-Describing His own potencies to Arjuna, the Personality of Godhead Śrī Kṛṣṇa spoke this verse of the *Bhagavad-gītā* [[bg/10/42|(Bg. 10.42)]].
+Describing His own potencies to Arjuna, the Personality of Godhead Śrī Kṛṣṇa spoke this verse of *Bhagavad-gītā* [[bg/10/42|(Bg. 10.42)]].

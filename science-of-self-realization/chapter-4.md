@@ -4,7 +4,7 @@
 
 ## Kṛṣṇa, Christos, Christ
 
-In 1974, near ISKCON's center in Frankfurt am Main, West Germany, Śrīla Prabhupāda and several of his disciples take a morning walk with father Emmanuel Jungclaussen, a Benedictine monk from Niederalteich Monastery. Noticing that Śrīla Prabhupāda was carrying meditation beads similar to the rosary, Father Emmanuel explained that he also chanted a constant prayer: "Lord Jesus Christ, be merciful unto us." The following conversation ensued.
+It is 1974. Near ISKCON's center in Frankfurt am Main, West Germany, Śrīla Prabhupāda and several of his disciples take a morning walk with Father Emmanuel Jungclaussen, a Benedictine monk from Niederalteich Monastery. Noticing that Śrīla Prabhupāda is carrying meditation beads similar to the rosary, Father Emmanuel explains that he also chants a constant prayer: "Lord Jesus Christ, be merciful unto us." The following conversation ensues:
 
 **Śrīla Prabhupāda:**
 What is the meaning of the word *Christ?*
@@ -185,7 +185,7 @@ Hare Kṛṣṇa.
 
 ## Jesus Christ Was a Guru
 
-The spiritual leader of the Hare Kṛṣṇa movement here recognizes Lord Jesus Christ as "the son of God, the representative of God... our guru... our spiritual master," yet he has some sharp words for those who currently claim to be Christ's followers...
+"A Vaiṣṇava [a pure devotee of the Lord] is unhappy to see the suffering of others. Therefore, Lord Jesus Christ agreed to be crucified—to free others from their suffering. But his followers are so unfaithful that they have decided, 'Let Christ suffer for us, and we'll go on committing sin.' They love Christ so much that they think, 'My dear Christ, we are very weak. We cannot give up our sinful activities. So you please suffer for us. . . .'"
 
 The *Śrīmad-Bhāgavatam* states that any bona fide preacher of God consciousness must have the qualities of *titikṣā* (tolerance) and *karuṇā* (compassion). In the character of Lord Jesus Christ we find both these qualities. He was so tolerant that even while he was being crucified, he didn't condemn anyone. And he was so compassionate that he prayed to God to forgive the very persons who were trying to kill him. (Of course, they could not actually kill him. But they were thinking that he could be killed, so they were committing a great offense.) As Christ was being crucified he prayed, "Father, forgive them. They know not what they are doing."
 

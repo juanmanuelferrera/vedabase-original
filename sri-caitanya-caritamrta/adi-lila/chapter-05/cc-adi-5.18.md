@@ -10,7 +10,7 @@
 
 **Like the transcendental body of Lord Kṛṣṇa, Gokula is all-pervading, infinite and supreme. It expands both above and below, without any restriction.**
 
-Śrīla Jīva Gosvāmī, the great authority and philosopher in the line of Śrī Caitanya Mahāprabhu, has discussed the abode of Kṛṣṇa in his *Kṛṣṇa-sandarbha.* In the *Bhagavad-gītā* the Lord refers to "My abode." Śrīla Jīva Gosvāmī, examining the nature of Kṛṣṇa's abode, refers to the *Skanda Purāṇa,* which states:
+Śrīla Jīva Gosvāmī, the great authority and philosopher in the line of Śrī Caitanya Mahāprabhu, has discussed the abode of Kṛṣṇa in his *Kṛṣṇa-sandarbha.* In *Bhagavad-gītā* the Lord refers to "My abode." Śrīla Jīva Gosvāmī, examining the nature of Kṛṣṇa's abode, refers to the *Skanda Purāṇa,* which states:
 
 > yā yathā bhuvi vartante
 > puryo bhagavataḥ priyāḥ

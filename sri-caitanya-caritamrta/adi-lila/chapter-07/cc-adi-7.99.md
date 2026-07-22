@@ -10,7 +10,7 @@
 
 **After hearing Lord Śrī Caitanya Mahāprabhu, all the Māyāvādī sannyāsīs were moved. Their minds changed, and thus they spoke with pleasing words.**
 
-The Māyāvādī *sannyāsīs* met Caitanya Mahāprabhu at Vārāṇasī to criticize the Lord regarding His participation in the *saṅkīrtana* movement, which they did not like. This demonic nature of opposition to the *saṅkīrtana* movement perpetually exists. As it existed in the time of Śrī Caitanya Mahāprabhu, similarly it existed long before that, even in the time of Prahlāda Mahārāja. He used to chant in *saṅkīrtana* although his father did not like it, and that was the reason for the misunderstanding between the father and son. In the *Bhagavad-gītā* [[bg/7/15|(Bg. 7.15)]] the Lord says:
+The Māyāvādī *sannyāsīs* met Caitanya Mahāprabhu at Vārāṇasī to criticize the Lord regarding His participation in the *saṅkīrtana* movement, which they did not like. This demonic nature of opposition to the *saṅkīrtana* movement perpetually exists. As it existed in the time of Śrī Caitanya Mahāprabhu, similarly it existed long before that, even in the time of Prahlāda Mahārāja. He used to chant in *saṅkīrtana* although his father did not like it, and that was the reason for misunderstanding between the father and son. In *Bhagavad-gītā* [[bg/7/15|(Bg. 7.15)]] the Lord says:
 
 no māṁ duṣkṛtino mūḍhāh
 > prapadyante narādhamāḥ

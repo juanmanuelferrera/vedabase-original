@@ -8,7 +8,7 @@
 > tat tvaṁ pūṣann apāvṛṇu\
 > satya-dharmāya dṛṣṭaye
 
-*hiraṇmayena*—by a golden effulgence; *pātreṇa*—by a dazzling covering; *satyasya*—of the Supreme Truth; *apihitam*—covered; *mukham*—the face; *tat*—that covering; *tvam*—Yourself; *pūṣan*—O sustainer; *apāvṛṇu*—kindly remove; *satya*—pure; *dharmāya*—unto the devotee; *dṛṣṭaye*—for exhibiting.
+*hiraṇmayena*—by a golden effulgence; *pātreṇa*—by a dazzling covering; *satyasya*—of the Supreme Truth; *apihitam*—covered; *mukham*—the face; *tat*—that covering; *tvam*—your Self; *pūṣan*—O the Sustainer; *apāvṛṇu*—kindly remove; *satya*—pure; *dharmāya*—unto the devotee; *dṛṣṭaye*—for exhibiting.
 
 **O my Lord, Sustainer of all that lives, Your real face is covered by Your dazzling effulgence. Kindly remove that covering and exhibit Yourself to Your pure devotee.**
 

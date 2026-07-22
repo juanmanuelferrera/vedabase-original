@@ -8,7 +8,7 @@
 > tatra ko mohaḥ kaḥ śoka\
 > ekatvam anupaśyataḥ
 
-*yasmin*—in the situation; *sarvāṇi*—all; *bhūtāni*—living entities; *ātmā*—the cit-kaṇa, or spiritual spark; *eva*—only; *abhūt*—exist as; *vijānataḥ*—of one who knows; *tatra*—therein; *kaḥ*—what; *mohaḥ*—illusion; *kaḥ*—what; *śokaḥ*—anxiety; *ekatvam*—oneness in quality; *anupaśyataḥ*—of one who sees through authority, or one who sees constantly like that.
+*yasmin*—in the situation; *sarvāṇi*—all; *bhūtāni*—living entities; *ātmā*—the spiritual spark; *eva*—only; *abhūt*—becomes a fact; *vijānataḥ*—one who knows; *tatra*—therein; *kaḥ*—what; *mohaḥ*—illusion; *śokaḥ*—anxiety; *ekatvam*—of the same quality; *anupaśyataḥ*—one who sees, or one who sees constantly like that.
 
 **One who always sees all living entities as spiritual sparks, in quality one with the Lord, becomes a true knower of things. What is there as illusion or anxiety for him?**
 

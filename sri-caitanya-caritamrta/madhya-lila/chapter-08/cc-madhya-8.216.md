@@ -10,6 +10,6 @@
 
 *premā*—love of Godhead; *eva*—certainly; *gopa-rāmāṇām*—of all the *gopīs*; *kāmaḥ*—*lust*; *iti*—*thus*; *agamat*—became current; *prathām*—the process; *iti*—thus; *uddhava-ādayaḥ*—all devotees, headed by Uddhava; *api*—certainly; *etam*—this type of behavior; *vāñchanti*—desire; *bhagavat-priyāḥ*—those who are very, very dear to the Supreme Personality of Godhead.
 
-**“ 'The dealings of the gopīs with Kṛṣṇa are on the platform of pure love of Godhead. However, they are sometimes considered to be lusty. But because such dealings are completely spiritual, Uddhava and all the other dearmost devotees of the Lord  desire to participate in them.'**
+**“ 'The dealings of the gopīs with Kṛṣṇa are on the platform of pure love of Godhead. However, they are sometimes considered to be lusty. But because such dealings are completely spiritual, all the dearmost devotees of the Lord like Uddhava and others also desire to participate in them.'**
 
-This is a quotation from the *Bhakti-rasāmṛta-sindhu* (1.2.285).
+This is a quotation from *Bhakti-rasāmṛta-sindhu* (1.2.285).

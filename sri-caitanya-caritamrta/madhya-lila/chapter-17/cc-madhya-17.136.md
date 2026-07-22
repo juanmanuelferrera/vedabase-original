@@ -12,4 +12,4 @@
 
 **“ 'Therefore material senses cannot appreciate Kṛṣṇa's holy name, form, qualities and pastimes. When a conditioned soul is awakened to Kṛṣṇa consciousness and renders service by using his tongue to chant the Lord's holy name and taste the remnants of the Lord's food, the tongue is purified, and one gradually comes to understand who Kṛṣṇa really is.'**
 
-This verse is recorded in the *Bhakti-rasāmṛta-sindhu* (1.2.234).
+This verse is recorded in *Bhakti-rasāmṛta-sindhu* (1.2.234).

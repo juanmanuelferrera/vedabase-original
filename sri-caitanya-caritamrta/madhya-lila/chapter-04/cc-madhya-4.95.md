@@ -10,7 +10,7 @@
 
 **The ideal place to execute Kṛṣṇa consciousness is Vrajabhūmi, or Vṛndāvana, where the people are naturally inclined to love Kṛṣṇa and Kṛṣṇa is naturally inclined to love them.**
 
-In the *Bhagavad-gītā* it is said: *ye yathā māṁ prapadyante tāṁs tathaiva bhajāmy aham.* There is a responsive cooperation between the Supreme Lord Kṛṣṇa and His devotees. The more a devotee sincerely loves Kṛṣṇa, the more Kṛṣṇa reciprocates, so much so that a highly advanced devotee can talk with Kṛṣṇa face to face. Kṛṣṇa confirms this in the *Bhagavad-gītā* [[bg/10/10|(Bg. 10.10)]]:
+In *Bhagavad-gītā* it is said: *ye yathā māṁ prapadyante tāṁs tathaiva bhajāmy aham.* There is a responsive cooperation between the Supreme Lord Kṛṣṇa and His devotees. The more a devotee sincerely loves Kṛṣṇa, the more Kṛṣṇa reciprocates, so much so that a highly advanced devotee can talk with Kṛṣṇa face to face. Kṛṣṇa confirms this in the *Bhagavad-gītā* [[bg/10/10|(Bg. 10.10)]]:
 
 > teṣāṁ satata-yuktānāṁ
 > bhajatāṁ prīti-pūrvakam

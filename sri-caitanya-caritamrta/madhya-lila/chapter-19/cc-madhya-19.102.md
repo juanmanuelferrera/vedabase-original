@@ -10,7 +10,7 @@
 
 **"Of all Kṛṣṇa's abodes, which do you think is the best?" Raghupati Upādhyāya said, "Madhu-purī, or Mathurā-dhāma, is certainly the best."**
 
-Lord Kṛṣṇa has many forms, as stated in the *Brahma-saṁhitā* (5.33): *advaitam acyutam anādim ananta-rūpam.* Śrī Caitanya Mahāprabhu asked Raghupati Upādhyāya which form was the best of Lord Kṛṣṇa's millions of forms, and he immediately replied that the supreme form was the Śyāmasundara form. In that form, Kṛṣṇa stands curved in three places and holds His flute. The Śyāmasundara form is also described in the *Brahma-saṁhitā* (5.38):
+Lord Kṛṣṇa has many forms, as stated in *Brahma-saṁhitā* (5.33): *advaitam acyutam anādim ananta-rūpam.* Śrī Caitanya Mahāprabhu asked Raghupati Upādhyāya which form was the best of Lord Kṛṣṇa's millions of forms, and he immediately replied that the supreme form was the Śyāmasundara form. In that form, Kṛṣṇa stands curved in three places and holds His flute. The Śyāmasundara form is also described in *Brahma-saṁhitā* (5.38):
 
 > premāñjana-cchurita-bhakti-vilocanena
 > santaḥ sadaiva hṛdayeṣu vilokayanti

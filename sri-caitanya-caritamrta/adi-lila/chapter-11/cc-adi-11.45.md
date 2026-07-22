@@ -10,4 +10,4 @@
 
 **The thirty-first devotee of Lord Nityānanda Prabhu was Paramānanda Gupta, who was greatly devoted to Lord Kṛṣṇa and highly advanced in spiritual consciousness. Formerly Nityānanda Prabhu also resided at his house for some time.**
 
-Paramānanda Gupta composed a prayer to Lord Kṛṣṇa known as *Kṛṣṇa-stavāvalī.* In the *Gaura-gaṇoddeśa-dīpikā,* verses 194 and 199, it is stated that he was formerly the *gopī* named Mañjumedhā.
+Paramānanda Gupta composed a prayer to Lord Kṛṣṇa known as *Kṛṣṇa-stavāvalī.* In the *Gaura-gaṇoddeśa-dīpikā,* verse 194, it is stated that he was formerly the *gopī* named Mañjumedhā.

@@ -10,7 +10,7 @@
 
 **Nārāyaṇī eternally eats the remnants of the food of Caitanya Mahāprabhu. Śrīla Vṛndāvana dāsa Ṭhākura was born of her womb.**
 
-In the *Gaura-gaṇoddeśa-dīpikā,* a book written by Kavi-karṇapūra that describes all the associates of Śrī Caitanya Mahāprabhu and who they previously were, there is the following statement regarding Nārāyaṇī:
+In *Gaura-gaṇoddeśa-dīpikā,* a book written by Kavi-karṇapūra that describes all the associates of Śrī Caitanya Mahāprabhu and who they previously were, there is the following statement regarding Nārāyaṇī:
 
 > ambikāyāḥ svasā yāsīn
 > nāmnā śrīla-kilimbikā

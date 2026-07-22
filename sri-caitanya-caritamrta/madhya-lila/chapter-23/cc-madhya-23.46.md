@@ -10,7 +10,7 @@
 
 **"These five transcendental mellows exist permanently. The devotee may be attracted to one of these mellows, and thus he becomes happy. Kṛṣṇa also becomes inclined toward such a devotee and comes under his control.**
 
-In the *Bhakti-rasāmṛta-sindhu, sthāyi-bhāva,* permanent ecstasy, is thus described:
+In *Bhakti-rasāmṛta-sindhu, sthāyi-bhāva,* permanent ecstasy, is thus described:
 
 > aviruddhān viruddhāṁś ca
 > bhāvān yo vaśatāṁ nayan

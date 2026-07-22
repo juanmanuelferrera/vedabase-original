@@ -10,7 +10,7 @@
 
 **While reading the book, the brāhmaṇa experienced transcendental bodily transformations. His hair stood on end, tears welled in his eyes, and his body trembled and perspired as he read. Seeing this, Śrī Caitanya Mahāprabhu became very happy.**
 
-Although the *brāhmaṇa* could not pronounce the words very well due to illiteracy, he still experienced ecstatic symptoms while reading the *Bhagavad-gītā.* Śrī Caitanya Mahāprabhu was very much pleased to observe these symptoms, and this indicates that the Supreme Personality of Godhead is pleased by devotion, not by erudite scholarship. Even though the words were imperfectly pronounced, Śrī Caitanya Mahāprabhu, Lord Kṛṣṇa Himself, did not think this very serious. Rather, the Lord was pleased by the *bhāva* (devotion). In *Śrīmad-Bhāgavatam* (1.5.11) this is confirmed:
+Although the *brāhmaṇa* could not pronounce the words very well due to illiteracy, he still experienced ecstatic symptoms while reading *Bhagavad-gītā.* Śrī Caitanya Mahāprabhu was very pleased to observe these symptoms, and this indicates that the Supreme Personality of Godhead is pleased by devotion, not by erudite scholarship. Even though the words were imperfectly pronounced, Śrī Caitanya Mahāprabhu, Lord Kṛṣṇa Himself, did not think this very serious. Rather, the Lord was pleased by the *bhāva* (devotion). In *Śrīmad-Bhāgavatam* (1.5.11) this is confirmed:
 
 > tad-vāg-visargo janatāgha-viplavo
 > yasmin prati-ślokam abaddhavaty api

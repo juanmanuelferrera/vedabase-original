@@ -8,4 +8,4 @@
 
 *vipra kahe*—the *brāhmaṇa* said; *tumi*—You; *sākṣāt*—directly; *śrī-raghunandana*—Lord Śrī Rāmacandra; *sannyāsīra veṣe*—in the dress of a mendicant; *more*—unto me; *dilā*—You gave; *daraśana*—audience.
 
-**After receiving the manuscript, the brāhmaṇa, being very much pleased, said, "Sir, You are Lord Rāmacandra Himself and have come in the dress of a sannyāsī to give me audience.**
+**After receiving the manuscript, the brāhmaṇa, being very pleased, said, "Sir, You are Lord Rāmacandra Himself and have come in the dress of a sannyāsī to give me audience.**

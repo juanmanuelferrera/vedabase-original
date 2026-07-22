@@ -9,4 +9,4 @@
 
 **“ 'One should have full faith and Iove in worshiping the lotus feet of the Deity.**
 
-This verse and the following two verses are found in the *Bhakti-rasāmṛta-sindhu* (1.2.90-92).
+This verse and the following two verses are found in *Bhakti-rasāmṛta-sindhu* (1.2.90-92).

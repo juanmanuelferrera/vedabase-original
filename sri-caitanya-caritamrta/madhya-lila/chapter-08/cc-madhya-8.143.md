@@ -8,4 +8,4 @@
 
 *śṛṅgāra-rasa-rāja-maya*—consisting of the mellow of conjugal love, which is the king of mellows; *mūrti-dhara*—Kṛṣṇa, the personified reservoir of all pleasure; *ataeva*—therefore; *ātma-paryanta*—even up to His own self; *sarva*—all; *citta*—of hearts; *hara*—the attractor.
 
-**"Kṛṣṇa is all-attractive for devotees in all devotional mellows because He is the personification of the conjugal mellow. Kṛṣṇa is attractive not only to all the devotees, but to Himself as well.**
+**"Kṛṣṇa is all-attractive for all devotional mellows because He is the personification of the conjugal mellow. Kṛṣṇa is attractive not only to all the devotees, but to Himself as well.**

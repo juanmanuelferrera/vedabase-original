@@ -4,7 +4,7 @@
 
 ## Śrīla Prabhupāda Arrives in America
 
-*Several years after Śrīla Prabhupāda first arrived in America, a disciple discovered the diary he had kept during his passage from India on the steamship* Jaladuta. *Inside was a poem, handwritten in Bengali, that Śrīla Prabhupāda had written on board the ship just after it had arrived in Boston harbor. The poem beautifully captures Śrīla Prabhupāda's first impressions of Western civilization and reveals his heartfelt determination to change the consciousness of America.*
+*On September 18, 1965, as the Indian steamship* Jaladuta *nears Boston's Commonwealth Pier, Śrīla Prabhupāda prays to Lord Kṛṣṇa in a moving poem. ". . . I am simply praying for Your mercy so that I will be able to convince them about Your message. . . ."*
 
 My dear Lord Kṛṣṇa, You are so kind upon this useless soul, but I do not know why You have brought me here. Now You can do whatever You like with me.
 
@@ -46,7 +46,7 @@ dated 18th of September, 1965
 
 ## Build Your Nation on the Spiritual Platform
 
-Asked to speak at the University of Nairobi in September 1972, Śrīla Prabhupāda addressed an overflow crowd of students and government officials at the campus's Taifla (Independence) Hall. In his lecture he advised citizens of the developing nation of Kenya, "... please develop spiritually, for spiritual development is sound development. Don't imitate the Americans and Europeans, who are living like cats and dogs. The atomic bomb is already there, and as soon as the next war breaks out, all their skyscrapers and everything else will be finished...."
+Śrīla Prabhupāda gives an address at the University of Nairobi: "You are trying to develop yourselves, so please develop spiritually, for spiritual development is sound development. Don't imitate the Americans and Europeans, who are living like cats and dogs. . . . The atomic bomb is already there, and as soon as the next war breaks out, all their skyscrapers and everything else will be finished. Try to understand this from the real viewpoint of human life, the spiritual viewpoint. . . ."
 
 Ladies and gentlemen, thank you very much for kindly coming here to participate in this meeting for spreading Kṛṣṇa consciousness. The Kṛṣṇa consciousness movement is trying to bring human society to the point where everyone's life can become successful. The subject today is the real meaning of human life. We are trying to instruct the entire world about this meaning.
 
@@ -155,7 +155,7 @@ We therefore invite the most intelligent men in the world to understand this K�
 
 ## Saintly Compassion
 
-Every religion has its own saints, but all saints share one transcendent spiritual quality: compassion. Śrīla Prabhupāda explains....
+"When Lord Jesus Christ presented himself, for instance, he was greatly afflicted by the miserable conditions of the people. Regardless of which country or sect they belong to, all Vaiṣṇavas, or devotees—any people who are God conscious, or Kṛṣṇa conscious—are thus compassionate. . . ."
 
 Today I shall speak to you about the glorification of the holy name of God. This was discussed between Mahārāja Parīkṣit and Śukadeva Goswami in connection with a *brāhmaṇa* who was very fallen and addicted to all kinds of sinful activities but was saved simply by chanting the holy name. This is found in the Sixth Canto of the *Śrīmad-Bhāgavatam.*
 
@@ -172,7 +172,7 @@ After hearing a description of the hellish planets from Śukadeva Goswami, Parī
 
 "Sir, I have heard from you about the hellish planets. Men who are very sinful are sent to those planets." (Śrīmad-Bhāgavatam 6.1.6) Parīkṣit Mahārāja is a Vaiṣṇava [devotee], and a Vaiṣṇava always feels compassion for others' distress. He is very afflicted by the miseries of others. When Lord Jesus Christ presented himself, for instance, he was greatly afflicted by the miserable conditions of the people. Regardless of which country or sect they belong to, all Vaiṣṇavas, or devotees—any people who are God conscious, or Kṛṣṇa conscious—are thus compassionate. Therefore to blaspheme a Vaiṣṇava, a preacher of God's glories, is a great offense.
 
-Kṛṣṇa, God, is never tolerant of offenses committed at the lotus feet of a Vaiṣṇava. *Kṛpāmbudhi:* a Vaiṣṇava is an ocean of mercy. *Vāñchā-kalpa-taru:* everyone has desires, but a Vaiṣṇava can fulfill all desires. *Kalpa-taru* means "desire tree." There is a tree in the spiritual world which is called a desire tree. In this material world, you get a particular type of fruit from a particular type of tree, but in Kṛṣṇaloka as well as in all the Vaikuṇṭha planets, all the trees are spiritual and will fulfill all your desires. That is described in the *Brahma-saṁhitā: cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa* [Bs. 5.29].
+Kṛṣṇa, God, is never tolerant of offenses committed at the lotus feet of a Vaiṣṇava. *Kṛpāmbudhi:* a Vaiṣṇava is an ocean of mercy. *Vāñchā-kalpa-taru:* everyone has desires, but a Vaiṣṇava can fulfill all desires. *Kalpa-taru* means "desire tree." There is a tree in the spiritual world which is called a desire tree. In this material world, you get a particular type of fruit from a particular type of tree, but in Kṛṣṇaloka as well as in all the Vaikuṇṭha planets, all the trees are spiritual and will fulfill all your desires. That is described in the *Brahma-saṁhitā: cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa*.
 
 A Vaiṣṇava is addressed as *mahā-bhāga,* which means "fortunate." One who becomes a Vaiṣṇava and is God conscious is understood to be greatly fortunate.
 
@@ -225,7 +225,7 @@ The Vaiṣṇava knows that as soon as one surrenders, one's path is clear. *Nai
 > rādhā-kṛṣṇa-padāravinda-bhajanānandena mattālikau
 > vande rūpa-sanātanau raghu-yugau śrī-jīva-gopālakau
 
-"The six Gosvāmīs, namely, Śrī Sanātana Gosvāmī, Śrī Rūpa Gosvāmī, Śrī Raghunātha Bhaṭṭa Goswami, Śrī Raghunātha dāsa Gosvāmī, Śrī Jīva Gosvāmī, and Śrī Gopāla Bhaṭṭa Goswami, are very expert in scrutinizingly studying the revealed scriptures with the aim of establishing eternal religious principles for the benefit of all human beings. They are always absorbed in the mood of the *gopīs* and are engaged in the transcendental loving service of Rādhā and Kṛṣṇa." (*Ṣaḍ-gosvāmy-aṣṭaka* 2)
+"The six Goswamis, namely, Śrī Sanātana Goswami, Śrī Rūpa Goswami, Śrī Raghunātha Bhaṭṭa Goswami, Śrī Raghunātha dāsa Goswami, Śrī Jīva Goswami, and Śrī Gopāla Bhaṭṭa Goswami, are very expert in scrutinizingly studying the revealed scriptures with the aim of establishing eternal religious principles for the benefit of all human beings. They are always absorbed in the mood of the *gopīs* and are engaged in the transcendental loving service of Rādhā and Kṛṣṇa." (*Ṣaḍ-gosvāmy-aṣṭaka* 2)
 
 With similar Vaiṣṇava compassion, Parīkṣit Mahārāja says to Śukadeva Goswami: "You have described the different types of hellish conditions of life. Now, tell me how those who are suffering can be delivered. Kindly explain this to me.
 
@@ -307,7 +307,7 @@ What happens to such a person? *Mām eti*—he returns to Kṛṣṇa. If you ar
 
 ## Protecting Oneself from Illusion
 
-In 1973 Śrīla Prabhupāda received an unusual letter from a woman in California who had encountered two of his young disciples. She complained that they had "a very negative outlook toward the people they meet." Moved by her genuine concern, Śrīla Prabhupāda took time out from his busy schedule to write her this thoughtful letter.
+In his letter to Lynne Ludwig, Śrīla Prabhupāda asks, "kindly forgive my beloved disciples for any unkindness or indiscretion on their part. After all, to give up one's life completely for serving the Lord is not an easy thing, and māyā, or the illusory material energy, tries especially hard to again entrap those who have left her service to become devotees. . . . They have become a little detached from māyā's love, or lust, and they want Kṛṣṇa's love, or endless, fully rewarding love, but they have not yet developed to that point, that's all."
 
 ***
 
@@ -384,7 +384,7 @@ A.C. Bhaktivedanta Swami
 
 ## An Awareness of What Is Best and Most Beautiful
 
-During May 1974, the noted Irish poet Desmond James Bernard O 'Grady visited Śrīla Prabhupāda at his quarters in Rome, and the two had a lengthy and lively discussion. Among other things, the spiritual leader and the poet discussed personal identity and individual duty, putting an end to war, modern education and its problems, life beyond time, and the essential nature of love.
+In Rome, during May of 1974, Śrīla Prabhupāda meets with Mr. Desmond James Bernard O'Grady, a noted Irish poet: "My request to you is this. You are a poet. Just describe God. You are expert in describing, and therefore I ask you to kindly describe God in your occupation. Then your life will be successful. . . ."
 
 **Mr. O'Grady:**
 Your edition of the *Bhagavad-gītā* is very nice.

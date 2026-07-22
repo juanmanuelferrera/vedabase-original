@@ -10,4 +10,4 @@
 
 **Vanamālī Paṇḍita, the thirty-fifth branch of the tree, was very celebrated in this world. He saw a golden club and plow in the hands of the Lord.**
 
-Vanamālī Paṇḍita saw Lord Caitanya in the ecstasy of Balarāma. This is described vividly in the *Caitanya-bhāgavata, Antya-līlā,* Chapter Nine.
+Vanamālī Paṇḍita saw Lord Caitanya in the ecstasy of Balarāma. This is described vividly in *Caitanya-bhāgavata, Antya-līlā,* Chapter Nine.

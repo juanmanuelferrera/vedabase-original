@@ -46,14 +46,14 @@ The *Garuḍa Purāṇa* similarly states:
 
 "It is said that out of thousands of *brāhmaṇas,* one is qualified to perform sacrifices, and out of many thousands of such qualified *brāhmaṇas* expert in sacrificial offerings, one learned *brāhmaṇa* may have passed beyond all Vedic knowledge. He is considered the best among all these *brāhmaṇas.* And yet, out of thousands of such *brāhmaṇas* who have surpassed Vedic knowledge, one person may be a *viṣṇu-bhakta,* and he is most famous. Out of many thousands of such Vaiṣṇavas, one who is completely fixed in the service of Lord Kṛṣṇa is most famous. Indeed, a person who is completely devoted to the service of the Lord certainly returns home, back to Godhead."
 
-There is also the following  statement in *Śrīmad-Bhāgavatam* (3.13.4):
+There is also a statement in the *Śrīmad-Bhāgavatam* (3.13.4), stating:
 
 > śrutasya puṁsāṁ sucira-śramasya
 > nanv añjasā sūribhir īḍito 'rthaḥ
 > tat-tad-guṇānuśravaṇaṁ mukunda-
 > pādāravindaṁ hṛdayeṣu yeṣām
 
-"After much hard labor, a person highly learned in Vedic literature certainly becomes very famous. However, one who is always hearing and chanting the glories of the lotus feet of Mukunda within his heart is certainly superior."
+"After much hard labor, a person highly learned in Vedic literature is certainly very famous. However, one who is always hearing and chanting the glories of the lotus feet of Mukunda within his heart is certainly superior."
 
 In the *Nārāyaṇa-vyūha-stava* it is said:
 

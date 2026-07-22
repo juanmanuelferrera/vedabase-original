@@ -12,4 +12,4 @@
 
 **“ 'O Govinda, this youthful girl named Rādhikā is today constantly pouring forth tears like nectar falling from flowers. She is also singing Your holy name in a sweet voice.'**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (1.3.38).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (1.3.38).

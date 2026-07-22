@@ -10,4 +10,4 @@
 
 **The thirty-first branch was Jagadīśa Paṇḍita, and the thirty-second was Hiraṇya Mahāśaya, unto whom Lord Caitanya in His childhood showed His causeless mercy.**
 
-Jagadīśa Paṇḍita was formerly a great dancer in *kṛṣṇa-līla* and was known as Candrahāsa. Regarding Hiraṇya Paṇḍita, it is said that once when Lord Nityānanda, decorated with valuable jewels, was staying at his home, a great thief attempted all night long to plunder these jewels but was unsuccessful. Later he came to Nityānanda Prabhu and surrendered unto Him.
+Jagadīśa Paṇḍita was formerly a great dancer in *kṛṣṇa-līla* and was known as Candrahāsa. Regarding Hiraṇya Paṇḍita, it is said that once Lord Nityānanda, decorated with valuable jewels, stayed at his home, and a great thief attempted all night long to plunder these jewels but was unsuccessful. Later he came to Nityānanda Prabhu and surrendered unto Him.

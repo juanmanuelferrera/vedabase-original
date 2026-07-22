@@ -12,4 +12,4 @@
 
 **“ 'Kṛṣṇa, who is known as Govinda, is the supreme controller. He has an eternal, blissful, spiritual body. He is the origin of all. He has no other origin, for He is the prime cause of all causes.'**
 
-This is the first verse of the Fifth Chapter of the *Brahma-saṁhitā.*
+This is the first verse of the Fifth Chapter of *Brahma-saṁhitā.*

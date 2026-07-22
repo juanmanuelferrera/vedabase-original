@@ -22,7 +22,7 @@ The distinction between Śrī Caitanya Mahāprabhu's gift to human society and t
 > dīna-hīna yata chila,     hari-nāme uddhārila,
 > tā'ra sākṣī jagāi mādhāi
 
-The two brothers Jagāi and Mādhāi epitomize the sinful population of this Age of Kali. They were most disturbing elements in society because they were meat-eaters, drunkards, woman-hunters, rogues and thieves. Yet Śrī Caitanya Mahāprabhu delivered them, to say nothing of others who were sober, pious, devoted and conscientious. The *Bhagavad-gītā* confirms that to say nothing of the brahminically qualified devotees and *rājarṣis* (*kiṁ punar brāhmaṇāḥ puṇyā bhaktā rājarṣayas tathā*), anyone who by the association of a pure devotee comes to Kṛṣṇa consciousness becomes eligible to go back home, back to Godhead. In the *Bhagavad-gītā* [[bg/9/32|(Bg. 9.32)]] the Lord thus declares:
+The two brothers Jagāi and Mādhāi epitomize the sinful population of this Age of Kali. They were most disturbing elements in society because they were meat-eaters, drunkards, woman-hunters, rogues and thieves. Yet Śrī Caitanya Mahāprabhu delivered them, to say nothing of others who were sober, pious, devoted and conscientious. *Bhagavad-gītā* confirms that to say nothing of the brahminically qualified devotees and *rājarṣis* (*kiṁ punar brāhmaṇāḥ puṇyā bhaktā rājarṣayas tathā*), anyone who by the association of a pure devotee comes to Kṛṣṇa consciousness becomes eligible to go back home, back to Godhead. In the *Bhagavad-gītā* [[bg/9/32|(Bg. 9.32)]] the Lord thus declares:
 
 > māṁ hi pārtha vyapāśritya
 > ye 'pi syuḥ pāpa-yonayaḥ

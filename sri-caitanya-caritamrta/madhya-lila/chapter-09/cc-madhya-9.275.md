@@ -8,4 +8,4 @@
 
 *tathāpi*—still; *madhva-ācārya*—Madhvācārya; *ye*—whatever; *kariyāche*—formulated; *nirbandha*—rules and regulations; *sei*—that; *ācariye*—we practice; *sabe*—all; *sampradāya*—party; *sambandha*—relationship.
 
-**"Still, whatever Madhvācārya has established as the formula for our party, we practice as a party policy."**
+**"Still, whatever Madhvācārya has ascertained to be the formula for our party, we practice as a party policy."**

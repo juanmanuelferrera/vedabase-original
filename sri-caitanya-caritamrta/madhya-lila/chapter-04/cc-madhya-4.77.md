@@ -26,4 +26,4 @@ Apart from this, Kṛṣṇa can eat the food with any one of His transcendental
 > sevonmukhe hi jihvādau
 > svayam eva sphuraty adaḥ
 
-"No one can understand Kṛṣṇa by the blunt material senses. But He reveals Himself to the devotees, being pleased with them for their transcendental loving service unto Him." (*Bhakti-rasāmṛta-sindhu* 1.2.234) The devotees understand Kṛṣṇa through revelation. It is not possible for a mundane scholar to understand Kṛṣṇa and His pastimes through research work on the nondevotional platform.
+"No one can understand Kṛṣṇa by the blunt material senses. But He reveals Himself to the devotees, being pleased with them for their transcendental loving service unto Him." (*Bh.r.s.* 1.2.234) The devotees understand Kṛṣṇa through revelation. It is not possible for a mundane scholar to understand Kṛṣṇa and His pastimes through research work on the nondevotional platform.

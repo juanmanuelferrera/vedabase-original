@@ -12,4 +12,4 @@
 
 **“ 'In this Age of Kali, five acts are forbidden: the offering of a horse in sacrifice, the offering of a cow in sacrifice, the acceptance of the order of sannyāsa, the offering of oblations of flesh to the forefathers, and a man's begetting children in his brother's wife.'**
 
-This is a quotation from the *Brahma-vaivarta Purāṇa* (*Kṛṣṇa-janma-khaṇḍa* 185.180).
+This is a quotation from the *Brahma-vaivarta Purāṇa*.

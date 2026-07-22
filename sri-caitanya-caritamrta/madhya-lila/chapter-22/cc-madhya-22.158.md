@@ -12,4 +12,4 @@
 
 **“ 'The advanced devotee who is inclined to spontaneous loving service should follow the activities of a particular associate of Kṛṣṇa in Vṛndāvana. He should execute service externally as a regulative devotee as well as internally from his self-realized position. Thus he should perform devotional service both externally and internally.'**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (1.2.295).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (1.2.295).

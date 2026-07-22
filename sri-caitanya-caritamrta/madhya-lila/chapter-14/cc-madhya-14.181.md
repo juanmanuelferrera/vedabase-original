@@ -14,4 +14,4 @@
 
 **“ 'Agitated by tears, Śrīmatī Rādhārāṇī's eyes were tinged with red, just like the eastern horizon at sunrise. Her lips began to move with jubilation and lusty desire. Her eyebrows curved, and Her lotus-like face smiled mildly. Seeing Rādhārāṇī's face exhibit such emotion, Lord Śrī Kṛṣṇa felt a million times happier than when He embraced Her. Indeed, Lord Śrī Kṛṣṇa's happiness is not at all mundane.' "**
 
-This is a quotation from the *Govinda-līlāmṛta* (9.18).
+This is a quotation from *Govinda-līlāmṛta* (9.18).

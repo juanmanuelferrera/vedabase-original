@@ -10,7 +10,7 @@
 
 **The universe, which measures five hundred million yojanas in diameter, rests on one of His hoods like a mustard seed.**
 
-The Lord of Śvetadvīpa expands Himself as Śeṣa Nāga, who sustains all the planets upon His innumerable hoods. These huge global spheres are compared to grains of mustard resting on the spiritual hoods of Śeṣa Nāga. The scientists' law of gravity is a partial explanation of Lord Saṅkarṣaṇa's energy. The name "Saṅkarṣaṇa" has an etymological relationship to the idea of gravity. There is a reference to Śeṣa Nāga in *Śrīmad-Bhāgavatam* (5.17.21), where it is said:
+The Lord of Śvetadvīpa expands Himself as Śeṣa Nāga, who sustains all the planets upon His innumerable hoods. These huge global spheres are compared to grains of mustard resting on the spiritual hoods of Śeṣa Nāga. The scientists' law of gravity is a partial explanation of Lord Saṅkarṣaṇa's energy. The name "Saṅkarṣaṇa" has an etymological relationship to the idea of gravity. There is a reference to Śeṣa Nāga in the *Bhāgavata Purāṇa* (5.17.21), where it is said:
 
 > yam āhur asya sthiti janma-saṁyamaṁ
 > tribhir vihīnaṁ yam anantam ṛṣayaḥ

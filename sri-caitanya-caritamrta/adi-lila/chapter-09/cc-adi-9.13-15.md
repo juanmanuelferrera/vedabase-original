@@ -36,7 +36,7 @@
 
 > dāmodara-svarūpereo tata prīti kare
 
-"Among his *sannyāsī* disciples, Īśvara Purī and Paramānanda Purī were very dear to Mādhavendra Purī. Thus Paramānanda Purī, like Svarūpa Dāmodara, who was also a *sannyāsī,* was very dear to Śrī Caitanya Mahāprabhu and was His constant associate. When Lord Caitanya accepted the renounced order, Paramānanda Purī offered Him the *daṇḍa.* Paramānanda Purī was always engaged in meditation, and Śrī Svarūpa was always engaged in chanting the Hare Kṛṣṇa *mahā-mantra.* As Śrī Caitanya Mahāprabhu offered full respect to His spiritual master, Īśvara Purī, He similarly respected Paramānanda Purī and Svarūpa Dāmodara." It is described in the *Caitanya-bhāgavata, Antya-līlā,* Chapter Three, that when Śrī Caitanya Mahāprabhu first saw Paramānanda Purī He made the following statement:
+"Among his *sannyāsī* disciples, Īśvara Purī and Paramānanda Purī were very dear to Mādhavendra Purī. Thus Paramānanda Purī, like Svarūpa Dāmodara, who was also a *sannyāsī,* was very dear to Śrī Caitanya Mahāprabhu and was His constant associate. When Lord Caitanya accepted the renounced order, Paramānanda Purī offered Him the *daṇḍa.* Paramānanda Purī was always engaged in meditation, and Śrī Svarūpa was always engaged in chanting the Hare Kṛṣṇa *mahā-mantra.* As Śrī Caitanya Mahāprabhu offered full respect to His spiritual master, Īśvara Purī, He similarly respected Paramānanda Purī and Svarūpa Dāmodara." It is described in *Caitanya-bhāgavata, Antya-līlā,* Chapter Three, that when Śrī Caitanya Mahāprabhu first saw Paramānanda Purī He made the following statement:
 
 > āji dhanya locana, saphala āji janma
 > saphala āmāra āji haila sarva-dharma
@@ -44,7 +44,7 @@
 > prabhu bale āji mora saphala sannyāsa
 > āji mādhavendra more ha-ilā prakāśa
 
-"My eyes, My mind, My religious activities and My acceptance of the *sannyāsa* order have now all become perfect because today Mādhavendra Purī is manifest before Me in the form of Paramānanda Purī." The *Caitanya-bhāgavata* further states:
+"My eyes, My mind, My religious activities and My acceptance of the *sannyāsa* order have now all become perfect because today Mādhavendra Purī is manifest before Me in the form of Paramānanda Purī." *Caitanya-bhāgavata* further states:
 
 > kathokṣaṇe anyo 'nye karena praṇāma
 > paramānanda-purī caitanyera priya-dhāma
@@ -64,6 +64,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 52, it is said:
 > dadau sāndīpaniḥ so 'bhūd
 > adya keśava-bhāratī
 
-"Sāndīpani Muni, who formerly offered the sacred thread to Kṛṣṇa and Balarāma, later became Keśava Bhāratī." It is he who offered *sannyāsa* to Śrī Caitanya Mahāprabhu. There is another statement from the *Gaura-gaṇoddeśa-dīpikā,* verse 117: *iti kecit prabhāṣante 'krūraḥ keśava-bhāratī.* "According to some authoritative opinions, Keśava Bhāratī is an incarnation of Akrūra." Keśava Bhāratī offered the *sannyāsa* order to Śrī Caitanya Mahāprabhu in the year 1432 *śakābda* (A.D. 1510) in Katwa. This is stated in the *Vaiṣṇava-mañjuṣā,* Part Two.
+"Sāndīpani Muni, who formerly offered the sacred thread to Kṛṣṇa and Balarāma, later became Keśava Bhāratī." It is he who offered *sannyāsa* to Śrī Caitanya Mahāprabhu. There is another statement from the *Gaura-gaṇoddeśa-dīpikā,* verse 117: *iti kecit prabhāṣante 'krūraḥ keśava-bhāratī.* "According to some authoritative opinions, Keśava Bhāratī is an incarnation of Akrūra." Keśava Bhāratī offered the *sannyāsa* order to Śrī Caitanya Mahāprabhu in the year 1432 *śakābda* (1510 A.D.) in Katwa. This is stated in the *Vaiṣṇava-mañjuṣā,* Part Two.
 > Brahmānanda Purī: Śrī Brahmānanda Purī was one of the associates of Śrī Caitanya Mahāprabhu while He was performing *kīrtana* in Navadvīpa, and he also joined Lord Caitanya in Jagannātha Purī. We may note in this connection that the name Brahmānanda is accepted not only by Māyāvādī *sannyāsīs* but by Vaiṣṇava *sannyāsīs* also. One of our foolish Godbrothers criticized our *sannyāsī* Brahmānanda Svāmī, saying that this was a Māyāvādī name. The foolish man did not know that Brahmānanda does not always refer to the impersonal. Parabrahman, the Supreme Brahman, is Kṛṣṇa. A devotee of Kṛṣṇa can therefore also be called Brahmānanda; this is evident from the fact that Brahmānanda Purī was one of the chief *sannyāsī* associates of Lord Caitanya Mahāprabhu.
 > Brahmananda Bhāratī: Brahmānanda Bhāratī went to see Śrī Kṛṣṇa Caitanya Mahāprabhu at Jagannātha-dhāma. At that time he used to wear only a deerskin to cover himself, and Śrī Caitanya Mahāprabhu indirectly indicated that He did not like this deerskin covering. Brahmānanda Bhāratī therefore gave it up and accepted a loincloth of saffron color, as used by Vaiṣṇava *sannyāsīs.* For some time he lived with Śrī Caitanya Mahāprabhu at Jagannātha Purī.

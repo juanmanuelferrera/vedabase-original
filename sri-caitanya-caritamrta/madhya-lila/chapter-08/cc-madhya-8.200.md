@@ -17,7 +17,7 @@
 > śravaṇaṁ naiva kartavyaṁ
 > sarpocchiṣṭaṁ yathā payaḥ
 
-Thus quoting from *Padma Purāṇa,* Śrīla Sanātana Gosvāmī warns that one should not hear anything about Kṛṣṇa from an *avaiṣṇava,* however great a mundane scholar he may be. Milk touched by the lips of a serpent has poisonous effects; similarly, talks about Kṛṣṇa given by an *avaiṣṇava* are also poisonous. However, because a Vaiṣṇava is surrendered to the Supreme Personality of Godhead, his talks are spiritually potent. In the *Bhagavad-gītā* [[bg/10/10|(Bg. 10.10)]] the Supreme Lord says,
+Thus quoting from *Padma Purāṇa,* Śrīla Sanātana Gosvāmī warns that one should not hear anything about Kṛṣṇa from an *avaiṣṇava,* however great a mundane scholar he may be. Milk touched by the lips of a serpent has poisonous effects; similarly, talks about Kṛṣṇa given by an *avaiṣṇava* are also poisonous. However, because a Vaiṣṇava is surrendered to the Supreme Personality of Godhead, his talks are spiritually potent. In *Bhagavad-gītā* [[bg/10/10|(Bg. 10.10)]] the Supreme Lord says,
 
 > teṣāṁ satata-yuktānāṁ
 > bhajatāṁ prīti-pūrvakam

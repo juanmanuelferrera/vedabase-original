@@ -8,4 +8,4 @@
 
 *kha-i*—fused rice; *sandeśa*—sweetmeat; *anna*—eatables; *yateka*—all; *māṭira*—of dirt; *vikāra*—transformations; *eho*—this is also; *māṭi*—dirt; *seha*—that; *māṭi*—dirt; *ki*—what; *bheda*—of difference; *vicāra*—consideration.
 
-**"Fused rice, sweetmeats or anything eatable is all other eatables are but transformations of dirt. This is dirt, that is dirt. Please consider. What is the difference between them?**
+**"Fused rice, sweetmeats or anything eatable is all but a transformation of dirt. This is dirt, that is dirt. Please consider. What is the difference between them?**

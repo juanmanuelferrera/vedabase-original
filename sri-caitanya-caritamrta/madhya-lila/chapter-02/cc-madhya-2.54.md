@@ -14,4 +14,4 @@
 
 **Staying near the Garuḍa-stambha, the Lord would look upon Lord Jagannātha. What can be said about the strength of that love? On the ground beneath the column of the Garuḍa-stambha was a deep ditch, and that ditch was filled with the water of His tears.**
 
-In front of the temple of Jagannātha is a column on which the statue of Garuḍa is situated. It is called the Garuḍa-stambha. At the base of that column is a ditch, and that ditch was filled with the tears of the Lord.
+In front of the temple of Jagannātha is a column on which the statue of Garuḍa is situated. It is called the Garuḍa-stambha. Behind that column is a ditch, and that ditch was filled with the tears of the Lord.

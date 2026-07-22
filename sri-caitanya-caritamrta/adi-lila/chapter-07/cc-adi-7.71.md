@@ -17,4 +17,4 @@ When Prakāśānanda Sarasvatī inquired from Lord Caitanya Mahāprabhu why He n
 > kalau nāsty eva nāsty eva
 > nāsty eva gatir anyathā
 
-"In this age of quarrel and hypocrisy the only means of deliverance is the chanting of the holy names of the Lord. There is no other way. There is no other way. There is no other way." People in general in Kali-yuga are so fallen that it is not possible for them to obtain perfection simply by studying the *Vedānta-sūtra.* One should therefore seriously take to the constant chanting of the holy name of the Lord.
+"In this age of quarrel and hypocrisy the only means of deliverance is the chanting of the holy names of the Lord. There is no other way. There is no other way. There is no other way." People in general in Kali-yuga are so fallen that it is not possible for them to obtain perfection simply by studying *Vedānta-sūtra.* One should therefore seriously take to the constant chanting of the holy name of the Lord.

@@ -8,4 +8,4 @@
 
 *kabhu*—sometimes; *mṛdu-haste*—by His soft hand; *kaila*—did; *mātāke*—His mother; *tāḍana*—chastise; *mātāke*—His mother; *mūrcchitā*—fainted; *dekhi'*—seeing; *karaye*—was; *krandana*—crying.
 
-**Once the child, Caitanya Mahāprabhu, chastised His mother with His soft hand, and His mother pretended to faint. Seeing this, the Lord began to cry.**
+**Once the child, Caitanya Mahāprabhu, chastised His mother with His soft hand, and His mother falsely fainted. Seeing this, the Lord began to cry.**

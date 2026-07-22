@@ -4,4 +4,4 @@
 
 ## The Immortal Nectar of the Bhagavad-gītā
 
-Through the centuries, India's greatest philosophers and spiritualists have praised the *Bhagavad-gītā* as the distilled essence of the eternal Vedic wisdom. In his *Meditations on the Bhagavad-gītā,* versified here, the renowned sixth-century philosopher Śaṅkara glorifies the *Gītā* and its divine author, Śrī Kṛṣṇa. Although universally celebrated as an impersonalist, here Śaṅkara reveals his devotion to the original personal form of God, Lord Śrī Kṛṣṇa. And Śrīla Prabhupāda elucidates.
+Śrīla Prabhupāda chastises impersonalist yogis and swamis, the nominal followers of the ninth-century teacher Śaṅkara, in this commentary on the latter's *Meditation on the Bhagavad-gītā*: "Fools rush in where angels fear to tread. Whereas Śaṅkara, the greatest of the impersonalists, offers his due respects to Kṛṣṇa and His book *Bhagavad-gītā*, the foolish say that 'we need not surrender to the personal Kṛṣṇa.'"

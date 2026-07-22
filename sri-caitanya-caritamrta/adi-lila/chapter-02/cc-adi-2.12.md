@@ -10,7 +10,7 @@
 
 **What the Upaniṣads call the transcendental, impersonal Brahman is the realm of the glowing effulgence of the same Supreme Person.**
 
-Three *mantras* of the *Muṇḍaka Upaniṣad* (2.2.9-11) gives information regarding the bodily effulgence of the Supreme Personality of Godhead. They state:
+A *mantra* of the *Muṇḍaka Upaniṣad* (2.2.10-12) gives information regarding the bodily effulgence of the Supreme Personality of Godhead. It states:
 
 > hiraṇmaye pare kośe
 > virajaṁ brahma niṣkalam

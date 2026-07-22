@@ -10,4 +10,4 @@
 
 **Gopīnātha Siṁha, the thirty-eighth branch of the tree, was a faithful servant of Lord Caitanya Mahāprabhu. The Lord jokingly addressed him as Akrūra.**
 
-Actually he was Akrūra, as stated in the *Gaura-gaṇoddeśa-dīpikā,* verse 117.
+Actually he was Akrūra, as stated in *Gaura-gaṇoddeśa-dīpikā,* verse 117.

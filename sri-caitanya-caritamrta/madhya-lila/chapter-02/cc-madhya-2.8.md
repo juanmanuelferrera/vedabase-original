@@ -8,4 +8,4 @@
 
 *tina dvāre*—the three doors; *kapāṭa*—completely closed; *prabhu*—the Lord; *yāyena*—goes; *bāhire*—outside; *kabhu*—sometimes; *siṁha-dvāre*—at the gate of the temple of Jagannātha, known as Siṁha-dvāra; *paḍe*—falls flat; *kabhu*—sometimes; *sindhu-nīre*—in the water of the sea.
 
-**Although the three doors of the house were always closed, the Lord would nonetheless go out and sometimes would be found at the Jagannātha Temple, before the gate known as Siṁha-dvāra. And sometimes the Lord would fall flat into the sea.**
+**Although the three doors of the house were always closed, the Lord would nonetheless go out and sometimes would be found at Jagannātha Temple, before the gate known as Siṁha-dvāra. And sometimes the Lord would fall flat into the sea.**

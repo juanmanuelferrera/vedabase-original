@@ -14,4 +14,4 @@
 
 **"Prior to the rāsa dance, Lord Kṛṣṇa hid Himself in a grove just to have fun. When the gopīs came, their eyes resembling those of deer, by His sharp intelligence He exhibited His beautiful four-armed form to hide Himself. But when Śrīmatī Rādhārāṇī came there, Kṛṣṇa could not maintain His four arms in Her presence. This is the wonderful glory of Her love."**
 
-This is a quotation from the *Ujjvala-nīlamaṇi,* by Śrīla Rūpa Gosvāmī.
+This is a quotation from *Ujjvala-nīlamaṇi,* by Śrīla Rūpa Gosvāmī.

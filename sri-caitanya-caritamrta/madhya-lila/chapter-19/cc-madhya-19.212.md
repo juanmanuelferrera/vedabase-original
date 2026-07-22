@@ -12,4 +12,4 @@
 
 **"These are the words of the Supreme Personality of Godhead: 'When one's intelligence is fully attached to My lotus feet but one does not render practical service, one has attained the stage called śānta-rati, or śama. Without śānta-rati, attachment to Kṛṣṇa is very difficult to achieve.'**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (3.1.47).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (3.1.47).

@@ -8,4 +8,4 @@
 
 *caitanya-gosāñira*—of Lord Śrī Caitanya Mahāprabhu; *līlā*—the pastimes; *ananta*—unlimited; *apāra*—without end; *sahasra-vadana*—Lord Śeṣa, who has thousands of hoods; *yāra*—of which; *nāhi*—not; *pāya*—gets; *pāra*—the limit.
 
-**CHAPTER 15 The Lord Caitanya are unlimited and endless. Even Sahasravadana, Lord Śeṣa, cannot reach the limits of His pastimes.**
+**The pastimes of Lord Caitanya are unlimited and endless. Even Sahasravadana, Lord Śeṣa, cannot reach the limits of His pastimes.**

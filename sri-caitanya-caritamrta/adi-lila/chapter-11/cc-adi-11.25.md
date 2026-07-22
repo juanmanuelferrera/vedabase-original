@@ -10,4 +10,4 @@
 
 **Sūryadāsa Sarakhela and his younger brother Kṛṣṇadāsa Sarakhela both possessed firm faith in Nityānanda Prabhu. They were a reservoir of love of Godhead.**
 
-In the *Bhakti-ratnākara* (Twelfth Wave), it is stated that a few miles from Navadvīpa is a place called Śāligrāma that was the residence of Sūryadāsa Sarakhela. He was employed as a secretary in the Muslim government of that time, and thus he amassed a good fortune. Sūryadāsa had four brothers, all of whom were pure Vaiṣṇavas. Vasudhā and Jāhnavā were two daughters of Sūryadāsa Sarakhela.
+In the *Bhakti-ratnākara*, Chapter Twelve, it is stated that a few miles from Navadvīpa is a place called Śāligrāma that was the residence of Sūryadāsa Sarakhela. He was employed as a secretary of the Mohammedan government of that time, and thus he amassed a good fortune. Sūryadāsa had four brothers, all of whom were pure Vaiṣṇavas. Vasudhā and Jāhnavā were two daughters of Sūryadāsa Sarakhela.

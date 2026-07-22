@@ -12,7 +12,7 @@
 
 In this connection, *śruti-dhara* is a very important word. *Śruti* means "hearing" and *dhara* means "one who can capture." Formerly, before the beginning of Kali-yuga, almost everyone, especially among the intelligent men, the *brahmaṇas,* was a *śruti-dhara.* As soon as a student heard any of the Vedic wisdom from his master, he would remember it forever. There was no need to refer to books, and therefore there were no written books in those days. The spiritual master delivered the Vedic hymns and their explanations to the student, who would then remember them forever, without consulting books.
 
-To become a *śruti-dhara,* one who can remember simply by hearing, is a great achievement for a student. In the *Bhagavad-gītā* [[bg/10/41|(Bg. 10.41)]] the Lord says:
+To become a *śruti-dhara,* one who can remember simply by hearing, is a great achievement for a student. In *Bhagavad-gītā* [[bg/10/41|(Bg. 10.41)]] the Lord says:
 
 > yad yad vibhūtimat sattvaṁ
 > śrīmad ūrjitam eva vā

@@ -10,7 +10,7 @@
 
 **"The man to whom the Lord shows His mercy by inspiring him within the heart takes shelter only of Lord Kṛṣṇa and abandons all Vedic and social customs.**
 
-This is also the teaching of Lord Kṛṣṇa in the *Bhagavad-gītā* [[bg/18/66|(Bg. 18.66)]]:
+This is also the teaching of *Bhagavad-gītā*:
 
 > sarva-dharmān parityajya
 > mām ekaṁ śaraṇaṁ vraja

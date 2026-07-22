@@ -12,4 +12,4 @@
 
 **“ 'Dhṛti is the fullness felt by the absence of misery and brought about by receiving knowledge of the Supreme Lord and by obtaining pure love for Him. The lamentation that accrues from not obtaining a goal or by loss of something already attained does not affect this completeness.'**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (2.4.144).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (2.4.144).

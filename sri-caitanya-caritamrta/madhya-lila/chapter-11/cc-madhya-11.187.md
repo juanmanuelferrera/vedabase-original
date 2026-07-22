@@ -19,4 +19,4 @@ The Māyāvādī philosophers say that the living entity and the Supreme Lord ar
 
 "As all surrender unto Me, I reward them accordingly. Everyone follows My path in all respects, O son of Pṛthā."
 
-The Lord is always eager to congratulate the servant because of the servant's transcendental quality. The servant pleasingly renders service unto the Lord, and the Lord also very pleasingly reciprocates, rendering even more service unto the servant.
+The Lord is always eager to congratulate the servant because of the servant's transcendental quality. The servant pleasingly renders service unto the Lord, and the Lord also very pleasingly reciprocates, rendering even more than the servant.

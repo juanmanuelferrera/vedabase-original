@@ -10,4 +10,4 @@
 
 **When King Pratāparudra returned to Jagannātha Purī, Rāmānanda Rāya also came with him. Rāmānanda Rāya immediately went to meet Śrī Caitanya Mahāprabhu with great pleasure.**
 
-All Indian kings are given titles. Sometimes they are known as Chatrapati, sometimes as Narapati, sometimes as Aśvapati, and so on. The King of Orissa is addressed as Gajapati.
+All Indian kings are given titles. Sometimes they are known as Chatrapati, sometimes Narapati and sometimes Aśvapati. The King of Orissa is addressed as Gajapati.

@@ -8,4 +8,4 @@
 
 *kṛṣṇa-sphūrtye*—by revelation of Lord Kṛṣṇa; *tāṅra*—his; *mana*—mind; *hañāche*—did become; *nirmala*—purified; *ataeva*—therefore; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *tattva*—truth; *jānila*—could understand; *sakala*—all.
 
-**The mind of the brāhmaṇa was purified by the revelation of Lord Kṛṣṇa, and therefore he could understand the truth of Śrī Caitanya Mahāprabhu in all details.**
+**The brāhmaṇa's mind was purified by the revelation of Lord Kṛṣṇa, and therefore he could understand the truth of Śrī Caitanya Mahāprabhu in all details.**

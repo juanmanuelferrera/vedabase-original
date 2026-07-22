@@ -10,4 +10,4 @@
 
 **Thus walking and walking, the Lord eventually arrived at the place known as Āṭhāranālā. Arriving there, He expressed His external consciousness, speaking to Śrī Nityānanda Prabhu.**
 
-At the entrance of Jagannātha Purī is a bridge with eighteen arches called Āṭhāranālā. (*Āṭhāra* means eighteen.)
+There is a bridge situated at the entrance of Jagannātha Purī called Āṭhāranālā which has eighteen arches. *Āṭhāra* means eighteen.

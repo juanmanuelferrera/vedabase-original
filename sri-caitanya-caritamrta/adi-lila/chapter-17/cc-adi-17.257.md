@@ -10,7 +10,7 @@
 
 **When all the students thus resolved, criticizing Śrī Caitanya Mahāprabhu, their intelligence was spoiled. Thus although they were learned scholars, because of this offense the essence of knowledge was not manifest in them.**
 
-In the *Bhagavad-gītā* it is said, *māyayāpahṛta-jñānā āsuraṁ bhāvam āśritāḥ:* when one becomes inimical to the Supreme Personality of Godhead, adopting an atheistic attitude (*āsuraṁ bhāvam*), even if one is a learned scholar the essence of knowledge does not become manifest in him; in other words, the essence of his knowledge is stolen by the illusory energy of the Lord. In this connection Śrī Bhaktisiddhānta Sarasvatī Ṭhākura quotes a *mantra* from the *Śvetāśvatara Upaniṣad* (6.23):
+In *Bhagavad-gītā* it is said, *māyayāpahṛta-jñānā āsuraṁ bhāvam āśritāḥ:* when one becomes inimical to the Supreme Personality of Godhead, adopting an atheistic attitude (*āsuraṁ bhāvam*), even if one is a learned scholar the essence of knowledge does not become manifest in him; in other words, the essence of his knowledge is stolen by the illusory energy of the Lord. In this connection Śrī Bhaktisiddhānta Sarasvatī Ṭhākura quotes a *mantra* from the *Śvetāśvatara Upaniṣad*:
 
 > yasya deve parā bhaktir
 > yathā deve tathā gurau

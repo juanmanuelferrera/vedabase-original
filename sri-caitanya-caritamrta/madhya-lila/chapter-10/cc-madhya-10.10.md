@@ -9,4 +9,4 @@
 
 **The King asked, "Why has He left Jagannātha Purī?"**
 
-**The Bhaṭṭācārya replied, "Such are the pastimes of a great personality.**
+**Bhaṭṭācārya replied, "Such are the pastimes of a great personality.**

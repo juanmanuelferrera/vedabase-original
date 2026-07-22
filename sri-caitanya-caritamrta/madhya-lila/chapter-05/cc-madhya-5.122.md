@@ -8,4 +8,4 @@
 
 *puruṣottama-deva*—King Puruṣottama-deva; *sei*—that; *baḍa*—very great; *bhakta*—devotee; *ārya*—Āryan; *gopāla-caraṇe*—at the lotus feet of Gopāla; *māge*—begs; *cala*—please come; *mora*—my; *rājya*—to the kingdom.
 
-**King Puruṣottama-deva was a great devotee and was advanced in the civilization of the Āryans. He begged at the lotus feet of Gopāla, "Please come to my kingdom."**
+**That King became known as Puruṣottama-deva. He was a great devotee and was advanced in the civilization of the Āryans. He begged at the lotus feet of Gopāla, "Please come to my kingdom."**

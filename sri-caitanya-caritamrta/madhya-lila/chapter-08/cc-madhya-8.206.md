@@ -14,4 +14,4 @@
 
 **“ 'The pastimes of Śrī Rādhā and Kṛṣṇa are self-effulgent. They are happiness personified, unlimited and all-powerful. Even so, the spiritual humors of such pastimes are never complete without the gopīs, the Lord's personal friends. The Supreme Personality of Godhead is never complete without His spiritual potencies; therefore unless one takes shelter of the gopīs, one cannot enter into the company of Rādhā and Kṛṣṇa. Who can be interested in Their spiritual pastimes without taking their shelter?'**
 
-This is a quotation from the *Govinda-līlāmṛta* (10.17).
+This is a quotation from *Govinda-līlāmṛta* (10.17).

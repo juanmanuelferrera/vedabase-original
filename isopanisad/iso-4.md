@@ -8,7 +8,7 @@
 > tad dhāvato 'nyān atyeti tiṣṭhat\
 > tasminn apo mātariśvā dadhāti
 
-*anejat*—fixed; *ekam*—one; *manasaḥ*—than the mind; *javīyaḥ*—more swift; *na*—not; *enat*—this Supreme Lord; *devāḥ*—the demigods like Indra, etc.; *āpnuvan*—can approach; *pūrvam*—in front; *arṣat*—moving quickly; *tat*—He; *dhāvataḥ*—those who are running; *anyān*—others; *atyeti*—surpasses; *tiṣṭhat*—remaining in one place; *tasmin*—in Him; *apaḥ*—rain; *mātariśvā*—the gods who control the wind and rain; *dadhāti*—supply.
+*anejat*—fixed; *ekam*—one; *manasaḥ*—more than the mind; *javīyaḥ*—speedy; *na*—not; *enat*—this Supreme Lord; *devāḥ*—the demigods like Indra, etc.; *āpnuvan*—can approach; *pūrvam*—the first of all; *arṣat*—one who knows everything; *tat*—that; *dhāvataḥ*—those who are running; *anyān*—others; *atyeti*—surpasses; *tiṣṭhat*—although placed; *tasmin*—in one place; *apaḥ*—water; *mātariśvā*—the gods who control the wind and rain; *dadhāti*—supply.
 
 **The Personality of Godhead, although fixed in His Abode, is more swift than the mind, and can overcome all others running. The powerful demigods cannot approach Him. Although in one place, He has control over those who supply the air and rain. He surpasses all in excellence.**
 

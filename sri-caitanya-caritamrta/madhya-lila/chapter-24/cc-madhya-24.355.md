@@ -10,4 +10,4 @@
 
 **Praying at the lotus feet of Śrī Rūpa and Śrī Raghunātha, always desiring their mercy, I, Kṛṣṇadāsa, narrate Śrī Caitanya-caritāmṛta, following in their footsteps.**
 
-*Thus end the Bhaktivedanta purports to Śrī Caitanya-caritāmṛta, Madhya-līlā,  Twenty-fourth Chapter, describing the ātmārāma verse and the Lord's mercy upon Sanātana Gosvāmī.*
+*Thus end the Bhaktivedanta purports to Śrī Caitanya-caritāmṛta, Madhya-līlā,  Chapter Twenty-four, describing the ātmārāma verse and the Lord's mercy upon Sanātana Gosvāmī.*

@@ -12,4 +12,4 @@
 
 **“ 'The Supreme Personality of Godhead is eternally enjoying Himself, and He is the shelter of all kinds of devotional service. Although His ages are various, His age known as kiśora [pre-youth] is best of all.'**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (2.1.63).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (2.1.63).

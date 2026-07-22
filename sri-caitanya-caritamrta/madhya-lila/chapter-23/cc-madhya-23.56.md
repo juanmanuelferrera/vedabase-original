@@ -10,12 +10,12 @@
 
 **"There are two divisions of each of the five mellows-yoga [connection] and viyoga [separation]. Among the mellows of friendship and parental affection, there are many divisions of connection and separation.**
 
-In the *Bhakti-rasāmṛta-sindhu,* these divisions are described:
+In *Bhakti-rasāmṛta-sindhu,* these divisions are described:
 
 > ayoga-yogāvetasya
 > prabhedau kathitāv ubhau
 
-In the mellows of *bhakti-yoga,* there are two stages—*ayoga* and *yoga. Ayoga* is described in the *Bhakti-rasāmṛta-sindhu:*
+In the mellows of *bhakti-yoga,* there are two stages—*ayoga* and *yoga. Ayoga* is described in *Bhakti-rasāmṛta-sindhu:*
 
 > saṅgābhāvo harer dhīrair
 > ayoga iti kathyate

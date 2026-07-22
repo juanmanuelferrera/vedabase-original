@@ -12,4 +12,4 @@
 
 **“ 'When one becomes attached to the Supreme Personality of Godhead, his natural inclination to love is fully absorbed in thoughts of the Lord. That is called transcendental attachment, and devotional service according to that attachment is called rāgātmikā, or spontaneous devotional service.'**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (1.2.272).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (1.2.272).

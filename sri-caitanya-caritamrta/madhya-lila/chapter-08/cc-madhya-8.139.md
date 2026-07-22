@@ -10,7 +10,7 @@
 
 **"The very name Kṛṣṇa means that He attracts even Cupid. He is therefore attractive to everyone-male and female, moving and inert living entities. Indeed, Kṛṣṇa is known as the all-attractive one.**
 
-Just as there are many orbs in the material world called stars or planets, in the spiritual world there are many spiritual planets called Vaikuṇṭhalokas. The spiritual universe, however, is situated far, far away from the cluster of material universes. Material scientists cannot even estimate the number of planets and stars within this universe. They are also incapable of traveling to other stars by spaceship. According to the *Bhagavad-gītā* [[bg/8/20|(Bg. 8.20)]], there is also a spiritual world:
+Just as there are many orbs in the material world called stars or planets, in the spiritual world there are many spiritual planets called Vaikuṇṭhalokas. The spiritual universe, however, is situated far, far away from the cluster of material universes. Material scientists cannot even estimate the number of planets and stars within this universe. They are also incapable of traveling to other stars by spaceships. According to *Bhagavad-gītā* [[bg/8/20|(Bg. 8.20)]], there is also a spiritual world:
 
 > paras tasmāt tu bhāvo 'nyo
 > 'vyakto 'vyaktāt sanātanaḥ
@@ -28,7 +28,7 @@ Thus there is another nature, which is superior to material nature. The word *bh
 
 "I worship Govinda, the primeval Lord. He resides in His own realm, Goloka, with Rādhā, who resembles His own spiritual figure and who embodies the ecstatic potency (*hlādinī*). Their companions are Her confidantes, who embody extensions of Her bodily form and who are imbued and permeated with ever-blissful spiritual *rasa.*"
 
-The *gopīs* are also of the same spiritual quality (*nija-rūpatayā*) because they are expansions of Kṛṣṇa's pleasure potency. Neither Kṛṣṇa nor the *gopīs* have anything to do with lumps of matter or the material conception. In the material world the living entity is encaged within a material body, and due to ignorance he thinks that he is the body. . Therefore here the enjoyment of lusty desires between male and female is all material. One cannot compare the lusty desires of a materialistic man to the transcendental lusty desires of Kṛṣṇa. Unless one is advanced in spiritual science, he cannot understand the lusty desires between Kṛṣṇa and the *gopīs.* In the *Caitanya-caritāmṛta* the lusty desire of the *gopīs* is compared to gold. The lusty desires of a materialistic man, on the other hand, are compared to iron. At no stage can iron and gold be compared. The living entities-moving and nonmoving-are part and parcel of Kṛṣṇa; therefore they originally have the same kind of lusty desire as His. But when this lusty desire is expressed through matter, it is abominable. When a living entity is spiritually advanced and liberated from material bondage, he can understand Kṛṣṇa in truth. As stated in the *Bhagavad-gītā* [[bg/4/9|(Bg. 4.9)]]:
+The *gopīs* are also of the same spiritual quality (*nija-rūpatayā*) because they are expansions of Kṛṣṇa's pleasure potency. Neither Kṛṣṇa nor the *gopīs* have anything to do with lumps of matter or the material conception. In the material world the living entity is encaged within a material body, and due to ignorance he thinks that he is the body. Lusty desire, enjoyment between male and female, is all material. One cannot compare the lusty desires of a materialistic man to the lusty desires of Kṛṣṇa. Unless one is advanced in spiritual science, he cannot understand the lusty desires between Kṛṣṇa and the *gopīs.* In *Caitanya-caritāmṛta* the lusty desire of the *gopīs* is compared to gold. The lusty desires of a materialistic man, on the other hand, are compared to iron. At no stage can iron and gold be compared. The living entities-moving and nonmoving-are part and parcel of Kṛṣṇa; therefore they originally have the same kind of lusty desire. However, when this lusty desire is expressed through matter, it is abominable. When a living entity is spiritually advanced and liberated from material bondage, he can understand Kṛṣṇa in truth. As stated in the *Bhagavad-gītā* [[bg/4/9|(Bg. 4.9)]]:
 
 > janma karma ca me divyam
 > evaṁ yo vetti tattvataḥ
@@ -60,11 +60,11 @@ When a person in this material world desires only to serve Kṛṣṇa with love
 > sa guṇān samatītyaitān
 > brahma-bhūyāya kalpate
 
-"One who engages in full devotional service, unfailing in all circumstances, at once transcends the modes of material nature and thus comes to the level of Brahman."
+"One who engages in full devotional service, who does not fall down in any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman."
 
 Simply by engaging in the loving service of the Lord one can attain liberation. As stated in the *Bhagavad-gītā* [[bg/18/54|(Bg. 18.54)]]: *brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati.* A person who is highly advanced in spiritual knowledge and who has attained the *brahma-bhūta* stage neither laments nor hankers for anything material. That is the stage of spiritual realization.
 
-Śrīla Bhaktivinoda Ṭhākura considered the *brahma-bhūta* stage in two divisions—*svarūpa-gata* and *vastu-gata.* one who has understood Kṛṣṇa in truth but is still maintaining some material connection is known to be situated in his*svarupa,* his original consciousness. When that original consciousness is completely spiritual, it is called Kṛṣṇa consciousness. One who lives in such consciousness is actually living in Vṛndāvana. He may live anywhere; material location doesn't matter. When by the grace of Kṛṣṇa one thus advances, he becomes completely uncontaminated by the material body and mind and at that time factually lives in Vṛndāvana. That stage is called *vastu-gata.*
+Śrīla Bhaktivinoda Ṭhākura considered the *brahma-bhūta* stage in two divisions—*svarūpa-gata* and *vastu-gata.* When one has understood Kṛṣṇa in truth but is still maintaining some material connection is known to be situated in his*svarupa,* his original consciousness. When that original consciousness is completely spiritual, it is called Kṛṣṇa consciousness. One who lives in such consciousness is actually living in Vṛndāvana. He may live anywhere; material location doesn't matter. When by the grace of Kṛṣṇa one thus advances, he becomes completely uncontaminated by the material body and mind and at that time factually lives in Vṛndāvana. That stage is called *vastu-gata.*
 
 One should execute his spiritual activities in the *svarūpa-gata* stage of consciousness. He should also chant the *cin-mayī* Gāyatrī, the spiritual *mantras: oṁ namo bhagavate vāsudevāya, klīṁ kṛṣṇāya govindāya gopījana-vallabhāya svāhā,* and *klīṁ kāma-devāya vidmahe puṣpa-bāṇāya dhīmahi tan no 'naṅgaḥ pracodayāt.* These are the Kāma-gāyatrī or *kāma-bīja mantras.* One should be initiated by a bona fide spiritual master and worship Kṛṣṇa with these transcendental *mantras,* known as Kāma-gāyatrī or *kāma-bīja.*
 
@@ -78,7 +78,7 @@ As explained by Kṛṣṇadāsa Kavirāja Gosvāmī in the previous verse and t
 
 (Cc. Madhya 8.138-139)
 
-A person who is properly purified and initiated by the spiritual master worships the Supreme Personality of Godhead, Kṛṣṇa, by chanting this *mantra,* the Kāma-gāyatrī with the *kāma-bīja.* As the *Bhagavad-gītā* [[bg/18/65|(Bg. 18.65)]] confirms, one should engage in transcendental worship in order to be fit for being attracted by Kṛṣṇa, the all-attractive.
+A person who is properly purified and initiated by the spiritual master worships the Supreme Personality of Godhead, Kṛṣṇa, by this *mantra.* He chants the *kāma-gāyatrī* with the *kāma-bīja.* As *Bhagavad-gītā* [[bg/18/65|(Bg. 18.65)]] confirms, one should engage in transcendental worship in order to be fit for being attracted by Kṛṣṇa, the all-attractive.
 
 > man-manā bhava mad-bhakto
 > mad-yājī māṁ namaskuru
@@ -87,4 +87,4 @@ A person who is properly purified and initiated by the spiritual master worships
 
 "Always think of Me and become My devotee. Worship Me and offer your homage unto Me. Thus you will come to Me without fail. I promise you this because you are My very dear friend."
 
-Since every living entity is part and parcel of Kṛṣṇa, Kṛṣṇa is naturally attractive. Due to material covering, one's attraction for Kṛṣṇa is checked. One is not usually attracted by Kṛṣṇa in the material world, but as soon as one is liberated from material conditioning, he is naturally attracted. Therefore it is said in this verse, *sarva-cittākarṣaka:* "Everyone is naturally attracted by Kṛṣṇa." This attraction is within everyone's heart, and when the heart is cleansed, that attraction is manifest (*ceto-darpaṇa-mārjanaṁ bhava-mahā-dāvāgni-nirvāpaṇam*).
+Since every living entity is part and parcel of Kṛṣṇa, Kṛṣṇa is naturally attractive. Due to material covering, one's attraction for Kṛṣṇa is checked. One is not usually attracted by Kṛṣṇa in the material world, but as soon as one is liberated from material conditioning, he is naturally attracted. Therefore it is said in this verse, *sarva-cittākarṣaka:* "Everyone is naturally attracted by Kṛṣṇa." This attraction is within everyone's heart, and when the heart is cleansed, attraction is manifest (*ceto-darpaṇa-mārjanaṁ bhava-mahā-dāvāgni-nirvāpaṇam*).

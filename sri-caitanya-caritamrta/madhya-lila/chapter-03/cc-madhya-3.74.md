@@ -12,4 +12,4 @@
 
 According to *Śrīmad-Bhāgavatam* (11.18.19):
 
-"A *sannyāsī* should take whatever edibles he gets from a householder's house, outside near some lake or river, and after offering the food to Viṣṇu, Brahmā and the sun (three divisions), he should eat the entire offering and not leave anything for others to eat."
+"Whatever a *sannyāsī* gets that is edible from a householder's house, he should take outside near some lake or river, and, after offering it to Viṣṇu, Brahmā and the sun (three divisions), he should eat the entire offering and should not leave anything for others to eat."

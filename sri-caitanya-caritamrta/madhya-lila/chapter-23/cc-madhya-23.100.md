@@ -12,4 +12,4 @@
 
 **“ 'Nondevotees cannot understand the transcendental mellows experienced between the devotee and the Lord. In all respects, this is very difficult, but one who has dedicated everything to the lotus feet of Kṛṣṇa can taste the transcendental mellows.'**
 
-This verse is also found in the *Bhakti-rasāmṛta-sindhu* (2.5.131).
+This verse is also found in *Bhakti-rasāmṛta-sindhu* (2.5.131).

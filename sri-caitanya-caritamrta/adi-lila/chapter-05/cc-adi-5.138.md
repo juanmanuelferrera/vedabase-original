@@ -12,4 +12,4 @@
 
 **"Acting just like ordinary boys, They played like roaring bulls as They fought each other, and They imitated the calls of various animals."**
 
-This and the following quotation are from the *Bhāgavatam* (10.11.40 and 10.15.14).
+This and the following quotations are from *Bhāgavatam* (10.11.40) and (10.15.14).

@@ -19,4 +19,4 @@ A devotee with Mahārāja Pratāparudra's determination will certainly be victor
 
 "Always chanting My glories, endeavoring with great determination, bowing down before Me, these great souls perpetually worship Me with devotion."
 
-These are the symptoms of a *mahātmā* engaged in the Lord's service in full Kṛṣṇa consciousness. Thus Mahārāja Pratāparudra's determination is very much exalted and is called *dṛḍha-vrata.* Because of this determination, he was finally able to receive Lord Caitanya's direct mercy.
+These are the symptoms of a *mahātmā* engaged in the Lord's service in full Kṛṣṇa consciousness. Thus Mahārāja Pratāparudra's determination is very exalted and is called *dṛḍha-vrata.* Because of this determination, he was finally able to receive Lord Caitanya's direct mercy.

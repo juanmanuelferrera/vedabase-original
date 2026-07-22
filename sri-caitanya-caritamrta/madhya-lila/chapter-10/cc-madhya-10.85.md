@@ -8,4 +8,4 @@
 
 *śuniyā*—hearing; *sabāra*—of everyone; *haila*—there was; *parama ullāsa*—great ecstasy; *sabe meli'*—all together; *gelā*—went; *śrī-advaitera pāśa*—to the house of Śrī Advaita Ācārya.
 
-**Everyone was very much pleased, and they all gathered together at the house of Advaita Ācārya.**
+**Everyone was very much pleased, and together they arrived at the house of Advaita Ācārya.**

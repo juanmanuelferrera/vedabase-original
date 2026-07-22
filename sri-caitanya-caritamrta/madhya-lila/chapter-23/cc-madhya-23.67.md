@@ -12,4 +12,4 @@
 
 **“ 'Kṛṣṇa is the Supreme Personality of Godhead Himself, and He is the crown jewel of all heroes. In Kṛṣṇa, all transcendental good qualities are permanently situated.'**
 
-This verse is also found in the *Bhakti-rasāmṛta-sindhu* (2.1.17).
+This verse is also found in *Bhakti-rasāmṛta-sindhu* (2.1.17).

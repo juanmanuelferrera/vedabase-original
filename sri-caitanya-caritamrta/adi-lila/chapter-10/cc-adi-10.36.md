@@ -10,4 +10,4 @@
 
 **Nārāyaṇa Paṇḍita, the fourteenth branch, a great and liberal devotee, did not know any shelter but Lord Caitanya's lotus feet.**
 
-Nārāyaṇa Paṇḍita was one of the associates of Śrīvāsa Ṭhākura. It is mentioned in the *Caitanya-bhāgavata,* Ninth Chapter, verse 93, that he went to see Śrī Caitanya Mahāprabhu at Jagannātha Purī with Ṭhākura's brother Śrī Rāma Paṇḍita.
+Nārāyaṇa Paṇḍita was one of the associates of Śrīvāsa Ṭhākura. It is mentioned in *Caitanya-bhāgavata,* Ninth Chapter, verse 93, that he went to see Śrī Caitanya Mahāprabhu at Jagannātha Purī with Ṭhākura's brother Śrī Rāma Paṇḍita.

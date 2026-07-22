@@ -19,4 +19,4 @@ According to *Śrīmad-Bhāgavatam* (10.47.61):
 > yā dustyajaṁ sva-janam ārya-pathaṁ ca hitvā
 > bhejur mukunda-padavīṁ śrutibhir vimṛgyām
 
-"Let me become one of the herbs and plants that are trampled by the gopīs, who gave up all connections with family and friends and decided to worship the lotus feet of Mukunda. Those lotus feet are sought by all great saintly persons expert in the study of Vedic literature.' "
+"Let me become one of the herbs and plants of Vṛndāvana that the gopīs trample, giving up all connections with family and friends and deciding to worship the lotus feet of Mukunda. Those lotus feet are sought by all great saintly persons expert in the study of Vedic literature.' "

@@ -10,7 +10,7 @@
 
 **"Spiritual substance is never within the jurisdiction of the material conception. This is always the verdict of the Vedas and Purāṇas."**
 
-As stated in the *Kaṭha Upaniṣad* (2.3.9, 12):
+As stated in *Kaṭha Upaniṣad* (2.3.9, 12):
 
 > na saṁdṛśe tiṣṭhati rūpam asya
 > na cakṣuṣā paśyati kaścanainam
@@ -31,4 +31,4 @@ Similarly, *Śrīmad-Bhāgavatam* (10.84.13) states:
 
 "A human being who identifies his body made of three elements with his self, who considers the by-products of his body to be his kinsmen, who considers the land of his birth worshipable, and who goes to a place of pilgrimage simply to take a bath rather than to meet men of transcendental knowledge there, is to be considered like an ass or a cow."
 
-These are some Vedic statements about spiritual substance. Spiritual substance cannot be seen by the unintelligent, because they do not have the eyes or the mentality to see the spirit soul. Consequently they think that there is no such thing as spirit. But the followers of the Vedic injunctions take their information from Vedic statements, such as the verses from the *Kaṭha Upaniṣad* and *Śrīmad-Bhāgavatam* quoted above.
+These are some Vedic statements about spiritual substance. Spiritual substance cannot be seen by the unintelligent, because they do not have the eyes or the mentality to see spirit soul. Consequently they think that there is no such thing as spirit. However, followers of the Vedic injunctions take their information from Vedic statements, such as the verses from the *Kaṭha Upaniṣad* and *Śrīmad-Bhāgavatam* quoted above.

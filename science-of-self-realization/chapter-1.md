@@ -4,7 +4,7 @@
 
 ## Discovering the Self
 
-Who are you?... Are you your body? Or your mind? Or are you something higher? Do you know who you are, or do you merely think you know? And does it really matter? Our materialistic society, with its unenlightened leadership, has made it virtually taboo to inquire into our real, higher self. Instead we use our valuable time maintaining, decorating, and pampering the body for its own sake. Might there be an alternative?
+"At present, human society is being misled by leaders who are blind, for they do not know the aim and objective of human life, which is self-realization and the reestablishment of our lost relationship with the Supreme Personality of Godhead. . . . The Kṛṣṇa consciousness movement is trying to enlighten human society in this important matter."
 
 This very important Kṛṣṇa consciousness movement is meant to save human society from spiritual death. At present human society is being misled by leaders who are blind, for they do not know the aim and objective of human life, which is self-realization and the reestablishment of our lost relationship with the Supreme Personality of Godhead. That is the missing point. The Kṛṣṇa consciousness movement is trying to enlighten human society in this important matter.
 
@@ -46,7 +46,7 @@ The Kṛṣṇa consciousness movement is trying to bring that spiritual existen
 
 ## What Is Kṛṣṇa Consciousness?
 
-The following interview with freelance reporter Sandy Nixon took place in July 1975, in Śrīla Prabhupāda's quarters at the Kṛṣṇa center in Philadelphia. This discussion serves as a superb introduction to Kṛṣṇa consciousness and covers such basic topics as the Hare Kṛṣṇa *mantra,* the relationship between the spiritual master and God, the difference between genuine and fake *gurus,* the role of women in Kṛṣṇa consciousness, the Indian caste system, and the relationship between Christ consciousness and Kṛṣṇa consciousness.
+"Your original consciousness is Kṛṣṇa consciousness," Śrīla Prabhupāda tells freelance reporter Sandy Nixon. "Now your consciousness is covered with so much rubbish. You have to cleanse it, and then—Kṛṣṇa consciousness. Our consciousness is like water. Water is by nature clear and transparent, but sometimes it becomes muddy. If you filter all the mud out of the water, it again comes to its original clear, transparent state."
 
 **Ms. Nixon:**
 My first question is very basic. What is Kṛṣṇa consciousness?
@@ -201,7 +201,7 @@ Hare Kṛṣṇa!
 
 ## A Definition of God
 
-Modern man's concepts of God are many and varied. Children tend to imagine an old man with a white beard. Many adults regard God as an invisible force or a mental concept or as all humanity, the universe, or even oneself. In this lecture, Śrīla Prabhupāda describes in detail the Kṛṣṇa consciousness concept—a surprisingly intimate view of God.
+"The purpose of this Kṛṣṇa consciousness movement is to propagate God's name, God's glories, God's activities, God's beauty, and God's love. . . . This Kṛṣṇa consciousness movement is meant to give perfect knowledge to human society."
 
 Ladies and gentlemen, I thank you very much for kindly participating in this Kṛṣṇa consciousness movement. When this society was registered in 1966 in New York, a friend suggested that it be named the Society for God Consciousness. He thought that the name Kṛṣṇa was sectarian. The dictionary also says that Kṛṣṇa is a Hindu god's name. But in actuality, if any name can be attributed to God, it is "Kṛṣṇa."
 
@@ -278,7 +278,7 @@ Real advancement means knowing God. If we are lacking knowledge of God, we are n
 
 ## Reincarnation and Beyond
 
-In August of 1976, Śrīla Prabhupāda spent a few weeks at Bhaktivedanta Manor, fifteen miles north of London. During that time Mike Robinson of London Broadcasting Company interviewed him in his quarters. In their conversation, which was broadcast shortly afterward, Śrīla Prabhupāda revealed that Kṛṣṇa consciousness is "not some ritualistic ceremony of 'I believe, you believe,' " but a profound philosophical system in which the science of reincarnation is explained clearly and concisely.
+Mike Robinson, an interviewer for London Broadcasting Company, inquires about the science of the soul: Have we been here before? Will we be back again, or . . . ? Śrīla Prabhupāda calls upon the age-old Vedic literatures for some striking answers.
 
 **Mike Robinson:**
 Can you tell me what you believe—what the philosophy of the Hare Kṛṣṇa movement is?
@@ -586,7 +586,7 @@ Hare Kṛṣṇa.
 
 ## Truth and Beauty
 
-*Śrīla Prabhupāda first published this essay in India, in the old tabloid version of Back to Godhead (November 20, 1958), Śrīla Prabhupāda tells the unforgettable story of "liquid beauty," in which Śrīla Prabhupāda dramatically exposes the underlying principle of human sexuality. This illuminating exposition on the nature of truth and beauty is timeless and startlingly relevant for those in search of the "inner self."*
+*"Beauty is truth, truth beauty," said Keats. "That is all ye know on earth, and all ye need to know." Or is it? In this charming yet cutting essay, which first appeared in the old tabloid version of* Back to Godhead *(November 20, 1958), Śrīla Prabhupāda tells the unforgettable story of "liquid beauty."*
 
 There may sometimes be arguments about whether "truth" and "beauty" are compatible terms. One would willingly agree to express the truth, one might say, but since truth is not always beautiful—indeed, it is frequently rather startling and unpleasant—how is one to express truth and beauty at the same time?
 
@@ -616,7 +616,7 @@ Although written by the greatest mundane poet or intellectual, any literature wh
 
 ## The Art of Dying
 
-*Although the media are generally obsessed with violence and death, our perception of death and dying is superficial. Śrīla Prabhupāda observes, "As long as a man is in the full vigor of life, he forgets the naked truth of death, which he has to meet." How can we effectively deal with our own death? In this essay (which first appeared in the old tabloid Back to Godhead, this time dated April 20, 1960) Śrīla Prabhupāda explains how the ancient teachings of Śrīmad-Bhāgavatam provide a practical answer.*
+*Again in the old tabloid* Back to Godhead, *this time dated April 20, 1960, Śrīla Prabhupāda talks about the science of the soul: ". . . since a human being is a rational animal, he is born to make inquiries and questions. The greater the number of questions, the greater the advancement of knowledge and science. . . . The most intelligent man, however, inquires about what happens after death. . . ."*
 
 A small child walking with his father goes on inquiring constantly. He asks his father so many odd things, and the father has to satisfy him with proper answers. When I was a young father in my householder life, I was overflooded with hundreds of questions from my second son, who was my constant companion. One day it so happened that a bridegroom's party was passing our tramcar, and the four-year-old boy, as usual, inquired what the big procession was. He was given all possible answers to his thousand and one questions regarding the marriage party, and finally he asked whether his own father was married! This question gave rise to loud laughter from all the elderly gentlemen present, although the boy was perplexed as to why we were laughing. Anyway, the boy was somehow satisfied by his married father.
 
@@ -673,6 +673,6 @@ In a public vehicle like a railway carriage, we meet and sit down together with 
 
 ## Soul Research
 
-*In 1972, a distinguished panel met in Windsor, Ontario, and discussed "problems associated with attempts to define the exact moment of death." Panel members included world-famous heart surgeon Dr. Wilfred G. Bigelow, Mr. Justice Edson L. Haines of the Ontario Supreme Court, and J. Francis Leddy, president of the University of Windsor. Dr. Bigelow upheld the existence of the soul and urged systematic research to determine what the soul is and where it comes from. Dr. Bigelow's and other panelists' comments were later published in the* Montreal Gazette. *When the article came to the attention of Śrīla Prabhupāda, he wrote a letter to Dr. Bigelow offering substantial Vedic knowledge of the science of the soul and suggested a practical method for scientifically understanding it. The* Gazette *article and Śrīla Prabhupāda's response follow.*
+*Śrīla Prabhupāda writes a letter to noted cardiologist Dr. Wilfred G. Bigelow: "The central question, you say, is 'Where is the soul, and where does it come from?' That is not difficult to understand. . . ."*
 
 *Gazette* Headline:

@@ -14,4 +14,4 @@
 
 **In the attitude of Rādhārāṇī, Śrī Caitanya Mahāprabhu addressed the gopīs, " 'My dear friends, where is that Kṛṣṇa, Cupid personified, who has the effulgence of a kadamba flower, who is sweetness itself, the nectar of My eyes and mind, He who loosens the hair of the gopīs, who is the supreme source of transcendental bliss and My life and soul? Has He come before My eyes again?' "**
 
-This is another verse from the *Kṛṣṇa-karṇāmṛta* (68).
+This is another verse from *Kṛṣṇa-karṇāmṛta* (68).

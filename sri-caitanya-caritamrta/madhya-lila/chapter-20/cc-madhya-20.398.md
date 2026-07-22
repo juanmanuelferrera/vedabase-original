@@ -10,4 +10,4 @@
 
 **"Kṛṣṇa is complete in the spiritual sky [Vaikuṇṭha]. He is more complete in Mathurā and Dvārakā, and He is most complete in Vṛndāvana, Vraja, due to His manifesting all His opulences.**
 
-This is confirmed in the following three verses from the *Bhakti-rasāmṛta-sindhu* (2.1.221-223).
+This is confirmed in the following three verses from *Bhakti-rasāmṛta-sindhu* (2.1.221-223).

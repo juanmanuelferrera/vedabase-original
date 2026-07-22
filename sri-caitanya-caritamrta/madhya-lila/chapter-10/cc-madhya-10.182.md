@@ -10,4 +10,4 @@
 
 **Śrī Caitanya Mahāprabhu said, "Sārvabhauma Bhaṭṭācārya, what are you saying? Lord Viṣṇu, save Me! Such glorification is simply another form of blasphemy."**
 
-Śrī Caitanya Mahāprabhu was a little embarrassed by the Bhaṭṭācārya's statement; therefore He uttered the name Viṣṇu to save Himself. The Lord herein confirms that if one is overestimated, glorification is just another form of blasphemy. In this way He protests this so-called offensive statement.
+Śrī Caitanya Mahāprabhu was a little embarrassed by Bhaṭṭācārya's statement; therefore He uttered the name Viṣṇu to save Himself. The Lord herein confirms that if one is overestimated, glorification is just another form of blasphemy. In this way He protests this so-called offensive statement.

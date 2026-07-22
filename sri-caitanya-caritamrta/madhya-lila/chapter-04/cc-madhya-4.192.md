@@ -8,4 +8,4 @@
 
 *ghaṣite ghaṣite*—rubbing and rubbing; *yaiche*—just as; *malayaja-sāra*—sandalwood; *gandha*—the fragrance; *bāḍe*—increases; *taiche*—similarly; *ei*—this; *ślokera*—of the verse; *vicāra*—the consideration.
 
-**Continuous rubbing increases the aroma of Malaya sandalwood. Similarly, consideration of this verse, increases one's understanding of its importance.**
+**By continuous rubbing, the aroma of Malaya sandalwood increases. Similarly, by considering this verse, its importance increases.**

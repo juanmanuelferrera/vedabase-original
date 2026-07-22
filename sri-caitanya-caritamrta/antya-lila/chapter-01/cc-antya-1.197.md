@@ -10,7 +10,7 @@
 
 **Śrī Caitanya Mahāprabhu replied, "I met Śrīla Rūpa Gosvāmī at Prayāga. He attracted and satisfied Me because of his qualities."**
 
-The Supreme personality of Godhead is not partial to some and neutral to others. One can actually draw the attention of the Supreme Personality of Godhead by service. Then one is further empowered by the Lord to act in such a way that everyone can appreciate his service. This is confirmed in the *Bhagavad-gītā* [[bg/4/11|(Bg. 4.11)]]/ *ye yathā māṁ prapadyante tāṁs tathaiva bhajāmy aham.* Kṛṣṇa is responsive. If one tries to render his best service to the Lord, the Lord gives him the power to do so. Kṛṣṇa also says in the *Bhagavad-gītā* [[bg/10/10|(Bg. 10.10)]]:
+The Supreme personality of Godhead is not partial to some and neutral to others. One can actually draw the attention of the Supreme Personality of Godhead by service. Then one is further empowered by the Lord to act in such a way that everyone can appreciate his service. This is confirmed in *Bhagavad-gītā* [[bg/4/11|(Bg. 4.11)]]/ *ye yathā māṁ prapadyante tāṁs tathaiva bhajāmy aham.* Kṛṣṇa is responsive. If one tries to render his best service to the Lord, the Lord gives him the power to do so. Kṛṣṇa also says in the *Bhagavad-gītā* [[bg/10/10|(Bg. 10.10)]]:
 
 > teṣāṁ satata-yuktānāṁ
 > bhajatāṁ prīti-pūrvakam

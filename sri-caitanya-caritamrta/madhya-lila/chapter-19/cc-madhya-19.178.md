@@ -10,7 +10,7 @@
 
 **"The basic aspects of prema, when gradually increasing to different states, are affection, abhorrence, love, attachment, further attachment, ecstasy and great ecstasy.**
 
-In the *Bhakti-rasāmṛta-sindhu* (3.2.84) *sneha* (affection) is described as follows:
+In *Bhakti-rasāmṛta-sindhu* (3.2.84) *sneha* (affection) is described as follows:
 
 > sāndraś citta-dravaṁ kurvan
 > premā 'sneha' itīryate

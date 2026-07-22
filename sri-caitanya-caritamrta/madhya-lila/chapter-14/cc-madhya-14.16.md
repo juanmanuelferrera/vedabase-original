@@ -10,7 +10,7 @@
 
 **How powerful is the mercy of Śrī Caitanya Mahāprabhu! Without even inquiring about the King, the Lord made everything successful.**
 
-Śrī Caitanya Mahāprabhu's mercy is so powerful that it acts automatically. If a person renders loving service to Kṛṣṇa, it never goes in vain. It is recorded in a spiritual account, and in due time it will fructify. This is confirmed by the *Bhagavad-gītā* [[bg/2/40|(Bg. 2.40)]]. *Svalpam apy asya dharmasya trāyate mahato bhayāt:* "In this endeavor there is no loss or diminution, and a little advancement on this path can protect one from the most dangerous type of fear."
+Śrī Caitanya Mahāprabhu's mercy is so powerful that it acts automatically. If a person renders loving service to Kṛṣṇa, it never goes in vain. It is recorded in a spiritual account, and in due time it will fructify. This is confirmed by *Bhagavad-gītā* [[bg/2/40|(Bg. 2.40)]]. *Svalpam apy asya dharmasya trāyate mahato bhayāt:* "In this endeavor there is no loss or diminution, and a little advancement on this path can protect one from the most dangerous type of fear."
 
 Śrī Caitanya Mahāprabhu has particularly bestowed upon all fallen souls in this age the most potent method of devotional service, and whoever takes to it through the mercy of Śrī Caitanya Mahāprabhu is immediately elevated to the transcendental position. *Śrīmad-Bhāgavatam* recommends: *yajñaiḥ saṅkīrtana-prāyair yajanti hi su-medhasaḥ* (*Bhāg.* 11.5.32).
 
@@ -18,7 +18,7 @@ A student of Kṛṣṇa consciousness must receive Śrī Caitanya Mahāprabhu's
 
 Kṛṣṇadāsa Kavirāja Gosvāmī wants to point out that nothing could compare to the Lord's mercy toward Mahārāja Pratāparudra; therefore he uses the word *dekha* ("just see") and *caitanyera kṛpā-mahābala* ("how powerful is the mercy of Śrī Caitanya Mahāprabhu"). This is also confirmed by Prabodhānanda Sarasvatī: *yat-kāruṇya-kaṭākṣa-vaibhava-vatām* (*Caitanya-candrāmṛta* 5). Even a little of Śrī Caitanya Mahāprabhu's mercy serves as a great asset for spiritual advancement. Therefore the Kṛṣṇa consciousness movement must be spread through the mercy of Śrī Caitanya Mahāprabhu. When Rūpa Gosvāmī experienced the mercy and magnanimity of Śrī Caitanya Mahāprabhu, he said:
 
-nama mahā-vadānyāya
+namo mahā-vadānyāya
 > kṛṣṇa-prema-pradāya te
 > kṛṣṇāya kṛṣṇa-caitanya-
 > nāmne gaura-tviṣe namaḥ

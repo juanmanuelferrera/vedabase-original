@@ -10,7 +10,7 @@
 
 **The husband and wife [Jagannātha Miśra and Śacīmātā], having gotten Viśvarūpa as their son, were very pleased within their minds. Because of their pleasure, they specifically began to serve the lotus feet of Govinda.**
 
-There is a common saying in India that everyone goes to worship the Supreme Personality of Godhead when he is in distress, but when a person is in an opulent position, he forgets God. In *Bhagavad-gītā* [[bg/7/16|(Bg. 7.16)]] this is also confirmed:
+There is a common saying in India that everyone goes to worship the Supreme Personality of Godhead when he is in distress, but when a person is in an opulent position, he forgets God. In *Bhagavad-gītā* [[bg/7/16|(7.16)]] this is also confirmed:
 
 > catur-vidhā bhajante māṁ
 > janāḥ sukṛtino 'rjuna

@@ -14,7 +14,7 @@
 
 **“ 'Our love affair is more powerful because of My good fortune in receiving Nārāyaṇa's grace. This allows Me to come here unseen by others. I hope that very soon I will be visible to everyone.**
 
-Kṛṣṇa has two kinds of presence—*prakaṭa* and *aprakaṭa,* manifest and unmanifest. Both are identical to the sincere devotee. Even if Kṛṣṇa is not physically present, the devotee's absorption in the affairs of Kṛṣṇa makes Him present. This is confirmed in the *Brahma-saṁhitā* (5.38):
+Kṛṣṇa has two kinds of presence—*prakaṭa* and *aprakaṭa,* manifest and unmanifest. Both are identical to the sincere devotee. Even if Kṛṣṇa is not physically present, the devotee's absorption in the affairs of Kṛṣṇa makes Him present. This is confirmed in *Brahma-saṁhitā* (5.38):
 
 > premāñjana-cchurita-bhakti-vilocanena
 > santaḥ sadaiva hṛdayeṣu vilokayanti

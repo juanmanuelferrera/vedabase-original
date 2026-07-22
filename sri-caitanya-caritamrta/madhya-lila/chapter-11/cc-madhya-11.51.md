@@ -10,7 +10,7 @@
 
 **Finally Sārvabhauma Bhaṭṭācārya said, "My dear King, do not worry. Because of your firm determination, I am sure that Śrī Caitanya Mahāprabhu's mercy will definitely be bestowed upon you."**
 
-Due to King Pratāparudra's firm determination, the Bhaṭṭācārya predicted that the King would receive Śrī Caitanya Mahāprabhu's mercy without fail. As confirmed elsewhere in *Caitanya-caritāmṛta* [[cc/madhya/19/151|(Madhya 19.151)]], *guru-kṛṣṇa-prasāde pāya bhakti-latā-bīja:* "By the mercy of the spiritual master and Kṛṣṇa, one gets the seed of devotional service." The Bhaṭṭācārya was the spiritual master of King Pratāparudra, and he gave his blessings to the effect that the Lord would be merciful upon the King. The mercy of the spiritual master and Kṛṣṇa combine to grant success to a devotee engaged in Kṛṣṇa consciousness. This is confirmed by the *Vedas:*
+Due to King Pratāparudra's firm determination, Bhaṭṭācārya predicted that the King would receive Śrī Caitanya Mahāprabhu's mercy without fail. As confirmed elsewhere in *Caitanya-caritāmṛta* [[cc/madhya/19/151|(Madhya 19.151)]], *guru-kṛṣṇa-prasāde pāya bhakti-latā-bīja:* "By the mercy of the spiritual master and Kṛṣṇa, one gets the seed of devotional service." Bhaṭṭācārya was supposed to be the spiritual master of King Pratāparudra, and he gave his blessings to the effect that the Lord would be merciful upon the King. The mercy of the spiritual master and Kṛṣṇa combine to grant success to a devotee engaged in Kṛṣṇa consciousness. This is confirmed by the *Vedas:*
 
 > yasya deve parā bhaktir
 > yathā deve tathā gurau
@@ -19,7 +19,7 @@ Due to King Pratāparudra's firm determination, the Bhaṭṭācārya predicted 
 
 "Only unto those great souls who have implicit faith in both the Lord and the spiritual master are all the imports of Vedic knowledge automatically revealed." (*Śvetāśvatara Upaniṣad* 6.23)
 
-Mahārāja Pratāparudra had firm faith in the Bhaṭṭācārya, who declared Śrī Caitanya Mahāprabhu to be the Supreme Personality of Godhead. Having firm faith in the Bhaṭṭācārya as his spiritual master, King Pratāparudra immediately accepted Śrī Caitanya Mahāprabhu as the Supreme Lord. Thus he began worshiping Śrī Caitanya Mahāprabhu in his mind. This is the process of devotional service. According to Lord Kṛṣṇa in the *Bhagavad-gītā* [[bg/9/34|(Bg. 9.34)]]:
+Mahārāja Pratāparudra had firm faith in Bhaṭṭācārya, who declared Śrī Caitanya Mahāprabhu to be the Supreme Personality of Godhead. Having firm faith in Bhaṭṭācārya as his spiritual master, King Pratāparudra immediately accepted Śrī Caitanya Mahāprabhu as the Supreme Lord. Thus he began worshiping Śrī Caitanya Mahāprabhu in his mind. This is the process of devotional service. According to Lord Kṛṣṇa in the *Bhagavad-gītā* [[bg/9/34|(Bg. 9.34)]]:
 
 > man-manā bhava mad-bhakto
 > mad-yājī māṁ namaskuru

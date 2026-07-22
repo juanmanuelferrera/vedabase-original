@@ -12,4 +12,4 @@
 
 **“ 'With their words, they offer prayers to the Lord. With their minds, they always remember the Lord. With their bodies, they offer obeisances to the Lord. Despite all these activities, they are still not satisfied. This is the nature of pure devotees. Shedding tears from their eyes, they dedicate their whole lives to the Lord's service.'**
 
-This verse from the *Hari-bhakti-sudhodaya* is found in the *Bhakti-rasāmṛta-sindhu* (1.3.29).
+This verse from the *Hari-bhakti-sudhodaya* is found in *Bhakti-rasāmṛta-sindhu* (1.3.29).

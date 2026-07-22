@@ -10,4 +10,4 @@
 
 **There were many rivers on the way, and at each river there was a tax collector. They did not hinder the Lord, however, and He showed them mercy. Finally He reached the village of Remuṇā.**
 
-There is a railway station named Baleśvara, and five miles to the west is the village of Remuṇā. The temple of Kṣīra-corā-gopīnātha still exists in this village, and within the temple the *samādhi* tomb of Rasikānanda Prabhu, the chief disciple of Śyāmānanda Gosvāmī, can still be found.
+There is a railway station named Baleśvara, and five miles to the west is a village named Remuṇā. The temple of Kṣīra-corā-gopīnātha still exists in this village, and within the temple the *samādhi* tomb of Rasikānanda Prabhu, the chief disciple of Śyāmānanda Gosvāmī, can still be found.

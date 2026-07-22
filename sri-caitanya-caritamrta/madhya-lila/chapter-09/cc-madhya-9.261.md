@@ -10,7 +10,7 @@
 
 **"When one comes to the platform of loving service to Lord Kṛṣṇa by executing these nine processes beginning with hearing and chanting, he has attained the fifth platform of success and the limit of life's goals.**
 
-Everyone is after success in religion, economic development, sense gratification and ultimately merging into the existence of Brahman. These are the general practices of the common man, but according to the strict principles of the *Vedas,* the highest attainment is to rise to the platform of *śravaṇaṁ kīrtanam,* hearing and chanting about the Supreme Personality of Godhead. This is confirmed in *Śrīmad-Bhāgavatam* (1.1.2):
+Everyone is after success in religion, economic development, sense gratification and ultimately merging into the existence of Brahman. These are the general practices of the common man, but according to the strict principles of the *Vedas,* the highest attainment is to rise to the platform of *śravaṇaṁ kīrtanam*—chanting and hearing about the Supreme Personality of Godhead. This is confirmed in *Śrīmad-Bhāgavatam* (1.1.2):
 
 > dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satāṁ
 > vedyaṁ vāstavam atra vastu śiva-daṁ tāpa-trayonmūlanam

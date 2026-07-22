@@ -10,4 +10,4 @@
 
 **We can see in the scripture Śrīmad-Bhāgavatam the conduct of its author, Śrī Vyāsadeva. After speaking the narration, he repeats it again and again.**
 
-At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter contains forty-three verses in which Śrī Kṛṣṇa-dvaipāyana Vedavyāsa recapitulates *Śrīmad-Bhāgavatam's* entire subject matter. Śrī Kṛṣṇadāsa Kavirāja Gosvāmī wants to follow in the footsteps of Śrī Vyāsadeva by recapitulating the seventeen chapters of *Śrī Caitanya-caritāmṛta's Ādi-līlā.*
+At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter has fifty-two verses in which Śrī Kṛṣṇa-dvaipāyana Vedavyāsa recapitulates *Śrīmad-Bhāgavatam's* entire subject matter. Śrī Kṛṣṇadāsa Kavirāja Gosvāmī wants to follow in the footsteps of Śrī Vyāsadeva by recapitulating the seventeen chapters of *Śrī Caitanya-caritāmṛta's Ādi-līlā.*

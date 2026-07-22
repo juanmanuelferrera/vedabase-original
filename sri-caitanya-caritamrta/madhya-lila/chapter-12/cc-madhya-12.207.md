@@ -8,6 +8,6 @@
 
 *āge*—in front; *kāśīśvara*—Kāśīśvara; *yāya*—goes; *loka*—the crowd; *nivāriyā*—checking; *pāche*—at the end; *govinda*—Govinda; *yāya*—goes; *jala*—of water; *karaṅga*—a pitcher carried by saintly persons; *lañā*—taking.
 
-**When Śrī Caitanya Mahāprabhu went to visit the temple, Kāśīśvara walked in front, checking the crowds of people, and Govinda walked in the rear, bringing the sannyāsī's pitcher filled with water.**
+**When Śrī Caitanya Mahāprabhu went to visit the temple, Kāśīśvara walked in front, checking the crowds of people, and Govinda walked in the rear, bringing the sannyāsīs pitchers filled with water.**
 
 The *karaṅga* is a kind of waterpot especially carried by Māyāvādī *sannyāsīs* and generally carried by all other *sannyāsīs.*

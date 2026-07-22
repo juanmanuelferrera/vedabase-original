@@ -12,4 +12,4 @@
 
 **Brahmānanda Bhāratī concluded, " 'Although I was worshiped by those on the path of monism and initiated into self-realization through the yoga system, I am nonetheless been forcibly turned into a maidservant by some cunning boy who is always joking with the gopīs.' "**
 
-This is a verse written by Bilvamaṅgala Ṭhākura. It is quoted in the *Bhakti-rasāmṛta-sindhu* (3.1.44).
+This is a verse written by Bilvamaṅgala Ṭhākura. It is found in *Bhakti-rasāmṛta-sindhu* (3.1.44).

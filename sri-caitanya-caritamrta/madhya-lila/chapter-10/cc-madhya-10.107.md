@@ -8,4 +8,4 @@
 
 *niścinte*—without disturbance; *kṛṣṇa*—Lord Kṛṣṇa; *bhajiba*—I shall worship; *ei*—for this; *ta'*—certainly; *kāraṇe*—reason; *unmāde*—ecstatic; *karila*—did; *teṅha*—he; *sannyāsa*—the renounced order of life; *grahaṇe*—taking.
 
-**He was very enthusiastic to worship Śrī Kṛṣṇa without disturbance, and therefore, almost in madness that he accepted the sannyāsa order.**
+**He was very enthusiastic to worship Śrī Kṛṣṇa without disturbance; therefore it was almost in madness that he accepted the sannyāsa order.**

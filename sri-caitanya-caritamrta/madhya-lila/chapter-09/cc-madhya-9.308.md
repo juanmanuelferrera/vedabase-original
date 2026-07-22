@@ -8,4 +8,4 @@
 
 *saundarya*—beauty; *mādhurya*—sweetness; *kṛṣṇa-līlāra*—of the pastimes of Lord Kṛṣṇa; *avadhi*—limit; *sei jāne*—he knows; *ye*—one who; *karṇāmṛta*—the book *Kṛṣṇa-karṇāmṛta*; *paḍe*—studies; *niravadhi*—constantly.
 
-**One who constantly reads the Kṛṣṇa-karṇāmṛta can fully understand the beauty and melodious taste of the pastimes of Lord Kṛṣṇa.**
+**One who constantly reads Kṛṣṇa-karṇāmṛta can fully understand the beauty and melodious taste of the pastimes of Lord Kṛṣṇa.**

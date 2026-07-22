@@ -10,7 +10,7 @@
 
 **"It is not your fault; it is the verdict of the scriptures. You cannot understand the Supreme Personality of Godhead simply by scholarship."**
 
-This is a very important verse. Even big scholars cannot understand Kṛṣṇa, yet they dare comment on the *Bhagavad-gītā.* Reading the *Bhagavad-gītā* means understanding Kṛṣṇa, yet we actually see many scholars making blunders in trying to understand Kṛṣṇa. Gopīnātha Ācārya's statement is confirmed in many places in Vedic literature. In the *Kaṭha Upaniṣad* (1.2.23) it is stated (Katha Up. 1.2.23): nāyam ātmā pravacanena labhyo
+This is a very important verse. Even big scholars cannot understand Kṛṣṇa, yet they dare comment on *Bhagavad-gītā.* Reading *Bhagavad-gītā* means understanding Kṛṣṇa, yet we actually see many scholars making blunders in trying to understand Kṛṣṇa. Gopīnātha Ācārya's statement is confirmed in many places in Vedic literature. In *Kaṭha Upaniṣad* it is stated (Kaṭha Up. 1.2.23): nāyam ātmā pravacanena labhyo
 > na medhayā na bahunā śrutena
 > yam evaiṣa vṛṇute tena labhyas
 > tasyaiṣa ātmā vivṛṇute tanūṁ svām

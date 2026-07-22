@@ -12,4 +12,4 @@
 
 **“ 'O Lord Puṇḍarīkākṣa, while chanting Your holy name with tears in my eyes, when shall I dance in ecstasy on the bank of the Yamunā?'**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (1.2.156).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (1.2.156).

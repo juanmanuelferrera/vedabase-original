@@ -10,6 +10,6 @@
 
 *yathā*—just as; *rādhā*—Śrīmatī Rādhārāṇī; *priyā*—very dear; *viṣṇoḥ*—to Lord Kṛṣṇa; *tasyāḥ*—Her; *kuṇḍam*—bathing place; *priyam*—very dear; *tathā*—so also; *sarva-gopīṣu*—among all the *gopīs*; *sā*—She; *eva*—certainly; *ekā*—alone; *viṣṇoḥ*—of Lord Kṛṣṇa; *atyanta-vallabhā*—most dear.
 
-**"Just as Śrīmatī Rādhārāṇī is most dear to Śrī Kṛṣṇa, Her bathing place [Rādhā-kuṇḍa] is  also dear to Him. She alone is His most beloved of all the gopīs, Śrīmatī Rādhārāṇī is supermost and very dear to  Lord Kṛṣṇa."**
+**"Just as Rādhā is dear to Lord Kṛṣṇa, so Her bathing place [Rādhā-kuṇḍa] is  dear to Him. She alone is His most beloved of all the gopīs."**
 
 This verse is from the *Padma Purāṇa.*

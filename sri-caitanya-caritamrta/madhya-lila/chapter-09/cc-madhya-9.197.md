@@ -10,4 +10,4 @@
 
 **After thus assuring the brāhmaṇa, Śrī Caitanya Mahāprabhu proceeded further into southern India and finally arrived at Durvaśana, where He bathed in the river Kṛtamālā.**
 
-Presently the Kṛtamālā River is known as the river Bhāgāi. This river has three tributaries, named Surulī, Varāha-nadī and Baṭṭilla-guṇḍu. The river Kṛtamālā is also mentioned in *Śrīmad-Bhāgavatam* (11.5.39) by the sage Karabhājana.
+Presently this Kṛtamālā River is known as the river Bhāgāi. This river has three tributaries, named Surulī, Varāha-nadī and Baṭṭilla-guṇḍu. The river Kṛtamālā is also mentioned in *Śrīmad-Bhāgavatam* (11.5.39) by the sage Karabhājana.

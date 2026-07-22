@@ -12,4 +12,4 @@
 
 **“ 'Bhakti, or devotional service, means engaging all our senses in the service of the Lord, the Supreme Personality of Godhead, the master of all the senses. When the spirit soul renders service unto the Supreme, there are two side effects. One is freed from all material designations, and, simply by being employed in the service of the Lord, one's senses are purified.'**
 
-This verse quoted from the *Nārada-pañcarātra* is found in the *Bhakti-rasāmṛta-sindhu* (1.1.12).
+This verse quoted from the *Nārada-pañcarātra* is found in *Bhakti-rasāmṛta-sindhu* (1.1.12).

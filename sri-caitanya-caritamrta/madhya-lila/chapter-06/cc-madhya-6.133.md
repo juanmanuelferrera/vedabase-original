@@ -8,6 +8,6 @@
 
 *upaniṣad*—of the *Vedas*; *śabde*—by the words; *yei*—whatever; *mukhya*—direct; *artha*—meaning; *haya*—is; *sei*—that; *artha*—meaning; *mukhya*—chief; *vyāsa-sūtre*—in the *Vedānta-sūtra*; *saba*—all; *kaya*—describes.
 
-**Caitanya Mahāprabhu continued, "The Vedānta-sūtra is the summary of all the Upaniṣads; therefore whatever direct meaning is there in the Upaniṣads is also recorded in the Vedānta-sūtra, or Vyāsa-sūtra.**
+**Caitanya Mahāprabhu continued, "Vedānta-sūtra is the summary of all the Upaniṣads; therefore whatever direct meaning is there in the Upaniṣads is also recorded in the Vedānta-sūtra, or Vyāsa-sūtra.**
 
 Śrīla Bhaktisiddhānta Sarasvatī has explained the word *upaniṣad* in his *Anubhāṣya.* Please refer to *Ādi-līlā,* Second Chapter, fifth verse, and *Ādi-līlā,* Seventh Chapter, verses 106 and 108, for his explanation.

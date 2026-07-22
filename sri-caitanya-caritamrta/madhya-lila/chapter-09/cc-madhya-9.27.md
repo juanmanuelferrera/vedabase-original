@@ -8,4 +8,4 @@
 
 *seihaite*—since that time; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *jihvāte*—on the tongue; *vasilā*—was seated tightly; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *sphure*—automatically comes; *rāma-nāma*—the holy name of Lord Rāmacandra; *dūre*—far away; *gelā*—went.
 
-**"Since then, the holy name of Kṛṣṇa has been tightly fixed upon my tongue. Indeed, since I have been chanting the holy name of Kṛṣṇa, the holy name of Lord Rāmacandra has gone far away.**
+**"Since then, the holy name of Kṛṣṇa has been tied to my tongue. Indeed, when I chant the holy name of Kṛṣṇa, the holy name of Lord Rāmacandra goes far away.**

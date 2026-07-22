@@ -12,4 +12,4 @@
 
 **"Through austerity and through renunciation of all attachments, we have become maidservants in the home of the Supreme Personality of Godhead, who is satisfied in Himself."**
 
-During the same incident, this verse, quoted from *Śrīmad-Bhāgavatam* (10.83.39), was spoken to Draupadī by another queen of Kṛṣṇa's named Lakṣmaṇā.
+During the same incident, this verse, quoted from *Śrīmad-Bhāgavatam* (10.83.39), was spoken to Draupadī by another queen of Kṛṣṇa's.

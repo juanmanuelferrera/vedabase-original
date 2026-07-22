@@ -12,4 +12,4 @@
 
 **“ 'Even a most learned scholar cannot understand the activities and symptoms of an exalted personality in whose heart love of Godhead has awakened.'**
 
-This verse is also found in the *Bhakti-rasāmṛta-sindhu* (1.4.17).
+This verse is also found in *Bhakti-rasāmṛta-sindhu* (1.4.17).

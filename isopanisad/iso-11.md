@@ -8,7 +8,7 @@
 > avidyayā mṛtyuṁ tīrtvā\
 > vidyayāmṛtam aśnute
 
-*vidyām*—knowledge in fact; *ca*—and; *avidyām*—nescience; *ca*—and; *yaḥ*—a person who; *tat*—that; *veda*—knows; *ubhayam*—both; *saha*—simultaneously; *avidyayā*—by culture of nescience; *mṛtyum*—repeated death; *tīrtvā*—transcending; *vidyayā*—by culture of knowledge; *amṛtam*—deathlessness; *aśnute*—enjoys.
+*vidyām*—knowledge in fact; *ca*—and; *avidyām*—nescience; *ca*—and; *yaḥ*—a person; *tad*—that; *veda*—knows; *ubhayam*—both; *saha*—simultaneously; *avidyayā*—by culture of nescience; *mṛtyum*—repeated death; *tīrtvā*—transcending; *vidyayā*—by culture of knowledge; *amṛtam*—deathlessness; *aśnute*—enjoys.
 
 **Only one who can learn the process of nescience and that of transcendental knowledge side by side can tran- scend the influence of repeated birth and death, and enjoy the full blessings of immortality.**
 

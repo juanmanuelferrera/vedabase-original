@@ -8,4 +8,4 @@
 
 *caitanya-līlāravyāsa*—the Vyāsadeva, or compiler of the pastimes, of Lord Caitanya Mahāprabhu; *dāsavṛndāvana*—Vṛndāvana dāsa Ṭhākura; *tāṅra*—of him; *ājñāya*—upon the order; *karoṅ*—I do; *tāṅra*—his; *ucchiṣṭa*—of the remnants of food; *carvaṇa*—chewing.
 
-**Actually the authorized compiler of the pastimes of Śrī Caitanya Mahāprabhu is Śrīla Vṛndāvana dāsa, the incarnation of Vyāsadeva. Only upon his orders am I trying to chew the remnants of food that he has left.**
+**Actually the authorized compiler of the pastimes of Śrī Caitanya Mahāprabhu is Śrīla dāsa Vṛndāvana, the incarnation of Vyāsadeva. Only upon his orders am I trying to chew the remnants of food that he has left.**

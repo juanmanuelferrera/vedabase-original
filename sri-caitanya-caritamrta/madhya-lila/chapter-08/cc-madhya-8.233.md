@@ -8,4 +8,4 @@
 
 *eta śuni'*—hearing so much; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *tāṅre*—unto Rāmānanda Rāya; *kaila*—did; *āliṅgana*—embracing; *dui jane*—both of them; *galāgali*—embracing shoulder to shoulder; *karena*—did; *krandana*—crying.
 
-**After hearing this, Lord Śrī Caitanya Mahāprabhu embraced Rāmānanda Rāya, and both of them, embracing shoulder to shoulder, began to cry.**
+**After hearing this, Lord Śrī Caitanya Mahāprabhu embraced Rāmānanda Rāya, and both of them, clasping one another's shoulders, began to cry.**

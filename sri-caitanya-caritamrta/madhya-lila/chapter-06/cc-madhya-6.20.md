@@ -8,4 +8,4 @@
 
 *mukunda*—Mukunda Datta; *tāṅhāre*—him; *dekhi'*—seeing; *kaila*—offered; *namaskāra*—obeisances; *teṅho*—he; *āliṅgiyā*—embracing; *puche*—inquires; *prabhura*—of Lord Caitanya Mahāprabhu; *samācāra*—news.
 
-**Mukunda Datta offered obeisances unto Gopīnātha Ācārya upon meeting him. Then the Ācārya embraced Mukunda Datta and inquired about news of Śrī Caitanya Mahāprabhu.**
+**When Mukunda Datta met Gopīnātha Ācārya, Mukunda Datta offered obeisances unto him. After embracing Mukunda Datta, Gopīnātha Ācārya inquired about news of Śrī Caitanya Mahāprabhu.**

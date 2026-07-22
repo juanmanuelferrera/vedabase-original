@@ -8,4 +8,4 @@
 
 *madhye*—in the middle; *pīta*—yellow; *ghṛta-sikta*—wet with clarified butter; *śāli-annera*—of very fine cooked rice; *stūpa*—a mound; *cāri-dike*—surrounding the mound of rice; *vyañjana-ḍoṅgā*—vegetable pots; *āra*—and; *mudga-sūpa*—*dāl* made of split mung.
 
-**The cooked rice was a stack of very fine grains nicely cooked, and in the middle was yellow clarified butter from the milk of cows. Surrounding the stack of rice were pots made of the skins of banana trees, and in these pots were varieties of vegetables and mung dāl.**
+**The cooked rice was a stack of very fine grains nicely cooked, and in the middle was yellow butter clarified from the milk of cows. Surrounding the stack of rice were pots made of the skins of banana trees, and in these pots were varieties of vegetables and mung dāl.**

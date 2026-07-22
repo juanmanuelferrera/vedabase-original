@@ -12,4 +12,4 @@
 
 **“ 'When one develops an unflinching sense of ownership or possessiveness in relation to Lord Viṣṇu, or, in other words, when one thinks Viṣṇu and no one else to be the only object of love, such an awakening is called bhakti [devotion] by exalted persons like Bhīṣma, Prahlāda, Uddhava and Nārada.'**
 
-This verse, quoted from the *Nārada-pañcarātra,* is found in the *Bhakti-rasāmṛta-sindhu* (1.4.2).
+This verse, quoted from the *Nārada-pañcarātra,* is found in *Bhakti-rasāmṛta-sindhu* (1.4.2).

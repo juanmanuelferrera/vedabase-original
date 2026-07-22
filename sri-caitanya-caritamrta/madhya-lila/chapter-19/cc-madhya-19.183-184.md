@@ -15,7 +15,7 @@
 
 **"According to the devotee, attachment falls within the five categories of śānta-rati, dāsya-rati, sakhya-rati, vātsalya-rati and madhura-rati. These five categories arise from the devotees' different attachments to the Supreme Personality of Godhead. The transcendental mellows derived from devotional service are also of five varieties.**
 
-*Śānta-rati* is described in the *Bhakti-rasāmṛta-sindhu* (2.5.16, 17, 18) as follows:
+*Śānta-rati* is described in *Bhakti-rasāmṛta-sindhu* (2.5.16, 17, 18) as follows:
 
 > mānase nirvikalpatvaṁ
 > śama ity abhidhīyate
@@ -52,7 +52,7 @@ On the strength of this statement from *Bhagavad-gītā,* we can understand that
 
 When the Supreme Lord in His localized aspect is appreciated and a great devotee understands his subordinate position, not only does he surrender to the Supreme Personality of Godhead, but, due to his subordinate position, he wishes to render some service and thus become favored by the Supreme Personality of Godhead. A devotee in the *śānta-rati* is not very much willing to render service to the Lord, but a devotee in the *dāsya-rati* voluntarily wants to render service. Due to this attitude, the devotee in the *dāsya-rati* realizes the Supreme Personality of Godhead more fully than a devotee in the *śānta-rati.* He considers the Lord to be a worshipable object, and this means that his attachment for the Lord increases. On the *dāsya-rati* platform a devotee is attached to rendering service to the Lord, and he is detached from material activities. The *śānta-rati* is neither material nor spiritual, but the *dāsya-rati* is actually on the spiritual platform. There is no attachment for material things on the spiritual platform. A devotee in *dāsya-rati* has no attachment for anything but Kṛṣṇa's service.
 
-Sakhya-rati is described in the *Bhakti-rasāmṛta-sindhu* (2.5.30) as follows:
+Sakhya-rati is described in *Bhakti-rasāmṛta-sindhu* (2.5.30) as follows:
 
 > ye syus tulyā mukundasya
 > te sakhāyaḥ satāṁ matāḥ

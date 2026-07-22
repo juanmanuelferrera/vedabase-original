@@ -170,7 +170,7 @@ You mean by following these principles?
 Yes, I went to America, for instance, but either in America or India, I am the same man.
 
 **Bob:**
-I—I have somewhat tried to follow since I met you the first time. [a brief visit to Calcutta in November 1971]
+I—I have tried somewhat to follow since I met you the first time [a brief visit in Calcutta during November, 1971]
 
 **Śrīla Prabhupāda:**
 Hm-m. But follow—you must strictly follow if you are serious. 

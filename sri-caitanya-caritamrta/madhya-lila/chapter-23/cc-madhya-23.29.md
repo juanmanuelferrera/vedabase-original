@@ -14,4 +14,4 @@
 
 **“ 'O my Lord, I do not have any love for You, nor am I qualified for discharging devotional service by chanting and hearing. Nor do I possess the mystic power of a Vaiṣṇava, knowledge or pious activities. Nor do I belong to a very high-caste family. On the whole, I do not possess anything. Still, O beloved of the gopīs, because You bestow Your mercy on the most fallen, I have an unbreakable hope that is constantly in my heart. That hope is always giving me pain.'**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (1.3.35).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (1.3.35).

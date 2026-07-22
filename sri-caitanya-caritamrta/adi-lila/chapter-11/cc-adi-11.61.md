@@ -10,4 +10,4 @@
 
 **With an ardent desire to serve the purpose of Śrī Rūpa and Śrī Raghunātha, I, Kṛṣṇadāsa, narrate Śrī Caitanya-caritāmṛta, following in their footsteps.**
 
-*Thus end the Bhaktivedanta purports to Śrī Caitanya-caritāmṛta, Ādi-līlā,  Eleventh Chapter, in the matter of the expansions of Lord Nityānanda.*
+*Thus end the Bhaktivedanta purports of Śrī Caitanya-caritāmṛta, Ādi-līlā, Chapter Eleven, in the matter of the expansions of Lord Nityānanda.*

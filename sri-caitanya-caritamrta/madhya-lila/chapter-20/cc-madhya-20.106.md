@@ -12,4 +12,4 @@
 
 **“ 'Those who are anxious to awaken their spiritual consciousness, who have unflinching intelligence and who are not deviated, certainly attain the desired goal.'**
 
-This verse, quoted from the *Nāradīya Purāṇa,* is found in the *Bhakti-rasāmṛta-sindhu* (1.2.103).
+This verse, quoted from the *Nāradīya Purāṇa,* is found in *Bhakti-rasāmṛta-sindhu* (1.2.103).

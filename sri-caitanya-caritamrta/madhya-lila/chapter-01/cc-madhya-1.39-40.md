@@ -13,4 +13,4 @@
 
 *dāna-keli-kaumudī*—of the name *Dāna-keli-kaumudī*; *āra*—and; *bahu stavāvalī*—many prayers; *aṣṭādaśa*—eighteen; *līlā-cchanda*—chronological pastimes; *āra*—and; *padyāvalī*—of the name *Padyāvalī*; *govinda-virudāvalī*—of the name *Govinda-virudāvalī*; *tāhāra lakṣaṇa*—the symptoms of the book; *mathurā-māhātmya*—the glories of Mathurā; *āra nāṭaka-varṇana*—and descriptions of drama (*Nāṭaka-candrikā*).
 
-**Śrīla Rūpa Gosvāmī also compiled the Dāna-keli-kaumudī, Stavāvalī, Līlā-cchanda, Padyāvalī, Govinda-virudāvalī, Mathurā-māhātmya and Nāṭaka-varṇana.**
+**Śrīla Rūpa Gosvāmī also compiled Dāna-keli-kaumudī, Stavāvalī, Līlā-cchanda, Padyāvalī, Govinda-virudāvalī, Mathurā-māhātmya and Nāṭaka-varṇana.**

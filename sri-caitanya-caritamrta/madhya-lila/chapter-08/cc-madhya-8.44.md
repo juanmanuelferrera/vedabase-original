@@ -8,9 +8,9 @@
 
 *prabhu kahe*—the Lord replied; *tumi*—you; *mahā-bhāgavata-uttama*—the best of the topmost devotees; *tomāra darśane*—by seeing you; *sabāra*—of everyone; *drava*—melted; *haila*—became; *mana*—the heart.
 
-**The Lord replied to Rāmānanda Rāya, "Sir, you are the best of the topmost devotees; therefore simply the sight of you has melted everyone's heart.**
+**The Lord replied to Rāmānanda Rāya, "Sir, you are the best of the topmost devotees; therefore upon seeing you everyone's heart has melted.**
 
-Unless one is a first-class devotee, he cannot be a preacher. A preacher is generally a topmost devotee, but in order to meet the general populace, he has to come to distinguish between devotees and nondevotees. Otherwise, an advanced devotee makes no such distinctions. Indeed, he always sees that everyone is engaged in the service of the Lord. When one engages in preaching work, he must distinguish between people and understand that some people are not engaged in the devotional service of the Lord. The preacher then has to take compassion upon such innocent people who do not know how to worship the Lord. In *Śrīmad-Bhāgavatam* (11.2.45), the symptoms of a topmost devotee are described as follows:
+Unless one is a first-class devotee, he cannot be a preacher. A preacher is generally a topmost devotee, but in order to meet the general populace, he has to come to distinguish between devotees and nondevotees. Otherwise, an advanced devotee makes no such distinctions. Indeed, he always sees everyone engaged in the service of the Lord. When one engages in preaching work, he must distinguish between people and understand that some people are not engaged in the devotional service of the Lord. The preacher then has to take compassion upon such innocent people who do not know how to worship the Lord. In *Śrīmad-Bhāgavatam* (11.2.45), the symptoms of a topmost devotee are described as follows:
 
 > sarva-bhūteṣu yaḥ paśyed
 > bhagavad-bhāvam ātmanaḥ

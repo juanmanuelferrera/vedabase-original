@@ -12,4 +12,4 @@
 
 **“ 'In this Dvārakā-dhāma, I am being attracted by the Supreme Personality of Godhead, Kṛṣṇa, who is personified spiritual bliss. Simply by seeing Him, I am feeling great happiness. Oh, I have wasted so much time trying to become self-realized through impersonal cultivation. This is a cause for lamentation!'**
 
-This verse is also found in the *Bhakti-rasāmṛta-sindhu* (3.1.34).
+This verse is also found in *Bhakti-rasāmṛta-sindhu* (3.1.34).

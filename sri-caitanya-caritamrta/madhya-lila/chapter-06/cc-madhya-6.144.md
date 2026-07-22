@@ -25,9 +25,9 @@ And in the *Taittirīya Upaniṣad* (3.1):
 
 > yato vā imāni bhūtāni jāyante, yena jātāni jīvanti, yat prayanty abhisaṁviśanti, tad vijijñāsasva, tad brahma.
 
-This was the answer given by father Varuṇa when questioned by his son Vāruṇī Bhṛgu about the Absolute Truth. In this *mantra,* the word *yataḥ,* the Absolute Truth from which the cosmic manifestation has emanated, is in the ablative case; that Brahman by which this universal creation is maintained is in the instrumental case (*yena*); and that Brahman into which the whole cosmic manifestation merges is in the locative case (*yat* or *yasmin*). It is stated in *Śrīmad-Bhāgavatam* (1.5.20):
+This was the answer given by father Varuṇa when questioned by his son Vāruṇī Bhṛgu about the Absolute Truth. In this *mantra,* the word *yataḥ,* the Absolute Truth from which the cosmic manifestation has emanated, is in the ablative case; that Brahman by which this universal creation is maintained is in the instrumental case (*yena*); and that Brahman into which the whole cosmic manifestation merges is in the locative case (*yat* or *yasmin*). It is stated in *Śrīmad-Bhāgavatam*:
 
 > idaṁ hi viśvaṁ bhagavān ivetaro
 > yato jagat-sthāna-nirodha-sambhavāḥ
 
-"The entire universal creation is contained in the gigantic form of the Supreme Personality of Godhead. Everything emanates from Him, everything rests in His energy, and after annihilation everything merges into His person."
+"The entire universal creation is contained in the gigantic form of the Supreme Personality of Godhead. Everything emanates from Him, everything rests in His energy, and after annihilation everything merges into His person." (*Bhāg.* 1.5.20)

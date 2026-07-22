@@ -10,4 +10,4 @@
 
 **Śrī Gopāla was another son of Śrī Advaita Ācārya Prabhu. Now just hear about his characteristics, for they are all very wonderful.**
 
-Śrī Gopāla was one of the three devoted sons of Advaita Ācārya. He is described in the *Madhya-līlā* of *Caitanya-caritāmṛta,* Chapter Twelve, texts 143 through 149.
+Śrī Gopāla was one of the three devoted sons of Advaita Ācārya. The *Madhya-līlā* of *Caitanya-caritāmṛta,* Chapter Twelve, texts 143 through 149, describe his life and character.

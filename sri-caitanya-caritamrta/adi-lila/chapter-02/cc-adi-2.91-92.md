@@ -19,9 +19,9 @@
 
 **“ 'Here [in Śrīmad-Bhāgavatam] ten subjects are described: (1) the creation of the ingredients of the cosmos, (2) the creations of Brahmā, (3) the maintenance of the creation, (4) special favor given to the faithful, (5) impetuses for activity, (6) prescribed duties for law-abiding men, (7) a description of the incarnations of the Lord, (8) the winding up of the creation, (9) liberation from gross and subtle material existence, and (10) the ultimate shelter, the Supreme Personality of Godhead. The tenth item is the shelter of all the others. To distinguish this ultimate shelter from the other nine subjects, the mahājanas have described these nine, directly or indirectly, through prayers or direct explanations.'**
 
-These verses from *Śrīmad-Bhāgavatam* (2.10.1-2) list the ten subject matters dealt with in the text of the *Bhāgavatam.* Of these, the tenth is the substance, and the other nine are categories derived from the substance. These ten subjects are listed as follows:
+This verse from *Śrīmad-Bhāgavatam* (2.10.1) lists the ten subject matters dealt with in the text of the *Bhāgavatam.* Of these, the tenth is the substance, and the other nine are categories derived from the substance. These ten subjects are listed as follows:
 
-(1) *Sarga*—the first creation by Viṣṇu, the bringing forth of the five gross material elements, the five objects of sense perception, the ten senses, the mind, the intelligence, the false ego and the total material energy, or universal form.
+(1) *Sarga*—the first creation by Viṣṇu, the bringing forth of the five gross material elements, the five objects of sense perception, the ten senses, the mind, intelligence, false ego and the total material energy, or universal form.
 
 (2) *Visarga*—the secondary creation, or the work of Brahmā in producing the moving and unmoving bodies in the universe (*brahmāṇḍa*).
 

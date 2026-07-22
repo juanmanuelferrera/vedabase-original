@@ -10,7 +10,7 @@
 
 **Rāmānanda Rāya said, "The legs are like the chariot, and the heart is like the charioteer. Wherever the heart takes the living entity, the living entity is obliged to go."**
 
-In the *Bhagavad-gītā* [[bg/18/61|(Bg. 18.61)]] Lord Kṛṣṇa explains:
+In *Bhagavad-gītā* [[bg/18/61|(Bg. 18.61)]] Lord Kṛṣṇa explains:
 
 > īśvaraḥ sarva-bhūtānāṁ
 > hṛd-deśe 'rjuna tiṣṭhati

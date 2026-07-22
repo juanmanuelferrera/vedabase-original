@@ -10,7 +10,7 @@
 
 **Rāmānanda Rāya continued, "The Supersoul within everyone's heart speaks not externally but from within. He instructs the devotees in all respects, and that is His way of instruction."**
 
-Here Śrī Rāmānanda Rāya admits that Śrī Caitanya Mahāprabhu is the Supersoul. It is the Supersoul that inspires the devotee; therefore He is the original source of the Gāyatrī *mantra* which states, *oṁ bhūr bhuvaḥ svaḥ tat savitur vareṇyaṁ bhargo devasya dhīmahi dhiyo yo naḥ pracodayāt. Savitāṛ* is the original source of all intelligence. That *savitāṛ* is Lord Caitanya Mahāprabhu. This is confirmed in *Śrīmad-Bhāgavatam* (2.4.22):
+Here Śrī Rāmānanda Rāya admits that Śrī Caitanya Mahāprabhu is the Supersoul. It is the Supersoul that inspires the devotee; therefore He is the original source of the Gāyatrī *mantra*. In the gāyatrī it is stated: *oṁ bhūr bhuvaḥ svaḥ tat savitur vareṇyaṁ bhargo devasya dhīmahi dhiyo yo naḥ pracodayāt. Savitāṛ* is the original source of all intelligence. That *savitāṛ* is Lord Caitanya Mahāprabhu. This is confirmed in *Śrīmad-Bhāgavatam* (2.4.22):
 
 > pracoditā yena purā sarasvatī
 > vitanvatājasya satīṁ smṛtiṁ hṛdi

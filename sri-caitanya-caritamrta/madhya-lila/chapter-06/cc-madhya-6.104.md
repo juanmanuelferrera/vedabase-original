@@ -12,4 +12,4 @@
 
 **“ 'The Lord [in the incarnation of Gaurasundara] has a golden complexion. Indeed, His entire body, which is very nicely constituted, is like molten gold. Sandalwood pulp is smeared all over His body. He will take the fourth order of spiritual life [sannyāsa] and will be very self-controlled. He will be distinguished from Māyāvādī sannyāsīs in that He will be fixed in devotional service and will spread the saṅkīrtana movement.' "**
 
-Gopīnātha Ācārya quoted this verse from the *Mahābhārata's Viṣṇu-sahasra-nāma-stotra.*
+Gopīnātha Ācārya quoted this verse from *Mahābhārata.*

@@ -12,7 +12,7 @@
 
 **“ 'These qualities are sometimes very minutely exhibited in living beings, but they are fully manifest in the Supreme Personality of Godhead.'**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (2.1.30). Living entities are parts and parcels of the Supreme Personality of Godhead. As stated in *Bhagavad-gītā:*
+This verse is found in *Bhakti-rasāmṛta-sindhu* (2.1.30). Living entities are parts and parcels of the Supreme Personality of Godhead. As stated in *Bhagavad-gītā:*
 
 > mamaivāṁśo jīva-loke
 > jīva-bhūtaḥ sanātanaḥ

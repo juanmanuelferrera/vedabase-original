@@ -59,7 +59,7 @@ A mother tells only her bad child to sit down and do nothing. If a child can do 
 
 > kutas tvā kaśmalam idaṁ
 > viṣame samupasthitam
-> anārya juṣṭam asvargyaṁ
+> anārya-juṣṭam asvargyaṁ
 > akīrti-karam arjuna
 
 "My dear Arjuna, how have these impurities come upon you? They are not at all befitting a man who knows the progressive values of life. They lead not to higher planets, but to infamy." [[bg/2/2|(Bg. 2.2)]] Kṛṣṇa directly tells Arjuna that he is speaking like a non-Āryan—that is, like one who does not know the spiritual values of life. So Kṛṣṇa consciousness does not mean sitting down idly.
@@ -75,7 +75,7 @@ Kṛṣṇa Himself does not sit down idly. All His pastimes are filled with act
 
 No one really wants to sit down and meditate. Why should we? We're meant for positive activity, for recreation, for pleasure. In Kṛṣṇa consciousness, our recreation is dancing and chanting, and when we get tired, we take *prasāda.* Is dancing difficult? Is chanting difficult? We don't charge anything to dance in the temple. If you go to a ballroom, you have to pay to enter, but we do not charge. It is natural to enjoy music and dancing and palatable foods. These are our recreations, and this is our method of meditation. So this *yoga* system is not at all laborious. It is simply recreation, *susukham.* It is stated in the Ninth Chapter of *Bhagavad-gītā* (9.2) that this *yoga* is *susukham*—very happy. "It is everlasting, and it is joyfully performed." It is natural, automatic, and spontaneous. It is our real life in the spiritual world.
 
-In Vaikuṇṭha, the spiritual world, there is no anxiety. *Vaikuṇṭha* means "freedom from anxiety," and in Vaikuṇṭha the liberated souls are always dancing, chanting, and taking *prasāda.* There are no factories, hard work, or technical institutions. There is no need for these artificial things. In *Vedānta-sūtra* it is stated, *ānandamayo 'bhyāsāt:* (*Vedānta-sūtra* 1.1.12) God is *ānandamaya,* full of bliss and pleasure. Since we are part and parcel of God, we also possess these same qualities. So the goal of our *yoga* process is to join with the supreme *ānandamaya,* Śrī Kṛṣṇa, to join His dance party. Then we will be actually happy.
+In Vaikuṇṭha, the spiritual world, there is no anxiety. *Vaikuṇṭha* means "freedom from anxiety," and in Vaikuṇṭha the liberated souls are always dancing, chanting, and taking *prasāda.* There are no factories, hard work, or technical institutions. There is no need for these artificial things. In *Vedānta-sūtra* it is stated, *ānandamayo 'bhyāsāt:* God is *ānandamaya,* full of bliss and pleasure. Since we are part and parcel of God, we also possess these same qualities. So the goal of our *yoga* process is to join with the supreme *ānandamaya,* Śrī Kṛṣṇa, to join His dance party. Then we will be actually happy.
 
 On this earth we are trying to be happy artificially and are therefore frustrated. Once we are situated in Kṛṣṇa consciousness, we will revive our original position and become simply joyful. Since our actual nature is *ānandamaya,* blissful, we are always searching for happiness. In the cities we are inundated with advertisements. Restaurants, bars, nightclubs, and dance halls are always announcing, "Come on, here is *ānanda.* Here is pleasure." That is because everyone is searching for *ānanda,* pleasure. Our society for Kṛṣṇa consciousness is also announcing, "Here is *ānanda,*"but our standard of pleasure is very different. In any case, the goal—pleasure—is the same.
 

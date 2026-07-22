@@ -10,4 +10,4 @@
 
 **Rāmānanda Rāya said, "I duly informed King Pratāparudra of Your order for me to retire from service. By Your grace, the King was pleased to relieve me of these material activities.**
 
-Śrī Caitanya Mahāprabhu requested Rāmānanda Rāya to retire from his governorship, and according to the Lord's desire, Rāmānanda Rāya petitioned the King. The King was very much pleased to give him relief, and thus Rāmānanda Rāya retired from service and received a pension from the government.
+Śrī Caitanya Mahāprabhu requested Rāmānanda Rāya to retire from his governorship, and according to the Lord's desire, Rāmānanda Rāya petitioned the King. The King was very pleased to give him relief, and thus Rāmānanda Rāya retired from service and received a pension from the government.

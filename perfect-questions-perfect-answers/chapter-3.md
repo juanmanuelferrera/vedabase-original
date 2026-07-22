@@ -49,7 +49,6 @@ Science may. though, say something. It is said in science that energy is never d
 That's all right. But how the energy is working in the future—that science does not know. How is the energy diverted? How, by different manipulations, is the energy working differently? For instance, electrical energy. By different handling it is operating the heater and it is operating the refrigerator. They are just the opposite, but the electrical energy is the same. Similarly, this energy—living energy—how is it being directed? Which way is it going? How is it fructifying in the next life? That they do not know. But in *Bhagavad-gītā* it is very simply stated.
 
 > vāsāṁsi jīrṇāni yathā vihāya
-> [[bg/2/22|[Bg. 2.22] ]]
 
 You are covered by a dress, by a shirt. When this shirt is unusable, you change it. Similarly, this body is just like a shirt and coat. When it is no longer workable, we have to change it.
 
@@ -258,7 +257,7 @@ Because Kṛṣṇa was God, He demanded:
 Doesn't He say in *Bhagavad-gītā,* "I am the spiritual master"?
 
 **Śrīla Prabhupāda:**
-Yes, He is the original spiritual master because He was accepted as spiritual master by Arjuna. So what is the difficulty? *Śiṣyas te 'haṁ śādhi māṁ tvāṁ prapannam* [[bg/2/7|[Bg. 2.7] ]]. Arjuna told the Lord, "I am Your disciple, and a soul surrendered unto You. Please instruct me." So unless He is a spiritual master how does Arjuna become His disciple? He is the original *guru. Tene brahma hṛdā ya ādi-kavaye*/ "It is He only who first imparted Vedic knowledge unto the heart of Brahmā, the first created being." Therefore He is the original *guru.*
+Yes, He is the original spiritual master because He was accepted as spiritual master by Arjuna. So what is the difficulty? *Śiṣyas te 'haṁ śādhi māṁ tvāṁ prapannam*. Arjuna told the Lord, "I am Your disciple, and a soul surrendered unto You. Please instruct me." So unless He is a spiritual master how does Arjuna become His disciple? He is the original *guru. Tene brahma hṛdā ya ādi-kavaye*/ "It is He only who first imparted Vedic knowledge unto the heart of Brahmā, the first created being." Therefore He is the original *guru.*
 
 **Bob:**
 Kṛṣṇa.

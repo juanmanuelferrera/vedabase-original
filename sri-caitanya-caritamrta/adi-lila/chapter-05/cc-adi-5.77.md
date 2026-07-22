@@ -15,4 +15,4 @@
 
 **"Viṣṇu has three forms called puruṣas. The first, Mahā-Viṣṇu, is the creator of the total material energy [mahat], the second is Garbhodaśāyī, who is situated within each universe, and the third is Kṣīrodaśāyī, who lives in the heart of every living being. He who knows these three becomes liberated from the clutches of māyā.**
 
-This verse appears in the *Laghu-bhāgavatāmṛta* (*Pūrva* 2.9), where it has been quoted from the *Sātvata-tantra.*
+This verse appears in the *Laghu-bhāgavatāmṛta* (*Pūrva-khaṇḍa*, 33), where it has been quoted from the *Sātvata-tantra.*

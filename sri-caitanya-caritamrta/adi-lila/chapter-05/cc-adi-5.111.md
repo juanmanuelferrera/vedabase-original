@@ -10,4 +10,4 @@
 
 **There, in part of the ocean of milk, lies Śvetadvīpa, the abode of the sustainer, Lord Viṣṇu.**
 
-In the *Siddhānta-śiromaṇi,* an astrological text, the different oceans are described as follows: (1) the ocean of salt water, (2) the ocean of milk, (3) the ocean of curd, (4) the ocean of clarified butter, (5) the ocean of sugarcane juice, (6) the ocean of liquor and (7) the ocean of sweet water. On the southern side of the ocean of salt water is the ocean of milk, where Lord Kṣīrodakaśāyī Viṣṇu resides. He is worshiped there by demigods like Brahmā.
+In the *Siddhānta-śiromaṇi,* an astrological text, the different oceans are described as follows: (1) the ocean of salt, (2) the ocean of milk, (3) the ocean of curd, (4) the ocean of clarified butter, (5) the ocean of sugarcane juice, (6) the ocean of liquor and (7) the ocean of sweet water. On the southern side of the ocean of salt is the ocean of milk, where Lord Kṣīrodakaśāyī Viṣṇu resides. He is worshiped there by demigods like Brahmā.

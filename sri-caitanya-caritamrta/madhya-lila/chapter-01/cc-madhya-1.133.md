@@ -8,4 +8,4 @@
 
 *snāna-yātrā*—the bathing ceremony; *dekhi'*—seeing; *prabhu*—Lord Caitanya Mahāprabhu; *saṅge*—with Him; *bhakta-gaṇa*—the devotees; *sabā*—all; *lañā*—taking; *kailā*—did; *prabhu*—Lord Caitanya Mahāprabhu; *guṇḍicā mārjana*—washing and cleaning the Guṇḍicā temple.
 
-**After seeing the bathing ceremony of Lord Jagannātha, Śrī Caitanya Mahāprabhu washed and cleansed the Guṇḍicā temple with the assistance of many devotees.**
+**After seeing the bathing ceremony of Lord Jagannātha, Śrī Caitanya Mahāprabhu washed and cleaned Śrī Guṇḍicā temple with the assistance of many devotees.**

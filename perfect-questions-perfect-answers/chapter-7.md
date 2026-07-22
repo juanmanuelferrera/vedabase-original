@@ -122,7 +122,7 @@ Yes, because God is the supreme proprietor, the supreme enjoyer, and He is the s
 That is so.
 
 **Śrīla Prabhupāda:**
-Then the wings fly there, and the jaws catch the food. Similarly, as in this body the stomach is the enjoyer, the central figure of the whole cosmic manifestation, material or spiritual, is Kṛṣṇa, God. He is the enjoyer. We can understand this just by considering our own bodies. The body is also a creation. The body has the same mechanical nature you will find in the whole universe. The same mechanical arrangement will be found anywhere you go, even in animals. In the human body or in the cosmic manifestation—almost the same mechanism. So you can understand very easily that in this body—any body, your body—the stomach is the enjoyer. There is a central enjoyer. And the stomach is the friend also. Because if you cannot digest food, you see, then all other limbs of the body become weak. Therefore the stomach is the friend. It is digesting and distributing the energy to all the limbs of the body. Is it not?
+Then the wings fly there, and the jaws catch the food. Similarly, as in this body the stomach is the enjoyer, the central figure of the whole cosmic manifestation, material or spiritual, is Kṛṣṇa, God. He is the enjoyer. We can understand this just by considering our own bodies. The body is also a creation. The body has the same mechanical nature you will find in the whole universe. The same mechanical arrangement will be found anywhere you go, even in animals. In the human body or in the cosmic manifestation—almost the same mechanism. So you can understand very easily that in this body—my body, your body—the stomach is the enjoyer. There is a central enjoyer. And the stomach is the friend also. Because if you cannot digest food, you see, then all other limbs of the body become weak. Therefore the stomach is the friend. It is digesting and distributing the energy to all the limbs of the body. Is it not?
 
 **Bob:**
 It is so.
@@ -143,7 +143,7 @@ If you simply understand Kṛṣṇa by these three formulas, then your knowledg
 
 ["The sages, knowing Me as the ultimate purpose of all sacrifices and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries."] But we won't take this. We shall put forward so many false proprietors, false friends, false enjoyers, and they will fight one another. This is the situation of the world. If education is given and people take this knowledge, there is immediately peace (*śāntim ṛcchati*). This is knowledge, and if anyone follows this principle, he is honest. He does not claim, "It is mine." He knows everything: "Oh, it is Kṛṣṇa's, so therefore everything should be utilized for Kṛṣṇa's service." That is honesty. If this pencil belongs to me, the etiquette is—My students sometimes ask, "Can I use this pencil?" "Yes, you can." Similarly, if I know that everything belongs to Kṛṣṇa, I will not use anything without His permission. That is honesty. And that is knowledge. One who does not know is ignorant; he is foolish. And a foolish man commits criminality. All criminals are foolish men. Out of ignorance one commits lawbreaking. So ignorance is not bliss, but it is folly to be wise where ignorance is bliss. That is the difficulty. The whole world is enjoying ignorance. And when you talk about Kṛṣṇa consciousness, they do not very much appreciate it. If I say, "Kṛṣṇa is the proprietor; you are not the proprietor," you will not be very much satisfied. [*They laugh*.] Just see—ignorance is bliss. So it is my foolishness to say the real truth. Therefore it is folly to be wise where ignorance is bliss. So we are taking the risk of offending people, and they will think we are fools. If I say to a rich man, "You are not the proprietor. Kṛṣṇa is the proprietor, so whatever money you have, spend it for Kṛṣṇa," he will be angry.
 
-> upadeśo hi mūrkhānāṁ
+> upadeśo hi mūrkhāṇāṁ
 > prakopāya na śāntaye
 
 "If you instruct a rascal, he'll be angry." Therefore we go as beggars: "My dear sir, you are a very nice man. I am a *sannyāsī* beggar, so I want to construct a temple. Can you spare some money?" So he will think, "Oh, here is a beggar. Give him some money." [*They laugh*] But if I say, "Dear sir, you have millions of dollars at your disposal. That is Kṛṣṇa's money. Give it to me. I am Kṛṣṇa's servant." Oh, he'll... [*Everyone laughs*.] He will not be very satisfied. Rather, if I go as a beggar, he will give me something. And if I tell him the truth, he will not give me a farthing. [*They laugh*] We convince him as beggars. We are not beggars. We are Kṛṣṇa's servants. We don't want anything from anyone. Because we know Kṛṣṇa will provide everything.
@@ -176,7 +176,7 @@ Kṛṣṇa means God.
 They are just slightly God conscious, but still these people are honest to the extent that they don't take from other people at all. And they try to be honest with other people. Will these—
 
 **Prabhupāda:**
-But he does not take from other people, but he takes from God.
+He does not take from other people, but he takes from God.
 
 **Bob:**
 So these people are half good?
@@ -188,7 +188,7 @@ Hm-m?
 These people are then half-good?
 
 **Prabhupāda:**
-Not good. If he does not learn this principle—that God is the proprietor... Others' things? What do you mean by, "others' thing"?
+Not good. If he does not learn this principle—that God is the proprietor... Others' things? What do you mean, "others' things"?
 
 **Bob:**
 Like, people I'm thinking of—they're poor people who need money and food but—
@@ -352,7 +352,7 @@ Like chanting attentively. Sometimes we try to, but—
 **Śrīla Prabhupāda:**
 Well, that is not a fault. Suppose you are trying to do something. Due to your inexperience if you sometimes fail, that is not a fault. You are trying. There is a verse in the *Bhāgavatam*—hm-m—that if a devotee is trying his best but due to his incapability he sometimes fails, Kṛṣṇa excuses him. And in the *Bhagavad-gītā* also it is said:
 
-> api cet su-durācāro
+> api cet sudurācāro
 > bhajate mām ananya-bhāk
 > [[bg/9/30|(Bg. 9.30)]]
 

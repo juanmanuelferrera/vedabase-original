@@ -12,4 +12,4 @@
 
 **“ 'When devotional service is situated on the transcendental platform of pure goodness, it is like a ray of the sunlight of love for Kṛṣṇa. At such a time, devotional service causes the heart to be softened by various tastes, and it is called bhāva [emotion].'**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (1.3.1).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (1.3.1).

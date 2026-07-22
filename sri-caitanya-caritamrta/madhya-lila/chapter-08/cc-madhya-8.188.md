@@ -12,4 +12,4 @@
 
 **“ 'A person who is very cunning and always youthful, expert in joking and without anxiety, and who can keep his girlfriends always subjugated, is called dhīra-lalita.'**
 
-This verse is from the *Bhakti-rasāmṛta-sindhu* (2.1.230).
+This verse is from *Bhakti-rasāmṛta-sindhu* (2.1.230).

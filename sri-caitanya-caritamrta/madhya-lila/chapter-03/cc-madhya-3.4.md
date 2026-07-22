@@ -10,4 +10,4 @@
 
 **After accepting the sannyāsa order, Caitanya Mahāprabhu, out of intense love for Kṛṣṇa, started for Vṛndāvana. However, He mistakenly wandered about in a trance continuously for three days in the tract of land known as Rāḍha-deśa.**
 
-The word Rāḍha-deśa comes from the word *rāṣṭra,* or "state." From *rāṣṭra* the perverted word *rāḍha* has come. The part of Bengal on the western side of the Ganges is known as Rāḍha-deśa. Another name is Pauṇḍra-deśa or Peṅḍo-deśa. The word *peṅḍo* is a perverted form of the word *pengo.* It appears that the capital of Rāṣṭra-deśa was situated in that part of Bengal.
+The word Rāḍha-deśa comes from the word *rāṣṭra,* or "state." From *rāṣṭra* the perverted word *rāḍha* has come. The part of Bengal on the western side of the Ganges is known as Rāḍha-deśa. Another name is Pauṇḍra-deśa. The word *pauṇḍra* is a perverted form of the word *peṇḍo.* It appears that the capital of Rāṣṭra-deśa was situated in that part of Bengal.

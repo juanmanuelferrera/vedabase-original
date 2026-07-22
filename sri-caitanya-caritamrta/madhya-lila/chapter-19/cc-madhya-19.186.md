@@ -12,4 +12,4 @@
 
 **"Besides the five direct mellows, there are seven indirect mellows, known as laughter, wonder, chivalry, compassion, anger, disaster and fear.**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (2.5.116).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (2.5.116).

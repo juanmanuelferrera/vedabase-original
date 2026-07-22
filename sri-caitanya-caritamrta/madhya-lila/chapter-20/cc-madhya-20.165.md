@@ -10,7 +10,7 @@
 
 **"The Supreme Personality of Godhead exists in three principal forms-svayaṁ-rūpa, tad-ekātma-rūpa, and āveśa-rūpa.**
 
-Śrīla Rūpa Gosvāmī has described *svayaṁ-rūpa* in his *Laghu-bhāgavatāmṛta, pūrva-khaṇḍa,* verse 12, *ananyāpekṣi yad rūpaṁ svayaṁ-rūpaḥ sa ucyate:* the original form of the Supreme Personality of Godhead does not depend on other forms. The original form is called *svayaṁ-rūpa,* and it is described in *Śrīmad-Bhāgavatam: kṛṣṇas tu bhagavān svayam* (1.3.28). Kṛṣṇa's original form as a cowherd boy in Vṛndāvana is called *svayaṁ-rūpa.* It is confirmed in the *Brahma-saṁhitā* (5.1):
+Śrīla Rūpa Gosvāmī has described *svayaṁ-rūpa* in his *Laghu-bhāgavatāmṛta, pūrva-khaṇḍa,* verse 12, *ananyāpekṣi yad rūpaṁ svayaṁ-rūpaḥ sa ucyate:* the original form of the Supreme Personality of Godhead does not depend on other forms. The original form is called *svayaṁ-rūpa,* and it is described in *Śrīmad-Bhāgavatam: kṛṣṇas tu bhagavān svayam* (1.3.28). Kṛṣṇa's original form as a cowherd boy in Vṛndāvana is called *svayaṁ-rūpa.* It is confirmed in *Brahma-saṁhitā* (5.1):
 
 > īśvaraḥ paramaḥ kṛṣṇaḥ
 > sac-cid-ānanda-vigrahaḥ

@@ -10,7 +10,7 @@
 
 **"Without having ecstatic love for Kṛṣṇa, one cannot see Him directly. Therefore through the mercy of Śrī Caitanya Mahāprabhu, Brahmānanda Bhāratī has acquired direct vision of the Lord."**
 
-Śrī Caitanya Mahāprabhu said, "You are Brahmānanda Bhāratī, an advanced devotee who ecstatically loves the Supreme Lord. Therefore you see Kṛṣṇa everywhere, and there is no doubt about it." Sārvabhauma Bhaṭṭācārya was a mediator between Śrī Caitanya Mahāprabhu and Brahmānanda Bhāratī, and his judgment was that an advanced devotee like Brahmānanda Bhāratī was seeing Kṛṣṇa by Kṛṣṇa's mercy. Kṛṣṇa directly presents Himself before the vision of an advanced devotee. Since Brahmānanda Bhāratī was an advanced devotee, he saw Kṛṣṇa in the person of Śrī Caitanya Mahāprabhu. In the words of the *Brahma-saṁhitā* (5.38):
+Śrī Caitanya Mahāprabhu said, "You are Brahmānanda Bhāratī, an advanced devotee who ecstatically loves the Supreme Lord. Therefore you see Kṛṣṇa everywhere, and there is no doubt about it." Sārvabhauma Bhaṭṭācārya was a mediator between Śrī Caitanya Mahāprabhu and Brahmānanda Bhāratī, and his judgment was that an advanced devotee like Brahmānanda Bhāratī sees Kṛṣṇa by Kṛṣṇa's mercy. Kṛṣṇa directly presents Himself before the vision of an advanced devotee. Since Brahmānanda Bhāratī was an advanced devotee, he saw Kṛṣṇa in the person of Śrī Caitanya Mahāprabhu. In the words of *Brahma-saṁhitā* (5.38):
 
 > premāñjana-cchurita-bhakti-vilocanena
 > santaḥ sadaiva hṛdayeṣu vilokayanti

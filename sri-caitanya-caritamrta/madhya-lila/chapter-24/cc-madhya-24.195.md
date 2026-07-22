@@ -12,4 +12,4 @@
 
 **“ 'The power of these five principles is very wonderful and difficult to reconcile. Even without faith in them, a person who is offenseless can experience dormant love of Kṛṣṇa simply by being a little connected with them.'**
 
-This verse is also found in the *Bhakti-rasāmṛta-sindhu* (1.2.238).
+This verse is also found in *Bhakti-rasāmṛta-sindhu* (1.2.238).

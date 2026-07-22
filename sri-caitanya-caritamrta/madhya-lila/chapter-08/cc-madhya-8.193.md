@@ -8,7 +8,7 @@
 
 *eta bali'*—saying this; *āpana-kṛta*—composed by himself; *gīta*—song; *eka*—one; *gāhila*—sang; *preme*—in love of Godhead; *prabhu*—Śrī Caitanya Mahāprabhu; *sva-haste*—by His own hand; *tāṅra*—his (Rāmānanda Rāya's); *mukha*—mouth; *ācchādila*—covered.
 
-**Saying this, Rāmānanda Rāya began to sing a song he had composed, but Śrī Caitanya Mahāprabhu, out of the ecstasy of love of Godhead, immediately covered Rāmānanda's mouth with His own hand.**
+**Saying this, Rāmānanda Rāya began to sing a song he had composed, but Śrī Caitanya Mahāprabhu, out of ecstasy of love of Godhead, immediately covered Rāmānanda's mouth with His own hand.**
 
 The topics that are about to be discussed between Lord Śrī Caitanya Mahāprabhu and Rāmānanda Rāya cannot be understood by a materialistic poet, nor by intelligence or material perception. Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura states that the spiritual mellow can be realized only when one is situated on the transcendental platform beyond the material stage of goodness. That platform is called *viśuddha-sattva* (*sattvaṁ viśuddhaṁ vasudeva-śabditam*). Realization of the *viśuddha-sattva* is beyond the pale of the material world and is not perceived by bodily senses or mental speculation. Our identification with the gross body and subtle mind is different from spiritual understanding. Since the intelligence and mind are material, the loving affairs of Śrī Rādhā and Kṛṣṇa are beyond their perception. S*arvopādhi-vinirmuktaṁ tat-paratvena nirmalam:* when we are free from all material designations and our senses are completely purified by the *bhakti* process, we can understand the sense activities of the Absolute Truth (*hṛṣīkeṇa hṛṣīkeśa-sevanaṁ bhaktir ucyate*).
 

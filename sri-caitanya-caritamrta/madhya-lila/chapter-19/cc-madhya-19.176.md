@@ -12,4 +12,4 @@
 
 **"The material desire to enjoy the material world and the desire to become liberated from material bondage are considered to be two witches, and they haunt one like ghosts. As long as these witches remain within the heart, how can one feel transcendental bliss? As long as these two witches remain in the heart, there is no possibility of enjoying the transcendental bliss of devotional service.**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (1.2.22).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (1.2.22).

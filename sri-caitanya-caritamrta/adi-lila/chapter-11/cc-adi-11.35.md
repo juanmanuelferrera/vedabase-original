@@ -10,4 +10,4 @@
 
 **Yadunātha Kavicandra was a great devotee. Lord Nityānanda Prabhu always danced in his heart.**
 
-In the *Caitanya-bhāgavata, Madhya-līlā,* Chapter One, it is said that a gentleman known as Ratnagarbha Ācārya was a friend of Śrī Caitanya Mahāprabhu's father. They were residents of the same village. He had four sons-Kṛṣṇapāda-makaranda, Kṛṣṇānanda, Jīva and Yadunātha Kavicandra.
+In the *Caitanya-bhāgavata, Madhya-līlā,* Chapter One, it is said that a gentleman known as Ratnagarbha Ācārya was a friend of Śrī Nityānanda Prabhu's father. They were residents of the same village. He had four sons-Kṛṣṇapāda-makaranda, Kṛṣṇānanda, Jīva and Yadunātha Kavicandra.

@@ -10,4 +10,4 @@
 
 **After seeing the Ahovala-nṛsiṁha Deity, Caitanya Mahāprabhu offered many prayers unto the Lord. He then went to Siddhavaṭa, where He saw the Deity of Rāmacandra, the Lord of Sītādevī.**
 
-Siddhavaṭa, also known as Sidhauṭa, is ten miles east of the village Kuḍāpā. Previously this place was also known as southern Benares. There is a great banyan tree there, and it is therefore known as Siddhavaṭa. *Vaṭa* means banyan tree.
+This Siddhavaṭa is ten miles east of the village Kuḍāpā. It is also known as Sidhauṭa. Previously this place was also known as southern Benares. There is a great banyan tree there, and it is therefore known as Siddhavaṭa. *Vaṭa* means banyan tree.

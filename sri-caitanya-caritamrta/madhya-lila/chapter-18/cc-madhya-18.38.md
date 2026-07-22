@@ -12,4 +12,4 @@
 
 **Śrī Caitanya Mahāprabhu said, " 'May the left arm of Śrī Kṛṣṇa, whose eyes are like the petals of a lotus flower, always protect you. With His left arm He raised Govardhana Hill as if it were a toy.' "**
 
-This verse is found in the *Bhakti-rasāmṛta-sindhu* (2.1.62).
+This verse is found in *Bhakti-rasāmṛta-sindhu* (2.1.62).

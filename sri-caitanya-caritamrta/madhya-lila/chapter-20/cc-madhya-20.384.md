@@ -10,7 +10,7 @@
 
 **"Lord Kṛṣṇa exhibits His pastimes of childhood, boyhood and pre-youth. When He reaches pre-youth, He continues to exist eternally to perform His rāsa dance and other pastimes.**
 
-The comparison made here is very interesting. Kṛṣṇa does not grow like an ordinary human being, even though He exhibits His pastimes of childhood, boyhood and pre-youth. When He reaches the age of pre-youth, *kaiśora,* He does not grow any older. He simply remains in His *kaiśora* age. He is therefore described in the *Brahma-saṁhitā* (5.33) as *nava-yauvana.*
+The comparison made here is very interesting. Kṛṣṇa does not grow like an ordinary human being, even though He exhibits His pastimes of childhood, boyhood and pre-youth. When He reaches the age of pre-youth, *kaiśora,* He does not grow any older. He simply remains in His *kaiśora* age. He is therefore described in *Brahma-saṁhitā* (5.33) as *nava-yauvana.*
 
 > advaitam acyutam anādim ananta-rūpam
 > ādyaṁ purāṇa-puruṣaṁ nava-yauvanaṁ ca

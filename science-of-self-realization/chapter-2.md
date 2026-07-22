@@ -4,7 +4,7 @@
 
 ## What Is a Guru?
 
-*On hearing the word guru, we tend to envision a caricaturelike image: a bizarre-looking old fellow with a long, stringy beard and flowing robes, meditating on distant, esoteric truths. Or we think of a cosmic con man cashing in on young seekers' spiritual gullibility. But what really is a guru? What does he know that we don't? How does he enlighten us? In a talk given in England in 1973, Śrīla Prabhupāda provides some enlightening answers.*
+*"In all the śāstras [scriptures] the guru is described to be as good as God, but the guru never says, 'I am God.' The disciple's duty is to offer respect to the guru just as he offers respect to God, but the guru never thinks, 'My disciples are offering me the same respect they offer to God; therefore I have become God.' As soon as he thinks like this, he becomes a dog. . . ."*
 
 > oṁ ajñāna-timirāndhasya
 > jñānāñjana-śalākayā
@@ -48,7 +48,7 @@ In the disciplic succession we simply find repetition of the same subject. In th
 
 The bona fide *guru* will simply present what the supreme *guru,* God, says in bona fide scripture. A *guru* cannot change the message of the disciplic succession.
 
-We must understand that we cannot carry out research to find the Absolute Truth. Caitanya Mahāprabhu Himself said, "My Guru Mahārāja, My spiritual master, considered Me a great fool [Cc. Adi 7.71]." He who remains a great fool before his *guru* is a *guru* himself. However, if one says, "I am so advanced that I can speak better than my *guru,*"he is simply a rascal. In the *Bhagavad-gītā* (4.2) Śrī Kṛṣṇa says:
+We must understand that we cannot carry out research to find the Absolute Truth. Caitanya Mahāprabhu Himself said, "My Guru Mahārāja, My spiritual master, considered Me a great fool." He who remains a great fool before his *guru* is a *guru* himself. However, if one says, "I am so advanced that I can speak better than my *guru,*"he is simply a rascal. In the *Bhagavad-gītā* (4.2) Śrī Kṛṣṇa says:
 
 > evaṁ paramparā-prāptam
 > imaṁ rājarṣayo viduḥ
@@ -101,7 +101,7 @@ Is there any science that gives us the knowledge by which we may become immortal
 
 ## Saints and Swindlers
 
-*Every day the number of people interested in practicing yoga and meditation increases by the thousands. Unfortunately, a person looking for a suitable guide is likely to encounter a bewildering array of magicians, self-styled gurus, and self-proclaimed gods. In an interview with the London* Times, *Śrīla Prabhupāda explains how a sincere seeker can tell the difference between a counterfeit and genuine spiritual guide.*
+*Śrīla Prabhupāda speaks out in an interview with the London* Times: *"If you want to be cheated, you will find many cheating gurus. But if you are sincere, you will find a sincere guru. . . . The genuine guru is God's representative, and he speaks about God and nothing else. . . . A genuine guru is not a businessman. He is a representative of God. Whatever God says, the guru repeats. He does not speak otherwise."*
 
 **Reporter:**
 What frankly worries me is that since the arrival in Britain some time ago of an Indian *yogī,* who was the first *"guru"* that most people had ever heard of, a lot of *"gurus"* have suddenly appeared out of nowhere. Sometimes I get the feeling that not all of them are as genuine as they ought to be. Would it be right to warn people who are thinking of taking up spiritual life that they should make sure that they have a genuine *guru* to teach them?
@@ -125,7 +125,7 @@ Can any of my students answer this question?
 Once I remember John Lennon asked you, "How will I know who is the genuine *guru?*" And you answered, "Just find out the one who is most addicted to Kṛṣṇa. He is genuine."
 
 **Śrīla Prabhupāda:**
-Yes. The genuine *guru* is God's representative, and he speaks about God and nothing else. The genuine *guru* is he who has no interest in materialistic life. He is after God, and God only. That is one of the tests of a genuine *guru: brahma-niṣṭham.* He is absorbed in the Absolute Truth. In the *Muṇḍaka Upaniṣad* it is stated, *śrotriyaṁ brahma-niṣṭham:* [MU 1.2.12] "The genuine *guru* is well versed in the scriptures and Vedic knowledge, and he is completely dependent on Brahman." He should know what Brahman [spirit] is and how to become situated in Brahman. These signs are given in the Vedic literature. As I said before, the real *guru* is God's representative. He represents the Supreme Lord, just as a viceroy represents a king. The real *guru* will not manufacture anything. Everything he says is in accordance with the scriptures and the previous *ācāryas.* He will not give you a *mantra* and tell you that you will become God in six months. This is not a *guru's* business. A *guru's* business is to canvass everyone to become a devotee of God. That is the sum and substance of a real *guru's* business. Indeed, he has no other business. He tells whomever he sees, "Please become God conscious." If he canvasses somehow or other on behalf of God and tries to get everyone to become a devotee of God, he is a genuine *guru.*
+Yes. The genuine *guru* is God's representative, and he speaks about God and nothing else. The genuine *guru* is he who has no interest in materialistic life. He is after God, and God only. That is one of the tests of a genuine *guru: brahma-niṣṭham.* He is absorbed in the Absolute Truth. In the *Muṇḍaka Upaniṣad* it is stated, *śrotriyaṁ brahma-niṣṭham:* "The genuine *guru* is well versed in the scriptures and Vedic knowledge, and he is completely dependent on Brahman." He should know what Brahman [spirit] is and how to become situated in Brahman. These signs are given in the Vedic literature. As I said before, the real *guru* is God's representative. He represents the Supreme Lord, just as a viceroy represents a king. The real *guru* will not manufacture anything. Everything he says is in accordance with the scriptures and the previous *ācāryas.* He will not give you a *mantra* and tell you that you will become God in six months. This is not a *guru's* business. A *guru's* business is to canvass everyone to become a devotee of God. That is the sum and substance of a real *guru's* business. Indeed, he has no other business. He tells whomever he sees, "Please become God conscious." If he canvasses somehow or other on behalf of God and tries to get everyone to become a devotee of God, he is a genuine *guru.*
 
 **Reporter:**
 What about a Christian priest?
@@ -345,7 +345,7 @@ Hare Kṛṣṇa.
 
 ## The Absolute Necessity of a Spiritual Master
 
-In February 1936, in Bombay, India, the members of a reputed religious society, the Gauḍīya Maṭha, were astonished by the powerful and eloquent words of a young member who spoke in honor of his spiritual master, Śrīla Bhaktisiddhānta Sarasvatī Gosvāmī. Three decades later, will become the world-renowned spiritual master of the Kṛṣṇa consciousness movement. Śrīla Prabhupāda's presentation is a memorable statement on the importance of the guru in spiritual life.
+It is February 1936, in Bombay. The pure devotee who three decades later will become the world-renowned spiritual master of the Kṛṣṇa consciousness movement glorifies his own spiritual master. Here we learn the time-honored meaning of the spiritual master, the disciple, and their relationship. . . .
 
 > sākṣād-dharitvena samasta-śāstrair
 > uktas tathā bhāvyata eva sadbhiḥ

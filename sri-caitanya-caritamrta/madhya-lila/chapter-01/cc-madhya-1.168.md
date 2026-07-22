@@ -10,4 +10,4 @@
 
 **When the Mohammedan King of Bengal heard of Caitanya Mahāprabhu's influence in attracting innumerable people, he became very astonished and began to speak as follows.**
 
-At that time the Mohammedan king of Bengal was Nawab Hussain Shah Bādasāha.
+At that time the Mohammedan king of Bengal was Nawab Husen Sāhā Bādasāha.

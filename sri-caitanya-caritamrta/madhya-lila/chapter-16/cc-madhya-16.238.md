@@ -21,7 +21,7 @@ In order to render service to the Lord, one may accept necessary things. If one 
 
 "The bare necessities of life must be accepted, but one should not superfluously increase his necessities. Nor should they be unnecessarily decreased. One should simply accept what is necessary to help one advance spiritually."
 
-In his *Durgama-saṅgamanī,* Śrī Jīva Gosvāmī comments that the word *sva-nirvāhaḥ* actually means *sva-sva-bhakti-nirvāhaḥ.* The experienced devotee will accept only those material things that will help him render service to the Lord. In the *Bhakti-rasāmṛta-sindhu* (1.2.256), *markaṭa-vairāgya,* or *phalgu-vairāgya,* is explained as follows:
+In his *Durgama-saṅgamanī,* Śrī Jīva Gosvāmī comments that the word *sva-nirvāhaḥ* actually means *sva-sva-bhakti-nirvāhaḥ.* The experienced devotee will accept only those material things that will help him render service to the Lord. In *Bhakti-rasāmṛta-sindhu* (1.2.256), *markaṭa-vairāgya,* or *phalgu-vairāgya,* is explained as follows:
 
 > prāpañcikatayā buddhyā
 > hari-sambandhi-vastunaḥ
