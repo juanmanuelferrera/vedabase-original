@@ -234,7 +234,7 @@ No verso acima, a palavra *bījam* significa semente, e essa semente é proclama
 
 balaṁ balavatāṁ cāhaṁ
 
-kā ma-rāga-vivarjitam
+kāma-rāga-vivarjitam
 
 dharmāviruddho bhūteṣu
 

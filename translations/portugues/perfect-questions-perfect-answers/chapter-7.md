@@ -208,7 +208,7 @@ as pessoas, e elas pensarão que somos tolos. Se eu disser a um homem rico: "Voc
 
 
 
-upadeśo hi mūrkhānāṁ
+upadeśo hi mūrkhāṇāṁ
 
 prakopāya na śāntaye
 
@@ -446,7 +446,7 @@ Girirāja: Como cantar atentamente. Às vezes tentamos, mas...
 
 
 
-api cet su-durācāro
+api cet sudurācāro
 
 bhajate mām ananya-bhāk
 

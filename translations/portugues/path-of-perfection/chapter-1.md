@@ -114,7 +114,7 @@ kutas tvā kaśmalam idaṁ
 
 viṣame samupasthitam
 
-anārya juṣṭam asvargyaṁ
+anārya-juṣṭam asvargyaṁ
 
 akīrti-karam arjuna
 

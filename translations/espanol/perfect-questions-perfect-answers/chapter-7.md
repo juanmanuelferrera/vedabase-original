@@ -110,7 +110,7 @@ Si simplemente entiendes a Kṛṣṇa mediante estas tres fórmulas, entonces t
 
 la gente, y pensarán que somos necios. Si le digo a un hombre rico: «Tú no eres el propietario. Kṛṣṇa es el propietario, así que todo el dinero que tengas, gástalo para Kṛṣṇa», se enfadará.
 
-> upadeśo hi mūrkhānāṁ
+> upadeśo hi mūrkhāṇāṁ
 > prakopāya na śāntaye
 
 «Si instruyes a un bribón, se enfadará». Por eso vamos como mendigos: «Mi querido señor, usted es un hombre muy bueno. Soy un sannyāsī mendicante, y quiero construir un templo. ¿Puede aportar algo de dinero?». Así pensará: «Oh, he aquí un mendigo. Dale algo de dinero». [Se ríen]. Pero si digo: «Querido señor, tiene millones de dólares a su disposición. Ese es dinero de Kṛṣṇa. Démelo a mí. Soy el servidor de Kṛṣṇa». Oh, él... [Todos se ríen]. No quedará muy satisfecho. Más bien, si voy como mendigo, me dará algo. Y si le digo la verdad, no me dará ni un céntimo. [Se ríen]. Los convencemos como mendigos. No somos mendigos. Somos servidores de Kṛṣṇa. No queremos nada de nadie. Porque sabemos que Kṛṣṇa proveerá todo.
@@ -233,7 +233,7 @@ Girirāja: Como cantar con atención. A veces intentamos, pero...
 
 >
 
-> api cet su-durācāro
+> api cet sudurācāro
 > bhajate mām ananya-bhāk
 
 A veces, no voluntariamente, sino debido a malos hábitos del pasado —el hábito es una segunda naturaleza—, uno hace algo insensato. Pero eso no significa que sea culpable. Aunque debe arrepentirse por ello: «He hecho esto». Y debe tratar de evitarlo en la medida de lo posible. Pero el hábito es una segunda naturaleza. A veces, a pesar de que uno se esfuerza mucho, la māyā es tan fuerte que lo empuja con trampas. Eso se puede excusar. Kṛṣṇa lo excusa. Pero aquellos que hacen algo deliberadamente no son excusados. Amparándose en que soy devoto, si pienso: «Como estoy cantando, puedo cometer todos estos disparates y quedarán anulados», esa es la ofensa más grave.
