@@ -12,4 +12,4 @@
 
 **Please also explain the regulations for offering respects to the forefathers, the creation of the Pitṛloka, the time schedule in the planets, stars and luminaries, and their respective situations.**
 
-The time durations of day and night as well as months and years are different in the different planets, stars and luminaries. The higher planets like the moon and Venus have time measurements different from those of the earth. It is said that six months of this planet earth equal one day of the higher planets. In *Bhagavad-gītā* the duration of one day in years multiplied by 1,000. And the month and year in Brahmaloka are calculated in that measure.
+The time durations of day and night as well as of months and years are different in the different planets, stars and luminaries. The higher planets like the moon and Venus have different time measurements than the earth. It is said that six months of this planet earth is equal to one day of the higher planets. In *Bhagavad-gītā* the duration of one day in Brahmaloka is measured to be 1,000 times the four *yugas*, or 4,300,000 multiplied by 1,000. And the month and year in Brahmaloka are calculated in that measure.

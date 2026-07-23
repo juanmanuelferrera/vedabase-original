@@ -12,4 +12,4 @@
 
 **Please also describe the incarnations of the material modes of nature—Brahmā, Viṣṇu and Maheśvara—and please describe the incarnation of the Supreme Personality of Godhead and His magnanimous activities.**
 
-Although Brahmā, Viṣṇu and Maheśvara, the three incarnations of the material modes of nature, are the principal deities for the creation, maintenance and destruction of the cosmic manifestation, they are not the final authority. The Supreme Personality of Godhead Lord Kṛṣṇa is the ultimate goal, the cause of all causes. He is the *āśraya,* or the final rest of everything.
+Although the three incarnations of the material modes of nature, Brahmā, Viṣṇu and Maheśvara, are the principal deities for the creation, maintenance and destruction of the cosmic manifestation, they are not the final authority. The Supreme Personality of Godhead Lord Kṛṣṇa is the ultimate goal, the cause of all causes. He is the *āśraya,* or the final rest of everything.

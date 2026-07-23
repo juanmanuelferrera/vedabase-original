@@ -35,4 +35,4 @@ After the dissolution of the material manifestations, the Lord and His kingdom b
 > ato 'cyuto 'khile loke
 > sa ekaḥ sarva-go 'vyayaḥ
 
-"The devotees of the Lord never annihilate their individual existences even after the dissolution of the entire cosmic manifestation. The Lord and the devotees who associate with Him are always eternal, in both the material and spiritual worlds."
+"The devotees of the Lord never annihilate their individual existences even after the dissolution of the entire cosmic manifestation. The Lord and the devotees who associate with Him are always eternal, both in the material and spiritual worlds."
