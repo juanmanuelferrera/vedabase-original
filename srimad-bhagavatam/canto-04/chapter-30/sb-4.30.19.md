@@ -28,7 +28,7 @@ The Supreme Lord is the supreme proprietor; consequently the devotee does not co
 
 yajñārthāt karmaṇo 'nyatra loko 'yaṁ karma-bandhanaḥ tad-arthaṁ karma kaunteya mukta-saṅgaḥ samācara
 
-One who tries to enjoy the results of his activities becomes bound by the results. One who offers the results or profits to the Supreme Personality of Godhead, however, does not become entangled in the results. This is the secret of success. Generally people take sannyāsa to become free from the reactions of fruitive activity. One who does not receive the results of his actions but offers them instead to the Supreme Personality of Godhead certainly remains in a liberated condition. In Bhakti-rasāmṛta-sindhu, Śrī Rūpa Gosvāmī confirms this:
+One who tries to enjoy the results of his activities becomes bound by the results. One who offers the results or profits to the Supreme Personality of Godhead, however, does not become entangled in the results. This is the secret of success. Generally people take sannyāsa to become free from the reactions of fruitive activity. One who does not receive the results of his actions but offers them instead to the Supreme Personality of Godhead certainly remains in a liberated condition. In Bhakti-rasāmṛta-sindhu, Śrīla Rūpa Gosvāmī confirms this:
 
 īhā yasya harer dāsye karmaṇā manasā girā nikhilāsv apy avasthāsu jīvan-muktaḥ sa ucyate
 

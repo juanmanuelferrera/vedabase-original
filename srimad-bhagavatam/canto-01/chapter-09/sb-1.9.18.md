@@ -20,6 +20,6 @@ Bhīṣmadeva is one of the twelve mahājanas who know the principles of transce
 
 The bewilderment regarding Śrī Kṛṣṇa is due to the action of His two fold internal and external energies upon the third one, called marginal energy. The living entities are expansions of His marginal energy, and thus they are sometimes bewildered by the internal energy and sometimes by the external energy. By internal energetic bewilderment, Śrī Kṛṣṇa expands Himself into unlimited numbers of Nārāyaṇas and exchanges or accepts transcendental loving service from the living entities in the transcendental world. And by His external energetic expansions, He incarnates Himself in the material world amongst the men, animals or demigods to reestablish His forgotten relation with the living entities in different species of life. Great authorities like Bhīṣma, however, escape His bewilderment by the mercy of the Lord.
 
-*nārāyaṇaḥ paro 'vyaktāt aṇḍa-avyakta sambhavam avyaktantas tu ime loka sapta dvīpa ca medina
+*nārāyaṇaḥ paro 'vyaktāt aṇḍa-avyakta sambhavam avyaktantas tu ime loka sapta dvīpa ca medini
 
 (Bg. Bhāṣya of Śaṅkara)

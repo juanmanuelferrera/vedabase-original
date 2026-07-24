@@ -12,4 +12,4 @@
 
 **He was seated on a deerskin and was practicing all forms of austerity. Because his body was smeared with ashes, he looked like an evening cloud. On his hair was the sign of a half-moon, a symbolic representation.**
 
-Lord Śiva's symptoms of austerity are not exactly those of a Vaiṣṇava. Lord Śiva is certainly the number one Vaiṣṇava, but he exhibits a feature for a particular class of men who cannot follow the Vaiṣṇava principles. The Śaivites, the devotees of Lord Śiva, generally dress like Lord Śiva, and sometimes they indulge in smoking and taking intoxicants. Such practices are never accepted by the followers of Vaiṣṇava rituals.
+Lord Śiva's symptoms of austerity are not exactly those of a Vaiṣṇava. Lord Śiva is certainly the number one Vaiṣṇava, but he exhibited a feature for a particular class of men who cannot follow the Vaiṣṇava principles. The Śaivites, the devotees of Lord Śiva, generally dress like Lord Śiva, and sometimes they indulge in smoking and taking intoxicants. Such practices are never accepted by the followers of Vaiṣṇava rituals.

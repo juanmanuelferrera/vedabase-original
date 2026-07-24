@@ -27,7 +27,7 @@ yathā tathā vā vidadhātu lampaṭo mat-prāṇa-nāthas tu sa eva nāparaḥ
 
 "Lord Kṛṣṇa, who is the lover of many devotees (women), may embrace this fully surrendered maidservant or may trample me with His feet, or He may render me brokenhearted by not being present before me for a long duration of time, still He is nothing less than the Absolute Lord of my heart."
 
-Siila Rūpa Gosvāmī spoke thus:
+Śrīla Rūpa Gosvāmī spoke thus:
 
 viracaya mayi daṇḍam dīna-bandho dayāṁ vā
 
