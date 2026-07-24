@@ -14,7 +14,7 @@
 
 As stated in Bhagavad-gītā:
 
-yad yad ācarati śreṣṭhas tad tad evetaro janaḥ sa yat pramāṇaṁ kurute lokas tad anuvartate
+yad yad ācarati śreṣṭhas tat tad evetaro janaḥ sa yat pramāṇaṁ kurute lokas tad anuvartate
 
 "Whatever action is performed by a great man, common men follow in his footsteps. And whatever standards he sets by exemplary acts, all the world pursues." (Bg. 3.21)
 

@@ -8,7 +8,7 @@
 > pūjayadhvaṁ gṛṇantaś ca\
 > dhyāyantaś cāsakṛd dharim
 
-*tam*—unto Him; *eva*—certainly; *ātmānam*—the Supreme Soul; *ātma-stham*—within your hearts; *sarva*—all; *bhūteṣu*—in every living being; *avasthitam*—situated; *pūjayadhvam*—just worship Him; *gṛṇantaḥ ca*—always chanting; *dhyāyantaḥ ca*—always meditating upon; *asakṛt*—continuously; *harim*—the Supreme Personality of Godhead.
+*tam*—unto Him; *eva*—certainly; *ātmānam*—the Supreme Soul; *ātma-stham*—within your hearts; *sarva*—all; *bhūteṣu*—in every living being; *avasthitam*—situated; *pūjayadhvam*—just worship Him; *gṛṇantaḥ ca*—always chanting; *dhyāyantaḥ ca*—always meditating upon; *asakṛt*—continually; *harim*—the Supreme Personality of Godhead.
 
 **Therefore, O sons of the king, the Supreme Personality of Godhead, Hari is situated in everyone's heart. He is also within your hearts. Therefore chant the glories of the Lord and always meditate upon Him continuously.**
 

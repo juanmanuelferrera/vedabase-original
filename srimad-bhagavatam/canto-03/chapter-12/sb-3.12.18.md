@@ -12,4 +12,4 @@
 
 **My dear son, you had better situate yourself in penance, which is auspicious for all living entities and which will bring all benediction upon you. By penance only shall you be able to create the universe as it was before.**
 
-In the creation, maintenance and destruction of the cosmic manifestation, the three deities Brahmā, Viṣṇu and Maheśvara, or Śiva, are respectively in charge. Rudra was advised not to destroy while the period of creation and maintenance was going on, but to situate himself in penance and wait for the time of dissolution, when his services would be called for.
+In the creation, maintenance and dissolution of the cosmic manifestation, the three deities Brahmā, Viṣṇu and Maheśvara, or Śiva, are respectively in charge. Rudra was advised not to destroy while the period of creation and maintenance was going on, but to situate himself in penance and wait for the time of dissolution, when his services would be called for.

@@ -35,7 +35,7 @@ Within one's body and mind, one can think as either a dog or a god, and the next
 
 puruṣaḥ prakṛti-stho hi bhuṅkte prakṛti-jān guṇān kāraṇaṁ guṇa-saṅgo 'sya sad-asad-yoni-janmasu
 
-"The living entity in material nature thus follows the ways of life, enjoying the three modes of nature. This is due to his association with that material nature. Thus he meets with good and evil among various species." (Bg. 13.22)
+"The living entity in material nature thus follows the ways of life, enjoying the three modes of nature. This is due to his association with that material nature. Thus he meets with good and evil amongst various species." (Bg. 13.22)
 
 The living entity may transmigrate to either a superior or inferior body according to his association with the modes of material nature. If he associates with the mode of ignorance, he gets the body of an animal or an inferior man, but if he associates with the mode of goodness or passion, he gets a body accordingly. This is also confirmed in Bhagavad-gītā:
 
