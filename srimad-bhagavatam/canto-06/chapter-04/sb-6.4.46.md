@@ -21,7 +21,7 @@ To engage in *tapasya,* or denial of material activities, is the first principle
 > hetunānena kaunteya
 > jagad viparivartate
 
-"This material nature is working under My direction, O son of Kuntī, and it is producing all moving and nonmoving beings. By its rule this manifestation is created and annihilated again and again." If one is unable to see the Supreme Lord although He is present as Kṛṣṇa in His various incarnations, one may see the Supreme Lord's impersonal feature, according to the direction of the *Vedas,* by seeing the activities of material nature.
+"This material nature is working under My direction, O son of Kuntī, and it is producing all moving and unmoving beings. By its rule this manifestation is created and annihilated again and again." If one is unable to see the Supreme Lord although He is present as Kṛṣṇa in His various incarnations, one may see the Supreme Lord's impersonal feature, according to the direction of the *Vedas,* by seeing the activities of material nature.
 
 Anything done under the direction of the Vedic injunctions is called *dharma,* as described by the order carriers of Yamarāja [[sb/6/1/40|(SB 6.1.40)]]:
 

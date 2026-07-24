@@ -16,7 +16,7 @@ As stated in Bhagavad-gītā:
 
 icchā-dveṣa-samutthena dvandva-mohena bhārata sarva-bhūtāni sammohaṁ sarge yānti parantapa
 
-"O scion of Bharata [Arjuna], O conqueror of the foe, all living entities are born into delusion, overcome by the dualities of desire and hate." (Bg. 7.27)
+"O scion of Bharata [Arjuna], O conquerer of the foe, all living entities are born into delusion, overcome by the dualities of desire and hate." (Bg. 7.27)
 
 This is an explanation of how the living entity falls down into this material world. In the spiritual world there is no duality, nor is there hate. The Supreme Personality of Godhead expands Himself into many. In order to enjoy bliss more and more, the Supreme Lord expands Himself in different categories. As mentioned in the Varāha Purāṇa, He expands Himself in viṣṇu-tattva (the svāṁśa expansion) and in His marginal potency (the vibhinnāṁśa, or the living entity). These expanded living entities are innumerable, just as the minute molecules of sunshine are innumerable expansions of the sun. The vibhinnāṁśa expansions, the marginal potencies of the Lord, are the living entities. When the living entities desire to enjoy themselves, they develop a consciousness of duality and come to hate the service of the Lord. In this way the living entities fall into the material world. In the Prema-vivarta it is said:
 

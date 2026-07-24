@@ -8,6 +8,6 @@
 > dvi-śaphāḥ paśavaś ceme\
 > avir uṣṭraś ca sattama
 
-*gauḥ*—the cow; *ajaḥ*—the goat; *mahiṣaḥ*—the buffalo; *kṛṣṇaḥ*—a kind of stag; *sūkaraḥ*—hog; *gavayaḥ*—a species of animal; *ruruḥ*—deer; *dvi-śaphāḥ*—having two hooves; *paśavaḥ*—animals; *ca*—also; *ime*—all these; *aviḥ*—lamb; *uṣṭraḥ*—camel; *ca*—and; *sattama*—O purest.
+*gauḥ*—the cow; *ajaḥ*—the goat; *mahiṣaḥ*—the buffalo; *kṛṣṇaḥ*—a kind of stag; *sūkaraḥ*—hog; *gavayaḥ*—a species of animal; *ruruḥ*—deer; *dvi-śaphāḥ*—having two hoofs; *paśavaḥ*—animals; *ca*—also; *ime*—all these; *aviḥ*—lamb; *uṣṭraḥ*—camel; *ca*—and; *sattama*—O purest.
 
-**O purest Vidura, of the lower animals the cow, goat, buffalo, kṛṣṇa stag, hog, gavaya animal, deer, lamb and camel all have two hooves.**
+**O purest Vidura, of the lower animals the cow, goat, buffalo, kṛṣṇa stag, hog, gavaya animal, deer, lamb and camel all have two hoofs.**

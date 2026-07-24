@@ -12,7 +12,7 @@
 
 **O King, all good fortune unto you! The mind is the cause of the living entity's attaining a certain type of body in accordance with his association with material nature. According to one's mental composition, one can understand what the living entity was in his past life as well as what kind of body he will have in the future. Thus the mind indicates the past and future bodies.**
 
-The mind is the index of information about one's past and future lives. If a man is a devotee of the Lord, he cultivated devotional service in his previous life. Similarly, if one's mind is criminal, he was criminal in his last life. In the same way, according to the mind, we can understand what will happen in a future life. In Bhagavad-gītā it is said:
+The mind is the index of information about one's past and future life. If a man is a devotee of the Lord, he cultivated devotional service in his previous life. Similarly, if one's mind is criminal, he was criminal in his last life. In the same way, according to the mind, we can understand what will happen in a future life. In Bhagavad-gītā it is said:
 
 ūrdhvaṁ gacchanti sattva-sthā madhye tiṣṭhanti rājasāḥ jaghanya-guṇa-vṛtti-sthā adho gacchanti tāmasāḥ
 

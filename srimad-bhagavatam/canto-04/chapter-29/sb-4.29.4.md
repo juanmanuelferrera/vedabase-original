@@ -16,7 +16,7 @@ This is a very nice explanation of how the spiritual being, the part and parcel 
 
 icchā-dveṣa-samutthena dvandva-mohena bhārata sarva-bhūtāni sammohaṁ sarge yānti parantapa
 
-"O scion of Bharata [Arjuna], O conqueror of the foe, all living entities are born into delusion, overcome by the dualities of desire and hate." (Bg. 7.27)
+"O scion of Bharata [Arjuna], O conquerer of the foe, all living entities are born into delusion, overcome by the dualities of desire and hate." (Bg. 7.27)
 
 Originally the living entity is a spiritual being, but when he actually desires to enjoy this material world, he comes down. From this verse we can understand that the living entity first accepts a body that is human in form, but gradually, due to his degraded activities, he falls into lower forms of life—into the animal, plant and aquatic forms. By the gradual process of evolution, the living entity again attains the body of a human being and is given another chance to get out of the process of transmigration. If he again misses his chance in the human form to understand his position, he is again placed in the cycle of birth and death in various types of bodies.
 
