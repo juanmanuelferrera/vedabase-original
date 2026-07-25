@@ -30,7 +30,7 @@
 
 These three verses explain how the material body of the living entity is under the control of the three qualities of the external energy. The body itself is the chariot, and the living entity is the owner of the body, as explained in Bhagavad-gītā: dehino 'smin yathā dehe (Bg. 2.13). The owner of the body is called the dehī, and he is situated within this body, specifically within the heart. The living entity is driven by one chariot driver. The chariot itself is made of three guṇas, three qualities of material nature, as confirmed in Bhagavad-gītā: yantrārūḍhāni māyayā (Bg. 18.61). The word yantra means carriage. The body is given by material nature, and the driver of that body is Paramātmā, the Supersoul. The living entity is seated within the chariot. This is the actual position.
 
-The living entity is always being influenced by the three qualities-sattva (goodness), rajas (passion) and tamas (ignorance). This is also confirmed in Bhagavad-gītā:
+The living entity is always being influenced by the three qualities-sattva (goodness), rajah (passion) and tamah (ignorance). This is also confirmed in Bhagavad-gītā:
 
 tribhir guṇa-mayair bhāvair
 
