@@ -14,4 +14,4 @@
 
 **Śukadeva Gosvāmī continued: O best of kings [King Parīkṣit], I have now finished telling about the descendants of the first son of Svāyambhuva Manu, Uttānapāda. I shall now try to relate the activities of the descendants of Priyavrata, the second son of Svāyambhuva Manu. Please hear them attentively.**
 
-Dhruva Mahārāja was the son of King Uttānapāda, and as far as the descendants of Dhruva Mahārāja or King Uttānapāda are concerned, their activities have been described up to the point of the Pracetās. Now Śrī Śukadeva Gosvāmī desires to describe the descendants of Mahārāja Priyavrata, the second son of Svāyambhuva Manu.
+Dhruva Mahārāja was the son of King Uttānapāda, and as far as the descendants of Dhruva Mahārāja or King Uttānapāda are concerned, their activities are described up to the point of the Pracetās. Now Śrī Śukadeva Gosvāmī desires to describe the descendants of Mahārāja Priyavrata, the second son of Svāyambhuva Manu.
