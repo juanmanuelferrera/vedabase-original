@@ -12,4 +12,4 @@
 
 **I am such a sinful person, but since I have now gotten this opportunity, I must completely control my mind, life and senses and always engage in devotional service so that I may not fall again into the deep darkness and ignorance of material life.**
 
-Every one of us should have this determination. We have been elevated to an exalted position by the mercy of Kṛṣṇa and the spiritual master, and if we remember that this is a great opportunity and pray to Kṛṣṇa that we will not fall again, our lives will be successful.
+Everyone one of us should have this determination. We have been elevated to an exalted position by the mercy of Kṛṣṇa and the spiritual master, and if we remember that this is a great opportunity and pray to Kṛṣṇa that we will not fall again, our lives will be successful.
