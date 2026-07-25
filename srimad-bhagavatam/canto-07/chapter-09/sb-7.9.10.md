@@ -12,7 +12,9 @@
 
 *viprāt*—than a *brāhmaṇa*; *dvi-ṣaṭ-guṇa-yutāt*—qualified with twelve brahminical qualities; *aravinda-nābha*—Lord Viṣṇu, who has a lotus growing from His navel; *pāda-aravinda*—to the lotus feet of the Lord; *vimukhāt*—not interested in devotional service; *śva-pacam*—one born in a low family, or a dog-eater; *variṣṭham*—more glorious; *manye*—I consider; *tat-arpita*—surrendered unto the lotus feet of the Lord; *manaḥ*—his mind; *vacana*—words; *īhita*—every endeavor; *artha*—wealth; *prāṇam*—and life; *punāti*—purifies; *saḥ*—he (the devotee); *kulam*—his family; *na*—not; *tu*—but; *bhūrimānaḥ*—one who falsely thinks himself to be in a prestigious position.
 
-**If a brāhmaṇa has all twelve of the brahminical qualifications [as they are stated in the book called Sanat-sujāta] but is not a devotee and is averse to the lotus feet of the Lord, he is certainly lower than a devotee who is a dog-eater but who has dedicated everything—mind, words, activities, wealth and life—to the Supreme Lord. Such a devotee is better than such a brāhmaṇa because the devotee can purify his whole family, whereas the so-called brāhmaṇa in a position of false prestige cannot purify even him- self. PURPORT**
+**If a brāhmaṇa has all twelve of the brahminical qualifications [as they are stated in the book called Sanat-sujāta] but is not a devotee and is averse to the lotus feet of the Lord, he is certainly lower than a devotee who is a dog-eater but who has dedicated everything—mind, words, activities, wealth and life—to the Supreme Lord. Such a devotee is better than such a brāhmaṇa because the devotee can purify his whole family, whereas the so-called brāhmaṇa in a position of false prestige cannot purify even himself.**
+
+**PURPORT**
 
 Here is a statement by Prahlāda Mahārāja, one of the twelve authorities, regarding the distinction between a devotee and a *brāhmaṇa* expert in *karma-kāṇḍa,* or Vedic ritualistic ceremonies. There are four *varṇas* and four *āśramas,* which divide human society, but the central principle is to become a first-class pure devotee. It is said in the *Hari-bhakti-sudhodaya:*
 
