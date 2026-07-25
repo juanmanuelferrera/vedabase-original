@@ -14,7 +14,7 @@
 
 The mystic yogīs, after a strenuous effort to control the senses, may be situated in a trance of yoga just to have a vision of the Supersoul within everyone, but the pure devotee, simply by remembering the Lord's lotus feet at every second, at once becomes posted in real trance because by such realization his mind and intelligence become completely cleansed of the diseases of material enjoyment. The pure devotee thinks himself fallen into the ocean of birth and death and incessantly prays to the Lord to lift him up. He only aspires to become a speck of transcendental dust at the lotus feet of the Lord. The pure devotee, by the grace of the Lord, absolutely loses all attraction for material enjoyment, and to keep free from contamination he always thinks of the lotus feet of the Lord. King Kulaśekhara, a great devotee of the Lord, prayed:
 
-kṛṣṇa tvadīya-pada-paṅkaja-pañjarāntam adyaiva me viśatu mānasa-rāja-haṁsaḥ
+kṛṣṇa tvadīya-pada-paṅkaja-pañjarāntam adyaiva viśatu me mānasa-rāja-haṁsaḥ
 
 prāṇa-prayāṇa-samaye kapha-vāta-pittaiḥ kaṇṭhāvarodhanavidhau smaraṇaṁ kutas te
 

@@ -24,7 +24,7 @@ vedaiś ca sarvair aham eva vedyo
 
 vedānta-kṛd veda-vid eva cāham
 
-"I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness. By all the Vedas am I to be known; indeed I am the compiler of Vedānta, and I am the knower of the Vedas." (Bg. 15.15)
+"I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness. By all the Vedas I am to be known; indeed I am the compiler of Vedānta, and I am the knower of the Vedas." (Bg. 15.15)
 
 All Vedic knowledge is meant for searching out Kṛṣṇa because Kṛṣṇa is the origin of everything. Janmādy asya yataḥ. In Bhagavad-gītā Kṛṣṇa says:
 

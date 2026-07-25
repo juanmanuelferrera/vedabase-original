@@ -34,7 +34,7 @@ vedaiś ca sarvair aham eva vedyo
 
 vedānta-kṛd veda-vid eva cāham
 
-"I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness. By all the Vedas am I to be known; indeed I am the compiler of Vedānta, and I am the knower of the Vedas." (Bg. 15.15)
+"I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness. By all the Vedas I am to be known; indeed I am the compiler of Vedānta, and I am the knower of the Vedas." (Bg. 15.15)
 
 Everything is being directed by the Supersoul within the body; therefore the better part of valor is to take His direction and be happy. To take His directions, one needs to be a devotee, and this is also confirmed in Bhagavad-gītā:
 

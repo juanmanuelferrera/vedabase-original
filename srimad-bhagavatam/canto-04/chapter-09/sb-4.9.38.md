@@ -10,4 +10,4 @@
 
 *śraddhāya*—keeping faith; *vākyam*—in the words; *devarṣeḥ*—of the great sage Nārada; *harṣa-vegena*—by great satisfaction; *dharṣitaḥ*—overwhelmed; *vārtā-hartuḥ*—with the messenger who brought the news; *atiprītaḥ*—being very satisfied; *hāram*—a pearl necklace; *prādāt*—offered; *mahā-dhanam*—very valuable.
 
-**Although he could not believe the words of the messenger, he had full faith in the word of the great sage Nārada. Thus he was greatly overwhelmed by the news, and he immediately offered the messenger a highly valuable garland in great satisfaction.**
+**Although he could not believe the words of the messenger, he had full faith in the word of the great sage Nārada. Thus he was greatly overwhelmed by the news, and immediately he offered the messenger a highly valuable garland in great satisfaction.**

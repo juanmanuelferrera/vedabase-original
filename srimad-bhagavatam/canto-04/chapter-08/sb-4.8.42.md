@@ -10,7 +10,7 @@
 
 *tat*—that; *tāta*—my dear son; *gaccha*—go; *bhadram*—good fortune; *te*—for you; *yamunāyāḥ*—of the Yamunā; *taṭam*—bank; *śuci*—being purified; *puṇyam*—the holy; *madhu-vanam*—of the name Madhuvana; *yatra*—where; *sānnidhyam*—being nearer; *nityadā*—always; *hareḥ*—of the Supreme Personality of Godhead.
 
-**My dear boy, I therefore wish all good fortune for you. You should go to the bank of the Yamunā, where there is a virtuous forest named Madhuvana, and there be purified. Just by going there, one draws nearer to the Supreme Personality of Godhead, who always lives there.**
+**My dear boy, therefore I wish all good fortune for you. You should go to the bank of the Yamunā, where there is a virtuous forest named Madhuvana, and there be purified. Just by going there, one draws nearer to the Supreme Personality of Godhead, who always lives there.**
 
 Both Nārada Muni and Sunīti, the mother of Dhruva Mahārāja, advised Dhruva Mahārāja to worship the Supreme Personality of Godhead. Now, Nārada Muni is especially giving him directions how this worship of the Supreme Person can very quickly fructify. He recommends that Dhruva Mahārāja go to the bank of the Yamunā, where there is a forest of the name Madhuvana, and begin his meditation and worship there.
 

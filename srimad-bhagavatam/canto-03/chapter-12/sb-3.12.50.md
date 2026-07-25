@@ -10,4 +10,4 @@
 
 *ṛṣīṇām*—of the great sages; *bhūri-vīryāṇām*—with great potential power; *api*—in spite of; *sargam*—the creation; *avistṛtam*—not extended; *jñātvā*—knowing; *tat*—that; *hṛdaye*—in his heart; *bhūyaḥ*—again; *cintayām āsa*—he began to consider; *kaurava*—O son of the Kurus.
 
-**O son of the Kurus, when Brahmā saw that in spite of the presence of sages of great potency there was no sufficient increase in population, he seriously began to consider how the population could be increased.**
+**O son of the Kurus, when Brahmā saw that in spite of the presence of sages of great potency there was no sufficient increase in population, he began to seriously consider how the population could be increased.**
