@@ -6,7 +6,7 @@
 > vyāsa—bhrānta bali' sei sūtre doṣa diyā\
 > 'vivarta-vāda' sthāpiyāche kalpanā kariyā
 
-*vyāsa*—Śrīla Vyāsadeva; *bhrānta*—mistaken; *bali'*—saying; *sei*—that; *sūtre*—in the *Vedānta-sūtra*; *doṣa*—fault; *diyā*—accusing; *vivarta-vāda*—the theory of illusion; *sthāpiyāche*—has established; *kalpanā*—imagination; *kariyā*—doing.
+*vyāsa*—Śrīla Vyāsadeva; *bhrānta*—mistaken; *bali'*—saying; *sei*—that; *sūtre*—in *Vedānta-sūtra*; *doṣa*—fault; *diyā*—accusing; *vivarta-vāda*—the theory of illusion; *sthāpiyāche*—has established; *kalpanā*—imagination; *kariyā*—doing.
 
 **"Śaṅkarācārya's theory states that the Absolute Truth is transformed. By accepting this theory, the Māyāvādī philosophers denigrate Śrīla Vyāsadeva by accusing him of error. They thus find fault in the Vedānta-sūtra and interpret it to try to establish the theory of illusion.**
 

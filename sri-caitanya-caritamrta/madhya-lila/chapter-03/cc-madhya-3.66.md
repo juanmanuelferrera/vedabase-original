@@ -6,7 +6,7 @@
 > prabhu jāne tina bhoga—kṛṣṇera naivedya\
 > ācāryera manaḥ-kathā nahe prabhura vedya
 
-*prabhujāne*—the Lord knows; *tina bhoga*—three divisions of *bhoga*; *kṛṣṇera naivedya*—offerings to Lord Kṛṣṇa; *ācāryera*—of Advaita Ācārya; *manaḥ-kathā*—the intentions; *nahe*—not; *prabhura*—to the Lord; *vedya*—understandable.
+*prabhu jāne*—the Lord knows; *tina bhoga*—three divisions of *bhoga*; *kṛṣṇera naivedya*—offerings to Lord Kṛṣṇa; *ācāryera*—of Advaita Ācārya; *manaḥ-kathā*—the intentions; *nahe*—not; *prabhura*—to the Lord; *vedya*—understandable.
 
 **When Śrī Caitanya Mahāprabhu entered the room, He saw three divisions of food, and He knew that all of these were meant for Kṛṣṇa. However, He did not understand the intentions of Advaita Ācārya.**
 

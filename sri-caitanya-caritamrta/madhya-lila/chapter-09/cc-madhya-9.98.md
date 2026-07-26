@@ -6,7 +6,7 @@
 > vipra kahe,—mūrkha āmi, śabdārtha nā jāni\
 > śuddhāśuddha gītā paḍi, guru-ājñā māni'
 
-*vipra kahe*—the *brāhmaṇa* replied; *mūrkha āmi*—I am illiterate; *śabda-artha*—the meaning of the words; *nā jāni*—I do not know; *śuddha-aśuddha*—sometimes correct and sometimes not correct; *gītā*—the *Bhagavad-gītā*; *paḍi*—I read; *guru-ājñā*—the order of my spiritual master; *māni'*—accepting.
+*vipra kahe*—the *brāhmaṇa* replied; *mūrkha āmi*—I am illiterate; *śabda-artha*—the meaning of the words; *nā jāni*—I do not know; *śuddha-aśuddha*—sometimes correct and sometimes not correct; *gītā*—*Bhagavad-gītā*; *paḍi*—I read; *guru-ājñā*—the order of my spiritual master; *māni'*—accepting.
 
 **The brāhmaṇa replied, "I am illiterate and therefore do not know the meaning of the words. Sometimes I read Bhagavad-gītā correctly and sometimes incorrectly, but in any case I am doing this in compliance with the orders of my spiritual master."**
 

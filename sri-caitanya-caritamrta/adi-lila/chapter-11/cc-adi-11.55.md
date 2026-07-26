@@ -6,7 +6,7 @@
 > bhāgavate kṛṣṇa-līlā varṇilā vedavyāsa\
 > caitanya-līlāte vyāsa—vṛndāvana dāsa
 
-*bhāgavate*—in *Śrīmad-Bhāgavatam*; *kṛṣṇa-līlā*—the pastimes of Lord Kṛṣṇa; *varṇilā*—described; *veda-vyāsa*—Dvaipāyana Vyāsadeva; *caitanya-līlāte*—in the pastimes of Lord Caitanya; *vyāsa*—Vedavyāsa; *vṛndāvanadāsa*—Śrīla Vṛndāvana dāsa Ṭhākura.
+*bhāgavate*—in the *Śrīmad-Bhāgavatam*; *kṛṣṇa-līlā*—the pastimes of Lord Kṛṣṇa; *varṇilā*—described; *veda-vyāsa*—Dvaipāyana Vyāsadeva; *caitanya-līlāte*—in the pastimes of Lord Caitanya; *vyāsa*—Vedavyāsa; *vṛndāvanadāsa*—Śrīla Vṛndāvana dāsa Ṭhākura.
 
 **Śrīla Vyāsadeva described the pastimes of Kṛṣṇa in Śrīmad-Bhāgavatam. The Vyāsa of the pastimes of Lord Caitanya Mahāprabhu was Vṛndāvana dāsa.**
 

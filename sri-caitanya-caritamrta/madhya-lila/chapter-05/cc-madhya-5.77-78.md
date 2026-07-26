@@ -10,7 +10,7 @@
 > tabe kanyā diba āmi, jāniha niścaya"\
 > tāṅra putra kahe,—'ei bhāla bāta haya'
 
-*tabe*—at that time; *baḍa-vipra*—the elderly *brāhmaṇa*; *kahe*—says; *ei satya kathā*—this is true; *gopāla*—the Gopāla Deity; *yadi*—if; *sākṣī*—witness; *dena*—gives; *āpane*—personally; *āsi'*—coming; *ethā*—here; *tabe*—at that time; *kanyā*—daughter; *diba*—must give in charity; *āmi*—I; *jāniha*—you all know it; *niścaya*—certainly; *tāṅra*—his; *putra*—son; *kahe*—says; *ei*—this; *bhāla*—nice; *bāta*—statement; *haya*—is.
+*tabe*—at that time; *baḍa-vipra*—the elderly *brāhmaṇa*; *kahe*—says; *ei satya kathā*—this is true; *gopāla*—the Gopāla Deity; *yadi*—if; *sākṣī*—witness; *dena*—gives; *āpane*—personally; *āsi'*—coming; *ethā*—here; *tabe*—at that time; *kanyā*—daughter; *diba*—must give in charity; *āmi*—I; *jāniha*—you all know it; *niścaya*—certainly; *tāṅra*—his; *putra*—son; *kahe*—says; *ei*—this; *bhāla*—nice; *vāta*—statement; *haya*—is.
 
 **Taking this opportunity, the elderly brāhmaṇa immediately confirmed that this was really true. He said, "If Gopāla personally comes here to serve as a witness, I shall surely give my daughter to the young brāhmaṇa." The elderly brāhmaṇa's son immediately confirmed this, saying, "Yes, this is a very nice settlement."**
 

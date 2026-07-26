@@ -6,7 +6,7 @@
 > hari-bhakti-vilāsa, āra bhāgavatāmṛta\
 > daśama-ṭippanī, āra daśama-carita
 
-*hari-bhakti-vilāsa*—the scripture named *Hari-bhakti-vilāsa*; *āra*—and; *bhāgavatāmṛta*—the scripture named *Bṛhad-bhāgavatāmṛta*; *daśama-ṭippanī*—comments on the Tenth Canto of *Śrīmad-Bhāgavatam*; *āra*—and; *daśama-carita*—poetry about the Tenth Canto of *Śrīmad-Bhāgavatam.*
+*hari-bhakti-vilāsa*—the scripture named *Hari-bhakti-vilāsa*; *āra*—and; *bhāgavata-amṛta*—the scripture named *Bhāgavatāmṛta*; *daśama-ṭippanī*—comments on the Tenth Canto of *Śrīmad-Bhāgavatam*; *āra*—and; *daśama-carita*—poetry about the Tenth Canto of *Śrīmad-Bhāgavatam.*
 
 **Some of the books compiled by Śrīla Sanātana Gosvāmī were Hari-bhakti-vilāsa, Bṛhad-bhāgavatāmṛta, Daśama-ṭippanī and Daśama-carita.**
 

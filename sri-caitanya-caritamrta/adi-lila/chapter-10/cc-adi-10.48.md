@@ -6,7 +6,7 @@
 > tāṅra upaśākhā—yata kulīna-grāmī jana\
 > satyarāja-ādi—tāṅra kṛpāra bhājana
 
-*tāṅra upaśākhā*—his subbranch; *yata*—all; *kulīna-grāmī jana*—the inhabitants of Kulīna-grāma; *satyarāja*—of the name Satyarāja; *ādi*—heading the list; *tāṅra*—his; *kṛpāra*—of mercy; *bhājana*—recipient.
+*tāṅra upaśākhā*—his sub-branch; *yata*—all; *kulīna-grāmī jana*—the inhabitants of Kulīna-grāma; *satyarāja*—of the name Satyarāja; *ādi*—heading the list; *tāṅra*—his; *kṛpāra*—of mercy; *bhājana*—recipient.
 
 **One subbranch of Haridāsa Ṭhākura consisted of the residents of Kulīna-grāma. The most important among them was Satyarāja Khān, or Satyarāja Vasu, who was a recipient of all the mercy of Haridāsa Ṭhākura.**
 

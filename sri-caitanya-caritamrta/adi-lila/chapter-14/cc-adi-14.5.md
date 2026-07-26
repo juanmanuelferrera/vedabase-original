@@ -8,7 +8,7 @@
 > laukikīm api tām īśa-\
 > ceṣṭayā valitāntarām
 
-*vande*—I worship; *caitanya-kṛṣṇasya*—of Lord Caitanya, who is Kṛṣṇa Himself; *bālya-līlā*—pastimes of childhood; *manaḥ-harām*—which are so beautiful; *laukikīm*—appearing ordinary; *api*—although; *tām*—those; *īśa-ceṣṭayā*—by manifestation of supreme authority; *valita-antarām*—quite fit although appearing differently.
+*vande*—I worship; *caitanya-kṛṣṇasya*—of Lord Caitanya, who is Kṛṣṇa Himself; *bālya-līlā*—pastimes of childhood; *manas-harām*—which are so beautiful; *laukikīm*—appearing ordinary; *api*—although; *tām*—those; *īśa-ceṣṭayā*—by manifestation of supreme authority; *valita-antarām*—quite fit although appearing differently.
 
 **Let me offer my respectful obeisances unto the childhood pastimes of Lord Śrī Caitanya Mahāprabhu, who is Lord Kṛṣṇa Himself. Although such pastimes appear exactly like those of an ordinary child, they should be understood as various pastimes of the Supreme Personality of Godhead.**
 

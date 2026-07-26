@@ -6,7 +6,7 @@
 > sabe, eka guṇa dekhi tomāra sampradāye\
 > satya-vigraha kari' īśvare karaha niścaye
 
-*sabe*—in all; *eka*—one; *guṇa*—quality; *dekhi*—I see; *tomāra*—your; *sampradāye*—in the party; *satya-vigraha*—the form of the Lord as truth; *kari'*—accepting; *īśvare*—the Supreme Personality of Godhead; *karaha*—you do; *niścaye*—conviction.
+*sabe*—in all; *eka*—one; *guṇa*—quality; *dekhi*—I see; *tomāra*—your; *sampradāye*—in the party; *satya-vigraha*—the form of the Lord as truth; *kari'*—accepting; *īśvare*—the Supreme Personality of Godhead; *karaha*—you do; *niścaye*—ascertain.
 
 **"The only qualification that I see in your sampradāya is that you accept the form of the Lord as truth."**
 

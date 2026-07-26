@@ -6,6 +6,6 @@
 > sei kṛṣṇa tumi sākṣāt—ihā nirdhārila\
 > eta kahi' vipra prabhura caraṇe paḍila
 
-*sei*—that; *kṛṣṇa*—the Personality of Godhead, Kṛṣṇa; *tumi*—You; *sākṣāt*—directly; *ihā*—this; *nirdhārila*—concluded; *eta kahi'*—saying this; *vipra*—the *brāhmaṇa*; *prabhura*—of Lord Caitanya Mahāprabhu; *caraṇe*—at the lotus feet; *padila*—fell down.
+*sei*—that; *kṛṣṇa*—the Personality of Godhead, Kṛṣṇa; *tumi*—You; *sākṣāt*—directly; *ihā*—this; *nirdhārila*—ascertained; *eta kahi'*—saying this; *vipra*—the *brāhmaṇa*; *prabhura*—of Lord Caitanya Mahāprabhu; *caraṇe*—at the lotus feet; *padila*—fell down.
 
 **The brāhmaṇa concluded, "Sir, You are that Lord Kṛṣṇa Himself. This is my ascertainment." Saying this, the brāhmaṇa fell down at the lotus feet of Śrī Caitanya Mahāprabhu.**

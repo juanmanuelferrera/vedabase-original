@@ -6,7 +6,7 @@
 > ātmāntaryāmī yāṅre yoga-śāstre kaya\
 > seha govindera aṁśa vibhūti ye haya
 
-*ātmā antaḥ-yāmī*—in-dwelling Supersoul; *yāṅre*—who; *yoga-śāstre*—in the scriptures of *yoga*; *kaya*—is spoken; *seha*—that; *govindera*—of Govinda; *aṁśa*—plenary portion; *vibhūti*—expansion; *ye*—which; *haya*—is.
+*ātmā antaryāmī*—indwelling Supersoul; *yāṅre*—who; *yoga-śāstre*—in the scriptures of *yoga*; *kaya*—is spoken; *seha*—that; *govindera*—of Govinda; *aṁśa*—plenary portion; *vibhūti*—expansion; *ye*—which; *haya*—is.
 
 **He who is described in the yoga-śāstras as the indwelling Supersoul [ātmā antar-yāmī] is also a plenary portion of Govinda's personal expansion.**
 

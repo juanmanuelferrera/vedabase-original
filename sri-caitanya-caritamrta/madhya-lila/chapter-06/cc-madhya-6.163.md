@@ -6,7 +6,7 @@
 > gītā-śāstre jīva-rūpa 'śakti' kari' māne\
 > hena jīve 'bheda' kara īśvarera sane
 
-*gītā-śāstre*—in the *Bhagavad-gītā*; *jīva-rūpa*—the identity of the living entity; *śakti*—potency; *kari'*—making; *māne*—accepts; *hena*—such; *jīve*—living entity; *bheda*—different; *kara*—you make; *īśvarera*—the Supreme Personality of Godhead; *sane*—with.
+*gītā-śāstre*—in *Bhagavad-gītā*; *jīva-rūpa*—the identity of the living entity; *śakti*—potency; *kari'*—making; *māne*—accepts; *hena*—such; *jīve*—living entity; *bheda*—different; *kara*—you make; *īśvarera*—the Supreme Personality of Godhead; *sane*—with.
 
 **"In the Bhagavad-gītā the living entity is established as the marginal potency of the Supreme Personality of Godhead. Yet you say that the living entity is completely different from the Lord.**
 

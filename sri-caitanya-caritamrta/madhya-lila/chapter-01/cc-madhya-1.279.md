@@ -6,6 +6,6 @@
 > ke śikhāla ei loke, kahe kon bāta\
 > ihā-sabāra mukha ḍhāka diyā nija hāta
 
-*ke*—who; *śikhāla*—taught; *ei*—these; *loke*—people; *kahe*—they say; *kon*—what; *bāta*—topics; *ihā*—of them; *sabāra*—of all; *mukha*—the mouths; *ḍhāka*—just cover; *diyā*—with; *nija*—Your own; *hāta*—hand.
+*ke*—who; *śikhāla*—taught; *ei*—these; *loke*—people; *kahe*—they say; *kon*—what; *vāta*—topics; *ihā*—of them; *sabāra*—of all; *mukha*—the mouths; *ḍhāka*—just cover; *diyā*—with; *nija*—Your own; *hāta*—hand.
 
 **Śrīnivāsa Ācārya continued, "Who has taught these people? What are they saying? Now You can cover their mouths with Your own hand.**

@@ -8,7 +8,7 @@
 > brahma-bandhur iti smāhaṁ\
 > bāhubhyāṁ parirambhitaḥ
 
-*kva*—whereas; *aham*—I (am); *daridraḥ*—very poor; *pāpīyān*—sinful; *kva*—whereas; *kṛṣṇaḥ*—the Supreme Personality of Godhead; *śrī-niketanaḥ*—the shelter of the goddess of fortune; *brahma-bandhuḥ*—a caste *brāhmaṇa* without brahminical qualifications; *iti*—thus; *sma*—certainly; *aham*—I (am); *bāhubhyām*—by the arms; *parirambhitaḥ*—embraced.
+*kva*—whereas; *aham*—I (am); *daridraḥ*—very poor; *pāpīyān*—sinful; *kva*—whereas; *kṛṣṇaḥ*—the Supreme Personality of Godhead; *śrī-niketanaḥ*—the reservoir of the goddess of fortune; *brahma-bandhuḥ*—a caste *brāhmaṇa* without brahminical qualifications; *iti*—thus; *sma*—certainly; *aham*—I (am); *bāhubhyām*—by the arms; *parirambhitaḥ*—embraced.
 
 **“ 'Since I am but a poor, sinful brahma-bandhu, not brahminically qualified although born in a brāhmaṇa family, and You, Lord Kṛṣṇa, are the shelter of the goddess of fortune, it is simply wonderful, my dear Lord Kṛṣṇa, that You have embraced me with Your arms.' "**
 

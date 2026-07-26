@@ -6,7 +6,7 @@
 > kājī kahe,—tomāra yaiche veda-purāṇa\
 > taiche āmāra śāstra—ketāva 'korāṇa'
 
-*kājī kahe*—the Kazi replied; *tomāra*—Your; *yaiche*—as much as; *veda-purāṇa*—the *Vedas* and *Purāṇas*; *taiche*—similarly; *āmāra*—our; *śāstra*—scripture; *ketāva*—the holy book; *korāṇa*—the Koran.
+*kājī kahe*—the Kazi replies; *tomāra*—Your; *yaiche*—as much as; *veda-purāṇa*—the *Vedas* and *Purāṇas*; *taiche*—similarly; *āmāra*—our; *śāstra*—scripture; *ketāva*—the holy book; *korāṇa*—the Koran.
 
 **The Kazi replied, "As You have Your scriptures called the Vedas and Purāṇas, we have our scripture, known as the holy Koran.**
 

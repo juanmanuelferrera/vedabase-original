@@ -8,7 +8,7 @@
 > mayaiva vihitaṁ devi\
 > kalau brāhmaṇa-mūrtinā
 
-*māyāvādam*—the philosophy of Māyāvāda; *asat-śāstram*—false scriptures; *pracchannam*—covered; *bauddham*—Buddhism; *ucyate*—it is said; *mayā*—by me; *eva*—only; *vihitam*—taught; *devi*—O goddess of the material world; *kalau*—in the Age of Kali; *brāhmaṇa-mūrtinā*—having the body of a *brāhmaṇa.*
+*māyāvādam*—the philosophy of Māyāvāda; *asat-śāstram*—false scriptures; *pracchannam*—covered; *bauddham*—Buddhism; *ucyate*—it is said; *mayā*—by me; *eva*—only; *vihitam*—executed; *devi*—O goddess of the material world; *kalau*—in the Age of Kali; *brāhmaṇa-mūrtinā*—having the body of a *brāhmaṇa.*
 
 **"[Lord Śiva informed the Goddess Durgā, the superintendent of the material world,] 'In the Age of Kali I take the form of a brāhmaṇa and explain the Vedas through false scriptures in an atheistic way, similar to Buddhist philosophy.' "**
 

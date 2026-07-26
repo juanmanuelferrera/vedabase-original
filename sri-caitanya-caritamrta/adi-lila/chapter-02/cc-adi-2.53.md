@@ -8,7 +8,7 @@
 > īśasya yat tribhir hīnaṁ\
 > turīyaṁ tat pracakṣate
 
-*virāṭ*—the *virāṭ* manifestation; *hiraṇya-garbhaḥ*—the *hiraṇyagarbha* manifestation; *ca*—and; *kāraṇam*—the *kāraṇa* manifestation; *ca*—and; *iti*—thus; *upādhayaḥ*—particular designations; *īśasya*—of the Lord; *yat*—that which; *tribhiḥ*—these three; *hīnam*—without; *turīyam*—the fourth; *tat*—that; *pracakṣate*—is considered.
+*virāṭ*—the *virāṭ* manifestation; *hiraṇya-garbhaḥ*—the *hiraṇyagarbha* manifestation; *kāraṇam*—the *kāraṇa* manifestation; *ca*—and; *iti*—thus; *upādhayaḥ*—particular designations; *īśasya*—of the Lord; *yat*—that which; *tribhiḥ*—these three; *hīnam*—without; *turīyam*—the fourth; *tat*—that; *pracakṣate*—he considers.
 
 **“ 'In the material world the Lord is designated as virāṭ, hiraṇyagarbha and kāraṇa. But beyond these three designations, the Lord is ultimately in the fourth dimension.'**
 

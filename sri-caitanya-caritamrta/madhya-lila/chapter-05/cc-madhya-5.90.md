@@ -6,7 +6,7 @@
 > eta jāni' tumi sākṣī deha, dayā-maya\
 > jāni' sākṣī nāhi deya, tāra pāpa haya
 
-*eta jāni'*—knowing this; *tumi*—You; *sākṣī*—witness; *deha*—please give; *dayā-maya*—O most merciful one; *jāni'*—knowing; *sākṣī*—witness; *nāhi deya*—does not give; *tāra*—for him; *pāpa*—sin; *haya*—there is.
+*eta jāni'*—knowing this; *tumi*—You; *sākṣī*—witness; *deha*—please give; *dayā-maya*—O most merciful; *jāni'*—knowing; *sākṣī*—witness; *nāhi deya*—does not give; *tāra*—for him; *pāpa*—sin; *haya*—there is.
 
 **The young brāhmaṇa continued, "My dear sir, You are very merciful and You know everything. Therefore, kindly be a witness in this case. A person who knows things as they are and still does not bear witness becomes involved in sinful activities."**
 

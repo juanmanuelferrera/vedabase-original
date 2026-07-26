@@ -6,7 +6,7 @@
 > āpanāra sama more karibāra tare\
 > jhuṭhā dile, vipra bali' bhaya nā karile
 
-*āpanārasama*—like You; *more*—Me; *karibāra tare*—for making; *jhuṭhā*—remnants of food; *dile*—You have given; *vipra bali'*—considering as a *brāhmaṇa*; *bhaya*—fear; *nā karile*—You did not do.
+*āpanārasama*—like You; *more*—Me; *karibāra tare*—for making; *jhuṭhā*—remnants of foodstuffs; *dile*—You have given; *vipra bali'*—considering as a *brāhmaṇa*; *bhaya*—fear; *nā karile*—You did not do.
 
 **"To make Me a madman like Yourself, You have thrown the remnants of Your food at Me. You did not even fear the fact that I am a brāhmaṇa."**
 

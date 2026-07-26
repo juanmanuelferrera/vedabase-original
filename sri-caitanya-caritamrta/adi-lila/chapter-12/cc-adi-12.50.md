@@ -6,7 +6,7 @@
 > pratigraha kabhu nā karibe rāja-dhana\
 > viṣayīra anna khāile duṣṭa haya mana
 
-*pratigraha*—acceptance of alms; *kabhu*—at any time; *nā*—not; *karibe*—should do; *rāja-dhana*—charity by kings; *viṣayīra*—of men who are materialistic; *anna*—food; *khāile*—by eating; *duṣṭa*—polluted; *haya*—becomes; *mana*—mind.
+*pratigraha*—accepting of alms; *kabhu*—any time; *nā*—not; *karibe*—should do; *rāja-dhana*—charity by kings; *viṣayīra*—of men who are materialistic; *anna*—foodstuffs; *khāile*—by eating; *duṣṭa*—polluted; *haya*—becomes; *mana*—mind.
 
 **"Advaita Ācārya, My spiritual master, should never accept charity from rich men or kings because if a spiritual master accepts money or grains from such materialists his mind becomes polluted.**
 

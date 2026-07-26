@@ -6,7 +6,7 @@
 > śrī-gopāla bhaṭṭa eka śākhā sarvottama\
 > rūpa-sanātana-saṅge yāṅra prema-ālāpana
 
-*śrī-gopāla bhaṭṭa*—of the name Śrī Gopāla Bhaṭṭa; *eka*—one; *śākhā*—branch; *sarva-uttama*—very exalted; *rūpa*—of the name Rūpa; *sanātana*—of the name Sanātana; *saṅge*—company; *yāṅra*—whose; *prema*—love of Godhead; *ālāpana*—discussion.
+*śrī-gopāla bhaṭṭa*—of the name Śrī Gopāla Bhaṭṭa; *eka*—one; *śākhā*—branch; *sarvottama*—very exalted; *rūpa*—of the name Rūpa; *sanātana*—of the name Sanātana; *saṅge*—company; *yāṅra*—whose; *prema*—love of Godhead; *ālāpana*—discussion.
 
 **Śrī Gopāla Bhaṭṭa Gosvāmī, the forty-seventh branch, was one of the great and exalted branches of the tree. He always engaged in discourses about love of Godhead in the company of Rūpa Gosvāmī and Sanātana Gosvāmī.**
 

@@ -6,7 +6,7 @@
 > prabhu yabe yā'na viśveśvara-daraśane\
 > lakṣa lakṣa loka āsi' mile sei sthāne
 
-*prabhu*—Lord Caitanya Mahāprabhu; *yabe*—when; *yā'na*—goes; *viśveśvara*—the deity of Vārāṇasī; *daraśane*—to visit; *lakṣa lakṣa*—hundreds of thousands; *loka*—people; *āsi'*—come; *mile*—meet; *sei*—that; *sthāne*—on the place.
+*prabhu*—Lord Caitanya Mahāprabhu; *yabe*—when; *yā'na*—goes; *viśveśvara*—the deity of Vārāṇasī; *daraśane*—to visit; *lakṣa lakṣa*—hundreds and thousands; *loka*—people; *āsi'*—come; *mile*—meet; *sei*—that; *sthāne*—on the place.
 
 **When the Lord went to visit the temple of Viśveśvara, hundreds and thousands of people assembled to see Him.**
 

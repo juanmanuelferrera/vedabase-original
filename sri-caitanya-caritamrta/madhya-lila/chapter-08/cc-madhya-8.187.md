@@ -6,7 +6,7 @@
 > rāya kahe,—kṛṣṇa haya 'dhīra-lalita'\
 > nirantara kāma-krīḍā—yāṅhāra carita
 
-*rāya kahe*—Rāmānanda Rāya replied; *kṛṣṇa*—Lord Kṛṣṇa; *haya*—is; *dhīra-lalita*—a person who can keep his girlfriend always in subjugation by different qualities; *nirantara*—constantly; *kāma-krīḍā*—pastimes of sexual enjoyment; *yāṅhāra*—of whom; *carita*—the character.
+*rāya kahe*—Rāya replied; *kṛṣṇa*—Lord Kṛṣṇa; *haya*—is; *dhīra-lalita*—a person who can keep his girlfriend always in subjugation by different qualities; *nirantara*—constantly; *kāma-krīḍā*—pastimes of sexual enjoyment; *yāṅhāra*—of whom; *carita*—the character.
 
 **Rāya Rāmānanda replied, "Lord Kṛṣṇa is dhīra-lalita, for He can always keep His girlfriends in a subjugated state. Thus His only business is enjoying sense gratification.**
 

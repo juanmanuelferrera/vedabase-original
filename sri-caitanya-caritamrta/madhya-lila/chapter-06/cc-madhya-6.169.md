@@ -6,7 +6,7 @@
 > jīvera nistāra lāgi' sūtra kaila vyāsa\
 > māyāvādi-bhāṣya śunile haya sarva-nāśa
 
-*jīvera*—of the living entities; *nistāra*—deliverance; *lāgi'*—for the matter of; *sūtra*—the *Vedānta-sūtra*; *kaila*—made; *vyāsa*—Śrīla Vyāsadeva; *māyāvādi*—of the impersonalists; *bhāṣya*—commentary; *śunile*—if hearing; *haya*—becomes; *sarva-nāśa*—all destruction.
+*jīvera*—of the living entities; *nistāra*—deliverance; *lāgi'*—for the matter of; *sūtra*—*Vedānta-sūtra*; *kaila*—made; *vyāsa*—Śrīla Vyāsadeva; *māyāvādi*—of the impersonalists; *bhāṣya*—commentary; *śunile*—if hearing; *haya*—becomes; *sarva-nāśa*—all destruction.
 
 **"Śrīla Vyāsadeva presented Vedānta philosophy for the deliverance of conditioned souls, but if one hears the commentary of Śaṅkarācārya, everything is spoiled.**
 

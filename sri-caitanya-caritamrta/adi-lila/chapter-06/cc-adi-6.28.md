@@ -6,7 +6,7 @@
 > jīva nistārila kṛṣṇa-bhakti kari' dāna\
 > gītā-bhāgavate kaila bhaktira vyākhyāna
 
-*jīva*—the living entities; *nistārila*—delivered; *kṛṣṇa-bhakti*—devotional service to Lord Kṛṣṇa; *kari'*—making; *dāna*—gift; *gītā-bhāgavate*—in the *Bhagavad-gītā* and *Śrīmad-Bhāgavatam*; *kaila*—performed; *bhaktira vyākhyāna*—explanation of devotional service.
+*jīva*—the living entities; *nistārila*—delivered; *kṛṣṇa-bhakti*—devotional service to Lord Kṛṣṇa; *kari'*—making; *dāna*—gift; *gītā-bhāgavate*—in *Bhagavad-gītā* and *Śrīmad-Bhāgavatam*; *kaila*—performed; *bhaktira vyākhyāna*—explanation of devotional service.
 
 **He delivered all living beings by offering the gift of kṛṣṇa-bhakti. He explained Bhagavad-gītā and Śrīmad-Bhāgavatam in the light of devotional service.**
 

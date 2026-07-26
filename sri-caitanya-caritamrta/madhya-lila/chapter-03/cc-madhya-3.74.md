@@ -6,7 +6,7 @@
 > prabhu bale—eta anna nāriba khāite\
 > sannyāsīra dharma nahe ucchiṣṭa rākhite
 
-*prabhubale*—the Lord said; *eta*—so much; *anna*—eatables; *nāriba*—I will not be able; *khāite*—to eat; *sannyāsīra*—of a *sannyāsī*; *dharma nahe*—it is not the duty; *ucchiṣṭa*—remnants of food; *rākhite*—to keep.
+*prabhubale*—the Lord said; *eta*—so much; *anna*—eatables; *nāriba*—I will not be able; *khāite*—to eat; *sannyāsīra*—of a *sannyāsī*; *dharma nahe*—it is not the duty; *ucchiṣṭa*—remnants of foodstuff; *rākhite*—to keep.
 
 **Śrī Caitanya Mahāprabhu said, "I will not be able to eat so much food, and it is not the duty of a sannyāsī to leave remnants."**
 

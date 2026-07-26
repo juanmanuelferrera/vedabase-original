@@ -6,7 +6,7 @@
 > prabhu kahe,—śāstre kahe śravaṇa-kīrtana\
 > kṛṣṇa-prema-sevā-phalera 'parama-sādhana'
 
-*prabhukahe*—Lord Śrī Caitanya Mahāprabhu said; *śāstre kahe*—in the *śāstra* it is said; *śravaṇa-kīrtana*—the process of chanting and hearing; *kṛṣṇa-prema-sevā*—of loving service to Lord Kṛṣṇa; *phalera*—of the result; *parama-sādhana*—best process of achievement.
+*prabhu kahe*—Lord Śrī Caitanya Mahāprabhu said; *śāstre kahe*—in the *śāstra* it is said; *śravaṇa-kīrtana*—the process of chanting and hearing; *kṛṣṇa-prema-sevā*—of loving service to Lord Kṛṣṇa; *phalera*—of the result; *parama-sādhana*—best process of achievement.
 
 **Śrī Caitanya Mahāprabhu said, "According to the verdict of the śāstras, the process of hearing and chanting is the best means to attain loving service to Kṛṣṇa.**
 

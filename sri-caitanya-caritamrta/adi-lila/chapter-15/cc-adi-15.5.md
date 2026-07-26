@@ -6,7 +6,7 @@
 > gaṅgādāsa paṇḍita-sthāne paḍena vyākaraṇa\
 > śravaṇa-mātre kaṇṭhe kaila sūtra-vṛtti-gaṇa
 
-*gaṅgādāsa*—of the name Gaṅgādāsa; *paṇḍita-sthāne*—at the place of the teacher; *paḍena*—studies; *vyākaraṇa*—grammar; *śravaṇa-mātre*—simply by hearing; *kaṇṭhe*—between the neck and the heart; *kaila*—did; *sūtra-vṛtti-gaṇa*—the aphorisms and their definitions.
+*gaṅgādāsa*—of the name Gaṅgādāsa; *paṇḍita-sthāne*—at the place of the teacher; *paḍena*—studies; *vyākaraṇa*—grammar; *śravaṇa-mātre*—simply by hearing; *kaṇṭhe*—between the neck and the heart; *kaila*—did; *sūtra-vṛtti-gaṇa*—the codes and their definitions.
 
 **When the Lord was studying grammar at the place of Gaṅgādāsa Paṇḍita, He would immediately learn grammatical rules and definitions by heart simply by hearing them once.**
 

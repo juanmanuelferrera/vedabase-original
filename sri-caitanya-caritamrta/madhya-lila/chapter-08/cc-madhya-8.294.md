@@ -5,7 +5,7 @@
 > tāmā, kāṅsā, rūpā, sonā, ratna-cintāmaṇi\
 > keha yadi kāhāṅ potā pāya eka-khāni
 
-*tāmā*—copper; *kāṅsā*—bell metal; *rūpā*—silver; *sonā*—gold; *ratna-cintāmaṇi*—touchstone the basis of all metals; *keha*—somebody; *yadi*—*if*; *kāhāṅ*—somewhere; *potā*—buried; *pāya*—finds; *eka-khāni*—in one place.
+*tāmā*—copper; *kāṅsā*—bell metal; *rūpā*—silver; *sonā*—gold; *ratna-cintāmaṇi*—the best of all metals, touchstone; *keha*—somebody; *yadi*—*if*; *kāhāṅ*—somewhere; *potā*—buried; *pāya*—finds; *eka-khāni*—in one place.
 
 **Actually, these conversations are like a great mine wherefrom one can extract all kinds of metals-copper, bell metal , silver, gold, base metals and all metals.**
 

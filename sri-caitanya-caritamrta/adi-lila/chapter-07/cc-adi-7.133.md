@@ -6,7 +6,7 @@
 > ei mata pratisūtre sahajārtha chāḍiyā\
 > gauṇārtha vyākhyā kare kalpanā kariyā
 
-*ei mata*—like this; *prati-sūtre*—in every *sūtra,* or aphorism, of the *Vedānta-sūtra*; *sahaja-artha*—the clear, simple meaning; *chāḍiyā*—giving up; *gauṇa-artha*—indirect meaning; *vyākhyā*—explanation; *kare*—he makes; *kalpanākariyā*—by imagination.
+*ei mata*—like this; *prati-sūtre*—in every *sūtra,* or code of the *Vedānta*; *sahaja-artha*—the clear, simple meaning; *chāḍiyā*—giving up; *gauṇa-artha*—indirect meaning; *vyākhyā*—explanation; *kare*—he makes; *kalpanākariyā*—by imagination.
 
 **"To prove their philosophy, the members of the Māyāvāda school, giving up the real, easily understood meaning of Vedic literature and introduced indirect meanings based on their imaginative powers."**
 

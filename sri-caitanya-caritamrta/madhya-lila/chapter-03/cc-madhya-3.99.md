@@ -6,7 +6,7 @@
 > nityānanda bale,—ei kṛṣṇera prasāda\
 > ihāke 'jhuṭhā' kahile, tumi kaile aparādha
 
-*nityānandabale*—Lord Nityānanda said; *ei*—this; *kṛṣṇera prasāda*—*mahā-prasāda* of Lord Kṛṣṇa; *ihāke*—unto it; *jhuṭhā*—remnants of food; *kahile*—if You say; *tumi*—You; *kaile*—have made; *aparādha*—offense.
+*nityānandabale*—Lord Nityānanda said; *ei*—this; *kṛṣṇera prasāda*—*mahā-prasāda* of Lord Kṛṣṇa; *ihāke*—unto it; *jhuṭhā*—remnants of foodstuff; *kahile*—if You say; *tumi*—You; *kaile*—have made; *aparādha*—offense.
 
 **Nityānanda Prabhu replied, "These are the remnants of food left by Lord Kṛṣṇa. If You take them to be ordinary remnants, You have committed an offense."**
 

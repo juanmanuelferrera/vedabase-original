@@ -8,7 +8,7 @@
 > gaurasya kṛṣṇa-viccheda-\
 > pralāpādy anuvarṇyate
 
-*vicchede*—in the chapter; *asmin*—this; *prabhoḥ*—of the Lord; *antya-līlā*—of the last division of His pastimes; *sūtra*—of a synopsis; *anuvarṇane*—in the matter of description; *gaurasya*—of Lord Śrī Caitanya Mahāprabhu; *kṛṣṇa-viccheda*—of separation from Kṛṣṇa; *pralāpa*—craziness; *ādi*—other subject matters; *anuvarṇyate*—is being described.
+*vicchede*—in the chapter; *asmin*—this; *prabhoḥ*—of the Lord; *antya-līlā*—of the last division of His pastimes; *sūtra*—of the codes; *anuvarṇane*—in the matter of description; *gaurasya*—of Lord Śrī Caitanya Mahāprabhu; *kṛṣṇa-viccheda*—of separation from Kṛṣṇa; *pralāpa*—craziness; *ādi*—other subject matters; *anuvarṇyate*—is being described.
 
 **While relating in synopsis form the last division of the pastimes of Lord Caitanya Mahāprabhu, in this chapter I shall describe the Lord's transcendental ecstasy, which appears like madness due to His separation from Kṛṣṇa.**
 

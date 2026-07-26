@@ -6,6 +6,6 @@
 > ghaṣite ghaṣite yaiche malayaja-sāra\
 > gandha bāḍe, taiche ei ślokera vicāra
 
-*ghaṣite ghaṣite*—rubbing and rubbing; *yaiche*—just as; *malayaja-sāra*—sandalwood; *gandha*—the fragrance; *bāḍe*—increases; *taiche*—similarly; *ei*—this; *ślokera*—of the verse; *vicāra*—the consideration.
+*ghaṣite ghaṣite*—rubbing and rubbing; *yaiche*—just as; *malayaja-sāra*—sandalwood; *gandha*—the flavor; *bāḍe*—increases; *taiche*—similarly; *ei*—this; *ślokera*—of the verse; *vicāra*—the consideration.
 
 **By continuous rubbing, the aroma of Malaya sandalwood increases. Similarly, by considering this verse, its importance increases.**

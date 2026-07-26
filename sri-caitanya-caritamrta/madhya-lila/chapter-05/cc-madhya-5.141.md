@@ -6,7 +6,7 @@
 > kamalapure āsi bhārgīnadī-snāna kaila\
 > nityānanda-hāte prabhu daṇḍa dharila
 
-*kamala-pure*—to the place known as Kamalapura; *āsi*—coming; *bhārgī-nadī*—in the small river of the name Bhārgīnadī; *snāna kaila*—took a bath; *nityānanda-hāte*—in the hands of Lord Nityānanda Prabhu; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *daṇḍa*—the *sannyāsa* staff; *dharila*—left.
+*kamala-pure*—to the place known as Kamalapura; *āsi*—coming; *bhārgī-nadī*—in the small river of the name Bhārgīnadī; *snāna kaila*—took bath; *nityānanda-hāte*—in the hands of Lord Nityānanda Prabhu; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *daṇḍa*—the *sannyāsa* staff; *dharila*—left.
 
 **When Śrī Caitanya Mahāprabhu arrived at Kamalapura, He took His bath in the Bhārgīnadī River and left His sannyāsa staff in the hands of Lord Nityānanda.**
 

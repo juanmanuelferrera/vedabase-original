@@ -6,7 +6,7 @@
 > nārāyaṇī—caitanyera ucchiṣṭa-bhājana\
 > tāṅra garbhe janmilā śrī-dāsa-vṛndāvana
 
-*nārāyaṇī*—of the name Nārāyaṇī; *caitanyera*—of Lord Caitanya Mahāprabhu; *ucchiṣṭa-bhājana*—eater of the remnants of food; *tāṅra*—of her; *garbhe*—in the womb; *janmilā*—took birth; *śrī-dāsa-vṛndāvana*—Śrīla Vṛndāvana dāsa Thākura.
+*nārāyaṇī*—of the name Nārāyaṇī; *caitanyera*—of Lord Caitanya Mahāprabhu; *ucchiṣṭa-bhājana*—eater of the remnants of foodstuff; *tāṅra*—of her; *garbhe*—in the womb; *janmilā*—took birth; *śrī-dāsa-vṛndāvana*—Śrīla Vṛndāvana dāsa Thākura.
 
 **Nārāyaṇī eternally eats the remnants of the food of Caitanya Mahāprabhu. Śrīla Vṛndāvana dāsa Ṭhākura was born of her womb.**
 

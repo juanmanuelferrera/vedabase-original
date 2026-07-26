@@ -6,7 +6,7 @@
 > prabhu kahe,—gītā-pāṭhe tomārā-i adhikāra\
 > tumi se jānaha ei gītāra artha-sāra
 
-*prabhu kahe*—the Lord replied; *gītā-pāṭhe*—in reading the *Bhagavad-gītā*; *tomārāi adhikāra*—you have the proper authority; *tumi*—you; *se*—that; *jānaha*—know; *ei*—this; *gītāra*—of the *Bhagavad-gītā*; *artha-sāra*—the real purport.
+*prabhu kahe*—the Lord replied; *gītā-pāṭhe*—in reading *Bhagavad-gītā*; *tomārāi adhikāra*—you have the proper authority; *tumi*—you; *se*—that; *jānaha*—know; *ei*—this; *gītāra*—of *Bhagavad-gītā*; *artha-sāra*—the real purport.
 
 **Śrī Caitanya Mahāprabhu told the brāhmaṇa, "Indeed, you are an authority in the reading of Bhagavad-gītā. Whatever you know constitutes the real purport of Bhagavad-gītā."**
 

@@ -6,7 +6,7 @@
 > tāṅhāra vibhūti, deha,—saba cid-ākāra\
 > cid-vibhūti ācchādi' tāṅre kahe 'nirākāra'
 
-*tāṅhāra*—His (the Supreme Personality of Godhead's); *vibhūti*—spiritual power; *deha*—body; *saba*—everything; *cit-ākāra*—spiritual form; *cit-vibhūti*—spiritual opulence; *ācchādi'*—covering; *tāṅre*—Him; *kahe*—says; *nirākāra*—without form.
+*tāṅhāra*—His (the Supreme Personality of Godhead's); *vibhūti*—spiritual power; *deha*—body; *saba*—everything; *cit-ākāra*—spiritual form; *cit-vibhūti*—spiritual opulence; *ācchādi'*—covering; *tāṅre*—Him; *kahe*—said; *nirākāra*—without form.
 
 **"Everything about the Supreme Personality of Godhead is spiritual, including His body, opulence and paraphernalia. Māyāvāda philosophy, however, covering His spiritual opulence, advocates the theory of impersonalism.**
 

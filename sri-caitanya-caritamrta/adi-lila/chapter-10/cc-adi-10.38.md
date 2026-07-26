@@ -6,7 +6,7 @@
 > śuklāmbara-brahmacārī baḍa bhāgyavān\
 > yāṅra anna māgi' kāḍi' khāilā bhagavān
 
-*śuklāmbara-brahmacārī*—of the name Śuklāmbara Brahmacārī; *baḍa*—very; *bhāgyavān*—fortunate; *yāṅra*—whose; *anna*—food; *māgi'*—begging; *kāḍi'*—snatching; *khāilā*—ate; *bhagavān*—the Supreme Personality of Godhead.
+*śuklāmbara-brahmacārī*—of the name Śuklāmbara Brahmacārī; *baḍa*—very; *bhāgyavān*—fortunate; *yāṅra*—whose; *anna*—foodstuff; *māgi'*—begging; *kāḍi'*—snatching; *khāilā*—ate; *bhagavān*—the Supreme Personality of Godhead.
 
 **The sixteenth branch, Śuklāmbara Brahmacārī, was very fortunate because Lord Caitanya Mahāprabhu jokingly or seriously begged food from him or sometimes snatched it from him forcibly and ate it.**
 

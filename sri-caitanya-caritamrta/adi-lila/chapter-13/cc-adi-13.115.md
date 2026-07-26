@@ -10,7 +10,7 @@
 > dekhiyā bālaka-ṭhāma, sākṣāt gokula-kāna,\
 > varṇa-mātra dekhi viparīta
 
-*bhakṣya*—foods; *bhojya*—fried foods; *upahāra*—presentation; *saṅge*—along with her; *la-ila*—took; *bahu bhāra*—many packages; *śacī-gṛhe*—in the house of mother Śacī; *haila*—was; *upanīta*—carried; *dekhiyā*—seeing; *bālaka-ṭhāma*—the feature of the child; *sākṣāt*—directly; *gokula-kāna*—Lord Kṛṣṇa of Gokula; *varṇa-mātra*—only the color; *dekhi*—seeing; *viparīta*—opposite.
+*bhakṣya*—foodstuffs; *bhojya*—fried foodstuffs; *upahāra*—presentation; *saṅge*—along with her; *la-ila*—took; *bahu bhāra*—many packages; *śacī-gṛhe*—in the house of mother Śacī; *haila*—was; *upanīta*—carried; *dekhiyā*—seeing; *bālaka-ṭhāma*—the feature of the child; *sākṣāt*—directly; *gokula-kāna*—Lord Kṛṣṇa of Gokula; *varṇa-mātra*—only the color; *dekhi*—seeing; *viparīta*—opposite.
 
 **When Sītā Ṭhākurāṇī came to the house of Śacīdevī, bringing with her many kinds of eatables, dresses and other gifts, she was astonished to see the newly born child, for she appreciated that except for a difference in color, the child was directly Kṛṣṇa of Gokula Himself.**
 

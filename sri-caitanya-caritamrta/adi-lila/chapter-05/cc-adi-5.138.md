@@ -8,7 +8,7 @@
 > anukṛtya rutair jantūṁś\
 > ceratuḥ prākṛtau yathā
 
-*vṛṣāyamāṇau*—becoming like bulls; *nardantau*—making roaring sounds; *yuyudhāte*—both used to fight; *parasparam*—each other; *anukṛtya*—imitating; *rutaiḥ*—with cries; *jantūn*—the animals; *ceratuḥ*—used to play; *prākṛtau*—ordinary boys; *yathā*—just like.
+*vṛṣāyamāṇau*—becoming like bulls; *nardantau*—making roaring sounds; *yuyudhāte*—both used to fight; *parasparam*—one another; *anukṛtya*—imitating; *rutaiḥ*—with cries; *jantūn*—the animals; *ceratuḥ*—used to play; *prākṛtau*—ordinary boys; *yathā*—just as.
 
 **"Acting just like ordinary boys, They played like roaring bulls as They fought each other, and They imitated the calls of various animals."**
 

@@ -6,7 +6,7 @@
 > sei dui śiṣya kari' sevā samarpila\
 > rāja-sevā haya,—purīra ānanda bāḍila
 
-*seidui*—these two persons; *śiṣya kari'*—initiating; *sevā*—with the service; *samarpila*—entrusted; *rāja-sevā*—gorgeous performance of service; *haya*—is; *purīra*—of Mādhavendra Purī; *ānanda*—pleasure; *bāḍila*—increased.
+*sei dui*—these two persons; *śiṣya kari'*—initiating; *sevā*—with the service; *samarpila*—entrusted; *rāja-sevā*—gorgeous performance of service; *haya*—is; *purīra*—of Mādhavendra Purī; *ānanda*—pleasure; *bāḍila*—increased.
 
 **These two were then initiated by Mādhavendra Purī, and he entrusted them with the daily service of the Lord. This service was performed continuously, and the worship of the Deity became very gorgeous. Thus Mādhavendra Purī was very pleased.**
 

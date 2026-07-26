@@ -6,7 +6,7 @@
 > gopālera āge vipra kahite lāgila\
 > 'tumi jāna, nija-kanyā ihāre āmi dila'
 
-*gopālera āge*—in front of the Gopāla Deity; *vipra*—the elderly *brāhmaṇa*; *kahite*—to speak; *lāgila*—began; *tumi jāna*—my Lord, please know; *nila-kanyā*—my own daughter; *ihāre*—to this boy; *āmi*—I; *dila*—have given in charity.
+*gopālera āge*—in front of the Gopāla Deity; *vipra*—the elderly *brāhmaṇa*; *kahite*—to speak; *lāgila*—began; *tumi jāna*—my Lord, please know; *nija-kanyā*—my own daughter; *ihāre*—to this boy; *āmi*—I; *dila*—have given in charity.
 
 **Coming before Gopāla, the elderly brāhmaṇa said, "My dear Lord, please witness that I have given my daughter to this boy."**
 

@@ -6,7 +6,7 @@
 > prasanna ha-ila saba jagatera mana\
 > 'hari' bali' hinduke hāsya karaye yavana
 
-*prasanna*—joyful; *ha-ila*—became; *saba*—all; *jagatera*—of the whole world; *mana*—the mind; *hari*—the holy name of the Lord; *bali'*—saying; *hinduke*—unto the Hindus; *hāsya*—laughing; *karaye*—do so; *yavana*—the Muslims.
+*prasanna*—joyful; *ha-ila*—became; *saba*—all; *jagatera*—of the whole world; *mana*—the mind; *hari*—the holy name of the Lord; *bali'*—saying; *hinduke*—unto the Hindus; *hāsya*—laughing; *karaye*—do so; *yavana*—the Mohammedans.
 
 **The whole world was pleased. While the Hindus chanted the holy name of the Lord, the non-Hindus, especially the Muslims, jokingly imitated the words.**
 

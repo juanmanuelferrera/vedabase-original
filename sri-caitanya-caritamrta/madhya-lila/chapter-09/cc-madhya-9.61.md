@@ -6,7 +6,7 @@
 > guru-karṇe kahe sabe 'kṛṣṇa' 'rāma' 'hari'\
 > cetana pāñā ācārya bale 'hari' 'hari'
 
-*guru-karṇe*—into the ear of the spiritual master; *kahe*—they said; *sabe*—all together; *kṛṣṇa rāma hari*—the holy names of the Lord, namely Kṛṣṇa, Rāma and Hari; *cetana*—consciousness; *pāñā*—getting; *ācārya*—the teacher; *bale*—chanted; *hari hari*—the name of Lord Hari.
+*guru-karṇe*—into the ear of the spiritual master; *kahe*—they said; *sabe*—all together; *kṛṣṇa rāma hari*—the holy names of the Lord, Kṛṣṇa, Rāma and Hari; *cetana*—consciousness; *pāñā*—getting; *ācārya*—the teacher; *bale*—chanted; *hari hari*—the name of Lord Hari.
 
 **When all the disciples chanted the holy names Kṛṣṇa, Rāma and Hari, the Buddhist teacher regained consciousness and immediately began to chant the holy name of Lord Hari.**
 

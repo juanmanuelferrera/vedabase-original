@@ -6,7 +6,7 @@
 > sārṣṭi, sārūpya, āra sāmīpya, sālokya\
 > sāyujya nā laya bhakta yāte brahma-aikya
 
-*sārṣṭi*—opulences equal with the Lord; *sārūpya*—the same form as the Lord; *āra*—and; *sāmīpya*—personal association with the Lord; *sālokya*—residence on a Vaikuṇṭha planet; *sāyujya*—oneness with the Lord; *nā laya*—they do not accept; *bhakta*—devotees; *yāte*—since; *brahma-aikya*—oneness with Brahman.
+*sārṣṭi*—equal opulences with the Lord; *sārūpya*—the same form as the Lord; *āra*—and; *sāmīpya*—personal association with the Lord; *sālokya*—residence on a Vaikuṇṭha planet; *sāyujya*—oneness with the Lord; *nā laya*—they do not accept; *bhakta*—devotees; *yāte*—since; *brahma-aikya*—oneness with Brahman.
 
 **"These liberations are sārṣṭi [achieving opulences equal to those of the Lord], sārūpya [having a form the same as the Lord's], sāmīpya [living as a personal associate of the Lord] and sālokya [living on a Vaikuṇṭha planet]. Devotees never accept sāyujya, however, since that is oneness with Brahman.**
 

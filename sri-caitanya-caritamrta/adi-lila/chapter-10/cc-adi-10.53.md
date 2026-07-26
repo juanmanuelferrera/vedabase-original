@@ -6,7 +6,7 @@
 > śrī-gadādhara dāsa śākhā sarvopari\
 > kājī-gaṇera mukhe yeṅha bolāila hari
 
-*śrī-gadādhara dāsa*—of the name Śrī Gadādhara dāsa; *śākhā*—another branch; *sarva-upari*—above all; *kājī-gaṇera*—of the Kāzīs (Muslim magistrates); *mukhe*—in the mouth; *yeṅha*—one who; *bolāila*—caused to speak; *hari*—the holy name of Hari.
+*śrī-gadādhara dāsa*—of the name Śrī Gadādhara dāsa; *śākhā*—another branch; *sarva-upari*—above all; *kājī-gaṇera*—of the Kāzīs (Mohammedan magistrates); *mukhe*—in the mouth; *yeṅha*—one who; *bolāila*—caused to speak; *hari*—the holy name of Hari.
 
 **Śrī Gadādhara dāsa, the twenty-third branch, was understood to be the topmost, for he induced all the Mohammedan Kāzīs to chant the holy name of Lord Hari.**
 

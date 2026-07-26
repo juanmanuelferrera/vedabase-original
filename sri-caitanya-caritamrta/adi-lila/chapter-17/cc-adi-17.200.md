@@ -6,7 +6,7 @@
 > sei haite jihvā mora bale 'hari' 'hari'\
 > icchā nāhi, tabu bale,—ki upāya kari
 
-*seihaite*—from that time; *jihvā*—tongue; *mora*—my; *bale*—says; *harihari*—the vibration "Hari, Hari"; *icchā*—desire; *nāhi*—there is none; *tabu*—still; *bale*—says; *ki*—what; *upāya*—means; *kari*—I may do.
+*sei haite*—from that time; *jihvā*—tongue; *mora*—my; *bale*—says; *harihari*—the vibration "Hari, Hari"; *icchā*—desire; *nāhi*—there is none; *tabu*—still; *bale*—says; *ki*—what; *upāya*—means; *kari*—I may do.
 
 **“ 'Since that time, my tongue also always vibrates the sound "Hari, Hari." I have no desire to say it, but still my tongue says it. I do not know what to do.'**
 

@@ -6,7 +6,7 @@
 > ei dui-ghare prabhu ekādaśī dine\
 > viṣṇura naivedya māgi' khāila āpane
 
-*ei dui-ghare*—in these two houses; *prabhu*—the Lord; *ekādaśī dine*—on the Ekādaśī day; *viṣṇura*—of Lord Viṣṇu; *naivedya*—food offered to Lord Viṣṇu; *māgi'*—begging; *khāila*—ate; *āpane*—personally.
+*ei dui-ghare*—in these two houses; *prabhu*—the Lord; *ekādaśī dine*—on the Ekādaśī day; *viṣṇura*—of Lord Viṣṇu; *naivedya*—foodstuffs offered to Lord Viṣṇu; *māgi'*—begging; *khāila*—ate; *āpane*—personally.
 
 **In their two houses Lord Caitanya Mahāprabhu begged food on the Ekādaśī day and ate them personally.**
 

@@ -6,7 +6,7 @@
 > adyāpiha dekha caitanya-nāma yei laya\
 > kṛṣṇa-preme pulakāśru-vihvala se haya
 
-*adyāpiha*—even up to date; *dekha*—you see; *caitanya-nāma*—Lord Śrī Caitanya Mahāprabhu's name; *yei*—anyone; *laya*—who takes; *kṛṣṇa-preme*—in love of Kṛṣṇa; *pulaka-aśru*—tears in ecstasy; *vihvala*—overwhelmed; *se*—he; *haya*—becomes.
+*adyāpiha*—even up to date; *dekha*—you see; *caitanya-nāma*—Lord Śrī Caitanya Mahāprabhu's name; *yei*—anyone; *laya*—who takes; *kṛṣṇa-preme*—love of Kṛṣṇa; *pulaka-aśru*—tears in ecstasy; *vihvala*—overwhelmed; *se*—he; *haya*—becomes.
 
 **Whether he is offensive or inoffensive, anyone who even now chants śrī-kṛṣṇa-caitanya prabhu-nityānanda is immediately overwhelmed with ecstasy, and tears fill his eyes.**
 

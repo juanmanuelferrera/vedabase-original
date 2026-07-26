@@ -10,7 +10,7 @@
 > nartaka, vādaka, bhāṭa, navadvīpe yāra nāṭa,\
 > sabe āsi' nāce pāñā prīta
 
-*antarīkṣe*—in outer space; *deva-gaṇa*—the demigods; *gandharva*—the inhabitants of Gandharvaloka; *siddha*—the inhabitants of Siddhaloka; *cāraṇa*—the professional singers of the heavenly planets; *stuti*—prayers; *nṛtya*—dancing; *kare*—do; *vādya*—music; *gīta*—song; *nartaka*—dancers; *vādaka*—professional drummers; *bhāṭa*—professional blessers; *navadvīpe*—in the city of Navadvīpa; *yāra*—of whom; *nāṭa*—stage; *sabe*—all of them; *āsi'*—coming; *nāce*—began to dance; *pāñā*—achieving; *prīta*—happiness.
+*antarīkṣe*—in outer space; *deva-gaṇa*—the demigods; *gandharva*—the inhabitants of Gandharvaloka; *siddha*—the inhabitants of Siddhaloka; *cāraṇa*—the professional singers of the heavenly planets; *stuti*—prayers; *nṛtya*—dancing; *kare*—do; *vādya*—music; *gīta*—song; *nartaka*—dancers; *vādaka*—professional drummers; *bhāṭa*—professional blessing-givers; *navadvīpe*—in the city of Navadvīpa; *yāra*—of whom; *nāṭa*—stage; *sabe*—all of them; *āsi'*—coming; *nāce*—began to dance; *pāñā*—achieving; *prīta*—happiness.
 
 **In outer space all the demigods, including the inhabitants of Gandharvaloka, Siddhaloka and Cāraṇaloka, offered their prayers and danced with musical songs and the beating of drums. Similarly, in Navadvīpa city all the professional dancers, musicians and blessers gathered together, dancing in great jubilation.**
 

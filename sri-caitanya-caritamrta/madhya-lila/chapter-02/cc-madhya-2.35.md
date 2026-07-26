@@ -10,7 +10,7 @@
 > dainya-nirveda-viṣāde, hṛdayera avasāde,\
 > punarapi paḍe eka śloka
 
-*kari'*—doing; *eta*—such; *vilapana*—lamenting; *prabhu*—the Lord; *śacī-nandana*—the son of mother Śacī; *ughāḍiyā*—opening; *hṛdayera*—of the heart; *śoka*—the lamentation; *dainya*—humility; *nirveda*—disappointment; *viṣāde*—in moroseness; *hṛdayera*—of the heart; *avasāde*—in despondency; *punarapi*—again and again; *paḍe*—recites; *eka*—one; *śloka*—verse.
+*kari'*—doing; *eta*—such; *vilapana*—lamenting; *prabhu*—the Lord; *śacī-nandana*—the son of mother Śacī; *ughāḍiyā*—opening; *hṛdayera*—of the heart; *śoka*—the lamentation; *dainya*—humility; *nirveda*—disappointment; *viṣāde*—in moroseness; *hṛdayera*—of the heart; *avasāde*—in despondency; *punarapi*—again and again; *paḍe*—reads; *eka*—one; *śloka*—verse.
 
 **Lamenting in this way, Śrī Caitanya Mahāprabhu opened the doors of grief within His heart. Morose, humble and disappointed, He read a verse again and again with a despondent heart.**
 

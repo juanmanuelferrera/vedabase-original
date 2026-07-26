@@ -6,7 +6,7 @@
 > śuniyā ye kruddha haila sakala yavana\
 > kājī-pāśe āsi' sabe kaila nivedana
 
-*śuniyā*—by hearing; *ye*—that; *kruddha*—angry; *haila*—became; *sakala*—all; *yavana*—Muslims; *kājī-pāśe*—in the court of the Kazi, or magistrate; *āsi'*—coming; *sabe*—all; *kaila*—made; *nivedana*—petition.
+*śuniyā*—by hearing; *ye*—that; *kruddha*—angry; *haila*—became; *sakala*—all; *yavana*—Mohammedans; *kājī-pāśe*—in the court of the Kazi, or magistrate; *āsi'*—coming; *sabe*—all; *kaila*—made; *nivedana*—petition.
 
 **Hearing the resounding vibration of the Hare Kṛṣṇa mantra, the local Muslims, greatly angry, submitted a complaint to the Kazi.**
 

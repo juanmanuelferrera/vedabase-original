@@ -6,7 +6,7 @@
 > ei ta' kahila madhya-līlāra sūtra-gaṇa\
 > śeṣa dvādaśa vatsarera śuna vivaraṇa
 
-*ei ta'*—thus; *kahila*—explained; *madhya-līlāra*—of the middle pastimes; *sūtra-gaṇa*—a synopsis; *śeṣa*—last; *dvādaśa*—twelve; *vatsarera*—of the years; *śuna*—hear; *vivaraṇa*—the description.
+*ei ta'*—thus; *kahila*—explained; *madhya-līlāra*—of the middle pastimes; *sūtra-gaṇa*—the codes; *śeṣa*—last; *dvādaśa*—twelve; *vatsarera*—of the years; *śuna*—hear; *vivaraṇa*—the description.
 
 **I have thus given the codes of the madhya-līlā. Now please hear the pastimes the Lord performed during the last twelve years.**
 

@@ -6,7 +6,7 @@
 > atithi-viprera anna khāila tina-bāra\
 > pāche gupte sei vipre karila nistāra
 
-*atithi*—guest; *viprera*—of a *brāhmaṇa*; *anna*—food; *khāila*—ate; *tina-bāra*—thrice; *pāche*—afterwards; *gupte*—in privacy; *sei*—that; *vipre*—unto the *brāhmaṇa*; *karila*—made; *nistāra*—deliverance.
+*atithi*—guest; *viprera*—of a *brāhmaṇa*; *anna*—foodstuff; *khāila*—ate; *tina-bāra*—thrice; *pāche*—afterwards; *gupte*—in privacy; *sei*—that; *vipre*—unto the *brāhmaṇa*; *karila*—made; *nistāra*—deliverance.
 
 **On one occasion the Lord ate the food of a brāhmaṇa guest three times, and later, in confidence, the Lord delivered that brāhmaṇa from material engagement.**
 

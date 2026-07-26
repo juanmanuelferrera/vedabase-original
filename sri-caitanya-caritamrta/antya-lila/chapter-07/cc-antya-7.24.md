@@ -6,7 +6,7 @@
 > tāte prema-bhakti—'puruṣārtha-śiromaṇi'\
 > rāga-mārge prema-bhakti 'sarvādhika' jāni
 
-*tāte*—therefore; *prema-bhakti*—devotional service in ecstatic love; *puruṣārtha*—of all goals of human life; *śiromaṇi*—the crown jewel; *rāga-mārge*—on the path of spontaneous love; *prema-bhakti*—love of Kṛṣṇa; *sarva-adhika*—the highest of all; *jāni*—I can understand.
+*tāte*—therefore; *prema-bhakti*—devotional service in ecstatic love; *puruṣa-artha*—of all goals of human life; *śiromaṇi*—the crown jewel; *rāga-mārge*—on the path of spontaneous love; *prema-bhakti*—love of Kṛṣṇa; *sarva-adhika*—the highest of all; *jāni*—I can understand.
 
 **"Through the mercy of Rāmānanda Rāya, I have understood that ecstatic love of Kṛṣṇa is the highest goal of life and that spontaneous love of Kṛṣṇa is the highest perfection.**
 

@@ -6,7 +6,7 @@
 > ājanma nimagna nityānandera caraṇe\
 > nirantara bālya-līlā kare kṛṣṇa-sane
 
-*ājanma*—from birth; *nimagna*—merged; *nityānandera*—of Lord Nityānanda Prabhu; *caraṇe*—in the lotus feet; *nirantara*—always; *bālya-līlā*—childish play; *kare*—does; *kṛṣṇa-sane*—with Kṛṣṇa.
+*ājanma*—since birth; *nimagna*—merged; *nityānandera*—of Lord Nityānanda Prabhu; *caraṇe*—in the lotus feet; *nirantara*—always; *bālya-līlā*—childish play; *kare*—does; *kṛṣṇa-sane*—with Kṛṣṇa.
 
 **Since birth, Puruṣottama dāsa was merged in the service of the lotus feet of Lord Nityānanda Prabhu, and he always engaged in childish play with Lord Kṛṣṇa.**
 

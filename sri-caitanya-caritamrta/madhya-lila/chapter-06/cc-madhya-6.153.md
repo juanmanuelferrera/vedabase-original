@@ -6,7 +6,7 @@
 > svābhāvika tina śakti yei brahme haya\
 > 'niḥśaktika' kari' tāṅre karaha niścaya?
 
-*svābhāvika*—by nature; *tina*—three; *śakti*—potencies; *yei*—which; *brahme*—in the Absolute Truth; *haya*—there are; *niḥśaktika*—without potency; *kari'*—making; *tāṅre*—Him; *karaha*—you do; *niścaya*—proof.
+*svābhāvika*—by nature; *tina*—three; *śakti*—potencies; *yei*—which; *brahme*—in the Absolute Truth; *haya*—there are; *niḥśaktika*—without potency; *kari'*—making; *tāṅre*—Him; *karaha*—you do; *niścaya*—ascertainment.
 
 **''The Supreme Personality of Godhead has three primary potencies. Are you trying to ascertain that He has no potencies?**
 

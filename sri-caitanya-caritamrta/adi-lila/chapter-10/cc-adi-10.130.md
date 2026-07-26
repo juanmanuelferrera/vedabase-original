@@ -6,7 +6,7 @@
 > baḍa-śākhā eka,—sārvabhauma bhaṭṭācārya\
 > tāṅra bhagnī-pati śrī-gopīnāthācārya
 
-*baḍa-śākhā eka*—one of the biggest branches; *sārvabhaumabhaṭṭācārya*—of the name Sārvabhauma Bhaṭṭācārya; *tāṅra bhagnī-pati*—his brother-in-law (the husband of Sārvabhauma's sister); *śrī-gopīnāthācārya*—of the name Śrī Gopīnātha Ācārya.
+*baḍa-śākhā eka*—one of the biggest branches; *sārvabhaumabhaṭṭācārya*—of the name Sārvabhauma Bhaṭṭācārya; *tāṅra bhagnī-pati*—his brother-in-law (the husband of Sārvabhauma's sister); *śrī-gopīnāthācārya*—of the name Śrī Gopīnāthācārya.
 
 **There was Sārvabhauma Bhaṭṭācārya, one of the biggest branches of the tree of the Lord, and his sister's husband, Śrī Gopīnātha Ācārya.**
 

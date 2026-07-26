@@ -6,7 +6,7 @@
 > jaya jaya mahāprabhu śrī-kṛṣṇa-caitanya\
 > tāṅhāra caraṇāśrita, sei baḍa dhanya
 
-*jaya*—all glories; *jaya*—all glories; *mahāprabhu*—unto the Supreme Lord; *śrī-kṛṣṇa-caitanya*—of the name Śrī Kṛṣṇa Caitanya; *tāṅhāra*—of His; *caraṇa-āśrita*—one who has taken shelter of the lotus feet; *sei*—he; *baḍa*—is very much; *dhanya*—glorified.
+*jaya*—all glories; *jaya*—all glories; *mahāprabhu*—unto the Supreme Lord; *śrī-kṛṣṇa-caitanya*—of the name Śrī Kṛṣṇa Caitanya; *tāṅhāra*—of His; *caraṇa-āśrita*—one who has taken shelter of the lotus feet; *sei*—he; *baḍa*—is very; *dhanya*—glorified.
 
 **Let me offer glorification to the Supreme Lord Śrī Caitanya Mahāprabhu. One who has taken shelter of His lotus feet is the most glorified person.**
 

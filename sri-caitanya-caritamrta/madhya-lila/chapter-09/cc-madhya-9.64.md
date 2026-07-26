@@ -6,7 +6,7 @@
 > mahāprabhu cali' āilā tripati-trimalle\
 > catur-bhuja mūrti dekhi' vyeṅkaṭādrye cale
 
-*mahāprabhu*—Lord Śrī Caitanya Mahāprabhu; *cali' āilā*—arrived by walking; *tripati-trimalle*—at the holy places named Tirupati and Tirumala; *catur-bhuja*—fourhanded; *mūrti*—Deity; *dekhi'*—seeing; *vyeṅkaṭa-adrye*—to the holy place Veṅkaṭa Hill; *cale*—began to proceed.
+*mahāprabhu*—Lord Śrī Caitanya Mahāprabhu; *cali' āilā*—arrived by walking; *tripati-trimalle*—at the holy places named Tripati and Trimalla; *catur-bhuja*—fourhanded; *mūrti*—Deity; *dekhi'*—seeing; *vyeṅkaṭa-adrye*—to the holy place Veṅkaṭa Hill; *cale*—began to proceed.
 
 **Śrī Caitanya Mahāprabhu next arrived at Tirupati and Tirumala, where He saw a four-handed Deity. Then He next proceeded toward Veṅkaṭa Hill.**
 

@@ -6,7 +6,7 @@
 > īśvarera tattva—yena jvalita jvalana\
 > jīvera svarūpa—yaiche sphuliṅgera kaṇa
 
-*īśvareratattva*—the truth of the Supreme Personality of Godhead; *yena*—is like; *jvalita*—blazing; *jvalana*—fire; *jīvera*—of the living entities; *svarūpa*—identity; *yaiche*—is like; *sphuliṅgera*—of the spark; *kaṇa*—particle.
+*īśvarera tattva*—the truth of the Supreme Personality of Godhead; *yena*—is like; *jvalita*—blazing; *jvalana*—fire; *jīvera*—of the living entities; *svarūpa*—identity; *yaiche*—is like; *sphuliṅgera*—of the spark; *kaṇa*—particle.
 
 **"The Lord is like a great blazing fire, and the living entities are like small sparks of that fire.**
 

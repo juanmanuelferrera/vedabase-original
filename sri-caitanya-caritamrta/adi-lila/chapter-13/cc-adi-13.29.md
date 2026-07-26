@@ -6,7 +6,7 @@
 > sūtra-vṛtti-pāṅji-ṭīkā kṛṣṇete tātparya\
 > śiṣyera pratīta haya,—prabhāva āścarya
 
-*sūtra*—aphorisms; *vṛtti*—explanation; *pāṅji*—application; *ṭīkā*—notes; *kṛṣṇete*—unto Kṛṣṇa; *tātparya*—culmination; *śiṣyera*—of the disciple; *pratīta*—realization; *haya*—becomes; *prabhāva*—influence; *āścarya*—wonderful.
+*sūtra*—codes; *vṛtti*—explanation; *pāṅji*—application; *ṭīkā*—notes; *kṛṣṇete*—unto Kṛṣṇa; *tātparya*—culmination; *śiṣyera*—of the disciple; *pratīta*—realization; *haya*—becomes; *prabhāva*—influence; *āścarya*—wonderful.
 
 **When teaching a course in grammar [vyākaraṇa] and explaining it with notes, Śrī Caitanya Mahāprabhu taught His disciples about the glories of Lord Kṛṣṇa. All explanations culminated in Kṛṣṇa, and His disciples would understand them very easily. Thus His influence was wonderful.**
 

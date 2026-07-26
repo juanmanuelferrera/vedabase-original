@@ -6,7 +6,7 @@
 > ei grantha lekhāya more 'madana-mohana'\
 > āmāra likhana yena śukera paṭhana
 
-*ei*—this; *grantha*—great scripture; *lekhāya*—causes me to write; *more*—unto me; *madana-mohana*—the Deity; *āmāra*—my; *likhana*—writing; *yena*—like; *śukera*—of the parrot; *paṭhana*—responding.
+*ei*—this; *grantha*—great literature; *lekhāya*—causes me to write; *more*—unto me; *madana-mohana*—the Deity; *āmāra*—my; *likhana*—writing; *yena*—like; *śukera*—of the parrot; *paṭhana*—responding.
 
 **Actually Śrī Caitanya-caritāmṛta is not my writing but the dictation of Śrī Madana-mohana. My writing is like the repetition of a parrot.**
 

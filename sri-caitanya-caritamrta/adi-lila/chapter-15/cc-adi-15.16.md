@@ -6,7 +6,7 @@
 > eka-dina naivedya-tāmbūla khāiyā\
 > bhūmite paḍilā prabhu acetana hañā
 
-*eka-dina*—one day; *naivedya*—food offered to the Deity; *tāmbūla*—betel nut; *khāiyā*—after eating; *bhūmite*—on the ground; *padilā*—fell; *prabhu*—the Lord; *acetana*—unconscious; *hañā*—becoming.
+*eka-dina*—one day; *naivedya*—foodstuffs offered to the Deity; *tāmbūla*—betel nut; *khāiyā*—after eating; *bhūmite*—on the ground; *padilā*—fell; *prabhu*—the Lord; *acetana*—unconscious; *hañā*—becoming.
 
 **One day Śrī Caitanya Mahāprabhu ate betel nuts offered to the Deity, but they acted as an intoxicant, and He fell down on the ground unconscious.**
 

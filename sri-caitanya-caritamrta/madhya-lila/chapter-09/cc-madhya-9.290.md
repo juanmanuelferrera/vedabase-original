@@ -6,6 +6,6 @@
 > eta bali' prabhuke uthāñā kaila āliṅgana\
 > galāgali kari' duṅhe karena krandana
 
-*eta bali'*—saying this; *prabhuke*—Lord Śrī Caitanya Mahāprabhu; *uthāñā*—lifting up; *kaila*—did; *āliṅgana*—embracing; *galāgali*—shoulder to shoulder; *kari'*—doing; *duṅhe*—both of them; *karena*—do; *krandana*—crying.
+*eta bali'*—saying this; *prabhuke*—Lord Śrī Caitanya Mahāprabhu; *uthāñā*—getting up; *kaila*—did; *āliṅgana*—embracing; *galāgali*—shoulder to shoulder; *kari'*—doing; *duṅhe*—both of them; *karena*—do; *krandana*—crying.
 
 **After saying this, Śrī Raṅga Purī lifted Śrī Caitanya Mahāprabhu and embraced Him. When they both embraced, they began to cry in ecstasy.**

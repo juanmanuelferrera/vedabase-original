@@ -6,7 +6,7 @@
 > arasa-jña kāka cūṣe jñāna-nimba-phale\
 > rasa-jña kokila khāya premāmra-mukule
 
-*arasa-jña*—those who are without mellows; *kāka*—the crows; *cūṣe*—suck; *jñāna*—of knowledge; *nimba-phale*—on the bitter *nimba* fruit; *rasa-jña*—those who enjoy transcendental mellows; *kokila*—the cuckoos; *khāya*—eat; *prema-āmra-mukule*—the buds of the mango of love of Godhead.
+*arasa-jña*—without mellows; *kāka*—the crows; *cūṣe*—suck; *jñāna*—of knowledge; *nimba-phale*—on the bitter *nimba* fruit; *rasa-jña*—who are humorous; *kokila*—the cuckoos; *khāya*—eat; *prema-āmra-mukule*—the buds of the mango of love of Godhead.
 
 **Rāmānanda Rāya continued, "Those who are devoid of all transcendental mellows are like the crows that suck the juice from the bitter fruits of the nimba tree of knowledge, whereas those who enjoy mellows are like the cuckoos who eat the buds of the mango tree of love of Godhead."**
 

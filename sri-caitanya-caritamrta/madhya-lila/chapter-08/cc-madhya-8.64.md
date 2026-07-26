@@ -6,7 +6,7 @@
 > prabhu kahe,—"eho bāhya, āge kaha āra"\
 > rāya kahe,—"jñāna-miśrā bhakti—sādhya-sāra"
 
-*prabhukahe*—the Lord said; *eho*—this; *bāhya*—external; *āge*—ahead; *kaha*—say; *āra*—more; *rāya kahe*—Rāya replied; *jñāna-miśrā bhakti*—devotional service mixed with empiric knowledge; *sādhya-sāra*—is the essence of perfection.
+*prabhu kahe*—the Lord said; *eho*—this; *bāhya*—external; *āge*—ahead; *kaha*—say; *āra*—more; *rāya kahe*—Rāya replied; *jñāna-miśrā bhakti*—devotional service mixed with empiric knowledge; *sādhya-sāra*—is the essence of perfection.
 
 **After hearing Rāmānanda Rāya speak in this way, Lord Śrī Caitanya Mahāprabhu again rejected his statement and said, "Go ahead and say something more." Rāmānanda Rāya then replied, "Devotional service mixed with empiric knowledge is the essence of perfection."**
 

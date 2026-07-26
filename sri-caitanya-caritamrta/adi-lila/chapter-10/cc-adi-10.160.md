@@ -6,7 +6,7 @@
 > ekaika-śākhāte lāge koṭi koṭi ḍāla\
 > tāra śiṣya-upaśiṣya, tāra upaḍāla
 
-*eka-eka*—in each; *śākhāte*—branch; *lāge*—grow; *koṭi koṭi*—hundreds and thousands; *ḍāla*—twigs; *tāra*—His; *śiṣya*—disciples; *upaśiṣya*—subdisciples; *tāra*—His; *upaḍāla*—subbranches.
+*ekaika*—in each; *śākhāte*—branch; *lāge*—grow; *koṭi koṭi*—hundreds and thousands; *ḍāla*—twigs; *tāra*—His; *śiṣya*—disciple; *upaśiṣya*—sub-disciple; *tāra*—His; *upaḍāla*—subbranches.
 
 **From each branch of the tree have grown hundreds and thousands of subbranches of disciples and granddisciples.**
 

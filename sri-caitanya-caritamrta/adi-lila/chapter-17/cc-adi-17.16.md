@@ -6,7 +6,7 @@
 > tabe nityānanda-gosāñira vyāsa-pūjana\
 > nityānandāveśe kaila muṣala dhāraṇa
 
-*tabe*—thereafter; *nityānanda*—of the name Nityānanda; *gosāñira*—of the Lord; *vyāsa-pūjana*—worshiping Vyāsadeva or the spiritual master; *nityānanda-āveśe*—in the ecstasy of becoming Nityānanda; *kaila*—did; *muṣala dhāraṇa*—carrying a plowlike weapon called a *muṣala.*
+*tabe*—thereafter; *nityānanda*—of the name Nityānanda; *gosāñira*—of the Lord; *vyāsa-pūjana*—worshiping Vyāsadeva or the spiritual master; *nityānanda-āveśe*—in the ecstasy of becoming Nityānanda; *kaila*—did; *muṣala dhāraṇa*—carrying a plough-like weapon called a *muṣala.*
 
 **Nityānanda Prabhu then arranged to offer Vyāsa-pūjā, or worship of the spiritual master, to Lord Śrī Gaurasundara. But Lord Caitanya carried the plowlike weapon called muṣala in the ecstasy of being Nityānanda Prabhu.**
 

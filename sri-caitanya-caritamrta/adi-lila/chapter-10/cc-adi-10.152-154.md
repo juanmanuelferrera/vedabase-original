@@ -16,7 +16,7 @@
 > candraśekhara-gṛhe kaila dui māsa vāsa\
 > tapana-miśrera ghare bhikṣā dui māsa
 
-*vārāṇasī-madhye*—at Vārāṇasī; *prabhura*—of Lord Caitanya Mahāprabhu; *bhakta*—devotees; *tinajana*—three persons; *candraśekhara vaidya*—the clerk of the name Candraśekhara; *āra*—and; *miśra tapana*—Tapana Miśra; *raghunātha bhaṭṭācārya*—of the name Raghunātha Bhaṭṭācārya; *miśrera nandana*—the son of Tapana Miśra; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *yabe*—when; *kāśī*—Vārāṇasī; *āilā*—came; *dekhi'*—after visiting; *vṛndāvana*—the holy place known as Vṛndāvana; *candraśekhara gṛhe*—in the house of Candraśekhara Vaidya; *kaila*—did; *duimāsa*—for two months; *vāsa*—reside; *tapana-miśrera*—of Tapana Miśra; *ghare*—in the house; *bhikṣā*—accepted *prasāda*; *duimāsa*—for two months.
+*vārāṇasī-madhye*—at Vārāṇasī; *prabhura*—of Lord Caitanya Mahāprabhu; *bhakta*—devotees; *tinajana*—three persons; *candraśekhara vaidya*—the clerk of the name Candraśekhara; *āra*—and; *miśra tapana*—Tapana Miśra; *raghunātha bhaṭṭācārya*—of the name Raghunātha Bhaṭṭācārya; *miśrera nandana*—the son of Tapana Miśra; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *yabe*—when; *kāśī*—Vārāṇasī; *āilā*—came; *dekhi'*—after visiting; *vṛndāvana*—the holy place; *candraśekhara gṛhe*—in the house of Candraśekhara Vaidya; *kaila*—did; *duimāsa*—for two months; *vāsa*—reside; *tapana-miśrera*—of Tapana Miśra; *ghare*—in the house; *bhikṣā*—accepted *prasāda*; *duimāsa*—for two months.
 
 **The prominent devotees at Vārāṇasī were the physician Candraśekhara, Tapana Miśra and Raghunātha Bhaṭṭācārya, Tapana Miśra's son. When Lord Caitanya came to Vārāṇasī after seeing Vṛndāvana, for two months He lived at the residence of Candraśekhara Vaidya and accepted prasāda at the house of Tapana Miśra.**
 

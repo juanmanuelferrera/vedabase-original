@@ -6,6 +6,6 @@
 > 'pañca-vidha mukti' pāñā vaikuṇṭhe gamana\
 > 'sādhya-śreṣṭha' haya,—ei śāstra-nirūpaṇa
 
-*pañca-vidha mukti*—five kinds of liberation; *pāñā*—getting; *vaikuṇṭhe*—to the spiritual world; *gamana*—transference; *sādhya-śreṣṭha haya*—is the highest achievement of the goal of life; *ei*—this; *śāstra-nirūpaṇa*—the verdict of all revealed scriptures.
+*pañca-vidha mukti*—five kinds of liberation; *pāñā*—getting; *vaikuṇṭhe*—in the spiritual world; *gamana*—transference; *sādhya-śreṣṭha haya*—is the highest achievement of the goal of life; *ei*—this; *śāstra-nirūpaṇa*—the verdict of all revealed scriptures.
 
 **"When one dedicates the duties of varṇāśrama-dharma to Kṛṣṇa, he is eligible for five kinds of liberation. Thus he is transferred to the spiritual world in Vaikuṇṭha. This is the highest goal of life and the verdict of all revealed scriptures."**

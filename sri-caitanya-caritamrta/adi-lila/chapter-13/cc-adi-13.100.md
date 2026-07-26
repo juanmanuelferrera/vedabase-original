@@ -10,7 +10,7 @@
 > pāñā uparāga-chale, āpanāra mano-bale,\
 > brāhmaṇere dila nānā dāna
 
-*dekhi'*—seeing; *uparāga*—the eclipse; *hāsi'*—laughing; *śīghra*—very soon; *gaṅga-ghāṭe*—on the bank of the Ganges; *āsi'*—coming; *ānande*—in jubilation; *karila*—took; *gaṅgā-snāna*—bath in the Ganges; *pāñā*—taking advantage of; *uparāga-chale*—on the event of the lunar eclipse; *āpanāra*—His own; *manaḥ-bale*—by the strength of mind; *brāhmaṇere*—unto the *brāhmaṇas*; *dila*—gave; *nānā*—various; *dāna*—charities.
+*dekhi'*—seeing; *uparāga*—the eclipse; *hāsi'*—laughing; *śīghra*—very soon; *gaṅga-ghāṭe*—on the bank of the Ganges; *āsi'*—coming; *ānande*—in jubilation; *karila*—took; *gaṅgā-snāna*—bath in the Ganges; *pāñā*—taking advantage of; *uparāga-chale*—on the event of the lunar eclipse; *āpanāra*—His own; *manas-bale*—by the strength of mind; *brāhmaṇere*—unto the *brāhmaṇas*; *dila*—gave; *nānā*—various; *dāna*—charities.
 
 **Seeing the lunar eclipse and laughing, both Advaita Ācārya and Haridāsa Ṭhākura immediately went to the bank of the Ganges and bathed in the Ganges in great jubilation. Taking advantage of the occasion of the lunar eclipse, Advaita Ācārya, by His own mental strength, distributed various types of charity to the brāhmaṇas.**
 

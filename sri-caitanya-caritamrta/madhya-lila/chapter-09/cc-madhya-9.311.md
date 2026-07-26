@@ -6,7 +6,7 @@
 > dhanus-tīrtha dekhi' karilā nirvindhyāte snāne\
 > ṛṣyamūka-giri āilā daṇḍakāraṇye
 
-*dhanusḥ-tīrtha*—Dhanus-tīrtha; *dekhi'*—seeing; *karilā*—did; *nirvindhyāte*—in the river Nirvindhyā; *snāne*—bathing; *ṛṣyamūka-giri*—at the Ṛṣyamūka Mountain; *āilā*—arrived; *daṇḍaka-araṇye*—in the forest known as Daṇḍakāraṇya.
+*dhanuḥ-tīrtha*—Dhanus-tīrtha; *dekhi'*—seeing; *karilā*—did; *nirvindhyāte*—in the river Nirvindhyā; *snāne*—bathing; *ṛṣyamūka-giri*—at the Ṛṣyamūka Mountain; *āilā*—arrived; *daṇḍaka-araṇye*—in the forest known as Daṇḍakāraṇya.
 
 **The Lord next arrived at Dhanus-tīrtha, where He took His bath in the river Nirvindhyā. He then arrived at Ṛṣyamūka Mountain and then went to the forest called Daṇḍakāraṇya.**
 

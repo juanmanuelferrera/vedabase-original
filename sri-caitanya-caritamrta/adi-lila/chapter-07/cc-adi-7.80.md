@@ -6,7 +6,7 @@
 > pāgala ha-ilāṅ āmi, dhairya nāhi mane\
 > eta cinti' nivediluṅ gurura caraṇe
 
-*pāgala*—madman; *ha-ilāṅ*—I have become; *āmi*—I; *dhairya*—patience; *nāhi*—not; *mane*—in the mind; *eta*—thus; *cinti'*—considering; *nivediluṅ*—I submitted; *gurura*—of the spiritual master; *caraṇe*—at his lotus feet.
+*pāgala*—madman; *ha-ilāṅ*—I have become; *āmi*—I; *dhairya*—patience; *nāhi*—not; *mane*—in the mind; *eta*—thus; *cinti'*—considering; *nivediluṅ*—I submitted; *gurura*—of the spiritual master; *caraṇe*—on his lotus feet.
 
 **"I saw that I had become mad by chanting the holy name, and I immediately submitted this at the lotus feet of my spiritual master.**
 

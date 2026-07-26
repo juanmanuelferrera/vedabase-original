@@ -6,7 +6,7 @@
 > tomāra mukhe kṛṣṇa-nāma,—e baḍa vicitra\
 > pāpa-kṣaya gela, hailā parama pavitra
 
-*tomāra mukhe*—in your mouth; *kṛṣṇa-nāma*—chanting of the holy name of Kṛṣṇa; *e*—this; *baḍa*—very; *vicitra*—wonderful; *pāpa-kṣaya*—nullifying of sinful activities; *gela*—has become a fact; *hailā*—have become; *parama*—topmost; *pavitra*—purified.
+*tomāra mukhe*—in your mouth; *kṛṣṇa-nāma*—chanting of the holy name of Kṛṣṇa; *e*—this; *baḍa*—very; *vicitra*—wonderful; *pāpa-kṣaya*—nullifying of sinful activities; *gela*—has become a fact; *hailā*—became; *parama*—topmost; *pavitra*—purified.
 
 **"The chanting of the holy name of Kṛṣṇa from your mouth has performed a wonder—it has nullified the reactions of all your sinful activities. Now you have become supremely pure.**
 

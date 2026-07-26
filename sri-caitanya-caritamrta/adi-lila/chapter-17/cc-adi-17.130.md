@@ -6,7 +6,7 @@
 > prabhu ājñā dila—yāha karaha kīrtana\
 > muñi saṁhārimu āji sakala yavana
 
-*prabhu*—the Lord; *ājñā dila*—ordered; *yāha*—go; *karaha*—and perform; *kīrtana*—*saṅkīrtana,* chanting of the Hare Kṛṣṇa *mahā-mantra*; *muñi*—I; *saṁhārimu*—shall kill; *āji*—today; *sakala*—all; *yavana*—the Muslims.
+*prabhu*—the Lord; *ājñā dila*—ordered; *yāha*—go; *karaha*—and perform; *kīrtana*—*saṅkīrtana,* chanting of the Hare Kṛṣṇa *mahā-mantra*; *muñi*—I; *saṁhārimu*—shall kill; *āji*—today; *sakala*—all; *yavana*—the Mohammedans.
 
 **Lord Caitanya ordered, "Go peform saṅkīrtana! Today I shall kill all the Muslims!"**
 

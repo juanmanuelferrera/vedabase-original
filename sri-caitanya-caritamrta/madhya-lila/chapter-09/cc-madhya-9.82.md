@@ -6,7 +6,7 @@
 > śrī-vaiṣṇava eka,—'vyeṅkaṭa bhaṭṭa' nāma\
 > prabhure nimantraṇa kaila kariyā sammāna
 
-*śrī-vaiṣṇava eka*—a devotee belonging to the Rāmānuja-sampradāya; *vyeṅkaṭa bhaṭṭa*—Veṅkaṭa Bhaṭṭa; *nāma*—named; *prabhure*—unto Lord Caitanya Mahāprabhu; *nimantraṇa*—invitation; *kaila*—did; *kariyā*—offering; *sammāna*—great respect.
+*śrī-vaiṣṇava eka*—one devotee belonging to the Rāmānuja-sampradāya; *vyeṅkaṭa bhaṭṭa*—Veṅkaṭa Bhaṭṭa; *nāma*—named; *prabhure*—unto Lord Caitanya Mahāprabhu; *nimantraṇa*—invitation; *kaila*—did; *kariyā*—offering; *sammāna*—great respect.
 
 **One Vaiṣṇava known as Veṅkaṭa Bhaṭṭa then invited Śrī Caitanya Mahāprabhu to his home with great respect.**
 

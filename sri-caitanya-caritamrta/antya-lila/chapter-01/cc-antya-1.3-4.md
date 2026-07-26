@@ -11,7 +11,7 @@
 > ei chaya gurura karoṅ caraṇa vandana\
 > yāhā haite vighna-nāśa, abhīṣṭa-pūraṇa
 
-*śrī-rūpa*—of the name Śrī Rūpa; *sanātana*—of the name Sanātana; *bhaṭṭa-raghunātha*—of the name Bhaṭṭa Raghunātha; *śrī-jīva*—of the name Śrī Jīva; *gopāla-bhaṭṭa*—of the name Gopāla Bhaṭṭa; *dāsa-raghunātha*—of the name Dāsa Raghunātha; *ei*—these six; *gurura*—of spiritual masters; *karoṅ*—I offer; *caraṇa vandana*—prayers to the lotus feet; *yāhā*—from which; *vighna-nāśa*—destruction of all impediments; *abhīṣṭa-pūraṇa*—fulfillment of desires.
+*śrī-rūpa*—of the name Śrī Rūpa; *sanātana*—of the name Sanātana; *bhaṭṭa-raghunātha*—of the name Bhaṭṭa Raghunātha; *śrī-jīva*—of the name Śrī Jīva; *gopāla-bhaṭṭa*—of the name Gopāla Bhaṭṭa; *dāsa-raghunātha*—of the name Dāsa Raghunātha; *ei chaya*—these six; *gurura*—of spiritual masters; *karoṅ*—I offer; *caraṇa vandana*—prayers to the lotus feet; *yāhā haite*—from which; *vighna-nāśa*—destruction of all impediments; *abhīṣṭa-pūraṇa*—fulfillment of desires.
 
 **I pray to the lotus feet of the six Gosvāmīs-Śrī Rūpa, Sanātana, Bhaṭṭa Raghunātha, Śrī Jīva, Gopāla Bhaṭṭa and Dāsa Raghunātha-so that all impediments to my writing this literature will be annihilated and my real desire will be fulfilled.**
 

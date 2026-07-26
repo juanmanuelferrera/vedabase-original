@@ -6,7 +6,7 @@
 > tomāra sammukhe dekhi kāñcana-pañcālikā\
 > tāṅra gaura-kāntye tomāra sarva aṅga ḍhākā
 
-*tomāra*—of You; *sammukhe*—in front; *dekhi*—I see; *kāñcana-pañcālikā*—a doll made of gold; *tāṅra*—of it; *gaura-kāntye*—by a golden complexion; *tomāra*—Your; *sarva*—all; *aṅga*—body; *ḍhākā*—covering.
+*tomāra*—of You; *sammukhe*—in front; *dekhi*—I see; *kāñcana-pañcālikā*—a doll made of gold; *tāṅra*—of it; *gaura-kāntye*—by a white complexion; *tomāra*—Your; *sarva*—all; *aṅga*—body; *ḍhākā*—covering.
 
 **"I now see You appearing like a golden doll, and Your entire body appears covered by a golden luster.**
 

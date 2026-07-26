@@ -10,7 +10,7 @@
 > kalita-śyāmā-lalito\
 > rādhā-preyān vidhur jayati
 
-*akhila-rasa-amṛta-mūrtiḥ*—the reservoir of all pleasure, in which exist all the mellows of devotional service, namely *śānta, dāsya, sakhya, vātsalya* and *mādhurya*; *prasṛmara*—spreading forth; *ruci*—by His bodily luster; *ruddha*—who has subjugated; *tārakā*—the *gopī* named Tārakā; *pāliḥ*—the *gopī* named Pāli; *kalita*—who has absorbed; *śyāmā*—the *gopī* named Syāmā; *lalitaḥ*—and the *gopī* named Lalitā; *rādhā-preyān*—dearmost to Śrīmatī Rādhārāṇī; *vidhuḥ*—Kṛṣṇa, the Supreme Personality of Godhead; *jayati*—all glories to.
+*akhila-rasa-amṛta-mūrtiḥ*—the reservoir of all pleasure, in which exist the mellows, namely *śānta, dāsya, sakhya, vātsalya* and *mādhurya*; *prasṛmara*—spreading forth; *ruci*—by His bodily luster; *ruddha*—who has subjugated; *tārakā*—the *gopī* named Tārakā; *pāliḥ*—the *gopī* named Pāli; *kalita*—who has absorbed; *śyāmā*—the *gopī* named Syāmā; *lalitaḥ*—and the *gopī* named Lalitā; *rādhā-preyān*—dearmost to Śrīmatī Rādhārāṇī; *vidhuḥ*—Kṛṣṇa, the Supreme Personality of Godhead; *jayati*—all glories to.
 
 **“ 'Let Kṛṣṇa, the Supreme Personality of Godhead, be glorified! By virtue of His expanding attractive features, He subjugated the gopīs named Tārakā and Pāli and absorbed Śyāmā and Lalitā. He is the most attractive lover of Śrīmatī Rādhārāṇī and is the reservoir of pleasure for all devotional mellows.'**
 

@@ -6,7 +6,7 @@
 > grāmera śūnya-hāṭe vasi' karena kīrtana\
 > ethā pūjārī karāila ṭhākure śayana
 
-*grāmera*—of the village; *śūnya-hāṭe*—in the vacant marketplace; *vasi'*—sitting down; *karena*—performs; *kīrtana*—chanting; *ethā*—in the temple; *pūjārī*—the priest; *karāila*—made; *ṭhākure*—the Deity; *śayana*—lying down.
+*grāmera*—of the village; *śūnya-hāṭe*—in the vacant marketplace; *vasi'*—sitting down; *karena*—performs; *kīrtana*—chanting; *ethā*—in the temple; *pūjārī*—the priest; *karāila*—made; *ṭhākure*—the Deities; *śayana*—lying down.
 
 **Mādhavendra Purī left the temple and sat down in the village marketplace, which was vacant. Sitting there, he began to chant. In the meantime, the temple priest laid the Deity down to rest.**
 

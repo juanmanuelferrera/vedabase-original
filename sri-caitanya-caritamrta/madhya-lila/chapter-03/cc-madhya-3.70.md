@@ -6,7 +6,7 @@
 > prabhu kahe—sannyāsīra bhakṣya nahe upakaraṇa\
 > ihā khāile kaiche haya indriya vāraṇa
 
-*prabhukahe*—the Lord said; *sannyāsīra*—by a *sannyāsī*; *bhakṣya*—to be eaten; *nahe*—this is not; *upakaraṇa*—varieties of food; *ihā*—this; *khāile*—if eating; *kaiche*—how; *haya*—there is; *indriya*—senses; *vāraṇa*—controlling.
+*prabhu kahe*—the Lord said; *sannyāsīra*—by a *sannyāsī*; *bhakṣya*—to be eaten; *nahe*—this is not; *upakaraṇa*—varieties of food; *ihā*—this; *khāile*—if eating; *kaiche*—how; *haya*—there is; *indriya*—senses; *vāraṇa*—controlling.
 
 **Śrī Caitanya Mahāprabhu said, "It is not proper for a sannyāsī to eat such a variety of foods. If he does, how can he control his senses?"**
 

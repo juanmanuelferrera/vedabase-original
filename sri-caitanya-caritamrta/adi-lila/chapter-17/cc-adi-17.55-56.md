@@ -11,7 +11,7 @@
 > tabe sei pāpī prabhura la-ila śaraṇa\
 > hita upadeśa kaila ha-iyā karuṇa
 
-*sannyāsa kariyā*—after accepting the renounced order of life; *yabe*—when; *prabhu*—Lord Caitanya Mahāprabhu; *nīlācale*—to Jagannātha Purī; *gelā*—went; *tathā haite*—from there; *yabe*—when; *kuliyā*—of the name Kuliyā; *grāme*—to the village; *āilā*—came back; *tabe*—at that time; *sei*—that; *pāpī*—sinful man; *prabhura*—of the Lord; *la-ila*—took; *śaraṇa*—shelter; *hita*—beneficial; *upadeśa*—advice; *kaila*—gave; *ha-iyā*—becoming; *karuṇa*—merciful.
+*sannyāsa kariyā*—after accepting the renounced order of life; *yabe*—when; *prabhu*—Lord Caitanya Mahāprabhu; *nīlācale*—in Jagannātha Purī; *gelā*—went; *tathā haite*—from there; *yabe*—when; *kuliyā*—of the name Kuliyā; *grāme*—to the village; *āilā*—came back; *tabe*—at that time; *sei*—that; *pāpī*—sinful man; *prabhura*—of the Lord; *la-ila*—took; *śaraṇa*—shelter; *hita*—beneficial; *upadeśa*—advice; *kaila*—gave; *ha-iyā*—becoming; *karuṇa*—merciful.
 
 **When Śrī Caitanya, after accepting the renounced order of life, went to Jagannātha Purī and then came back to the village of Kuliyā, upon His return that sinful man took shelter at the Lord's lotus feet. The Lord, being merciful to him, gave him instructions for his benefit.**
 

@@ -6,7 +6,7 @@
 > eta bali' eka śloka śikhāila more\
 > bhāgavatera sāra ei—bale vāre vāre
 
-*eta bali'*—saying this; *eka*—one; *śloka*—verse; *śikhāila*—has taught; *more*—unto Me; *bhāgavatera*—of *Śrīmad-Bhāgavatam*; *sāra*—essence; *ei*—this is; *bale*—he said; *vārevāre*—again and again.
+*eta bali'*—saying this; *eka*—one; *śloka*—verse; *śikhāila*—has taught; *more*—unto Me; *bhāgavatera*—of *Śrīmad-Bhāgavatam*; *sāra*—essence; *ei*—this is; *bale*—he said; *vāre vāre*—again and again.
 
 **"Saying this, My spiritual master taught Me one verse from Śrīmad-Bhāgavatam. It is the essence of all the Bhāgavatam's instructions; therefore he instructed Me on this verse again and again."**
 

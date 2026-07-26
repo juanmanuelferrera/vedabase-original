@@ -8,7 +8,7 @@
 > necchanti sevayā pūrṇāḥ\
 > kuto 'nyat kāla-viplutam
 
-*mat*—of Me; *sevayā*—by service; *pratītam*—obtained; *te*—they; *sālokya-ādi*—liberation, beginning *sālokya*; *catuṣṭayam*—four kinds of; *na icchanti*—do not desire; *sevayā*—by service; *pūrṇāḥ*—complete; *kutaḥ*—where; *anyat*—other things; *kāla-viplutam*—which are lost in time.
+*mat*—of Me; *sevayā*—by service; *pratītam*—obtained; *te*—they; *sālokya-ādi*—liberation, beginning with *sālokya*; *catuṣṭayam*—four kinds of; *na icchanti*—do not desire; *sevayā*—by service; *pūrṇāḥ*—complete; *kutaḥ*—where; *anyat*—other things; *kāla-viplutam*—which are lost in time.
 
 **"My devotees, having fulfilled their desires by serving Me, do not accept the four kinds of salvation that are easily earned by such service. Why then should they accept any pleasures that are lost in the course of time?"**
 

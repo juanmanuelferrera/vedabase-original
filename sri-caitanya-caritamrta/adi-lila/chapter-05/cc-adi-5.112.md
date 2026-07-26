@@ -6,7 +6,7 @@
 > sakala jīvera tiṅho haye antaryāmī\
 > jagat-pālaka tiṅho jagatera svāmī
 
-*sakala*—all; *jīvera*—of the living entities; *tiṅho*—He; *haye*—is; *antaḥ-yāmī*—the Supersoul; *jagat-pālaka*—the maintainer of the material world; *tiṅho*—He; *jagatera svāmī*—the Lord of the material world.
+*sakala*—all; *jīvera*—of the living entities; *tiṅho*—He; *haye*—is; *antaryāmī*—the Supersoul; *jagat-pālaka*—the maintainer of the material world; *tiṅho*—He; *jagatera svāmī*—the Lord of the material world.
 
 **He is the Supersoul of all living entities. He maintains this material world, and He is its Lord.**
 

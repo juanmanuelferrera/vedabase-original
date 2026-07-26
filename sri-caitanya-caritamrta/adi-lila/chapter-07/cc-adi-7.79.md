@@ -6,7 +6,7 @@
 > tabe dhairya dhari' mane kariluṅ vicāra\
 > kṛṣṇa-nāme jñānācchanna ha-ila āmāra
 
-*tabe*—thereafter; *dhairya*—patience; *dhari'*—accepting; *mane*—in the mind; *kariluṅ*—I did; *vicāra*—consideration; *kṛṣṇa-nāme*—in the holy name of Kṛṣṇa; *jñāna ācchanna*—covering of My knowledge; *ha-ila*—has become; *āmāra*—of Me.
+*tave*—thereafter; *dhairya*—patience; *dhari'*—accepting; *mane*—in the mind; *kariluṅ*—I did; *vicāra*—consideration; *kṛṣṇa-nāme*—in the holy name of Kṛṣṇa; *jñāna ācchanna*—covering of My knowledge; *ha-ila*—has become; *āmāra*—of Me.
 
 **"Collecting My patience, therefore, I began to consider that chanting the holy name of Kṛṣṇa had covered all My spiritual knowledge.**
 
