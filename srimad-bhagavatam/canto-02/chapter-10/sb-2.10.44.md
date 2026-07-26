@@ -8,7 +8,7 @@
 > nettham-bhāvena hi paraṁ\
 > draṣṭum arhanti sūrayaḥ
 
-*ittham*—in these features; *bhāvena*—the matter of creation and destruction; *kathitaḥ*—described; *bhagavān*—the Personality of Godhead; *bhagavat-tamaḥ*—by the great transcendentalists; *na*—not; *ittham*—in this; *bhāvena*—features; *hi*—only; *param*—most glorious; *draṣṭum*—to see; *arhanti*—deserve; *sūrayaḥ*—great devotees.
+*ittham*—in these features; *bhāvena*—matter of creation and destruction; *kathitaḥ*—described; *bhagavān*—the Personality of Godhead; *bhagavat-tamaḥ*—by the great transcendentalists; *na*—not; *ittham*—in this; *bhāvena*—features; *hi*—only; *param*—most glorious; *draṣṭum*—to see; *arhanti*—deserve; *sūrayaḥ*—great devotees.
 
 **The great transcendentalists thus describe the activities of the Supreme Personality of Godhead, but the pure devotees deserve to see more glorious things in transcendence, beyond these features.**
 

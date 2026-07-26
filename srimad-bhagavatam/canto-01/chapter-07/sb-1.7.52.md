@@ -8,7 +8,7 @@
 > ālokya vadanaṁ sakhyur\
 > idam āha hasann iva
 
-*niśamya*—just after hearing; *bhīma*—Bhīma; *gaditam*—spoken by; *draupadyāḥ*—of Draupadī; *ca*—and; *catuḥ-bhujaḥ*—the four-handed (Personality of Godhead); *ālokya*—having seen; *vadanam*—the face; *sakhyuḥ*—of His friend; *idam*—this; *āha*—said; *hasan*—smiling; *iva*—as it.
+*niśamya*—just after hearing; *bhīma*—Bhīma; *gaditam*—spoken by; *draupadyāḥ*—of Draupadī; *ca*—and; *catur-bhujaḥ*—the four-handed (Personality of Godhead); *ālokya*—having seen; *vadanam*—the face; *sakhyuḥ*—of His friend; *idam*—this; *āha*—said; *hasan*—smiling; *iva*—as it.
 
 **Caturbhujaḥ [the four-armed one], or the Personality of Godhead, after hearing the words of Bhīma, Draupadī and others, saw the face of His dear friend Arjuna, and He began to speak as if smiling.**
 

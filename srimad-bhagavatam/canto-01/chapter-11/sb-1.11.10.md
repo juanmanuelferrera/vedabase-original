@@ -15,7 +15,7 @@
 > śṛṇvāno 'nugrahaṁ dṛṣṭyā\
 > vitanvan prāviśat puram
 
-*katham*—how; *vayam*—we; *nātha*—O Lord; *ciroṣite*—being abroad almost always; *tvayi*—by You; *prasanna*—satisfaction; *dṛṣṭyā*—by the glance; *akhila*—universal; *tāpa*—miseries; *śoṣaṇam*—vanquishing; *jīvema*—shall be able to live; *te*—Your; *sundara*—beautiful; *hāsa*—smiling; *śobhitam*—decorated; *apaśyamānāḥ*—without seeing; *vadanam*—face; *manoharam*—attractive; *iti*—thus; *ca*—and; *udīritāḥ*—speaking; *vācaḥ*—words; *prajānām*—of the citizens; *bhakta-vatsalaḥ*—kind to the devotees; *śṛṇvānaḥ*—thus learning; *anugraham*—kindness; *dṛṣṭyā*—by glances; *vitanvan*—distributing; *prāviśat*—entered; *puram*—Dvārakāpurī.
+*katham*—how; *vayam*—we; *nātha*—O Lord; *ciroṣite*—being abroad almost always; *tvayi*—by You; *prasanna*—satisfaction; *dṛṣṭyā*—by the glance; *akhila*—universal; *tāpa*—miseries; *śoṣaṇam*—vanquishing; *jīvema*—shall be able to live; *te*—Your; *sundara*—beautiful; *hāsa*—smiling; *śobhitam*—decorated; *apaśyamānāḥ*—without seeing; *vadanam*—face; *manoharam*—attractive; *iti*—thus; *ca*—and; *udīritāḥ*—speaking; *vācaḥ*—words; *prajānām*—of the citizens; *bhakta-vatsalaḥ*—kind to the devotees; *śṛṇvānaḥ*—thus hearing; *anugraham*—kindness; *dṛṣṭayā*—by glances; *vitanvan*—distributing; *prāviśat*—entered; *puram*—Dvārakāpurī.
 
 **O master, if You live abroad all the time, then we cannot look at Your attractive face whose smiles vanquish all our sufferings. How can we exist without Your presence? The Lord, who is very kind to the citizens and the devotees, upon hearing their speeches, entered the city of Dvārakā and acknowledged all their greetings by casting His transcendental glance over them.**
 

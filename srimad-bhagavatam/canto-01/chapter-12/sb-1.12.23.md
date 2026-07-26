@@ -8,7 +8,7 @@
 > āśrayaḥ sarva-bhūtānāṁ\
 > yathā devo ramāśrayaḥ
 
-*pitāmaha*—the grandfather, or Brahmā; *samaḥ*—equally good; *sāmye*—in the matter; *prasāde*—in charity or in munificence; *giriśa*—Lord Śiva; *upamaḥ*—comparison of equilibrium; *āśrayaḥ*—resort; *sarva*—all; *bhūtānām*—of the living beings; *yathā*—as; *devaḥ*—the Supreme Lord; *ramā-āśrayaḥ*—the Personality of Godhead.
+*pitāmaha*—grandfather, or Brahmā; *samaḥ*—equally good; *sāmye*—in the matter; *prasāde*—in charity or in munificence; *giriśa*—Lord Śiva; *upamaḥ*—comparison of equilibrium; *āśrayaḥ*—resort; *sarva*—all; *bhūtānām*—of the living beings; *yathā*—as; *devaḥ*—the Supreme Lord; *ramā-āśrayaḥ*—the Personality of Godhead.
 
 **This child will be like his grandfather Yudhiṣṭhira or Brahmā in equanimity of mind. He will be munificent like the lord of the Kailāsa Hill, Śiva. And he will be the resort of everyone, like the Supreme Personality of Godhead Nārāyaṇa who is even the shelter of the goddess of fortune.**
 

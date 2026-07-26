@@ -6,7 +6,7 @@
 > bhaṭṭa kahe,-tumi yei kaha, sei vidhi-dharma\
 > ei rāga-mārge āche sūkṣma-dharma-marma
 
-*bhaṭṭa kahe*—the Bhaṭṭācārya said; *tumi yei kaha*—whatever you say; *sei vidhi-dharma*—that is a regulative principle; *ei rāga-mārge*—in this spontaneous love; *āche*—there are; *sūkṣma-dharma-marma*—subtle intricacies of the religious system.
+*bhaṭṭa kahe*—Bhaṭṭācārya said; *tumi yei kaha*—whatever you say; *sei vidhi-dharma*—that is a regulative principle; *ei rāga-mārge*—in this spontaneous love; *āche*—there are; *sūkṣma-dharma-marma*—subtle intricacies of the religious system.
 
 **The Bhaṭṭācārya told the King, "What you have said is right according to the regulative principles governing the visiting of holy places, but there is another path, which is the path of spontaneous love. According to those principles, there are subtle intricacies involved in the execution of religious principles.**
 

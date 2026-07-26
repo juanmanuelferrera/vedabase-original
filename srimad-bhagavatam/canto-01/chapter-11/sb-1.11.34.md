@@ -8,7 +8,7 @@
 > vidhāya vairaṁ śvasano yathānalaṁ\
 > mitho vadhenoparato nirāyudhaḥ
 
-*evam*—thus; *nṛpāṇām*—of the kings or administrators; *kṣiti-bhāra*—the burden of the earth; *janmanām*—born in that way; *akṣauhiṇībhiḥ*—empowered by a military strength of horses, elephants, chariots and infantry; *parivṛtta*—being puffed up by such surroundings; *tejasām*—prowess; *vidhāya*—having created; *vairam*—hostility; *śvasanaḥ*—interaction of the wind and the pipe plants; *yathā*—as it is; *analam*—fire; *mithaḥ*—with one another; *vadhena*—by killing them; *uparataḥ*—relieved; *nirāyudhaḥ*—by Himself without being a party to such fighting.
+*evam*—thus; *nṛpāṇām*—of the kings or administrators; *kṣiti-bhāra*—the burden of the earth; *janmanām*—born in that way; *akṣauhiṇībhiḥ*—empowered by a military strength of horses, elephants, chariots and infantry; *parivṛtta*—being puffed up by such surroundings; *tejasām*—prowess; *vidhāya*—having created; *vairam*—hostility; *śvasanaḥ*—interaction of air and the pipe plants; *yathā*—as it is; *analam*—fire; *mithaḥ*—with one another; *vadhena*—by killing them; *uparataḥ*—relieved; *nirāyudhaḥ*—by Himself without being a party to such fighting.
 
 **The Lord was pacified after killing those kings who were burdensome to the earth. They were puffed up with their military strength, their horses, elephants, chariots, infantry, etc. He Himself was not a party in the fight. He simply created hostility between the powerful administrators, and they fought amongst themselves. He was like the wind which causes friction between bamboos and so sparks a fire.**
 

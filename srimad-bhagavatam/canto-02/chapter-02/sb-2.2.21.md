@@ -8,7 +8,7 @@
 > sthitvā muhūrtārdham akuṇṭha-dṛṣṭir\
 > nirbhidya mūrdhan visṛjet paraṁ gataḥ
 
-*tasmāt*—from there; *bhruvoḥ*—of the eyebrows; *antaram*—in between; *unnayeta*—should be brought in; *niruddha*—by blocking; *sapta*—seven; *āyatanaḥ*—outlets of the life air; *anapekṣaḥ*—independent of all material enjoyment; *sthitvā*—by keeping; *muhūrta*—of a moment; *ardham*—half; *akuṇṭha*—back home, back to Godhead; *dṛṣṭiḥ*—one whose aim is targeted like that; *nirbhidya*—punching; *mūrdhan*—the cerebral hole; *visṛjet*—should give up his body; *param*—the Supreme; *gataḥ*—having gone to.
+*tasmāt*—from there; *bhruvoḥ*—of the eyebrows; *antaram*—in between; *unnayeta*—should be brought in; *niruddha*—by blocking; *sapta*—seven; *āyatanaḥ*—outlets of the life air; *anapekṣaḥ*—independent of all material enjoyment; *sthitvā*—by keeping; *muhūrta*—moment; *ardham*—half of a; *akuṇṭha*—back home, back to Godhead; *dṛṣṭiḥ*—one whose aim is targeted like that; *nirbhidya*—punching; *mūrdhan*—the cerebral hole; *visṛjet*—should give up his body; *param*—the Supreme; *gataḥ*—having gone to.
 
 **Thereafter the bhakti-yogi should push up the life air in between the eyebrows, and then, blocking up the seven outlets of the life air, he should maintain his aim for going back home, back to Godhead. If he is completely free from all desires for material enjoyment, he should then reach the cerebral hole and give up this material connection, having gone to the Supreme.**
 

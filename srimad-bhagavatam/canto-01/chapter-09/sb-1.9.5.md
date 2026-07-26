@@ -8,7 +8,7 @@
 > rājarṣayaś ca tatrāsan\
 > draṣṭuṁ bharata-puṅgavam
 
-*tatra*—there; *brahma-ṛṣayaḥ*—*ṛṣis* among the *brāhmaṇas*; *sarve*—all; *deva-ṛṣayaḥ*—*ṛṣis* among the demigods; *ca*—and; *sattama*—situated in the quality of goodness; *rāja-ṛṣayaḥ*—*ṛṣis* among the kings; *ca*—and; *tatra*—in that place; *āsan*—were present; *draṣṭum*—just to see; *bharata*—the descendants of King Bharata; *puṅgavam*—the chief of.
+*tatra*—there; *brahma-ṛṣayaḥ*—*ṛṣis* among the *brāhmaṇas*; *sarve*—all; *deva-ṛṣayaḥ*—*ṛṣis* among the demigods; *ca*—and; *sattama*—situated in the quality of goodness; *rāja-ṛṣayaḥ*—*ṛṣis* among the kings; *ca*—and; *tatra*—in that place; *āsan*—were present; *draṣṭum*—just to see; *bharata*—descendant of King Bharata; *puṅgavam*—and the chief of them.
 
 **Just to see the chief of the descendants of King Bhārata [Bhīṣma], all the great souls in the universe, namely the ṛṣis amongst the demigods, brāhmaṇas and kings, all situated in the quality of goodness, were assembled there.**
 

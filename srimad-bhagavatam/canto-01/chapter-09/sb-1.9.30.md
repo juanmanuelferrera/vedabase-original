@@ -8,7 +8,7 @@
 > kṛṣṇe lasat-pīta-paṭe catur-bhuje\
 > puraḥ sthite 'mīlita-dṛg vyadhārayat
 
-*tadā*—at that time; *upasaṁhṛtya*—withdrawing; *giraḥ*—speech; *sahasraṇīḥ*—Bhīṣmadeva (who was expert in thousands of sciences and arts); *vimukta-saṅgam*—completely freed from everything else; *manaḥ*—mind; *ādi-pūruṣe*—unto the original Personality of Godhead; *kṛṣṇe*—unto Kṛṣṇa; *lasat-pīta-paṭe*—decorated with yellow garments; *catur-bhuje*—unto the four-handed original Nārāyaṇa; *puraḥ*—just before; *sthite*—standing; *amīlita*—widespread; *dṛk*—vision; *vyadhārayat*—fixed.
+*tadā*—at that time; *upasaṁhṛtya*—withdrawing; *giraḥ*—speeches; *sahasraṇīḥ*—Bhīṣmadeva (expert in thousands of sciences and arts); *vimukta-saṅgam*—completely freed from everything else; *manaḥ*—mind; *ādi-pūruṣe*—unto the original Personality of Godhead; *kṛṣṇe*—unto Kṛṣṇa; *lasat-pīta-paṭe*—decorated with yellow garments; *catur-bhuje*—unto four-handed original Nārāyaṇa; *puraḥ*—just before; *sthite*—standing; *amīlita*—widespread; *dṛk*—vision; *vyadhārayat*—fixed.
 
 **Thereupon that man who spoke on different subjects with thousands of meanings and who fought on thousands of battlefields and protected thousands of men, stopped speaking, and being completely freed from all bondage, withdrew his mind from everything else and fixed his wide-open eyes upon the Personality of Godhead Śrī Kṛṣṇa who stood before him, four-handed, dressed in yellow garments that glittered and shined.**
 

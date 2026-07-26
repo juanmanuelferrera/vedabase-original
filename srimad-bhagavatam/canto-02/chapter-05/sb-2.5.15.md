@@ -8,7 +8,7 @@
 > nārāyaṇa-parā lokā\
 > nārāyaṇa-parā makhāḥ
 
-*nārāyaṇa*—the Supreme Lord; *parāḥ*—is the cause and is meant for; *vedāḥ*—knowledge; *devāḥ*—the demigods; *nārāyaṇa*—the Supreme Lord; *aṅga-jāḥ*—assisting hands; *nārāyaṇa*—the Personality of Godhead; *parāḥ*—for the sake of; *lokāḥ*—the planets; *nārāyaṇa*—the Supreme Lord; *parāḥ*—just to please Him; *makhāḥ*—all sacrifices.
+*nārāyaṇa*—the Supreme Lord; *parāḥ*—is the cause and is meant for; *vedāḥ*—knowledge; *devāḥ*—the demigods; *nārāyaṇa*—the Supreme Lord; *aṅga-jāḥ*—assisting hands; *nārāyaṇa*—the Personality of Godhead; *parāḥ*—for the sake of; *lokāḥ*—the planets; *nārāyaṇa*—the Supreme Lord; *parāḥ*—just please Him; *makhāḥ*—all sacrifices.
 
 **The Vedic literatures are made by and are meant for the Supreme Lord, the demigods are also meant for serving the Lord as parts of the body, the different planets are also meant for the sake of the Lord, and different sacrifices are performed just to please Him.**
 

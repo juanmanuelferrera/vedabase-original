@@ -8,7 +8,7 @@
 > sthity-ādaye hari-viriñci-hareti saṁjñāḥ\
 > śreyāṁsi tatra khalu sattva-tanor nṛṇāṁ syuḥ
 
-*sattvam*—goodness; *rajaḥ*—passion; *tamaḥ*—the darkness of ignorance; *iti*—thus; *prakṛteḥ*—of the material nature; *guṇāḥ*—qualities; *taiḥ*—by them; *yuktaḥ*—associated with; *paraḥ*—transcendental; *puruṣaḥ*—the personality; *ekaḥ*—one; *iha asya*—of this material world; *dhatte*—accepts; *sthiti-ādaye*—for the matter of creation, maintenance and destruction, etc.; *hari*—Viṣṇu, the Personality of Godhead; *viriñci*—Brahmā; *hara*—Lord Śiva; *iti*—thus; *saṁjñāḥ*—different features; *śreyāṁsi*—ultimate benefit; *tatra*—therein; *khalu*—of course; *sattva*—goodness; *tanoḥ*—form; *nṛṇām*—of the human being; *syuḥ*—derived.
+*sattvam*—goodness; *rajaḥ*—passion; *tamaḥ*—darkness of ignorance; *iti*—thus; *prakṛteḥ*—of the material nature; *guṇāḥ*—qualities; *taiḥ*—by them; *yuktaḥ*—associated with; *paraḥ*—transcendental; *puruṣaḥ*—the personality; *ekaḥ*—one; *iha asya*—of this material world; *dhatte*—accepts; *sthiti-ādaye*—for the matter of creation, maintenance and destruction, etc.; *hari*—Viṣṇu, the Personality of Godhead; *viriñci*—Brahmā; *hara*—Lord Śiva; *iti*—thus; *saṁjñāḥ*—different features; *śreyāṁsi*—ultimate benefit; *tatra*—therein; *khalu*—of course; *sattva*—goodness; *tanoḥ*—form; *nṛṇām*—of the human being; *syuḥ*—derived.
 
 **The transcendental Lord is indirectly associated with the three modes of material nature, namely passion, goodness and ignorance, and just for the material world's creation, maintenance and destruction He accepts the three qualitative forms of Brahmā, Viṣṇu and Śiva. Of these three, all living beings can derive ultimate benefit from Viṣṇu, the form of the quality of goodness.**
 

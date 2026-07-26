@@ -8,7 +8,7 @@
 > yathā purastād vyākhyāsye\
 > pādmaṁ kalpam atho śṛṇu
 
-*parimāṇam*—measurement; *ca*—also; *kālasya*—of time; *kalpa*—a day of Brahmā; *lakṣaṇa*—symptoms; *vigraham*—form; *yathā*—as much as; *purastāt*—hereafter; *vyākhyāsye*—shall be explained; *pādmam*—by the name Pādma; *kalpam*—the duration of a day; *atho*—thus; *śṛṇu*—just hear.
+*parimāṇam*—measurement; *ca*—also; *kālasya*—of time; *kalpa*—day of Brahmā; *lakṣaṇa*—symptoms; *vigraham*—form; *yathā*—as much as; *purastāt*—hereafter; *vyākhyāsye*—shall be explained; *pādmam*—by the name Pādma; *kalpam*—duration of day; *atho*—thus; *śṛṇu*—just hear.
 
 **O King, I shall in due course explain the measurement of time in its gross and subtle features with specific symptoms of each of them, but for the present let me explain unto you the Pādma-kalpa.**
 

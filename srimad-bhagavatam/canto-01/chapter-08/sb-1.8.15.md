@@ -8,7 +8,7 @@
 > vaiṣṇavaṁ teja āsādya\
 > samaśāmyad bhṛgūdvaha
 
-*yadyapi*—although; *astram*—weapon; *brahma-śiraḥ*—supreme; *tu*—but; *amogham*—without check; *ca*—and; *apratikriyam*—not to be counteracted; *vaiṣṇavam*—in relation with Viṣṇu; *tejaḥ*—strength; *āsādya*—being confronted with; *samaśāmyat*—was neutralized; *bhṛgu-udvaha*—O glory of the family of Bhṛgu.
+*yadyapi*—although; *astram*—weapons; *brahma-śiraḥ*—supreme; *tu*—but; *amogham*—without check; *ca*—and; *apratikriyam*—not to be counteracted; *vaiṣṇavam*—in relation with Viṣṇu; *tejaḥ*—strength; *āsādya*—being confronted with; *samaśāmyat*—was neutralized; *bhṛgu-udvaha*—O glory of the family of Bhṛgu.
 
 **O Śaunaka, although the supreme brahmāstra weapon released by Aśvatthāmā was irresistible and without check or counteraction, when confronted by the strength of Viṣṇu [Lord Kṛṣṇa], it was neutralized and foiled.**
 

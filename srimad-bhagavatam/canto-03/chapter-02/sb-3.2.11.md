@@ -8,7 +8,7 @@
 > ādāyāntar adhād yas tu\
 > sva-bimbaṁ loka-locanam
 
-*pradarśya*—by exhibiting; *atapta*—without undergoing; *tapasām*—penances; *avitṛpta-dṛśām*—without fulfillment of vision; *nṛṇām*—of persons; *ādāya*—taking; *antaḥ*—disappearance; *adhāt*—performed; *yaḥ*—He who; *tu*—but; *sva-bimbam*—His own form; *loka-locanam*—public vision.
+*pradarśya*—by exhibiting; *atapta*—without undergoing; *tapasām*—penances; *avitṛpta-dṛśām*—without fulfillment of vision; *nṛṇām*—of persons; *ādāya*—taking; *antaḥ*—disappearance; *adhāt*—performed; *yaḥ*—who; *tu*—but; *sva-bimbam*—His own form; *loka-locanam*—public vision.
 
 **Lord Śrī Kṛṣṇa, who manifested His eternal form before the vision of all on the earth, performed His disappearance by removing His form from the sight of those who were unable to see Him [as He is] due to not executing required penance.**
 

@@ -6,6 +6,6 @@
 > ei saba nāmera iṅha haya nijāspada\
 > candanākta prasāda-ḍora-śrī-bhuje aṅgada
 
-*ei saba*—all these; *nāmera*—of names; *iṅha*—Śrī Caitanya Mahāprabhu; *haya*—is; *nija-āspada*—the reservoir; *candana-akta*—smeared with the pulp of sandalwood; *prasāda-ḍora*—the thread received from the Jagannātha temple; *śrī-bhuje*—on His arms; *aṅgada*—ornaments.
+*ei saba*—all these; *nāmera*—of names; *iṅha*—Śrī Caitanya Mahāprabhu; *haya*—is; *nija-āspada*—the reservoir; *candana-akta*—smeared with the pulp of sandalwood; *prasāda-ḍora*—the thread received from Jagannātha temple; *śrī-bhuje*—on His arms; *aṅgada*—ornaments.
 
 **"All the symptoms mentioned in the verse from the Viṣṇu-sahasra-nāma-stotra are visible in the body of Śrī Caitanya Mahāprabhu. His arms are decorated with sandalwood pulp and the thread received from the Śrī Jagannātha Deity, and these are His ornamental bangles."**

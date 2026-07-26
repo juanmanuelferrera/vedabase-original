@@ -8,7 +8,7 @@
 > yo visphurad-bhrū-viṭapena bhūmer\
 > bhāraṁ kṛtāntena tiraścakāra
 
-*kaḥ*—who else; *vā*—either; *amuṣya*—the Lord's; *aṅghri*—feet; *saroja-reṇum*—dust of the lotus; *vismartum*—to forget; *īśīta*—may be able; *pumān*—person; *vijighran*—smelling; *yaḥ*—one who; *visphurat*—expanding; *bhrū-viṭapena*—by the leaves of the eyebrows; *bhūmeḥ*—of the earth; *bhāram*—burden; *kṛta-antena*—by death-blows; *tiraścakāra*—executed.
+*kaḥ*—who else; *vā*—either; *amuṣya*—the Lord's; *aṅghri*—feet; *saroja-reṇum*—dust of the lotus; *vismartum*—forgetting; *īśīta*—may be able; *pumān*—person; *vijighran*—smelling; *yaḥ*—one who; *visphurat*—expanding; *bhrū-viṭapena*—by the leaves of the eyebrows; *bhūmeḥ*—of the earth; *bhāram*—burden; *kṛta-antena*—by death-blows; *tiraścakāra*—executed.
 
 **Who, after smelling the dust of His lotus feet even once, could ever forget it? Simply by expanding the leaves of His eyebrows, Kṛṣṇa has given the deathblow to those who were burdening the earth.**
 

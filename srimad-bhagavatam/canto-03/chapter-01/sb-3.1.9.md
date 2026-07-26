@@ -8,7 +8,7 @@
 > na tāni puṁsām amṛtāyanāni\
 > rājoru mene kṣata-puṇya-leśaḥ
 
-*yadā*—when; *ca*—also; *pārtha-prahitaḥ*—being advised by Arjuna; *sabhāyām*—in the assembly; *jagat-guruḥ*—teacher of the world; *yāni*—those; *jagāda*—went; *kṛṣṇaḥ*—Lord Kṛṣṇa; *na*—never; *tāni*—such words; *puṁsām*—of all men of sense; *amṛta-ayanāni*—as good as nectar; *rājā*—the King (Dhṛtarāṣṭra or Duryodhana); *uru*—very important; *mene*—did consider; *kṣata*—dwindling; *puṇya-leśaḥ*—fragment of pious acts.
+*yadā*—when; *ca*—also; *pārtha-prahitaḥ*—being advised by Arjuna; *sabhāyām*—in the assembly; *jagat-guruḥ*—of the teacher of the world; *yāni*—those; *jagāda*—went; *kṛṣṇaḥ*—Lord Kṛṣṇa; *na*—never; *tāni*—such words; *puṁsām*—of all men of sense; *amṛta-ayanāni*—as good as nectar; *rājā*—the King (Dhṛtarāṣṭra or Duryodhana); *uru*—very important; *mene*—did consider; *kṣata*—dwindling; *puṇya-leśaḥ*—fragment of pious acts.
 
 **Lord Kṛṣṇa was sent by Arjuna into the assembly as the spiritual master of the whole world, and although His words were heard by some [like Bhīṣma] as pure nectar, it was not so for the others, who were completely bereft of the last farthing of past pious works. The King [Dhṛtarāṣṭra or Duryodhana] did not take the words of Lord Kṛṣṇa very seriously.**
 

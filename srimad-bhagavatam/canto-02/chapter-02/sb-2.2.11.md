@@ -8,7 +8,7 @@
 > snigdhāmalākuñcita-nīla-kuntalair\
 > virocamānānana-hāsa-peśalam
 
-*vibhūṣitam*—well decorated; *mekhalayā*—with an ornamental wreath about the waist; *aṅgulīyakaiḥ*—by finger rings; *mahā-dhanaiḥ*—all highly valuable; *nūpura*—ringing leglets; *kaṅkaṇa-ādibhiḥ*—also by bangles; *snigdha*—slick; *amala*—spotless; *ākuñcita*—curling; *nīla*—bluish; *kuntalaiḥ*—hair; *virocamāna*—very pleasing; *ānana*—face; *hāsa*—smile; *peśalam*—beautiful.
+*vibhūṣitam*—well decorated; *mekhalayā*—with an ornamental wreath about the waist; *aṅgulīyakaiḥ*—by finger rings; *mahā-dhanaiḥ*—all highly valuable; *nūpura*—ringing leglets; *kaṅkaṇa-ādibhiḥ*—also by bangles; *snigdha*—greasy; *amala*—spotless; *kuñcita*—curling; *nīla*—bluish; *kuntalaiḥ*—hair; *virocamāna*—very pleasing; *ānana*—face; *hāsa*—smile; *peśalam*—beautiful.
 
 **He is well decorated with an ornamental wreath about His waist and rings on His fingers studded with valuable jewels. His leglet, bangles, oiled hair curling with bluish tint, and His beautiful smiling face are all very pleasing.**
 

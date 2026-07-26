@@ -15,7 +15,7 @@
 > bandhu-tyāga-nimittaṁ ca\
 > yathaivāgatavān punaḥ
 
-*kṣattuḥ*—of Vidura; *kauśāraveḥ*—as that of Maitreya; *tasya*—their; *saṁvādaḥ*—news; *adhyātma*—in the matter of transcendental knowledge; *saṁśritaḥ*—full of; *yat*—which; *vā*—anything else; *saḥ*—he; *bhagavān*—His Grace; *tasmai*—unto him; *pṛṣṭaḥ*—inquired; *tattvam*—the truth; *uvāca*—answered; *ha*—in the past; *brūhi*—please tell; *naḥ*—unto us; *tat*—those matters; *idam*—here; *saumya*—O gentle one; *vidurasya*—of Vidura; *viceṣṭitam*—activities; *bandhu-tyāga*—renouncing the friends; *nimittam*—the cause of; *ca*—also; *yathā*—as; *eva*—also; *āgatavān*—came back; *punaḥ*—again (at home).
+*kṣattuḥ*—of Vidura; *kauśāraveḥ*—as that of Maitreya; *tasya*—their; *saṁvādaḥ*—news; *adhyātma*—in the matter of transcendental knowledge; *saṁśritaḥ*—full of; *yat*—which; *vā*—anything else; *saḥ*—he; *bhagavān*—His Grace; *tasmai*—unto him; *pṛṣṭaḥ*—inquired; *tattvam*—the truth; *uvāca*—answered; *ha*—in the past; *brūhi*—please tell; *naḥ*—unto us; *tat*—those matters; *idam*—here; *saumya*—O gentle one; *vidurasya*—of Vidura; *viceṣṭitam*—activities; *bandhu-tyāga*—renouncing the friends; *nimittam*—cause of; *ca*—also; *yathā*—as; *eva*—also; *āgatavān*—came back; *punaḥ*—again (at home).
 
 **Śaunaka Ṛṣi said: Let us know, please, what topics were discussed between Vidura and Maitreya, who talked on transcendental subjects, and what was inquired by Vidura and replied by Maitreya. Also please let us know what was the reason for Vidura's giving up the connection of family members, and why he again came home, and please also let us know the activities of Vidura while he was in the places of pilgrimage.**
 

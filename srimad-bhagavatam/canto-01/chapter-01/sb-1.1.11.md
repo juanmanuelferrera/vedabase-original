@@ -11,7 +11,7 @@
 > brūhi bhadrāya bhūtānāṁ\
 > yenātmā suprasīdati
 
-*bhūrīṇi*—multifarious; *bhūri*—many; *karmāṇi*—duties; *śrotavyāni*—to be learned; *vibhāgaśaḥ*—by divisions of subject matter; *ataḥ*—therefore; *sādho*—O sage; *atra*—herein; *yat*—whatever; *sāram*—essence; *samuddhṛtya*—by selection; *manīṣayā*—best to your knowledge; *brūhi*—please tell us; *bhadrāya*—for the good of; *bhūtānām*—the living beings; *yena*—by which; *ātmā*—the self; *suprasīdati*—becomes fully satisfied.
+*bhūrīṇi*—multifarious; *bhūri*—many; *karmāṇi*—duties; *śrotavyāni*—to be learned; *vibhāgaśaḥ*—by divisions of subject matter; *ataḥ*—therefore; *sādho*—O sage; *atra*—herein; *yat*—whatever; *sāram*—essence; *samuddhṛtya*—by selection; *manīṣayā*—best to your knowledge; *brūhi*—please tell us; *bhadrāya*—for the good of; *bhūtānām*—the living beings; *yena*—by which; *ātmā*—self; *suprasīdati*—becomes fully satisfied.
 
 **There are many varieties of scriptures, and in all of them there are many prescribed duties which can be learned only after many years of study. Therefore, O sage, please select the essential teachings of all these scriptures and explain them for the good of all living beings, that by such instruction their hearts may be satisfied.**
 

@@ -8,7 +8,7 @@
 > saṁsāriṇāṁ karuṇayāha purāṇa-guhyaṁ\
 > taṁ vyāsa-sūnum upayāmi guruṁ munīnām
 
-*yaḥ*—he who; *sva-anubhāvam*—self-assimilated (experienced); *akhila*—all around; *śruti*—the *Vedas*; *sāram*—cream; *ekam*—the only one; *adhyātma*—transcendental; *dīpam*—torchlight; *atititīrṣatām*—desiring to overcome; *tamaḥ andham*—deeply dark material existence; *saṁsāriṇām*—of the materialistic men; *karuṇayā*—out of causeless mercy; *āha*—said; *purāṇa*—supplement to the *Vedas*; *guhyam*—very confidential; *tam*—unto him; *vyāsa-sūnum*—the son of Vyāsadeva; *upayāmi*—let me offer my obeisances; *gurum*—the spiritual master; *munīnām*—of the great sages.
+*yaḥ*—he who; *sva-anubhāvam*—self-assimilated (experienced); *akhila*—all around; *śruti*—*Vedas*; *sāram*—cream; *ekam*—the only one; *adhyātma*—transcendental; *dīpam*—torchlight; *atititīrṣatām*—desiring to overcome; *tamaḥ andham*—deeply dark material existence; *saṁsāriṇām*—of the materialistic men; *karuṇayā*—out of causeless mercy; *āha*—said; *purāṇa*—supplementary to the *Vedas*; *guhyam*—very confidential; *tam*—unto him; *vyāsa-sūnum*—the son of Vyāsadeva; *upayāmi*—let me offer my obeisances; *gurum*—spiritual master; *munīnām*—of the great sages.
 
 **Let me offer my respectful obeisances unto him [Śuka], the spiritual master of all sages, the son of Vyāsadeva, who, out of his great compassion for those gross materialists who struggle to cross over the darkest regions of material existence, spoke this Purāṇa [supplement to the Vedas], the cream of Vedic knowledge, after having personally assimilated it by experience.**
 

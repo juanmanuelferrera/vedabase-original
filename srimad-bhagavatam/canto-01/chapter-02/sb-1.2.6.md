@@ -8,7 +8,7 @@
 > ahaituky apratihatā\
 > yayātmā suprasīdati
 
-*saḥ*—that; *vai*—certainly; *puṁsām*—for mankind; *paraḥ*—sublime; *dharmaḥ*—occupation; *yataḥ*—by which; *bhaktiḥ*—devotional service; *adhokṣaje*—unto the Transcendence; *ahaitukī*—causeless; *apratihatā*—unbroken; *yayā*—by which; *ātmā*—the self; *suprasīdati*—completely satisfied.
+*saḥ*—that; *vai*—certainly; *puṁsām*—for mankind; *paraḥ*—sublime; *dharmaḥ*—occupation; *yataḥ*—by which; *bhaktiḥ*—devotional service; *adhokṣaje*—unto the Transcendence; *ahaitukī*—causeless; *apratihatā*—unbroken; *yayā*—by which; *ātmā*—self; *suprasīdati*—completely satisfied.
 
 **The supreme occupation [dharma] for all humanity is that by which men can attain to loving devotional service unto the transcendent Lord. Such devotional service must be unmotivated and uninterrupted in order to completely satisfy the self.**
 

@@ -8,7 +8,7 @@
 > tamaḥ-pradhānas tv abhavad\
 > dravya-jñāna-kriyātmakaḥ
 
-*mahataḥ*—of the *mahat-tattva*; *tu*—but; *vikurvāṇāt*—being transformed; *rajaḥ*—the material mode of passion; *sattva*—the mode of goodness; *upabṛṁhitāt*—because of being increased; *tamaḥ*—the mode of darkness; *pradhānaḥ*—being prominent; *tu*—but; *abhavat*—took place; *dravya*—matter; *jñāna*—material knowledge; *kriyā-ātmakaḥ*—predominantly material activities.
+*mahataḥ*—of the *mahat-tattva*; *tu*—but; *vikurvāṇāt*—being transformed; *rajaḥ*—material mode of passion; *sattva*—mode of goodness; *upabṛṁhitāt*—because of being increased; *tamaḥ*—the mode of darkness; *pradhānaḥ*—being prominent; *tu*—but; *abhavat*—took place; *dravya*—matter; *jñāna*—material knowledge; *kriyā-ātmakaḥ*—predominantly material activities.
 
 **The cause of material activities is due to mahat-tattva being agitated. At first there is transformation of the modes of goodness and passion, and later on, due to the mode of ignorance, matter, its knowledge, and different activities of material knowledge come into play.**
 

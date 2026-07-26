@@ -8,7 +8,7 @@
 > jīvituṁ nārhatha kliṣṭaṁ\
 > vipra-dharmācyutāśrayāḥ
 
-*aho*—oh; *kaṣṭam*—what terrible sufferings; *aho*—oh; *anyāyyam*—what terrible injustice; *yat*—because; *yūyam*—all of you good souls; *dharma-nandanāḥ*—sons of religion personified; *jīvitum*—to remain alive; *na*—never; *arhatha*—deserve; *kliṣṭam*—suffering; *vipra*—*brāhmaṇas*; *dharma*—piety; *acyuta*—God; *āśrayāḥ*—being protected by.
+*aho*—oh; *kaṣṭam*—what terrible sufferings; *aho*—oh; *anyāyyam*—what terrible injustice; *yat*—because; *yūyam*—all of you good souls; *dharma-nandanāḥ*—sons of religion personified; *jīvitum*—to remain alive; *na*—never; *arhatha*—deserved; *kliṣṭam*—sufferer; *vipra*—*brāhmaṇas*; *dharma*—piety; *acyuta*—God; *āśrayāḥ*—being protected by.
 
 **Bhīṣmadeva said: Oh, what terrible sufferings and what terrible injustices you good souls suffer for being the sons of religion personified. You did not deserve to remain alive under those tribulations, yet you were protected by the brāhmaṇas, God and religion.**
 

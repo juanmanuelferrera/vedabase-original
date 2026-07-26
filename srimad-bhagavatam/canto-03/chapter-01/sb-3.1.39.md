@@ -8,7 +8,7 @@
 > remāta uddāya mṛdhe sva-rikthaṁ\
 > parāt suparṇāv iva vajri-vaktrāt
 
-*yamau*—twins (Nakula and Sahadeva); *utasvit*—whether; *tanayau*—sons; *pṛthāyāḥ*—of Pṛthā; *pārthaiḥ*—by the sons of Pṛthā; *vṛtau*—protected; *pakṣmabhiḥ*—by the eyelids; *akṣiṇī*—of the eyes; *iva*—like; *remāte*—playing carelessly; *uddāya*—snatching; *mṛdhe*—in the fight; *sva-riktham*—own property; *parāt*—from the enemy Duryodhana; *suparṇau*—Garuḍa, the carrier of Lord Viṣṇu; *iva*—like; *vajri-vaktrāt*—from the mouth of Indra.
+*yamau*—twins (Nakula and Sahadeva); *utasvit*—whether; *tanayau*—sons; *pṛthāyāḥ*—of Pṛthā; *pārthaiḥ*—by the sons of Pṛthā; *vṛtau*—protected; *pakṣmabhiḥ*—by shields; *akṣiṇī*—of the eyes; *iva*—like; *remāte*—playing carelessly; *uddāya*—snatching; *mṛdhe*—in the fight; *sva-riktham*—own property; *parāt*—from the enemy Duryodhana; *suparṇau*—Garuḍa, the carrier of Lord Viṣṇu; *iva*—like; *vajri-vaktrāt*—from the mouth of Indra.
 
 **Are the twin brothers who are protected by their brothers doing well? Just as the eye is always protected by the eyelid, they are protected by the sons of Pṛthā, who snatched back their rightful kingdom from the hands of their enemy Duryodhana, just as Garuḍa snatched nectar from the mouth of Indra, the thunderbolt carrier.**
 

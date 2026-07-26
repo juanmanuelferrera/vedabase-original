@@ -8,7 +8,7 @@
 > kāmaṁ dahatu māṁ nātha\
 > mā me garbho nipātyatām
 
-*abhidravati*—coming towards; *mām*—me; *īśa*—O Lord; *śaraḥ*—the arrow; *tapta*—fiery; *ayasaḥ*—iron; *vibho*—O great one; *kāmam*—desire; *dahatu*—let it burn; *mām*—me; *nātha*—O protector; *mā*—not; *me*—my; *garbhaḥ*—embryo; *nipātyatām*—be aborted.
+*abhidravati*—coming towards; *mām*—me; *īśa*—O Lord; *śaraḥ*—the arrow; *tapta*—fiery; *ayasaḥ*—iron; *vibho*—the great; *kāmam*—desire; *dahatu*—let it burn; *mām*—me; *nātha*—my protector; *mā*—not; *me*—my; *garbhaḥ*—embryo; *nipātyatām*—be aborted.
 
 **O my Lord, You are all-powerful. A fiery iron arrow is coming towards me fast. My Lord, let it burn me personally, if You so desire, but please do not let it burn and abort my embryo. Please do me this favor, my Lord.**
 

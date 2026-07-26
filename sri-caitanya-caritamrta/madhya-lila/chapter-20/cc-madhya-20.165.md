@@ -6,7 +6,7 @@
 > sva yaṁ-rūpa, tad-ekātma-rūpa, āveśa—nāma\
 > prathamei tina-rūpe rahena bhagavān
 
-*sva yam-rūpa*—the personal form; *tat-ekātma-rūpa*—the same form, nondifferent from svayaṁ-rūpa; *āveśa*—especially empowered; *nāma*—named; *prathamei*—in the beginning; *tina-rūpe*—in three forms; *rahena*—remains; *bhagavān*—the Supreme Personality of Godhead.
+*svayaṁ-rūpa*—the personal form; *tat-ekātma-rūpa*—the same form, nondifferent from svayaṁ-rūpa; *āveśa*—especially empowered; *nāma*—named; *prathamei*—in the beginning; *tina-rūpe*—in three forms; *rahena*—remains; *bhagavān*—the Supreme Personality of Godhead.
 
 **"The Supreme Personality of Godhead exists in three principal forms-svayaṁ-rūpa, tad-ekātma-rūpa, and āveśa-rūpa.**
 

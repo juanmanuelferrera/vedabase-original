@@ -8,7 +8,7 @@
 > yuga-dharma-vyatikaraṁ\
 > prāptaṁ bhuvi yuge yuge
 
-*para-avara*—past and future; *jñaḥ*—one who knows; *saḥ*—he; *ṛṣiḥ*—Vyāsadeva; *kālena*—in the course of time; *avyakta*—unmanifested; *raṁhasā*—by great force; *yuga-dharma*—acts in terms of the millennium; *vyatikaram*—anomalies; *prāptam*—having accrued; *bhuvi*—on the earth; *yuge yuge*—different ages.
+*parāvara*—past and future; *jñaḥ*—one who knows; *saḥ*—he; *ṛṣiḥ*—Vyāsadeva; *kālena*—in the course of time; *avyakta*—unmanifested; *raṁhasā*—by great force; *yuga-dharma*—acts in terms of the millennium; *vyatikaram*—anomalies; *prāptam*—having accrued; *bhuvi*—on the earth; *yuge yuge*—different ages.
 
 **The great sage Vyāsadeva saw anomalies in the millennium. This happens on the earth in different ages, due to unseen forces in the course of time.**
 

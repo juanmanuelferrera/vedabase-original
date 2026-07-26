@@ -8,7 +8,7 @@
 > yeṣāṁ na cānyad bhavataḥ padāmbujāt\
 > parāyaṇaṁ rājasu yojitāṁhasām
 
-*api*—if; *adya*—today; *naḥ*—us; *tvam*—You; *sva-kṛta*—self-executed; *īhita*—all duties; *prabho*—O my Lord; *jihāsasi*—giving up; *svit*—possibly; *suhṛdaḥ*—intimate friends; *anujīvinaḥ*—living at the mercy of; *yeṣām*—of whom; *na*—nor; *ca*—and; *anyat*—anyone else; *bhavataḥ*—Your; *pada-ambujāt*—from the lotus feet; *parāyaṇam*—dependent; *rājasu*—unto the kings; *yojita*—engaged in; *aṁhasām*—enmity.
+*api*—if; *adya*—today; *naḥ*—us; *tvam*—You; *sva-kṛta*—self-executed; *īhita*—all duties; *prabho*—O my Lord; *jihāsasi*—giving up; *svit*—possibly; *suhṛdaḥ*—intimate friends; *anujīvinaḥ*—living at the mercy of; *yeṣām*—of whom; *na*—nor; *ca*—and; *anyat*—anyone else; *bhavataḥ*—Your; *pada-ambujāt*—from the lotus feet; *parāyaṇam*—dependent; *rājasu*—unto the kings; *yojitām*—engaged in; *hasām*—enmity.
 
 **O my Lord, You have executed all duties Yourself. Are you leaving us today, though we are completely dependent on Your mercy and have no one else to protect us now when all kings are at enmity with us?**
 

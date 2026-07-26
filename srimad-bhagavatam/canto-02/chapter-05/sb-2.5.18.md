@@ -8,7 +8,7 @@
 > sthiti-sarga-nirodheṣu\
 > gṛhītā māyayā vibhoḥ
 
-*sattvam*—the mode of goodness; *rajaḥ*—the mode of passion; *tamaḥ*—the mode of ignorance; *iti*—all these; *nirguṇasya*—of the Transcendence; *guṇāḥ trayaḥ*—are three qualities; *sthiti*—maintenance; *sarga*—creation; *nirodheṣu*—in destruction; *gṛhītāḥ*—accepted; *māyayā*—by the external energy; *vibhoḥ*—of the Supreme.
+*sattvam*—mode of goodness; *rajaḥ*—mode of passion; *tamaḥ*—mode of ignorance; *iti*—all these; *nirguṇasya*—of the Transcendence; *guṇās trayaḥ*—are three qualities; *sthiti*—maintenance; *sarga*—creation; *nirodheṣu*—in destruction; *gṛhītāḥ*—accepted; *māyayā*—by the external energy; *vibhoḥ*—of the Supreme.
 
 **The Supreme Lord is pure spiritual form, transcendental to all material qualities, yet for the sake of the creation of the material world and its maintenance and annihilation, He accepts through His external energy, the material modes of nature called goodness, passion and ignorance.**
 

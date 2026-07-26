@@ -8,7 +8,7 @@
 > pauravendra-gṛhaṁ hitvā\
 > praviveśātmasāt kṛtam
 
-*yat*—the house; *vai*—what else is there to say; *ayam*—Śrī Kṛṣṇa; *mantra-kṛt*—minister; *vaḥ*—of you people; *bhagavān*—the Personality of Godhead; *akhila-īśvaraḥ*—the Lord of everything; *pauravendra*—Duryodhana; *gṛham*—house; *hitvā*—giving up; *praviveśa*—entered; *ātmasāt*—identify with oneself; *kṛtam*—so accepted.
+*yat*—the house; *vai*—what else is there to say; *ayam*—Śrī Kṛṣṇa; *mantra-kṛt*—minister; *vaḥ*—you people; *bhagavān*—the Personality of Godhead; *akhila-īśvaraḥ*—the Lord of everything; *pauravendra*—Duryodhana; *gṛham*—house; *hitvā*—giving up; *praviveśa*—entered; *ātmasāt*—identify with oneself; *kṛtam*—so accepted.
 
 **What else is there to say about the residential house of the Pāṇḍavas? Śrī Kṛṣṇa, the Lord of everything, acted as your minister. He used to enter that house as if it were His own, and He did not take any care of Duryodhana's house.**
 

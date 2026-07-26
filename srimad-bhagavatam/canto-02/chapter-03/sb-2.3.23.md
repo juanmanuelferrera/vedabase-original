@@ -8,7 +8,7 @@
 > śrī-viṣṇu-padyā manujas tulasyāḥ\
 > śvasañ chavo yas tu na veda gandham
 
-*jīvan*—while living; *śavaḥ*—a dead body; *bhāgavata-aṅghri-reṇum*—the dust of the feet of a pure devotee; *na*—never; *jātu*—at any time; *martyaḥ*—mortal; *abhilabheta*—particularly received; *yaḥ*—a person; *tu*—but; *śrī*—with opulence; *viṣṇu-padyāḥ*—of the lotus feet of Viṣṇu; *manu-jaḥ*—a descendant of Manu (a man); *tulasyāḥ*—leaves of the *tulasi* tree; *śvasan*—while breathing; *śavaḥ*—still a dead body; *yaḥ*—who; *tu*—but; *na veda*—never experienced; *gandham*—the aroma.
+*jīvan*—while living; *śavaḥ*—a dead body; *bhāgavata-aṅghri-reṇum*—dust of the feet of a pure devotee; *na*—never; *jātu*—at any time; *martyaḥ*—mortal; *abhilabheta*—particularly received; *yaḥ*—a person; *tu*—but; *śrī*—with opulence; *viṣṇu-padyāḥ*—of the lotus feet of Viṣṇu; *manu-jaḥ*—a descendant of Manu (a man); *tulasyāḥ*—leaves of the *tulasi* tree; *śvasan*—while breathing; *śavaḥ*—still a dead body; *yaḥ*—who; *tu*—but; *na veda*—never experienced; *gandham*—the aroma.
 
 **The person who has not at any time received the dust of the feet of a pure devotee of the Lord upon his head certainly is a dead body. And the person who has never experienced the flavor of the tulasī leaves from the lotus feet of the Lord is also a dead body, although breathing.**
 

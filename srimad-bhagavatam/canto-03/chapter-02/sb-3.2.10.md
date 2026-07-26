@@ -8,7 +8,7 @@
 > bhrāmyate dhīr na tad-vākyair\
 > ātmany uptātmano harau
 
-*devasya*—of the Personality of Godhead; *māyayā*—by the influence of external energy; *spṛṣṭāḥ*—infected; *ye*—all those; *ca*—and; *anyat*—others; *asat*—illusory; *āśritāḥ*—being taken to; *bhrāmyate*—bewilder; *dhīḥ*—intelligence; *na*—not; *tat*—of them; *vākyaiḥ*—by those words; *ātmani*—in the Supreme Self; *upta-ātmanaḥ*—surrendered souls; *harau*—unto the Lord.
+*devasya*—of the Personality of Godhead; *māyayā*—by the influence of external energy; *spṛṣṭāḥ*—infected; *ye*—all those; *ca*—and; *anyat*—others; *asat*—illusory; *āśritāḥ*—being taken to; *bhrāmyate*—bewilder; *dhīḥ*—intelligence; *na*—not; *tat*—that; *vākyaiḥ*—by those words; *ātmani*—in the Supreme Self; *upta-ātmanaḥ*—surrendered souls; *harau*—unto the Lord.
 
 **Under no circumstances can the words of persons bewildered by the illusory energy of the Lord deviate the intelligence of those who are completely surrendered souls.**
 

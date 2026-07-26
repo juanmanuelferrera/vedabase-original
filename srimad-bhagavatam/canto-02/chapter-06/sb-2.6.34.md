@@ -8,7 +8,7 @@
 > na me hṛṣīkāṇi patanty asat-pathe\
 > yan me hṛdautkaṇṭhyavatā dhṛto hariḥ
 
-*na*—never; *bhāratī*—statements; *me*—mind; *aṅga*—O Nārada; *mṛṣā*—untruth; *upalakṣyate*—prove to be; *na*—never; *vai*—certainly; *kvacit*—at any time; *me*—mine; *manasaḥ*—of the mind; *mṛṣā*—untruth; *gatiḥ*—progress; *na*—nor; *me*—mine; *hṛṣīkāṇi*—senses; *patanti*—degrades; *asat-pathe*—in temporary matter; *yat*—because; *me*—mine; *hṛdā*—heart; *autkaṇṭhyavatā*—by great earnestness; *dhṛtaḥ*—caught hold of; *hariḥ*—the Supreme Personality of Godhead.
+*na*—never; *bhāratī*—statements; *me*—mine; *aṅga*—O Nārada; *mṛṣā*—untruth; *upalakṣyate*—prove to be; *na*—never; *vai*—certainly; *kvacit*—at any time; *me*—mine; *manasaḥ*—of the mind; *mṛṣā*—untruth; *gatiḥ*—progress; *na*—nor; *me*—mine; *hṛṣīkāṇi*—senses; *patanti*—degrades; *asat-pathe*—in temporary matter; *yat*—because; *me*—mine; *hṛdā*—heart; *autkaṇṭhyavatā*—by great earnestness; *dhṛtaḥ*—caught hold of; *hariḥ*—the Supreme Personality of Godhead.
 
 **O Nārada, because I have caught hold of the lotus feet of the Supreme Personality of Godhead, Hari, with great zeal, whatever I say has never proved to have been false. Nor is the progress of my mind ever deterred. Nor are my senses ever degraded by temporary attachment to matter.**
 

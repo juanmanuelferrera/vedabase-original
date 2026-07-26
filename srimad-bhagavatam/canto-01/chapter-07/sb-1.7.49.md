@@ -10,7 +10,7 @@
 > rājā dharma-suto rājñyāḥ\
 > pratyanandad vaco dvijāḥ
 
-*sūtaḥ uvāca*—Sūta Gosvāmī said; *dharmyam*—in accordance with the principles of religion; *nyāyyam*—justice; *sa-karuṇam*—full of mercy; *nirvyalīkam*—without duplicity in *dharma*; *samam*—equity; *mahat*—glorious; *rājā*—the King; *dharma-sutaḥ*—son; *rājñyāḥ*—by the Queen; *pratyanandat*—supported; *vacaḥ*—statements; *dvijāḥ*—O *brāhmaṇas.*
+*sūtaḥ uvāca*—Sūta Gosvāmī said; *dharmyam*—just to the principles of religion; *nyāyyam*—justice; *sa-karuṇam*—full of mercy; *nirvyalīkam*—without duplicity in *dharma*; *samam*—equity; *mahat*—glorious; *rājā*—the King; *dharma-sutaḥ*—son; *rājñyāḥ*—by the Queen; *pratyanandat*—supported; *vacaḥ*—statements; *dvijāḥ*—O *brāhmaṇas.*
 
 **Sūta Gosvāmī said: O brāhmaṇas, King Yudhiṣṭhira fully supported the statements of the Queen, which were in accordance with the principles of religion and were justified, glorious, full of mercy and equity and were without duplicity.**
 

@@ -8,7 +8,7 @@
 > kaliṁ sattva-haraṁ puṁsāṁ\
 > karṇa-dhāra ivārṇavam
 
-*tvam*—Your Goodness; *naḥ*—unto us; *sandarśitaḥ*—meeting; *dhātrā*—by providence; *dustaram*—insurmountable; *nistitīrṣatām*—for those desiring to cross over; *kalim*—the age of Kali; *sattva-haram*—that which deteriorates the good qualities; *puṁsām*—of a man; *karṇa-dhāraḥ*—captain; *iva*—as; *arṇavam*—the ocean.
+*tvam*—Your Goodness; *naḥ*—unto us; *sandarśitaḥ*—meeting; *dhātrā*—by providence; *dustaram*—insurmountable; *nistitīrṣatām*—for those desiring to cross over; *kalim*—the age of Kali; *sattva-haram*—that which deteriorates the good qualities; *puṁsām*—of the man; *karṇa-dhāraḥ*—captain; *iva*—as; *arṇavam*—the ocean.
 
 **We think that we have met Your Grace by the will of providence, and thus we accept you as captain of the ship for those who desire to cross the dangerous ocean of Kali, which destroys all the good qualities of a human being.**
 

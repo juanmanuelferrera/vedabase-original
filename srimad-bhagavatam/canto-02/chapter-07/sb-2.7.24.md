@@ -10,7 +10,7 @@
 > dūre suhṛn-mathita-roṣa-suśoṇa-dṛṣṭyā\
 > tātapyamāna-makaroraga-nakra-cakraḥ
 
-*yasmai*—unto whom; *adāt*—gave; *udadhiḥ*—the great Indian Ocean; *ūḍha-bhaya*—affected by fear; *aṅga-vepaḥ*—bodily trembling; *mārgam*—way; *sapadi*—quickly; *ari-puram*—the city of the enemy; *hara-vat*—like that of Hara (Mahādeva); *didhakṣoḥ*—desiring to burn to ashes; *dūre*—at a long distance; *su-hṛt*—intimate friend; *mathita*—being aggrieved by; *roṣa*—in anger; *su-śoṇa*—red-hot; *dṛṣṭyā*—by such a glance; *tātapyamāna*—burning in heat; *makara*—sharks; *uraga*—snakes; *nakra*—crocodiles; *cakraḥ*—circle.
+*yasmai*—unto whom; *adāt*—gave; *udadhiḥ*—the great Indian Ocean; *ūḍha-bhaya*—affected by fear; *aṅga-vepaḥ*—bodily trembling; *mārgam*—way; *sapadi*—quickly; *ari-puram*—the city of the enemy; *hara-vat*—like that of Hara (Mahādeva); *didhakṣoḥ*—desiring to burn into ashes; *dūre*—at a long distance; *su-hṛt*—intimate friend; *mathita*—being aggrieved by; *roṣa*—in anger; *su-śoṇa*—red-hot; *dṛṣṭyā*—by such a glance; *tātapyamāna*—burning in heat; *makara*—sharks; *uraga*—snakes; *nakra*—crocodiles; *cakraḥ*—circle.
 
 **The Personality of Godhead Rāmacandra, being aggrieved for His distant intimate friend [Sītā], glanced over the city of the enemy Rāvaṇa with red-hot eyes like those of Hara [who wanted to burn the kingdom of heaven]. The great ocean, trembling in fear, gave Him His way because its family members, the aquatics like the sharks, snakes and crocodiles, were being burnt by the heat of the angry red-hot eyes of the Lord.**
 

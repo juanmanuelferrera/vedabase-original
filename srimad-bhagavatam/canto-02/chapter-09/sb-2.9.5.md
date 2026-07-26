@@ -8,7 +8,7 @@
 > tāṁ nādhyagacchad dṛśam atra sammatāṁ\
 > prapañca-nirmāṇa-vidhir yayā bhavet
 
-*saḥ*—he; *ādi-devaḥ*—the first demigod; *jagatām*—of the universe; *paraḥ*—supreme; *guruḥ*—spiritual master; *svadhiṣṇyam*—his lotus seat; *āsthāya*—to find the source of it; *sisṛkṣayā*—for the matter of creating the universal affairs; *aikṣata*—began to think; *tām*—in that matter; *na*—could not; *adhyagacchat*—understand; *dṛśam*—the direction; *atra*—therein; *sammatām*—just the proper way; *prapañca*—material; *nirmāṇa*—construction; *vidhiḥ*—process; *yayā*—as much as; *bhavet*—should be.
+*saḥ*—he; *ādi-devaḥ*—the first demigod; *jagatām*—of the universe; *paraḥ*—supreme; *guruḥ*—spiritual master; *svadhiṣṇyam*—his lotus seat; *āsthāya*—to find out the source of it; *sisṛkṣayā*—for the matter of creating the universal affairs; *aikṣata*—began to think; *tām*—in that matter; *na*—could not; *adhyagacchat*—understand; *dṛśam*—the direction; *atra*—therein; *sammatām*—just the proper way; *prapañca*—material; *nirmāṇa*—construction; *vidhiḥ*—process; *yayā*—as much as; *bhavet*—should be.
 
 **Lord Brahmā, the first spiritual master, supreme in the universe, could not trace out the source of his lotus seat, and while thinking of creating the material world, he could not understand the proper direction for such creative work, nor could he find out the process for such creation.**
 

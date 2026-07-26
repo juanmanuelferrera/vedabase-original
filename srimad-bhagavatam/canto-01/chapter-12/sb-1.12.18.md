@@ -10,7 +10,7 @@
 > anuvartitā svid yaśasā\
 > sādhu-vādena sattamāḥ
 
-*śrī-rājā*—the all-good king (Mahārāja Yudhiṣṭhira); *uvāca*—said; *api*—whether; *eṣaḥ*—this; *vaṁśyān*—family; *rāja-ṛṣīn*—of saintly kings; *puṇya-ślokān*—pious by the very name; *mahā-ātmanaḥ*—all great souls; *anuvartitā*—follower; *svit*—will it be; *yaśasā*—by achievements; *sādhu-vādena*—by glorification; *sat-tamāḥ*—O great souls.
+*śrī-rājā*—the all-good king (Mahārāja Yudhiṣṭhira); *uvāca*—said; *api*—whether; *eṣaḥ*—this; *vaṁśyān*—family; *rāja-ṛṣīn*—of saintly kings; *puṇya-ślokān*—pious by the very name; *mahā-ātmanaḥ*—all great souls; *anuvartitā*—follower; *svit*—it will be; *yaśasā*—by achievements; *sādhu-vādena*—by glorification; *sat-tamāḥ*—great souls.
 
 **The good King [Yudhiṣṭhira] inquired: O great souls, will he become as saintly a king, as pious in his very name and as famous and glorified in his achievements, as others who appeared in this great royal family?**
 

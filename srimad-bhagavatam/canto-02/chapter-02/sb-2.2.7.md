@@ -8,7 +8,7 @@
 > paśyañ janaṁ patitaṁ vaitaraṇyāṁ\
 > sva-karmajān paritāpāñ juṣāṇam
 
-*kaḥ*—who else; *tām*—that; *tu*—but; *anādṛtya*—by neglecting; *para-anucintām*—transcendental thoughts; *ṛte*—without; *paśūn*—the materialists; *asatīm*—in the nonpermanent; *nāma*—name; *kuryāt*—will adopt; *paśyan*—seeing definitely; *janam*—the general mass of people; *patitam*—fallen; *vaitaraṇyām*—in Vaitaraṇī, the river of suffering; *sva-karma-jān*—produced from one's own work; *paritāpān*—suffering; *juṣāṇam*—being overtaken by.
+*kaḥ*—who else; *tām*—that; *tu*—out; *anādṛtya*—by neglecting; *para-anucintām*—transcendental thoughts; *ṛte*—without; *paśūn*—the materialists; *asatīm*—in the nonpermanent; *nāma*—name; *kuryāt*—will adopt; *paśyan*—seeing definitely; *janam*—the general mass of people; *patitam*—fallen; *vaitaraṇyām*—in Vaitaraṇī, the river of suffering; *sva-karma-jān*—produced from one's own work; *paritāpān*—suffering; *juṣāṇam*—being overtaken by.
 
 **Who else but the gross materialists will neglect such transcendental thought and take to the nonpermanent names only, seeing the mass of people fallen in the river of suffering as the consequence of accruing the result of their own work?**
 

@@ -8,7 +8,7 @@
 > namaḥ paṅkaja-netrāya\
 > namas te paṅkajāṅghraye
 
-*namaḥ*—all respectful obeisances; *paṅkaja-nābhāya*—unto the Lord who has a specific depression resembling a lotus flower in the center of His abdomen; *namaḥ*—obeisances; *paṅkaja-māline*—one who is always decorated with a garland of lotus flowers; *namaḥ*—obeisances; *paṅkaja-netrāya*—one whose glance is as cooling as a lotus flower; *namaḥ te*—respectful obeisances unto You; *paṅkaja-aṅghraye*—unto You, the soles of whose feet are engraved with lotus flowers (and who are therefore said to possess lotus feet).
+*namaḥ*—all respectful obeisances; *paṅkaja-nābhāya*—unto the Lord who has a specific depression resembling a lotus flower in the center of His abdomen; *paṅkaja-māline*—one who is always decorated with a garland of lotus flowers; *paṅkaja-netrāya*—one whose glance is as cooling as a lotus flower; *namaḥ te*—respectful obeisances unto You; *paṅkaja-aṅghraye*—unto You, the soles of whose feet are engraved with lotus flowers (and who are therefore said to possess lotus feet).
 
 **My respectful obeisances are unto You, O Lord, whose abdomen is marked with a depression like a lotus flower, who is always decorated with garlands of lotus flowers, whose glance is as cool as the lotus and whose feet are engraved with lotuses.**
 

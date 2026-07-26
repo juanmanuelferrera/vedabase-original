@@ -8,7 +8,7 @@
 > kṛṣṇasya nārado 'bhyāgād\
 > āśramaṁ prāg udāhṛtam
 
-*tasya*—his; *evam*—thus; *khilam*—inferior; *ātmānam*—soul; *manyamānasya*—thinking within the mind; *khidyataḥ*—regretting; *kṛṣṇasya*—of Kṛṣṇa-dvaipāyana Vyāsa; *nāradaḥ abhyāgāt*—Nārada came there; *āśramam*—the cottage; *prāk*—before; *udāhṛtam*—said.
+*tasya*—his; *evam*—thus; *khilam*—inferior; *ātmānam*—soul; *manyamānasya*—thinking within the mind; *khidyataḥ*—regretting; *kṛṣṇasya*—of Kṛṣṇa; *nāradaḥ abhyāgāt*—Nārada came there; *āśramam*—the cottage; *prāk*—before; *udāhṛtam*—said.
 
 **As mentioned before, Nārada reached the cottage of Kṛṣṇa-dvaipāyana Vyāsa on the banks of the Sarasvatī just as he was regretting his defects.**
 

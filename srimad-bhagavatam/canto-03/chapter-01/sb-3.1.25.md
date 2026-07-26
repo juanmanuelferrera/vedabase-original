@@ -8,7 +8,7 @@
 > āliṅgya gāḍhaṁ praṇayena bhadraṁ\
 > svānām apṛcchad bhagavat-prajānām
 
-*saḥ*—he, Vidura; *vāsudeva*—Lord Kṛṣṇa; *anucaram*—constant companion; *praśāntam*—very sober and gentle; *bṛhaspateḥ*—of Bṛhaspati, the learned spiritual master of the demigods; *prāk*—formerly; *tanayam*—son or disciple; *pratītam*—acknowledged; *āliṅgya*—embracing; *gāḍham*—very feelingly; *praṇayena*—in love; *bhadram*—auspicious; *svānām*—his own; *apṛcchat*—asked; *bhagavat*—of the Personality of Godhead; *prajānām*—family.
+*saḥ*—Vidura; *vāsudeva*—Lord Kṛṣṇa; *anucaram*—constant companion; *praśāntam*—very sober and gentle; *bṛhaspateḥ*—of Bṛhaspati, the learned spiritual master of the demigods; *prāk*—formerly; *tanayam*—son or disciple; *pratītam*—acknowledged; *āliṅgya*—embracing; *gāḍham*—very feelingly; *praṇayena*—in love; *bhadram*—auspicious; *svānām*—his own; *apṛcchat*—asked; *bhagavat*—of the Personality of Godhead; *prajānām*—family.
 
 **Then, due to his great love and feeling, Vidura embraced him [Uddhava] who was a constant companion of Lord Kṛṣṇa and formerly a great student of Bṛhaspati. Vidura then asked him for news of the family of Lord Kṛṣṇa, the Personality of Godhead.**
 

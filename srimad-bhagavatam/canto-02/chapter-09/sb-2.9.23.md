@@ -8,7 +8,7 @@
 > tapo me hṛdayaṁ sākṣād\
 > ātmāhaṁ tapaso 'nagha
 
-*pratyādiṣṭam*—ordered; *mayā*—by Me; *tatra*—because of; *tvayi*—unto you; *karma*—duty; *vimohite*—being perplexed; *tapaḥ*—penance; *me*—Me; *hṛdayam*—heart; *sākṣāt*—directly; *ātmā*—life and soul; *aham*—Myself; *tapasaḥ*—of one who is engaged in penance; *anagha*—O sinless one.
+*pratyādiṣṭam*—ordered; *mayā*—by Me; *tatra*—because of; *tvayi*—unto you; *karma*—duty; *vimohite*—being perplexed; *tapaḥ*—penance; *me*—Mine; *hṛdayam*—heart; *sākṣāt*—directly; *ātmā*—life and soul; *aham*—Myself; *tapasaḥ*—of one who is engaged in penance; *anagha*—O sinless one.
 
 **O Brahmā, the sinless, you may know from Me that it was I who ordered you to undergo penance at first on your being perplexed in your duty, because such penance is My heart and soul, and because of that, penance and I are nondifferent.**
 

@@ -6,6 +6,6 @@
 > aiche bāta punarapi mukhe nā ānibe\
 > kaha yadi, tabe āmāya ethā nā dekhibe
 
-*aichebāta*—such a request; *punarapi*—again; *mukhe*—in the mouth; *nā*—do not; *ānibe*—bring; *kaha yadi*—if you speak; *tabe*—then; *āmāya*—Me; *ethā*—here; *nā*—not; *dekhibe*—you will see.
+*aiche vāta*—such a request; *punarapi*—again; *mukhe*—in the mouth; *nā*—do not; *ānibe*—bring; *kaha yadi*—if you speak; *tabe*—then; *āmāya*—Me; *ethā*—here; *nā*—not; *dekhibe*—you will see.
 
 **"Bhaṭṭācārya, if you continue to speak like this, you will never see Me here again. Therefore you should never let such a request come from your mouth."**

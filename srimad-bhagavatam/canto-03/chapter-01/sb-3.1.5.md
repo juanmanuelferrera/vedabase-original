@@ -10,6 +10,6 @@
 > praty āha taṁ subahu-vit\
 > prītātmā śrūyatām iti
 
-*sūtaḥ uvāca*—Śrī Sūta Gosvāmī said; *saḥ*—he; *evam*—thus; *ṛṣi-varyaḥ*—the great *ṛṣi*; *ayam*—Śukadeva Gosvāmī; *pṛṣṭaḥ*—being questioned; *rājñā*—by the King; *parīkṣitā*—Mahārāja Parīkṣit; *pratiāha*—he replied; *tam*—unto the King; *su-bahu-vit*—highly experienced; *prīta-ātmā*—fully satisfied; *śrūyatām*—please hear me; *iti*—thus.
+*sūtaḥ uvāca*—Śrī Sūta Gosvāmī said; *saḥ*—he; *evam*—thus; *ṛṣi-varyaḥ*—the great *ṛṣi*; *ayam*—Śukadeva Gosvāmī; *pṛṣṭaḥ*—being questioned; *rājñā*—by the King; *parīkṣitā*—Mahārāja Parīkṣit; *prati āha*—replied; *tam*—unto the King; *su-bahu-vit*—highly experienced; *prīta-ātmā*—fully satisfied; *śrūyatām*—please hear me; *iti*—thus.
 
 **Śrī Suta Gosvāmī said: The great sage Śukadeva Gosvāmī was highly experienced and was pleased with the King. Thus being questioned by the King, he said to him, "Please hear the topics attentively."**

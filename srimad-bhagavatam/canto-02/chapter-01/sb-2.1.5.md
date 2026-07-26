@@ -8,7 +8,7 @@
 > śrotavyaḥ kīrtitavyaś ca\
 > smartavyaś cecchatābhayam
 
-*tasmāt*—for this reason; *bhārata*—O descendant of Bharata; *sarvātmā*—the Supersoul; *bhagavān*—the Supreme Personality of Godhead; *īśvaraḥ*—the controller; *hariḥ*—the Lord, who vanquishes all miseries; *śrotavyaḥ*—is to be heard; *kīrtitavyaḥ*—to be glorified; *ca*—also; *smartavyaḥ*—to be remembered; *ca*—and; *icchatā*—of one who desires; *abhayam*—freedom.
+*tasmāt*—for this reason; *bhārata*—O descendant of Bharata; *sarvātmā*—the Supersoul; *bhagavān*—the Personality of Godhead; *īśvaraḥ*—the controller; *hariḥ*—the Lord, who vanquishes all miseries; *śrotavyaḥ*—is to be heard; *kīrtitavyaḥ*—to be glorified; *ca*—also; *smartavyaḥ*—to be remembered; *ca*—and; *icchatā*—of one who desires; *abhayam*—freedom.
 
 **O descendant of King Bharata, one who desires to be free from all miseries must hear, glorify and also remember the Personality of Godhead, who is the Supersoul, the controller and the savior from all miseries.**
 

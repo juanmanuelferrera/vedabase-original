@@ -10,7 +10,7 @@
 > ātmavit-sammataḥ puṁsāṁ\
 > śrotavyādiṣu yaḥ paraḥ
 
-*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *varīyān*—glorious; *eṣaḥ*—this; *te*—your; *praśnaḥ*—question; *kṛtaḥ*—made by you; *loka-hitam*—beneficial for all men; *nṛpa*—O King; *ātmavit*—transcendentalist; *sammataḥ*—approved; *puṁsām*—of all men; *śrotavya-ādiṣu*—in all kinds of hearing; *yaḥ*—what is; *paraḥ*—the supreme.
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *varīyān*—glorious; *eṣaḥ*—all these; *te*—your; *praśnaḥ*—question; *kṛtaḥ*—made by you; *loka-hitam*—beneficial for all men; *nṛpa*—the king; *ātmavit*—transcendentalist; *sammataḥ*—approved; *puṁsām*—of all men; *śrotavya-ādiṣu*—in all kinds of hearing; *yaḥ*—what is; *paraḥ*—the supreme.
 
 **Śrī Śukadeva Gosvāmī said: My dear King, your question is glorious because it is very beneficial to all kinds of people. To hear the answer to this question is the prime subject matter of hearing, and it is approved by all transcendentalists.**
 

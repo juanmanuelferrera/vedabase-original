@@ -8,7 +8,7 @@
 > dādhmāyamānaḥ kara-kañja-sampuṭe\
 > yathābja-khaṇḍe kala-haṁsa utsvanaḥ
 
-*saḥ*—that; *uccakāśe*—became brilliant; *dhavala-udaraḥ*—white and fat-boweled; *daraḥ*—conchshell; *api*—although it is so; *urukramasya*—of the great adventurer; *adharaśoṇa*—by the transcendental quality of His lips; *śoṇimā*—reddened; *dādhmāyamānaḥ*—being sounded; *kara-kañja-sampuṭe*—being caught by the grip of the lotus hand; *yathā*—as it is; *abja-khaṇḍe*—by the stems of lotus flowers; *kala-haṁsaḥ*—ducking swan; *utsvanaḥ*—loudly sounding.
+*saḥ*—that; *uccakāśe*—became brilliant; *dhavala-udaraḥ*—white and fat-boweled; *daraḥ*—conchshell; *api*—although it is so; *urukramasya*—of the great adventurer; *adharaśoṇa*—by the transcendental quality of His lips; *śoṇimā*—reddened; *dādhmāyamānaḥ*—being sounded; *kara-kañja-sampuṭe*—being caught by the grip of the hand; *yathā*—as it is; *abja-khaṇḍe*—by the stems of lotus flowers; *kala-haṁsaḥ*—ducking swan; *utsvanaḥ*—loudly sounding.
 
 **The white and fat-boweled conchshell, being gripped by the hand of Lord Kṛṣṇa and sounded by Him, appeared to be reddened by the touch of His transcendental lips. It seemed that a white swan was playing in the stems of red lotus flowers.**
 

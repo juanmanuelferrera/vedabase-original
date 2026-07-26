@@ -8,7 +8,7 @@
 > tvaṁ sad-gurur naḥ paramaṁ ca daivataṁ\
 > yasyānuvṛttyā kṛtino babhūvima
 
-*bhavāya*—for welfare; *naḥ*—for us; *tvam*—Your Lordship; *bhava*—just become; *viśva-bhāvana*—the creator of the universe; *tvam*—Your Lordship; *eva*—certainly; *mātā*—mother; *atha*—as also; *suhṛt*—well-wisher; *patiḥ*—husband; *pitā*—father; *tvam*—Your Lordship; *sat-guruḥ*—spiritual master; *naḥ*—our; *paramam*—the supreme; *ca*—and; *daivatam*—worshipable Deity; *yasya*—whose; *anuvṛttyā*—following in the footsteps; *kṛtinaḥ*—successful; *babhūvima*—we have become.
+*bhavāya*—for welfare; *naḥ*—for us; *tvam*—Your Lordship; *bhava*—just become; *viśva-bhāvana*—the creator of the universe; *tvam*—Your Lordship; *eva*—certainly; *mātā*—mother; *atha*—as also; *suhṛt*—well-wisher; *patiḥ*—husband; *pitā*—father; *tvam*—Your Lordship; *sat-guruḥ*—spiritual master; *naḥ*—our; *paramam*—the supreme; *ca*—and; *daivatam*—worshipable Deity; *yasya*—whose; *anuvṛttyā*—following in the footsteps; *kṛtinaḥ*—successful; *babhūvima*—just become.
 
 **O creator of the universe, You are our mother, well-wisher, Lord, father, spiritual master and worshipable Deity. By following in Your footsteps we have become successful in every respect. We pray, therefore, that You continue to bless us with Your mercy.**
 

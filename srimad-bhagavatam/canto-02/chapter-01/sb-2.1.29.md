@@ -8,7 +8,7 @@
 > nāsatya-dasrau paramasya nāse\
 > ghrāṇo 'sya gandho mukham agnir iddhaḥ
 
-*indra-ādayaḥ*—demigods headed by the heavenly king, Indra; *bāhavaḥ*—arms; *āhuḥ*—are called; *usrāḥ*—the demigods; *karṇau*—the ears; *diśaḥ*—the four directions; *śrotram*—the sense of hearing; *amuṣya*—of the Lord; *śabdaḥ*—sound; *nāsatya-dasrau*—the demigods known as the Aśvinī-kumāras; *paramasya*—of the Supreme; *nāse*—nostrils; *ghrāṇaḥ*—the sense of smell; *asya*—of Him; *gandhaḥ*—fragrance; *mukham*—the mouth; *agniḥ*—fire; *iddhaḥ*—blazing.
+*indra-ādayaḥ*—demigods headed by the heavenly king, Indra; *bāhavaḥ*—arms; *āhuḥ*—are called; *usrāḥ*—the demigods; *karṇau*—the ears; *diśaḥ*—the four directions; *śrotram*—sense of hearing; *amuṣya*—of the Lord; *śabdaḥ*—sound; *nāsatya-dasrau*—the demigods known as the Aśvinī-kumāras; *paramasya*—of the Supreme; *nāse*—nostrils; *ghrāṇaḥ*—sense of smelling; *asya*—of Him; *gandhaḥ*—flavor; *mukham*—mouth; *agniḥ*—fire; *iddhaḥ*—blazing.
 
 **His arms are the demigods headed by Indra, the ten directional sides are His ears, and physical sound is the sense of His hearing. His nostrils are the two Aśvinīkumāras, and the material flavor is the sense of His smelling. His mouth is the blazing fire.**
 

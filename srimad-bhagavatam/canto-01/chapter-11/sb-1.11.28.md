@@ -8,7 +8,7 @@
 > vavande śirasā sapta\
 > devakī-pramukhā mudā
 
-*praviṣṭaḥ*—after entering; *tu*—but; *gṛham*—houses; *pitroḥ*—of the father; *pariṣvaktaḥ*—embraced; *sva-mātṛbhiḥ*—by His own mothers; *vavande*—offered obeisances; *śirasā*—His head; *sapta*—seven; *devakī*—Devakī; *pramukhā*—headed by; *mudā*—gladly.
+*praviṣṭaḥ*—after entering; *tu*—but; *gṛham*—houses; *pitroḥ*—of the father; *pariṣvaktaḥ*—embraced; *sva-mātṛbhiḥ*—by His own mothers; *vavande*—offered obeisances; *śirasā*—His head; *sapta*—seven; *devakī*—Devakī; *pramukhā*—headed by; *mudā*—at that time.
 
 **After entering the house of His father, He was embraced by the mothers present, and the Lord offered His obeisances unto them by placing His head at their feet. The mothers were headed by Devakī [His real mother].**
 

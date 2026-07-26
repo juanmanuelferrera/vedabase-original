@@ -6,7 +6,7 @@
 > rāya kahe,-āmi śūdra, viṣayī, adhama\
 > tabu tumi sparśa,-ei īśvara-lakṣaṇa
 
-*rāya kahe*—Bhavānanda Rāya replied; *āmi śūdra*—I belong to the fourth class of the social divisions; *viṣayī*—engaged in mundane affairs; *adhama*—very much fallen; *tabu*—still; *tumi*—You; *sparśa*—touch; *ei*—this; *īśvara-lakṣaṇa*—sign of the Supreme Personality of Godhead.
+*rāya kahe*—Bhavānanda Rāya replied; *āmi śūdra*—I belong to the fourth class of the social divisions; *viṣayī*—engaged in mundane affairs; *adhama*—very fallen; *tabu*—still; *tumi*—You; *sparśa*—touch; *ei*—this; *īśvara-lakṣaṇa*—sign of the Supreme Personality of Godhead.
 
 **After hearing Śrī Caitanya Mahāprabhu's praise, Bhavānanda Rāya submitted, "I am in the fourth class of the social order, and I engage in mundane affairs. Although I am very fallen, You have still touched us. This is proof that You are the Supreme Personality of Godhead."**
 

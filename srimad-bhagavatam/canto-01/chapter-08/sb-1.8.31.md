@@ -8,7 +8,7 @@
 > vaktraṁ ninīya bhaya-bhāvanayā sthitasya\
 > sā māṁ vimohayati bhīr api yad bibheti
 
-*gopī*—the cowherd lady (Yaśodā); *ādade*—took up; *tvayi*—on Your; *kṛtāgasi*—creating disturbances (by breaking the butter pot); *dāma*—rope; *tāvat*—at that time; *yā*—that which; *te*—Your; *daśā*—situation; *aśru-kalila*—overflooded with tears; *añjana*—ointment; *sambhrama*—perturbed; *akṣam*—eyes; *vaktram*—face; *ninīya*—downwards; *bhaya-bhāvanayā*—by thoughts of fear; *sthitasya*—of the situation; *sā*—that; *mām*—me; *vimohayati*—bewilders; *bhīḥ api*—even fear personified; *yat*—whom; *bibheti*—is afraid.
+*gopī*—the cowherd lady (Yaśodā); *ādade*—took up; *tvayi*—on Your; *kṛtāgasi*—creating disturbances (by breaking the butter pot); *dāma*—rope; *tāvat*—at that time; *yā*—that which; *te*—Your; *daśā*—situation; *aśru-kalila*—overflooded with tears; *añjana*—ointment; *sambhrama*—perturbed; *akṣam*—eyes; *vaktram*—face; *ninīya*—downwards; *bhaya-bhāvanayā*—by thoughts of fear; *sthitasya*—of the situation; *sā*—that; *mām*—me; *vimohayati*—bewilders; *bhīḥ api*—even fear personified; *yat*—whom; *bibheti*—be afraid of.
 
 **My dear Kṛṣṇa, Yaśodā took up a rope to bind You when You committed an offense, and Your perturbed eyes overflooded with tears, which washed the mascara from Your eyes. And You were afraid, though fear personified is afraid of You. This sight is bewildering to me.**
 

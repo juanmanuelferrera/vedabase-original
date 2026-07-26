@@ -10,7 +10,7 @@
 > ātmany ātmānam āveśya\
 > so 'ntaḥśvāsa upāramat
 
-*sūtaḥ uvāca*—Sūta Gosvāmī said; *kṛṣṇe*—Lord Kṛṣṇa, the Supreme Personality of Godhead; *evam*—only; *bhagavati*—unto Him; *manaḥ*—with mind; *vāk*—speech; *dṛṣṭi*—sight; *vṛttibhiḥ*—activities; *ātmani*—unto the Supersoul; *ātmānam*—the living being; *āveśya*—having merged in; *saḥ*—he; *antaḥ-śvāsaḥ*—inhaling; *upāramat*—became silent.
+*sūtaḥ uvāca*—Sūta Gosvāmī said; *kṛṣṇaḥ*—Lord Kṛṣṇa, the Supreme Personality of Godhead; *evam*—only; *bhagavati*—unto Him; *manaḥ*—mind; *vāk*—speech; *dṛṣṭi*—sight; *vṛttibhiḥ*—activities; *ātmani*—unto the Supersoul; *ātmānam*—the living being; *āveśya*—having merged in; *saḥ*—he; *antaḥ-śvāsaḥ*—inhaling; *upāramat*—became silent.
 
 **Sūta Gosvāmī said: Thus Bhīṣmadeva merged himself in the Supersoul Lord Śrī Kṛṣṇa, the Supreme Personality of Godhead, with his mind, speech, sight and actions, and thus he became silent, and his breathing stopped.**
 

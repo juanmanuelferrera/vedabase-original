@@ -8,7 +8,7 @@
 > uvāsa katicin māsān\
 > suhṛdāṁ priya-kāmyayā
 
-*āhūtaḥ*—being called by; *bhagavān*—Lord Kṛṣṇa, the Personality of Godhead; *rājñā*—by the King; *yājayitvā*—causing to be performed; *dvijaiḥ*—by the learned *brāhmaṇas*; *nṛpam*—on behalf of the King; *uvāsa*—resided; *katicit*—a few; *māsān*—months; *suhṛdām*—for the sake of the relatives; *priya-kāmyayā*—for the pleasure.
+*āhūtaḥ*—being called by; *bhagavān*—Lord Kṛṣṇa, the Personality of Godhead; *rājñā*—by the King; *yājayitvā*—causing to be performed; *dvijaiḥ*—by the learned *brāhmaṇas*; *nṛpam*—on behalf of the King; *uvāsa*—resided; *katicit*—a few; *māsān*—months; *suhṛdām*—for the sake of the relatives; *priya-kāmyayā*—for the matter of pleasure.
 
 **Lord Śrī Kṛṣṇa, the Personality of Godhead, being invited to the sacrifices by Mahārāja Yudhiṣṭhira, saw to it that they were performed by qualified [twice-born] brāhmaṇas. After that, for the pleasure of the relatives, the Lord remained a few months.**
 

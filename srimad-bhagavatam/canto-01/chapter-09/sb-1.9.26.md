@@ -8,7 +8,7 @@
 > vairāgya-rāgopādhibhyām\
 > āmnātobhaya-lakṣaṇān
 
-*puruṣa*—the human being; *sva-bhāva*—by his own acquired qualities; *vihitān*—prescribed; *yathā*—according to; *varṇam*—classification of castes; *yathā*—according to; *āśramam*—orders of life; *vairāgya*—detachment; *rāga*—attachment; *upādhibhyām*—out of such designations; *āmnāta*—systematically; *ubhaya*—both; *lakṣaṇān*—symptoms.
+*puruṣa*—the human being; *sva-bhāva*—by his own acquired qualities; *vihitān*—prescribed; *yathā*—as it is; *varṇam*—classification of castes; *yathā*—as it is; *āśramam*—orders of life; *vairāgya*—detachment; *rāga*—attachment; *upādhibhyām*—out of such designations; *āmnāta*—systematically; *ubhaya*—both; *lakṣaṇān*—symptoms.
 
 **At Mahārāja Yudhiṣṭhira's inquiry, Bhīṣmadeva first of all defined all the classifications of castes and orders of life in terms of the individual's qualifications. Then he systematically, in twofold divisions, described counteraction by detachment and interaction by attachment.**
 

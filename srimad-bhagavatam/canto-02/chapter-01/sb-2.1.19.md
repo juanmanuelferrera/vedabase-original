@@ -11,7 +11,7 @@
 > padaṁ tat paramaṁ viṣṇor\
 > mano yatra prasīdati
 
-*tatra*—thereafter; *eka*—one by one; *avayavam*—limbs of the body; *dhyāyet*—should be concentrated upon; *avyucchinnena*—without being deviated from the complete form; *cetasā*—by the mind; *manaḥ*—mind; *nirviṣayam*—without being contaminated by sense objects; *yuktvā*—being dovetailed; *tataḥ*—after that; *kiñcana*—anything; *na*—do not; *smaret*—think of; *padam*—personality; *tat*—that; *paramam*—Supreme; *viṣṇoḥ*—of Viṣṇu; *manaḥ*—the mind; *yatra*—whereupon; *prasīdati*—becomes reconciled.
+*tatra*—thereafter; *eka*—one after one; *avayavam*—limbs of the body; *dhyāyet*—should be concentrated upon; *avyucchinnena*—without being deviated from the complete form; *cetasā*—by the mind; *manaḥ*—mind; *nirviṣayam*—without being contaminated by sense objects; *yuktvā*—being dovetailed; *tataḥ*—after that; *kiñcana*—anything; *na*—do not; *smaret*—think of; *padam*—personality; *tat*—that; *paramam*—Supreme; *viṣṇoḥ*—of Viṣṇu; *manaḥ*—the mind; *yatra*—whereupon; *prasīdati*—becomes reconciled.
 
 **Thereafter, you should meditate upon the limbs of Viṣṇu, one after another, without being deviated from the conception of the complete body, and thus the mind becomes free from all sense objects. There should be no other thing to be thought upon. Because the Supreme Personality of Godhead, Viṣṇu, is the Ultimate Truth, the mind becomes completely reconciled in Him only.**
 

@@ -8,7 +8,7 @@
 > vimṛjya netre viduraṁ\
 > prītyāhoddhava utsmayan
 
-*śanakaiḥ*—gradually; *bhagavat*—the Lord; *lokāt*—from the abode; *nṛlokam*—the planet of the human beings; *punaḥ āgataḥ*—coming again; *vimṛjya*—wiping; *netre*—eyes; *viduram*—unto Vidura; *prītyā*—in affection; *āha*—said; *uddhavaḥ*—Uddhava; *utsmayan*—by all those remembrances.
+*śanakaiḥ*—a little after; *bhagavat*—the Lord; *lokāt*—from the abode; *nṛlokam*—the planet of the human beings; *punaḥ āgataḥ*—coming again; *vimṛjya*—wiping; *netre*—eyes; *viduram*—unto Vidura; *prītyā*—in affection; *āha*—said; *uddhavaḥ*—Uddhava; *utsmayan*—by all those remembrances.
 
 **The great devotee Uddhava soon came back from the abode of the Lord to the human plane, and wiping his eyes, he awakened his reminiscence of the past and spoke to Vidura in a pleasing mood.**
 

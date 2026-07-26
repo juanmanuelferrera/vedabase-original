@@ -8,7 +8,7 @@
 > niryāti siddheśvara-yuṣṭa-dhiṣṇyaṁ\
 > yad dvai-parārdhyaṁ tad u pārameṣṭhyam
 
-*atho*—thereupon; *anantasya*—of Ananta, the resting incarnation of Godhead; *mukha-analena*—by the fire emanating from His mouth; *dandahyamānam*—burning to ashes; *saḥ*—he; *nirīkṣya*—by seeing this; *viśvam*—the universe; *niryāti*—goes out; *siddheśvara-yuṣṭa-dhiṣṇyam*—airplanes used by the great purified souls; *yat*—the place; *dvai-parārdhyam*—15,480,000,000,000 solar years; *tat*—that; *u*—the exalted; *pārameṣṭhyam*—Satyaloka, where Brahmā resides.
+*athaḥ*—thereupon; *anantasya*—of Ananta, the resting incarnation of Godhead; *mukha-analena*—by the fire emanating from His mouth; *dandahyamānam*—burning into ashes; *saḥ*—he; *nirīkṣya*—be seeing this; *viśvam*—the universe; *niryāti*—goes out; *siddheśvara-yuṣṭa-dhiṣṇyam*—airplanes used by the great purified souls; *yat*—the place; *vai*—wherein; *parārdhyam*—15,480,000,000,000 solar years; *tat*—that; *u*—the exalted; *pārameṣṭhyam*—Satyaloka, where Brahmā resides.
 
 **At the time of final devastation of the complete universe [the end of the duration of the life of Brahmā], a flame of fire emanates from the mouth of Ananta [from the bottom]. He sees all the planets of the universe burning into ashes, and thus he leaves for the Satyaloka by airplanes used by the great purified souls. The duration of life in Satyaloka is calculated to 15,400,000,000,000 years.**
 

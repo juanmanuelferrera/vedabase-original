@@ -8,7 +8,7 @@
 > na yatra māyā kim utāpare harer\
 > anuvratā yatra surāsurārcitāḥ
 
-*pravartate*—prevail; *yatra*—wherein; *rajaḥ tamaḥ*—the modes of passion and ignorance; *tayoḥ*—of both of them; *sattvam*—the mode of goodness; *ca*—and; *miśram*—mixture; *na*—never; *ca*—and; *kāla*—time; *vikramaḥ*—influence; *na*—neither; *yatra*—therein; *māyā*—illusory, external energy; *kim*—what; *uta*—there is; *apare*—others; *hareḥ*—of the Personality of Godhead; *anuvratāḥ*—devotees; *yatra*—wherein; *sura*—by the demigods; *asura*—and the demons; *arcitāḥ*—worshiped.
+*pravartate*—prevail; *yatra*—wherein; *rajaḥ tamaḥ*—the modes of ignorance and passion; *tayoḥ*—both of them; *sattvam*—the mode of goodness; *ca*—and; *miśram*—mixture; *na*—never; *ca*—and; *kāla*—time; *vikramaḥ*—influence; *na*—neither; *yatra*—therein; *māyā*—illusory, external energy; *kim*—what; *uta*—there is; *apare*—others; *hareḥ*—of the Personality of Godhead; *anuvratāḥ*—devotees; *yatra*—wherein; *sura*—the demigods; *asura*—the demons; *arcitāḥ*—worshiped.
 
 **In that personal abode of the Lord, the material modes of ignorance and passion do not prevail, nor is there any of their influence in the matter of goodness. There is no predominance of the influence of time, so what to speak of the illusory external energy that cannot enter in that region. Without discrimination, both the demigods and the demons worship the Lord as devotees.**
 

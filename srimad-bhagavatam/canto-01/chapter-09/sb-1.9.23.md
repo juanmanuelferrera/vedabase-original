@@ -8,7 +8,7 @@
 > tyajan kalevaraṁ yogī\
 > mucyate kāma-karmabhiḥ
 
-*bhaktyā*—with devout attention; *āveśya*—meditating; *manaḥ*—mind; *yasmin*—in whose; *vācā*—by words; *yat*—Kṛṣṇa; *nāma*—holy name; *kīrtayan*—by chanting; *tyajan*—quitting; *kalevaram*—this material body; *yogī*—the devotee; *mucyate*—gets release; *kāma-karmabhiḥ*—from fruitive activities.
+*bhaktyā*—with devout attention; *āveśya*—meditating; *manaḥ*—mind; *yasmin*—in whose; *vācā*—by words; *yat*—whose; *nāma*—holy name; *kīrtayan*—by chanting; *tyajan*—quitting; *kalevaram*—this material body; *yogī*—the devotee; *mucyate*—gets release; *kāma-karmabhiḥ*—from fruitive activities.
 
 **The Personality of Godhead, who appears in the mind of the devotee by attentive devotion and meditation and by chanting of the holy name, releases the devotee from the bondage of fruitive activities at the time of his quitting the material body.**
 

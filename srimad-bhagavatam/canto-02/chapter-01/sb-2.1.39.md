@@ -8,7 +8,7 @@
 > taṁ satyam ānanda-nidhiṁ bhajeta\
 > nānyatra sajjed yata ātma-pātaḥ
 
-*saḥ*—He (the Supreme Person); *sarva-dhī-vṛtti*—the process of realization by all sorts of intelligence; *anubhūta*—cognizant; *sarve*—everyone; *ātmā*—the Supersoul; *yathā*—as much as; *svapna-jana*—a person dreaming; *īkṣita*—seen by; *ekaḥ*—one and the same; *tam*—unto Him; *satyam*—the Supreme Truth; *ānanda-nidhim*—the ocean of bliss; *bhajeta*—must one worship; *na*—never; *anyatra*—anything else; *sajjet*—be attached; *yataḥ*—whereby; *ātma-pātaḥ*—degradation of oneself.
+*saḥ*—He (the Supreme Person); *sarva-dhī-vṛtti*—the process of realization by all sorts of intelligence; *anubhūta*—cognizant; *sarve*—everyone; *ātmā*—Supersoul; *yathā*—as much as; *svapna-jana*—a person dreaming; *īkṣita*—seen by; *ekaḥ*—one and the same; *tam*—unto Him; *satyam*—Supreme Truth; *ānanda-nidhim*—the ocean of bliss; *bhajeta*—must one worship; *na*—never; *anyatra*—anything else; *sajjet*—be attached; *yataḥ*—whereby; *ātma-pātaḥ*—degradation of oneself.
 
 **One should concentrate his mind upon the Supreme Personality of Godhead, who alone is distributed in so many manifestations, as much as ordinary persons create thousands of manifestations in dream. One must concentrate the mind on Him who is the only all-blissful Absolute Truth. Otherwise one will be misled and will cause his own degradation.**
 

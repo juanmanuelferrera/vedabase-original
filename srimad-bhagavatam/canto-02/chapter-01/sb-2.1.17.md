@@ -8,7 +8,7 @@
 > mano yacchej jita-śvāso\
 > brahma-bījam avismaran
 
-*abhyaset*—one should practice; *manasā*—by the mind; *śuddham*—sacred; *tri-vṛt*—composed of the three; *brahma-akṣaram*—transcendental letters; *param*—the supreme; *manaḥ*—mind; *yacchet*—get under control; *jita-śvāsaḥ*—by regulating the breathing air; *brahma*—absolute; *bījam*—seed; *avismaran*—without being forgotten.
+*abhyaset*—just get it into practice; *manasā*—by the mind; *śuddham*—sacred; *tri-vṛt*—composed of the three; *brahma-akṣaram*—transcendental letters; *param*—the supreme; *manaḥ*—mind; *yacchet*—get under control; *jita-śvāsaḥ*—by regulating the breathing air; *brahma*—absolute; *bījam*—seed; *avismaran*—without being forgotten.
 
 **After sitting in the above manner, make the mind remember the three transcendental letters [A.U.M.], and by regulating the breathing process, control the mind so as not to forget the transcendental seed.**
 

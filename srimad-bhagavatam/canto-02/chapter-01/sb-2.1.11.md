@@ -8,7 +8,7 @@
 > yogināṁ nṛpa nirṇītaṁ\
 > harer nāmānukīrtanam
 
-*etat*—it is; *nirvidyamānānām*—of those who are completely free from all material desires; *icchatām*—of those who are desirous of all sorts of material enjoyment; *akutaḥ-bhayam*—free from all doubts and fear; *yoginām*—of all who are self-satisfied; *nṛpa*—O King; *nirṇītam*—decided truth; *hareḥ*—of the Lord, Śrī Kṛṣṇa; *nāma*—holy name; *anu*—after someone, always; *kīrtanam*—chanting.
+*etat*—it is; *nirvidyamānānām*—of those who are completely free from all material desires; *icchatām*—of those who are desirous of all sorts of material enjoyment; *akuto-bhayam*—free from all doubts and fear; *yoginām*—of all who are self-satisfied; *nṛpa*—O King; *nirṇītam*—decided truth; *hareḥ*—of the Lord, Śrī Kṛṣṇa; *nāma*—holy name; *anu*—after someone, always; *kīrtanam*—chanting.
 
 **O King, constant chanting of the holy name of the Lord after the ways of the great authorities is the doubtless and fearless way of success for all, including those who are free from all material desires, and also those who are desirous of all material enjoyment, as well as those who are self-satisfied by dint of transcendental knowledge.**
 

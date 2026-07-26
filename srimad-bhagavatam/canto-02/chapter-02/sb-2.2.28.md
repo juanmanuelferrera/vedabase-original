@@ -8,7 +8,7 @@
 > jyotirmayo vāyum upetya kāle\
 > vāyv-ātmanā khaṁ bṛhad ātma-liṅgam
 
-*tataḥ*—thereafter; *viśeṣam*—particularly; *pratipadya*—by obtaining; *nirbhayaḥ*—without any doubt; *tena*—by that; *ātmanā*—pure self; *āpaḥ*—water; *anala*—fire; *mūrtiḥ*—forms; *atvaran*—by surpassing; *jyotiḥ-mayaḥ*—effulgent; *vāyum*—atmosphere; *upetya*—having reached there; *kāle*—in due course of time; *vāyu*—air; *ātmanā*—by the self; *kham*—ethereal; *bṛhat*—great; *ātma-liṅgam*—the real form of the self.
+*tataḥ*—thereafter; *viśeṣam*—particularly; *pratipadya*—by obtaining; *nirbhayaḥ*—without any doubt; *tena*—by that; *ātmanā*—pure self; *āpaḥ*—water; *anala*—fire; *mūrtiḥ*—forms; *atvaran*—by surpassing; *jyotiḥ-mayaḥ*—effulgent; *vāyum*—atmosphere; *upetya*—having reached there; *kāle*—in due course of time; *vāyu*—air; *ātmanā*—by the self; *kham*—ethereal; *bṛhat*—great; *ātma-liṅgam*—real form of the self.
 
 **After reaching Satyaloka, the devotee is specifically able to be incorporated fearlessly by the subtle body in an identification similar to that of the gross body, and one after another he gradually attains stages of existence from earthly to watery, fiery, glowing, and airy until he reaches the ethereal stage.**
 

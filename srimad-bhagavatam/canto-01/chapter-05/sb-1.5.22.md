@@ -8,7 +8,7 @@
 > avicyuto 'rthaḥ kavibhir nirūpito\
 > yad-uttamaśloka-guṇānuvarṇanam
 
-*idam*—this; *hi*—certainly; *puṁsaḥ*—of everyone; *tapasaḥ*—by dint of austerities; *śrutasya*—by dint of study of the *Vedas*; *vā*—or; *sviṣṭasya*—sacrifice; *sūktasya*—spiritual education; *ca*—and; *buddhi*—culture of knowledge; *dattayoḥ*—charity; *avicyutaḥ*—infallible; *arthaḥ*—interest; *kavibhiḥ*—by the recognized learned person; *nirūpitaḥ*—concluded; *yat*—what; *uttamaśloka*—the Lord, who is described by choice poetry; *guṇa-anuvarṇanam*—description of the transcendental qualities of.
+*idam*—this; *hi*—certainly; *puṁsaḥ*—of everyone; *tapasaḥ*—by dint of austerities; *śrutasya*—by dint of study of the *Vedas*; *vā*—or; *sviṣṭasya*—sacrifice; *sūktasya*—spiritual education; *ca*—and; *buddhi*—culture of knowledge; *dattayoḥ*—charity; *avicyutaḥ*—infallible; *arthaḥ*—interest; *kavibhiḥ*—by the recognized learned fellow; *nirūpitaḥ*—concluded; *yat*—what; *uttamaśloka*—the Lord, who is described by choice poetry; *guṇa-anuvarṇanam*—description of the transcendental qualities of.
 
 **Learned circles have positively concluded that the infallible purpose of the advancement of knowledge, namely austerities, study of the Vedas, sacrifice, chanting of hymns and charity, culminates in the transcendental descriptions of the Lord, who is defined in choice poetry.**
 

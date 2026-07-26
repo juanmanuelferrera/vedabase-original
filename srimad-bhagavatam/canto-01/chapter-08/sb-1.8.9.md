@@ -10,7 +10,7 @@
 > nānyaṁ tvad abhayaṁ paśye\
 > yatra mṛtyuḥ parasparam
 
-*uttarā uvāca*—Uttarā said; *pāhi pāhi*—protect, protect; *mahā-yogin*—the greatest mystic; *deva-deva*—the worshipable of the worshiped; *jagat-pate*—O Lord of the universe; *na*—not; *anyam*—anyone else; *tvat*—than You; *abhayam*—fearlessness; *paśye*—do I see; *yatra*—where there is; *mṛtyuḥ*—death; *parasparam*—in the world of duality.
+*uttarā uvāca*—Uttarā said; *pāhi pāhi*—protect, protect; *mahā-yogin*—the greatest mystic; *deva-deva*—the worshipable of the worshiped; *jagat-pate*—O Lord of the universe; *na*—not; *anyam*—anyone else; *tvat*—Your; *abhayam*—fearlessness; *paśye*—do I see; *yatra*—where there is; *mṛtyuḥ*—death; *parasparam*—in the world of duality.
 
 **Uttarā said: O Lord of lords, Lord of the universe! You are the greatest of the mystics. Please protect me, for there is no one else who can save me from the clutches of death in this world of duality.**
 

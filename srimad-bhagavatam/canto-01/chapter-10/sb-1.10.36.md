@@ -8,7 +8,7 @@
 > sāyaṁ bheje diśaṁ paścād\
 > gaviṣṭho gāṁ gatas tadā
 
-*tatra tatra*—at different places; *ha*—it so happened; *tatratyaiḥ*—by local inhabitants; *hariḥ*—the Personality of Godhead; *pratyudyata-arhaṇaḥ*—being offered presentations and worshipful regards; *sāyam*—the evening; *bheje*—having overtaken; *diśam*—direction; *paścāt*—eastern; *gaviṣṭhaḥ*—the sun in the sky; *gām*—to the ocean; *gataḥ*—having gone; *tadā*—at that time.
+*tatra tatra*—at different places; *ha*—it so happened; *tatratyaiḥ*—by local inhabitants; *hariḥ*—the Personality of Godhead; *pratyudyata-arhaṇaḥ*—being offered presentations and worshipful regards; *sāyam*—the evening; *bheje*—having overtaken; *diśam*—direction; *paścāt*—eastern; *gaviṣṭhaḥ*—the sun in the sky; *gām*—to the ocean side; *gataḥ*—having gone; *tadā*—at that time.
 
 **On His journey through these provinces He was welcomed, worshiped and given various presentations. In the evening, in all places, the Lord suspended His journey to perform evening rites. This was regularly observed after sunset.**
 

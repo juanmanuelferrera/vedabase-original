@@ -8,7 +8,7 @@
 > rantideva ivodāro\
 > yayātir iva dhārmikaḥ
 
-*sarva-sat-guṇa-māhātmye*—glorified by all godly attributes; *eṣaḥ*—this child; *kṛṣṇam*—like Lord Kṛṣṇa; *anuvrataḥ*—a follower in His footsteps; *rantidevaḥ*—Rantideva; *iva*—like; *udāraḥ*—in the matter of magnanimity; *yayātiḥ*—Yayāti; *iva*—like; *dhārmikaḥ*—concerning religion.
+*sarva-sat-guṇa-māhātmye*—glorified by all godly attributes; *eṣaḥ*—this child; *kṛṣṇam*—like Lord Kṛṣṇa; *anuvrataḥ*—follower in His footsteps; *rantidevaḥ*—Rantideva; *iva*—like; *udāraḥ*—in the matter of magnanimity; *yayātiḥ*—Yayāti; *iva*—like; *dhārmikaḥ*—concerning religion.
 
 **This child will almost be as good as Lord Śrī Kṛṣṇa by following in His footsteps. And in magnanimity he will become as great as King Rantideva. And in religion he will be like Mahārāja Yayāti.**
 

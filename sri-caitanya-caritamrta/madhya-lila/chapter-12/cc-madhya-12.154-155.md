@@ -11,6 +11,6 @@
 > tata anna-piṭhā-pānā saba pāṭhāila\
 > dekhi' mahāprabhura mane saṅkoca ha-ila
 
-*kāśī-miśra*—Kāśī Miśra; *tulasī-paḍichā*—Tulasī, the superintendent of the temple; *dui jana*—two persons; *pañca-śata loka*—five hundred men; *yata*—as much; *karaye bhojana*—eat; *tata*—so; *anna-piṭhā-pānā*—rice, cakes and sweet rice; *saba*—all; *pāṭhāila*—sent; *dekhi'*—seeing; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *mane*—in the mind; *saṅkoca ha-ila*—there was a little hesitation.
+*kāśī-miśra*—Kāśī Miśra; *tulasī-paḍichā*—Tulasī, the superintendent of the temple; *dui jana*—two persons; *pañca-śata loka*—five hundred men; *yata*—as much; *karaye bhojana*—eat; *tata*—so; *anna-piṭhā-pānā*—rice, cakes and sweet rice; *saba*—all; *pāṭhāila*—sent; *dekhi'*—seeing; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *mane*—in the mind; *santoṣa*—satisfaction; *ha-ila*—there was.
 
 **Kāśī Miśra and Tulasī, the superintendent of the temple, brought as much prasāda as five hundred men could eat. Seeing the large quantity of prasāda, which consisted of rice, cakes, sweet rice and a variety of vegetables, Śrī Caitanya Mahāprabhu was very much satisfied.**

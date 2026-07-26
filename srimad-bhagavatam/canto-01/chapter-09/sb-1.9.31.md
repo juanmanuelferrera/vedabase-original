@@ -8,7 +8,7 @@
 > nivṛtta-sarvendriya-vṛtti-vibhramas\
 > tuṣṭāva janyaṁ visṛjañ janārdanam
 
-*viśuddhayā*—by purified; *dhāraṇayā*—meditation; *hata-aśubhaḥ*—one who has minimized the inauspicious qualities of material existence; *tat*—Him; *īkṣayā*—by looking on; *eva*—simply; *āśu*—immediately; *gatā*—having gone away; *yudha*—from the arrows; *śramaḥ*—fatigue; *nivṛtta*—being stopped; *sarva*—all; *indriya*—senses; *vṛtti*—activities; *vibhramaḥ*—being widely engaged; *tuṣṭāva*—he prayed; *janyam*—the material tabernacle; *visṛjan*—while quitting; *janārdanam*—to the controller of the living beings.
+*viśuddhayā*—by purified; *dhāraṇayā*—meditation; *hata-aśubhaḥ*—one who had minimized the inauspicious qualities of material existence; *tat*—his; *īkṣayā*—by looking on; *eva*—simply; *āśu*—immediately; *gatā*—having gone away; *yudha*—arrows; *śramaḥ*—fatigue; *nivṛtta*—being stopped; *sarva*—all; *indriya*—senses; *vṛtti*—activities; *vibhramaḥ*—being widely engaged; *tuṣṭāva*—prayed for; *janyam*—the material tabernacle; *visṛjan*—while quitting; *janārdanam*—the controller of the living beings.
 
 **By pure meditation, looking at Lord Śrī Kṛṣṇa, he at once was freed from all material inauspiciousness and was relieved of all bodily pains caused by the arrow wounds. Thus all the external activities of his senses were at once stopped, and he prayed transcendentally to the controller of all living beings while quitting his material body.**
 

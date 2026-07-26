@@ -8,7 +8,7 @@
 > jīvasya tattva-jijñāsā\
 > nārtho yaś ceha karmabhiḥ
 
-*kāmasya*—of desires; *na*—not; *indriya*—senses; *prītiḥ*—satisfaction; *lābhaḥ*—gain; *jīveta*—self-preservation; *yāvatā*—so much so; *jīvasya*—of the living being; *tattva*—the Absolute Truth; *jijñāsā*—inquiries; *na*—not; *arthaḥ*—end; *yaḥ ca iha*—whatsoever else; *karmabhiḥ*—by occupational activities.
+*kāmasya*—of desires; *na*—not; *indriya*—senses; *prītiḥ*—satisfaction; *lābhaḥ*—gain; *jīveta*—self-preservation; *yāvatā*—so much so; *jīvasya*—of the living being; *tattva*—Absolute Truth; *jijñāsā*—inquiries; *na*—not; *arthaḥ*—end; *yaḥ ca iha*—whatsoever else; *karmabhiḥ*—by occupational activities.
 
 **Life's desires should never be aimed at gratifying the senses. One should desire to live only because human life enables one to inquire about the Absolute Truth. This should be the goal of all works.**
 

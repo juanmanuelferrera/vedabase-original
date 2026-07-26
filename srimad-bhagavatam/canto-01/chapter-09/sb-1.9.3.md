@@ -8,7 +8,7 @@
 > sa tair vyarocata nṛpaḥ\
 > kuvera iva guhyakaiḥ
 
-*bhagavān*—the Personality of Godhead (Śrī Kṛṣṇa); *api*—also; *vipra-ṛṣe*—O sage among the *brāhmaṇas*; *rathena*—on the chariot; *sa-dhanañjayaḥ*—with Dhanañjaya (Arjuna); *saḥ*—He; *taiḥ*—by them; *vyarocata*—appeared to be highly aristocratic; *nṛpaḥ*—the King (Yudhiṣṭhira); *kuvera*—Kuvera, the treasurer of the demigods; *iva*—as; *guhyakaiḥ*—companions known as Guhyakas.
+*bhagavān*—the Personality of Godhead (Śrī Kṛṣṇa); *api*—also; *vipra-ṛṣe*—O sage among the *brāhmaṇas*; *rathena*—on the chariot; *sa-dhanañjayaḥ*—with Dhanañjaya (Arjuna); *sa*—that; *taiḥ*—by them; *vyarocata*—appeared to be highly aristocratic; *nṛpaḥ*—the King (Yudhiṣṭhira); *kubera*—Kuvera, the treasurer of the demigods; *iva*—as; *guhyakaiḥ*—companions known as Guhyakas.
 
 **O sage amongst the brāhmaṇas, Lord Śrī Kṛṣṇa the Personality of Godhead also followed, seated on a chariot with Arjuna. Thus King Yudhiṣṭhira appeared very aristocratic, like Kuvera surrounded by his companions [the Guhyakas].**
 

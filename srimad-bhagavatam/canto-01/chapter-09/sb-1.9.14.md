@@ -8,7 +8,7 @@
 > sapālo yad-vaśe loko\
 > vāyor iva ghanāvaliḥ
 
-*sarvam*—all this; *kāla-kṛtam*—done by inevitable time; *manye*—I think; *bhavatām ca*—for you also; *yat*—whatever; *apriyam*—detestable; *sa-pālaḥ*—with the rulers; *yat-vaśe*—under the control of that time; *lokaḥ*—everyone in every planet; *vāyoḥ*—the wind carries; *iva*—as; *ghana-āvaliḥ*—a line of clouds.
+*sarvam*—all this; *kāla-kṛtam*—done by inevitable time; *manye*—I think; *bhavatām ca*—for you also; *yat*—whatever; *apriyam*—detestable; *sa-pālaḥ*—with the rulers; *yat-vaśe*—under the control of that time; *lokaḥ*—everyone in every planet; *vāyoḥ*—like air carrying; *iva*—as; *ghana-āvaliḥ*—the bunches of clouds.
 
 **In my opinion, this is all due to inevitable time, under whose control everyone in every planet is carried, just as the clouds are carried by the wind.**
 

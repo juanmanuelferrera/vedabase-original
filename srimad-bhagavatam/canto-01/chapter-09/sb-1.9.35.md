@@ -8,7 +8,7 @@
 > sthitavati para-sainikāyur akṣṇā\
 > hṛtavati pārtha-sakhe ratir mamāstu
 
-*sapadi*—on the battlefield; *sakhi-vacaḥ*—command of the friend; *niśamya*—after hearing; *madhye*—in the midst; *nija*—His own; *parayoḥ*—and the opposite party; *balayoḥ*—strength; *ratham*—chariot; *niveśya*—having entered; *sthitavati*—while staying there; *para-sainika*—of the soldiers on the opposite side; *āyuḥ*—duration of life; *akṣṇā*—by looking over; *hṛtavati*—act of diminishing; *pārtha*—of Arjuna, son of Pṛthā (Kuntī); *sakhe*—unto the friend; *ratiḥ*—intimate relation; *mama*—my; *astu*—let there be.
+*sapadi*—on the battlefield; *sakhi-vacaḥ*—command of the friend; *niśamya*—after hearing; *madhye*—in the midst of; *nija*—own; *parayoḥ*—the opposite party; *balayoḥ*—strength; *ratham*—chariot; *niveśya*—having entered; *sthitavati*—while staying there; *para-sainika*—soldiers on the opposite side; *āyuḥ*—duration of life; *akṣṇā*—by looking over; *hṛtavati*—act of diminishing; *pārtha*—Arjuna, son of Pṛthā (Kuntī); *sakhe*—unto the friend; *ratiḥ*—intimate relation; *mama*—my; *astu*—let there be.
 
 **In obedience to the command of His friend, Lord Śrī Kṛṣṇa entered the arena of the Battlefield of Kurukṣetra between the soldiers of Arjuna and Duryodhana, and while there, He shortened the life spans of the opposite party by His merciful glance. This was done simply by His looking at the enemy. Let my mind be fixed upon that Kṛṣṇa.**
 

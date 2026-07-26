@@ -8,7 +8,7 @@
 > alakṣitaḥ svair avadhūta-veṣo\
 > vratāni cere hari-toṣaṇāni
 
-*gām*—earth; *paryaṭan*—traversing; *medhya*—pure; *vivikta-vṛttiḥ*—independent occupation for living; *sadā*—always; *āplutaḥ*—sanctified; *adhaḥ*—on the earth; *śayanaḥ*—lying; *avadhūtaḥ*—without dressing (of the hair, etc.); *alakṣitaḥ*—without being seen; *svaiḥ*—alone; *avadhūta-veṣaḥ*—dressed like a mendicant; *vratāni*—vows; *cere*—performed; *hari-toṣaṇāni*—that pleased the Lord.
+*gām*—earth; *paryaṭan*—traversing; *medhya*—pure; *vivikta-vṛttiḥ*—independent occupation for living; *sadā*—always; *āplutaḥ*—sanctified; *adhaḥ*—on the earth; *śayanaḥ*—lying; *avadhūtaḥ*—without dressing (of the hair, etc.); *alakṣitaḥ*—without being seen; *svaiḥ*—alone; *avadhūta-veṣaḥ*—dressed like a mendicant; *vratāni*—vows; *cere*—performed; *hari-toṣaṇāni*—that pleases the Lord.
 
 **While so traversing the earth, he simply performed duties to please the Supreme Lord Hari. His occupation was pure and independent. He was constantly sanctified by taking his bath in holy places, although he was in the dress of a mendicant and had no hair dressing nor a bed on which to lie. Thus he was always unseen by his various relatives.**
 

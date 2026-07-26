@@ -8,7 +8,7 @@
 > kṛta-manu-kṛta-vatya unmadāndhāḥ\
 > prakṛtim agan kila yasya gopa-vadhvaḥ
 
-*lalita*—attractive; *gati*—movements; *vilāsa*—fascinating acts; *valguhāsa*—sweet smiling; *praṇaya*—loving; *nirīkṣaṇa*—looking upon; *kalpita*—mentality; *urumānāḥ*—highly glorified; *kṛta-manu-kṛta-vatyaḥ*—in the act of copying the movements; *unmada-andhāḥ*—gone mad in ecstasy; *prakṛtim*—characteristics; *agan*—underwent; *kila*—certainly; *yasya*—whose; *gopa-vadhvaḥ*—the cowherd damsels.
+*lalita*—attractive; *gati*—movements; *vilāsa*—fascinating acts; *valguhāsa*—sweet smiling; *praṇaya*—loving; *nirīkṣaṇa*—looking on; *kalpita*—mentality; *urumānāḥ*—highly glorified; *kṛta-manu-kṛta-vatyaḥ*—in the act of copying the movements; *unmada-andhāḥ*—gone mad in ecstasy; *prakṛtim*—characteristics; *agan*—underwent; *kila*—certainly; *yasya*—whose; *gopa-vadhvaḥ*—the cowherd damsels.
 
 **Let my mind be fixed upon Lord Śrī Kṛṣṇa, whose motions and smiles of love attracted the damsels of Vrajadhāma [the gopīs]. The damsels imitated the characteristic movements of the Lord [after His disappearance from the rāsa dance].**
 

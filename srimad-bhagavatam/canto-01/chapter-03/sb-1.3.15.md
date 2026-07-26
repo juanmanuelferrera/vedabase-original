@@ -8,7 +8,7 @@
 > nāvy āropya mahī-mayyām\
 > apād vaivasvataṁ manum
 
-*rūpam*—form; *saḥ*—He; *jagṛhe*—accepted; *mātsyam*—of a fish; *cākṣuṣa*—Cākṣuṣa; *udadhi*—water; *samplave*—inundation; *nāvi*—on the boat; *āropya*—keeping on; *mahī*—the earth; *mayyām*—drowned in; *apāt*—protected; *vaivasvatam*—Vaivasvata; *manum*—Manu, the father of man.
+*rūpam*—form; *saḥ*—He; *jagṛhe*—accepted; *mātsyam*—of fish; *cākṣuṣa*—Cākṣuṣa; *udadhi*—water; *samplave*—inundation; *nāvi*—on the boat; *āropya*—keeping on; *mahī*—the earth; *mayyām*—drowned in; *apāt*—protected; *vaivasvatam*—Vaivasvata; *manum*—Manu, the father of man.
 
 **When there was a complete inundation after the period of the Cakṣuṣā Manu and the whole world was deep within water, the Lord accepted the form of a fish and protected Vaivasvata Manu, keeping him up on a boat.**
 

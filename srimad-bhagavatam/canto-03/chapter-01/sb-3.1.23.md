@@ -8,7 +8,7 @@
 > pratyaṅga-mukhyāṅkita-mandirāṇi\
 > yad-darśanāt kṛṣṇam anusmaranti
 
-*anyāni*—others; *ca*—also; *iha*—here; *dvija-deva*—by the great sages; *devaiḥ*—and the demigods; *kṛtāni*—established by; *nānā*—various; *āyatanāni*—various forms; *viṣṇoḥ*—of the Supreme Personality of Godhead; *prati*—each and every; *aṅga*—part; *mukhya*—the chief; *aṅkita*—marked; *mandirāṇi*—temple s; *yat*—which; *darśanāt*—by seeing from a distance; *kṛṣṇam*—the original Personality of Godhead; *anusmaranti*—constantly remembers.
+*anyāni*—others; *ca*—also; *iha*—here; *dvija-deva*—great sages; *devaiḥ*—by demigods; *kṛtāni*—established by; *nānā*—various; *āyatanāni*—various forms; *viṣṇoḥ*—of the Supreme Personality of Godhead; *prati*—each and every; *aṅga*—part; *mukhya*—the chief; *aṅkita*—marked; *mandirāṇi*—temple s; *yat*—which; *darśanāt*—by seeing from a distance; *kṛṣṇam*—the original Personality of Godhead; *anusmaranti*—constantly remembers.
 
 **There were also many other temples of various forms of the Supreme Personality of Godhead Viṣṇu, established by great sages and demigods. These temples were marked with the chief emblems of the Lord, and they reminded one always of the original Personality of Godhead, Lord Kṛṣṇa.**
 

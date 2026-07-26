@@ -8,7 +8,7 @@
 > na yat-karṇa-pathopeto\
 > jātu nāma gadāgrajaḥ
 
-*śva*—a dog; *viṭ-varāha*—the village hog who eats stool; *uṣṭra*—the camel; *kharaiḥ*—and by the asses; *saṁstutaḥ*—perfectly praised; *puruṣaḥ*—a person; *paśuḥ*—animal; *na*—never; *yat*—of him; *karṇa*—ear; *patha*—path; *upetaḥ*—reached; *jātu*—at any time; *nāma*—the holy name; *gadāgrajaḥ*—Lord Kṛṣṇa, the deliver from all evils.
+*śva*—a dog; *viṭ-varāha*—the village hog who eats stool; *uṣṭra*—the camel; *kharaiḥ*—and by the asses; *saṁstutaḥ*—perfectly praised; *puruṣaḥ*—a person; *paśuḥ*—animal; *na*—never; *yat*—of him; *karṇa*—ear; *patha*—path; *upetaḥ*—reached; *jātu*—at any time; *nāma*—the holy name; *gadāgrajaḥ*—Lord Kṛṣṇa, the deliverer from all evils.
 
 **Men who are like dogs, hogs, camels and asses praise those men who never listen to the transcendental pastimes of Lord Śrī Kṛṣṇa, the deliverer from evils.**
 

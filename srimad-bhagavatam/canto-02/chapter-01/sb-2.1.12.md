@@ -8,7 +8,7 @@
 > varaṁ muhūrtaṁ viditaṁ\
 > ghaṭate śreyase yataḥ
 
-*kim*—what is; *pramattasya*—of the bewildered; *bahubhiḥ*—by many; *parokṣaiḥ*—inexperienced; *hāyanaiḥ*—years; *iha*—in this world; *varam*—better; *muhūrtam*—a moment; *viditam*—conscious; *ghaṭate*—one can try for; *śreyase*—in the matter of the supreme interest; *yataḥ*—by that.
+*kim*—what is; *pramattasya*—of the bewildered; *bahubhiḥ*—by many; *parokṣaiḥ*—unexperienced; *hāyanaiḥ*—years; *iha*—in this world; *varam*—better; *muhūrtam*—a moment; *viditam*—conscious; *ghaṭate*—one can try for; *śreyase*—in the matter of the supreme interest; *yataḥ*—by that.
 
 **What is the value of a prolonged life which is wasted, inexperienced by years in this world? Better a moment of full consciousness, because that gives one a start in searching after his supreme interest.**
 

@@ -8,7 +8,7 @@
 > sattvaṁ viśuddhaṁ kṣemāya\
 > kalpante ye 'nu tān iha
 
-*bhejire*—rendered service unto; *munayaḥ*—the sages; *atha*—thus; *agre*—previously; *bhagavantam*—unto the Personality of Godhead; *adhokṣajam*—the Transcendence; *sattvam*—existence; *viśuddham*—above the three modes of nature; *kṣemāya*—to derive the ultimate benefit; *kalpante*—deserve; *ye*—those; *anu*—follow; *tān*—those; *iha*—in this material world.
+*bhejire*—rendered service unto; *munayaḥ atha agre*—thus before all the sages; *bhagavantam*—unto the Personality of Godhead; *adhokṣajam*—the Transcendence; *sattvam*—existence; *viśuddham*—above the three modes of nature; *kṣemāya*—to derive the ultimate benefit; *kalpante*—deserve; *ye*—those; *anu*—follow; *tān*—those; *iha*—in this material world.
 
 **Previously all the great sages rendered service unto the transcendental Personality of Godhead [Bhagavān] due to His existence above the three modes of material nature. They worshiped Him to become free from material conditions. Whoever follows such sages is also eligible for liberation from the material world.**
 

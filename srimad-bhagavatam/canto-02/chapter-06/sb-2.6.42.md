@@ -8,7 +8,7 @@
 > dravyaṁ vikāro guṇa indriyāṇi\
 > virāṭ svarāṭ sthāsnu cariṣṇu bhūmnaḥ
 
-*ādyaḥ*—first; *avatāraḥ*—incarnation; *puruṣaḥ*—Kāraṇārṇavaśāyī Viṣṇu; *parasya*—of the Lord; *kālaḥ*—time; *svabhāvaḥ*—space; *sat*—result; *asat*—cause; *manaḥ*—mind; *ca*—also; *dravyam*—elements; *vikāraḥ*—material ego; *guṇaḥ*—modes of nature; *indriyāṇi*—senses; *virāṭ*—the complete whole body; *svarāṭ*—Garbhodakaśāyī Viṣṇu; *sthāsnu*—immovable; *cariṣṇu*—movable; *bhūmnaḥ*—of the Supreme Lord.
+*ādyaḥ*—first; *avatāraḥ*—incarnation; *puruṣaḥ*—Kāraṇārṇavaśāyī Viṣṇu; *parasya*—of the Lord; *kālaḥ*—time; *svabhāvaḥ*—space; *sat*—resultant; *asat*—cause; *manaḥ*—mind; *ca*—also; *dravyam*—elements; *vikāraḥ*—material ego; *guṇaḥ*—modes of nature; *indriyāṇi*—senses; *virāṭ*—the complete whole body; *svarāṭ*—Garbhodakaśāyī Viṣṇu; *sthāsnu*—immovable; *cariṣṇu*—movable; *bhūmnaḥ*—of the Supreme Lord.
 
 **Kāraṇārṇavaśāyī Viṣṇu is the first incarnation of the Supreme Lord, and He is the master of eternal time, space, cause and effects, mind, elements, material ego, modes of nature, senses, the universal form of the Lord, Garbhodakaśāyī Viṣṇu, and the sum total of all living beings, both moving and nonmoving.**
 

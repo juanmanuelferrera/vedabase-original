@@ -8,7 +8,7 @@
 > viśvaṁ puruṣa-rūpeṇa\
 > paripāti tri-śakti-dhṛk
 
-*sṛjāmi*—do create; *tat*—by His; *niyuktaḥ*—appointment; *aham*—I; *haraḥ*—Lord Śiva; *harati*—destroys; *tat-vaśaḥ*—under His subordination; *viśvam*—the whole universe; *puruṣa*—the Personality of Godhead; *rūpeṇa*—by His eternal form; *paripāti*—maintains; *tri-śakti-dhṛk*—the controller of three energies.
+*sṛjāmi*—do create; *tat*—by His; *niyuktaḥ*—appointment; *aham*—I; *haraḥ*—Lord Śiva; *harati*—destroys; *tat-vaśaḥ*—under His subordination; *viśvam*—the whole universe; *puruṣa*—Personality of Godhead; *rūpeṇa*—by His eternal form; *paripāti*—maintains; *tri-śakti-dhṛk*—the controller of three energies.
 
 **By His will, I create, Lord Śiva destroys, and He Himself, in His eternal form as the Personality of Godhead, maintains everything. He is the powerful controller of these three energies.**
 

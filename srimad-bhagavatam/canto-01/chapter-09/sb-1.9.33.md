@@ -8,7 +8,7 @@
 > vapur alaka-kulāvṛtānanābjaṁ\
 > vijaya-sakhe ratir astu me 'navadyā
 
-*tri-bhuvana*—three statuses of planetary systems; *kamanam*—the most desirable; *tamāla-varṇam*—bluish like the *tamāla* tree; *ravi-kara*—sun rays; *gaura*—golden color; *varāmbaram*—glittering dress; *dadhāne*—one who wears; *vapuḥ*—body; *alaka-kula-āvṛta*—covered with paintings of sandalwood pulp; *anana-abjam*—face like a lotus; *vijaya-sakhe*—unto the friend of Arjuna; *ratiḥ astu*—may attraction be reposed upon Him; *me*—my; *anavadyā*—without desire for fruitive results.
+*tri-bhuvana*—three statuses of planetary systems; *kamanam*—the most desirable; *tamāla-varṇam*—bluish like the *tamāla* tree; *ravi-kara*—sun rays; *gaura*—golden color; *varāmbaram*—dress glittering by; *dadhāne*—one who wears; *vapuḥ*—body; *alaka-kula-āvṛta*—covered with paintings of sandalwood pulp; *anana-abjam*—face like a lotus; *vijaya-sakhe*—unto the friend of Arjuna; *ratiḥ astu*—attraction be reposed upon Him; *me*—my; *anavadyā*—without desire for fruitive results.
 
 **Śrī Kṛṣṇa is the intimate friend of Arjuna. He has appeared on this earth in His transcendental body which resembles the bluish color of the tamāla tree. His body attracts everyone in the three [upper, middle and lower] planetary systems. May His glittering yellow dress and His lotus face, covered with paintings of sandalwood pulp, be the object of my attraction, and may I not desire fruitive results.**
 

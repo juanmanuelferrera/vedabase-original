@@ -6,7 +6,7 @@
 > mandirera cakra dekhi' kariha praṇāma\
 > ei ṭhāñi tomāra āsibe prasādānna
 
-*mandirera*—of the temple of Jagannātha; *cakra*—the wheel on the top; *dekhi'*—seeing; *kariha praṇāma*—offer your obeisances; *ei ṭhāñi*—in this place; *tomāra*—your; *āsibe*—will come; *prasāda-anna*—remnants of food of Jagannātha.
+*mandirera*—of the temple of Jagannātha; *cakra*—the wheel on the top; *dekhi'*—seeing; *kariha praṇāma*—offer your obeisances; *ei ṭhāñi*—in this place; *tomāra*—your; *āsibe*—will come; *prasāda-anna*—remnants of foodstuff of Jagannātha.
 
 **"Remain here peacefully and look at the cakra on the top of the temple and offer obeisances. As far as your prasāda is concerned, I shall arrange to have that sent here."**
 

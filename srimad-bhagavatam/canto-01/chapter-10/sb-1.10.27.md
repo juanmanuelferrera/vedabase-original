@@ -8,7 +8,7 @@
 > paśyanti nityaṁ yad anugraheṣitaṁ\
 > smitāvalokaṁ sva-patiṁ sma yat-prajāḥ
 
-*aho bata*—how wonderful this is; *svaḥ-yaśasaḥ*—the glories of the heavenly planets; *tiraskarī*—that which defeats; *kuśasthalī*—Dvārakā; *puṇya*—virtue; *yaśaskarī*—famous; *bhuvaḥ*—the planet earth; *paśyanti*—see; *nityam*—constantly; *yat*—that which; *anugraha-iṣitam*—to bestow benediction; *smita-avalokam*—glance with the favor of sweet smiling; *sva-patim*—unto the soul of the living being (Kṛṣṇa); *sma*—used to; *yat-prajāḥ*—the inhabitants of the place.
+*aho bata*—how wonderful this is; *svaḥ-yaśasaḥ*—the glories of the heavenly planets; *tiraskarī*—that which defeats; *kuśasthalī*—Dvārakā; *puṇya*—virtue; *yaśaskarī*—famous; *bhuvaḥ*—the earth planet; *paśyanti*—see; *nityam*—constantly; *yat*—that which; *anugraha-iṣitam*—to bestow benediction; *smita-avalokam*—glance with the favor of sweet smiling; *sva-patim*—unto the soul of the living being (Kṛṣṇa); *sma*—used to; *yat-prajāḥ*—the inhabitants of the place.
 
 **Undoubtedly it is wonderful that Dvārakā has defeated the glories of the heavenly planets and has enhanced the celebrity of the earth. The inhabitants of Dvārakā are always seeing the soul of all living beings [Kṛṣṇa] in His loving feature. He glances at them and favors them with sweet smiles.**
 

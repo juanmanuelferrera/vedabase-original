@@ -8,7 +8,7 @@
 > vāsudeve bhagavati\
 > bhakti-yogo yato bhavet
 
-*na*—never; *hi*—certainly; *ataḥ*—beyond this; *anyaḥ*—any other; *śivaḥ*—auspicious; *panthāḥ*—means; *viśataḥ*—wandering; *saṁsṛtau*—in the material world; *iha*—in this life; *vāsudeve*—unto Lord Vāsudeva, Kṛṣṇa; *bhagavati*—the Personality of Godhead; *bhakti-yogaḥ*—direct devotional service; *yataḥ*—wherein; *bhavet*—may result in.
+*na*—never; *hi*—certainly; *ataḥ*—beyond this; *anyaḥ*—any other; *śivaḥ*—auspicious; *panthāḥ*—means; *viśataḥ*—wandering; *saṁsṛtau*—in the material world; *iha*—in this life; *vāsudeve*—unto Lord Vāsudeva, Kṛṣṇa; *bhagavati*—the Personality of Godhead; *bhakti-yogaḥ*—directly devotional service; *yataḥ*—wherein; *bhavet*—may result in.
 
 **"For those who are wandering in the material universe, there is no more auspicious means of deliverance than what is aimed at in the direct devotional service of Lord Kṛṣṇa.**
 

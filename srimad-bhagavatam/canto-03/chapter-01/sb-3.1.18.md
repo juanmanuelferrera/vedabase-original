@@ -8,7 +8,7 @@
 > ananta-liṅgaiḥ samalaṅkṛteṣu\
 > cacāra tīrthāyataneṣv ananyaḥ
 
-*pureṣu*—holy places like Ayodhyā, Dvārakā and Mathurā; *puṇya*—piety; *upa-vana*—the parks; *adri*—hill; *kuñjeṣu*—in the orchards; *apaṅka*—without sin; *toyeṣu*—in the water; *sarit*—river; *saraḥsu*—lakes; *ananta-liṅgaiḥ*—the forms of the Unlimited; *samalaṅkṛteṣu*—being so decorated; *cacāra*—executed; *tīrtha*—places of pilgrimage; *āyataneṣu*—holy lands; *ananyaḥ*—alone or seeing Kṛṣṇa alone.
+*pureṣu*—holy places like Ayodhyā, Dvārakā, Mathurā, etc.; *puṇya*—piety; *upavana*—the air; *adri*—hill; *kuñjeṣu*—in the orchards; *apaṅka*—without sin; *toyeṣu*—in the water; *sarit*—river; *saraḥsu*—lakes; *ananta-liṅgaiḥ*—the forms of the Unlimited; *samalaṅkṛteṣu*—being so decorated; *cacāra*—executed; *tīrtha*—places of pilgrimage; *āyataneṣu*—holy lands; *ananyaḥ*—alone or seeing Kṛṣṇa alone.
 
 **He began to travel along, thinking only of Kṛṣṇa, through various holy places like Ayodhyā, Dvārakā and Mathurā. He traveled where the air, hill, orchard, river and lake are all pure and sinless and where the forms of the Unlimited decorate the temples. Thus he performed the pilgrim's progress.**
 

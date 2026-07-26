@@ -8,7 +8,7 @@
 > janma-lābhaḥ paraḥ puṁsām\
 > ante nārāyaṇa-smṛtiḥ
 
-*etāvān*—all these; *sāṅkhya*—complete knowledge of matter and spirit; *yogābhyām*—knowledge of mystic power; *sva-dharma*—particular occupational duty; *pariniṣṭhayā*—by full perception; *janma*—birth; *lābhaḥ*—gain; *paraḥ*—the supreme; *puṁsām*—of a person; *ante*—at the end; *nārāyaṇa*—the Personality of Godhead; *smṛtiḥ*—remembrance.
+*etāvān*—all these; *sāṅkhya*—complete knowledge of matter and spirit; *yogābhyām*—knowledge of mystic power; *sva-dharma*—particular occupational duty; *pariniṣṭhayā*—by full perception; *janma*—birth; *lābhaḥ*—gain; *paraḥ*—the supreme; *puṁsām*—of a person; *ante*—at the end; *nārāyaṇa*—Personality of Godhead; *smṛtiḥ*—remembrance.
 
 **The highest perfection of human life, achieved either by complete knowledge of matter and spirit, by practice of mystic powers, or by perfect discharge of occupational duty, is to remember the Personality of Godhead at the end of life.**
 

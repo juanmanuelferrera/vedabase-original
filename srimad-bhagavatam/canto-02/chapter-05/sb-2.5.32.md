@@ -8,7 +8,7 @@
 > yadāyatana-nirmāṇe\
 > na śekur brahma-vittama
 
-*yadā*—as long as; *ete*—all these; *asaṅgatāḥ*—without being assembled; *bhāvāḥ*—remained so situated; *bhūta*—elements; *indriya*—senses; *manaḥ*—mind; *guṇāḥ*—modes of nature; *yadā*—so long; *āyatana*—the body; *nirmāṇe*—in being formed; *na śekuḥ*—was not possible; *brahma-vit-tama*—O Nārada, the best knower of transcendental knowledge.
+*yadā*—as long as; *ete*—all these; *asaṅgatāḥ*—without being assembled; *bhāvāḥ*—remained so situated; *bhūta*—elements; *indriya*—senses; *manaḥ*—mind; *guṇāḥ*—modes of nature; *yadā*—so long; *āyatana*—body; *nirmāṇe*—in being formed; *na śekuḥ*—was not possible; *brahma-vit-tama*—O Nārada, the best knower of transcendental knowledge.
 
 **O Nārada, best of the transcendentalists, the forms of the body could not take place as long as these created parts, namely the elements, senses, mind and the modes of nature, were assembled.**
 

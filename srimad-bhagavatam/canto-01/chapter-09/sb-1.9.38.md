@@ -8,7 +8,7 @@
 > prasabham abhisasāra mad-vadhārthaṁ\
 > sa bhavatu me bhagavān gatir mukundaḥ
 
-*śita*—sharp; *viśikha*—arrows; *hataḥ*—wounded by; *viśīrṇa-daṁśaḥ*—scattered shield; *kṣataja*—by wounds; *pariplutaḥ*—smeared with blood; *ātatāyinaḥ*—the great aggressor; *me*—my; *prasabham*—in an angry mood; *abhisasāra*—began to move on; *mat-vadha-artham*—for the purpose of killing me; *saḥ*—He; *bhavatu*—may become; *me*—my; *bhagavān*—the Personality of Godhead; *gatiḥ*—destination; *mukundaḥ*—who awards salvation.
+*śita*—sharp; *viśikha*—arrows; *hataḥ*—wounded by; *viśīrṇa-daṁśaḥ*—scattered shield; *kṣataja*—by wounds; *pariplutaḥ*—smeared with blood; *ātatāyinaḥ*—the great aggressor; *me*—my; *prasabham*—in an angry mood; *abhisasāra*—began to move on; *mat-vadha-artham*—for the purpose of killing me; *saḥ*—He; *bhavatu*—let Him become; *me*—my; *bhagavān*—the Personality of Godhead; *gatiḥ*—destination; *mukundaḥ*—one who awards salvation.
 
 **May He, Lord Śrī Kṛṣṇa, the Personality of Godhead, who awards salvation, be my ultimate destination. On the battlefield He charged me, as if angry because of the wounds dealt by my sharp arrows. His shield was scattered, and His body was smeared with blood due to the wounds.**
 

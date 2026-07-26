@@ -8,7 +8,7 @@
 > labdhāpacitayaḥ sarve\
 > pratijagmuḥ svakān gṛhān
 
-*iti*—thus; *rājñe*—unto the King; *upādiśya*—having advised; *viprāḥ*—persons well versed in the *Vedas*; *jātaka-kovidāḥ*—persons expert in astrology and in the performance of birth ceremonies; *labdha-apacitayaḥ*—those who had received sumptuously as remuneration; *sarve*—all of them; *pratijagmuḥ*—went back; *svakān*—their own; *gṛhān*—houses.
+*iti*—thus; *rājñe*—unto the King; *upādiśya*—having advised; *viprāḥ*—persons who are well versed in the *Vedas*; *jātaka-kovidāḥ*—persons expert in astrology and in the performance of birth ceremonies; *labdha-apacitayaḥ*—those who had received sumptuously as remuneration; *sarve*—all of them; *pratijagmuḥ*—went back; *svakān*—their own; *gṛhān*—houses.
 
 **Thus those who were expert in astrological knowledge and in performance of the birth ceremony instructed King Yudhiṣṭhira about the future history of his child. Then, being sumptuously remunerated, they all returned to their respective homes.**
 

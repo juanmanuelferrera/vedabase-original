@@ -8,7 +8,7 @@
 > yam āmananti sma hi śabda-yoniṁ\
 > mano-mayaṁ sattva-turīya-tattvam
 
-*api*—as also; *svit*—whether; *āste*—does He; *bhagavān*—the Personality of Godhead; *sukham*—all happiness; *vaḥ*—of you; *yaḥ*—one who; *sātvatām*—of the devotees; *kāma-dughaḥ*—source of all desires; *aniruddhaḥ*—the plenary expansion Aniruddha; *yam*—whom; *āmananti*—they accept; *sma*—from yore; *hi*—certainly; *śabda-yonim*—the cause of the *Ṛg Veda*; *manaḥ-mayam*—creator of the mind; *sattva*—transcendental; *turīya*—the fourth expansion; *tattvam*—principle.
+*api*—as also; *svit*—whether; *āste*—does He; *bhagavān*—the Personality of Godhead; *sukham*—all happiness; *vaḥ*—of you; *yaḥ*—one who; *sātvatām*—of the devotees; *kāma-dughaḥ*—source of all desires; *aniruddhaḥ*—the plenary expansion Aniruddha; *yam*—whom; *āmananti*—accept; *sma*—from yore; *hi*—certainly; *śabda-yonim*—the cause of the *Ṛg Veda*; *manaḥ-mayam*—creator of the mind; *sattva*—transcendental; *turīya*—the fourth expansion; *tattvam*—principle.
 
 **May I inquire whether Aniruddha is doing well? He is the fulfiller of all the desires of the pure devotees and has been considered from yore to be the cause of the Ṛg Veda, the creator of the mind and the fourth Plenary expansion of Viṣṇu.**
 

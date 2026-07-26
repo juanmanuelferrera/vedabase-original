@@ -8,7 +8,7 @@
 > bāla-krīḍanakaiḥ krīḍan\
 > kṛṣṇa-krīḍāṁ ya ādade
 
-*saḥ*—he; *vai*—certainly; *bhāgavataḥ*—a great devotee of the Lord; *rājā*—Mahārāja Parīkṣit; *pāṇḍaveyaḥ*—grandson of the Pāṇḍavas; *mahā-rathaḥ*—a great fighter; *bāla*—while a child; *krīḍanakaiḥ*—with play dolls; *krīḍan*—playing; *kṛṣṇa*—Lord Kṛṣṇa; *krīḍām*—activities; *yaḥ*—who; *ādade*—accepted.
+*saḥ*—he; *vai*—certainly; *bhāgavataḥ*—great devotee of the Lord; *rājā*—Mahārāja Parīkṣit; *pāṇḍaveyaḥ*—grandson of the Pāṇḍavas; *mahā-rathaḥ*—a great fighter; *bāla*—while a child; *krīḍanakaiḥ*—with play dolls; *krīḍan*—playing; *kṛṣṇa*—Lord Kṛṣṇa; *krīḍām*—activities; *yaḥ*—who; *ādade*—accepted.
 
 **Mahārāja Parīkṣit, the grandson of the Pāṇḍavas, was from his very childhood a great devotee of the Lord. Even while playing with dolls, he used to worship Lord Kṛṣṇa by imitating the worship of the family Deity.**
 

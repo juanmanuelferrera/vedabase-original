@@ -6,7 +6,7 @@
 > bhaṭṭācārya kahe-deva nā kara viṣāda\
 > tomāre prabhura avaśya ha-ibe prasāda
 
-*bhaṭṭācārya kahe*—the Bhaṭṭācārya said; *deva*—O King; *nā kara viṣāda*—do not be worried; *tomāre*—unto you; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *avaśya*—certainly; *ha-ibe*—there must be; *prasāda*—mercy.
+*bhaṭṭācārya kahe*—Bhaṭṭācārya said; *deva*—O King; *nā kara viṣāda*—do not be worried; *tomāre*—unto you; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *avaśya*—certainly; *ha-ibe*—there must be; *prasāda*—mercy.
 
 **Finally Sārvabhauma Bhaṭṭācārya said, "My dear King, do not worry. Because of your firm determination, I am sure that Śrī Caitanya Mahāprabhu's mercy will definitely be bestowed upon you."**
 

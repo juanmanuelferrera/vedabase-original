@@ -8,7 +8,7 @@
 > patir gatiś cāndhaka-vṛṣṇi-sātvatāṁ\
 > prasīdatāṁ me bhagavān satāṁ patiḥ
 
-*śriyaḥ*—all opulence; *patiḥ*—the owner; *yajña*—of sacrifice; *patiḥ*—the director; *prajā-patiḥ*—the leader of all living entities; *dhiyām*—of intelligence; *patiḥ*—the master; *loka-patiḥ*—the proprietor of all planets; *dharā*—earth; *patiḥ*—the supreme; *patiḥ*—head; *gatiḥ*—destination; *ca*—also; *andhaka*—one of the kings of the Yadu dynasty; *vṛṣṇi*—the first king of the Yadu dynasty; *sātvatām*—the Yadus; *prasīdatām*—be merciful; *me*—upon me; *bhagavān*—Lord Śrī Kṛṣṇa; *satām*—of all devotees; *patiḥ*—the Lord.
+*śriyaḥ*—all opulence; *patiḥ*—owner; *yajña*—of sacrifice; *patiḥ*—director; *prajā-patiḥ*—leader of all living entities; *dhiyām*—of intelligence; *patiḥ*—master; *loka-patiḥ*—proprietor of all planets; *dharā*—earth; *patiḥ*—the supreme; *patiḥ*—head; *gatiḥ*—destination; *ca*—also; *andhaka*—one of the kings of the Yadu dynasty; *vṛṣṇi*—the first king of the Yadu dynasty; *sātvatām*—the Yadus; *prasīdatām*—be merciful; *me*—upon me; *bhagavān*—Lord Śrī Kṛṣṇa; *satām*—of all devotees; *patiḥ*—Lord.
 
 **May Lord Śrī Kṛṣṇa, who is the worshipable Lord of all devotees, the protector and glory of all the kings like Andhaka and Vṛṣṇi of the Yadu dynasty, the husband of all goddesses of fortune, the director of all sacrifices and therefore the leader of all living entities, the controller of all intelligence, the proprietor of all planets, spiritual and material, and the supreme incarnation on the earth (the supreme all in all), be merciful upon me.**
 

@@ -8,7 +8,7 @@
 > pibato 'cyuta-pīyūṣam\
 > tad vākyābdhi-viniḥsṛtam
 
-*na*—never; *me*—mine; *asavaḥ*—life; *parāyanti*—becomes exhausted; *brahman*—O learned *brāhmaṇa*; *anaśanāt amī*—because of fasting; *pibataḥ*—because of my drinking; *acyuta*—of the infallible; *pīyūṣam*—nectar; *tat*—your; *vākya-abdhi*—ocean of speech; *viniḥsṛtam*—flowing down from.
+*na*—never; *me*—mine; *asavaḥ*—life; *parāyanti*—becomes exhausted; *brahman*—O learned *brāhmaṇa*; *anaśanāt amī*—because of fasting; *pibataḥ*—because of my drinking; *acyuta*—the infallible; *pīyūṣam*—nectar; *tat*—your; *vākya-abdhi*—ocean of speech; *viniḥsṛtam*—flowing down from.
 
 **O learned brāhmaṇa, because of my drinking the nectar of the message of the infallible Personality of Godhead, which is flowing down from the ocean of your speeches, I do not feel any sort of exhaustion due to my fasting."**
 

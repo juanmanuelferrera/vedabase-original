@@ -10,7 +10,7 @@
 > apṛcchad vividhān dharmān\
 > ṛṣīṇāṁ cānuśṛṇvatām
 
-*sūtaḥ uvāca*—Śrī Sūta Gosvāmī said; *yudhiṣṭhiraḥ*—King Yudhiṣṭhira; *tat*—that; *ākarṇya*—hearing; *śayānam*—lying down; *śara-pañjare*—on the bed of arrows; *apṛcchat*—asked; *vividhān*—multifarious; *dharmān*—duties; *ṛṣīṇām*—of the *ṛṣis*; *ca*—and; *anuśṛṇvatām*—hearing after.
+*sūtaḥ uvāca*—Śrī Sūta Gosvāmī said; *yudhiṣṭhiraḥ*—King Yudhiṣṭhira; *tat*—that; *ākarṇya*—hearing; *śayānam*—lying down; *śara-pañjare*—on the bed of arrows; *apṛcchat*—asked; *vividhān*—multifarious; *dharmān*—duties; *ṛṣīṇām*—of the *ṛṣis*; *ca*—and; *anuśṛṇvatām*—hearing after them.
 
 **Sūta Gosvāmī said: Mahārāja Yudhiṣṭhira, after hearing Bhīṣmadeva speak in that appealing tone, asked him, in the presence of all the great ṛṣis, about the essential principles of various religious duties.**
 

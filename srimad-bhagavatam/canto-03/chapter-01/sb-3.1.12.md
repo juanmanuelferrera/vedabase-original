@@ -8,7 +8,7 @@
 > āste sva-puryāṁ yadu-deva-devo\
 > vinirjitāśeṣa-nṛdeva-devaḥ
 
-*pārthān*—the sons of Pṛthā (Kuntī); *tu*—but; *devaḥ*—the Lord; *bhagavān*—the Personality of Godhead; *mukundaḥ*—Śrī Kṛṣṇa, who awards liberation; *gṛhītavān*—has taken up; *sa*—with; *kṣiti-deva-devaḥ*—the *brāhmaṇas* and the demigods; *āste*—is present; *sva-puryām*—along with His family; *yadu-deva-devaḥ*—worshiped by the royal order of the Yadu dynasty; *vinirjita*—who have been conquered; *aśeṣa*—unlimited; *nṛdeva*—kings; *devaḥ*—Lord.
+*pārthān*—the sons of Pṛthā (Kuntī); *tu*—but; *devaḥ*—Lord; *bhagavān*—the Personality of Godhead; *mukundaḥ*—Śrī Kṛṣṇa, who awards liberation; *gṛhītavān*—has taken up; *sa*—with; *kṣiti-deva-devaḥ*—the *brāhmaṇas* and the demigods; *āste*—is present; *sva-puryām*—along with His family; *yadu-deva-devaḥ*—worshiped by the royal order of the Yadu dynasty; *vinirjita*—conquered by; *aśeṣa*—unlimited; *nṛdeva*—kings; *devaḥ*—Lord.
 
 **Lord Kṛṣṇa, the Personality of Godhead, has accepted the sons of Pṛthā as His kinsmen, and all the kings of the world are with Lord Śrī Kṛṣṇa. He is present in His home with all His family members, the kings and princes of the Yadu dynasty, who have conquered an unlimited number of rulers, and He is their Lord.**
 

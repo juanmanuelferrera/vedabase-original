@@ -8,7 +8,7 @@
 > saṁspardhayā dagdham athānuśocan\
 > sarasvatīṁ pratyag iyāya tūṣṇīm
 
-*tatra*—there; *atha*—thereafter; *śuśrāva*—heard; *suhṛt*—kinsmen; *vinaṣṭim*—all dead; *vanam*—forest; *yathā*—as much as; *veṇuja-vahni*—fire due to the bamboos; *saṁśrayam*—friction with one another; *saṁspardhayā*—by violent passion; *dagdham*—burnt; *atha*—thus; *anuśocan*—grieving; *sarasvatīm*—the River Sarasvatī; *pratyak*—westward; *iyāya*—went; *tūṣṇīm*—silently.
+*tatra*—there; *atha*—thereafter; *śuśrāva*—heard; *suhṛt*—kinsmen; *vinaṣṭim*—all dead; *vanam*—forest; *yathā*—as much as; *veṇuja-vahni*—fire due to the bamboos; *saṁśrayam*—friction with one another; *saṁspardhayā*—by violent passion; *dagdham*—burnt; *atha*—thus; *anuśocan*—thinking; *sarasvatīm*—the River Sarasvatī; *pratyak*—westward; *iyāya*—went; *tūṣṇīm*—silently.
 
 **At the place of pilgrimage at Prabhāsa, it came to his knowledge that all his relatives had died due to violent passion, just as an entire forest burns due to fire produced by the friction of bamboos. After this he proceeded west, where the River Sarasvatī flows.**
 

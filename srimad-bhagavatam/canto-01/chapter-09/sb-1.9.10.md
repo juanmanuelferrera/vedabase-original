@@ -8,7 +8,7 @@
 > hṛdi-sthaṁ pūjayām āsa\
 > māyayopātta-vigraham
 
-*kṛṣṇam*—unto Lord Śrī Kṛṣṇa; *ca*—also; *tat*—of Him; *prabhāva-jñaḥ*—the knower of the glories (Bhīṣma); *āsīnam*—sitting; *jagat-īśvaram*—the Lord of the universe; *hṛdi-stham*—situated in the heart; *pūjayām āsa*—worshiped; *māyayā*—by internal potency; *upātta*—manifested; *vigraham*—a form.
+*kṛṣṇam*—unto Lord Śrī Kṛṣṇa; *ca*—also; *tat*—His; *prabhāva-jñaḥ*—the knower of glories; *āsīnam*—sitting; *jagat-īśvaram*—the Lord of the universe; *hṛdi-stham*—situated in the heart; *pūjayām āsa*—worshiped; *māyayā*—by internal potency; *upātta*—being made of; *vigraham*—form.
 
 **Lord Śrī Kṛṣṇa is situated in everyone's heart, yet He manifests His transcendental form by His internal potency. This very Lord was sitting before Bhīṣmadeva, and since he knew of His glories, he worshiped Him duly.**
 

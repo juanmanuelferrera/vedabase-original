@@ -8,7 +8,7 @@
 > yan-māyayā durjayayā\
 > māṁ vadanti jagad-gurum
 
-*tasmai*—unto Him; *namaḥ*—offer my obeisances; *bhagavate*—unto the Personality of Godhead; *vāsudevāya*—unto Lord Kṛṣṇa; *dhīmahi*—do meditate upon Him; *yat*—by whose; *māyayā*—potencies; *durjayayā*—invincible; *mām*—unto me; *vadanti*—they say; *jagat*—the world; *gurum*—the master.
+*tasmai*—unto Him; *namaḥ*—offer my obeisances; *bhagavate*—unto the Personality of Godhead; *vāsudevāya*—unto Lord Kṛṣṇa; *dhīmahi*—do meditate upon Him; *yat*—by whose; *māyayā*—potencies; *durjayayā*—invincible; *mām*—unto me; *vadanti*—they say; *jagat*—world; *gurum*—the master.
 
 **I offer my obeisances and meditate upon Lord Kṛṣṇa [Vāsudeva], the Personality of Godhead, whose invincible potency influences them [the less intelligent class of men] to call me the supreme controller.**
 

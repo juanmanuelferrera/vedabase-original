@@ -8,7 +8,7 @@
 > tad dhi svayaṁ veda bhavāṁs tathāpi te\
 > prādeśa-mātraṁ bhavataḥ pradarśitam
 
-*idam*—this; *hi*—all; *viśvam*—cosmos; *bhagavān*—the Supreme Lord; *iva*—almost the same; *itaraḥ*—different from; *yataḥ*—from whom; *jagat*—the worlds; *sthāna*—exist; *nirodha*—annihilation; *sambhavāḥ*—creation; *tat hi*—all about; *svayam*—personally; *veda*—know; *bhavān*—your good self; *tathā api*—still; *te*—unto you; *prādeśa-mātram*—a synopsis only; *bhavataḥ*—unto you; *pradarśitam*—explained.
+*idam*—this; *hi*—all; *viśvam*—cosmos; *bhagavān*—the Supreme Lord; *iva*—almost the same; *itaraḥ*—different from; *yataḥ*—from whom; *jagat*—the worlds; *sthāna*—exist; *nirodha*—annihilation; *sambhavāḥ*—creation; *tat hi*—all about; *svayam*—personally; *veda*—know; *bhavān*—your good self; *tathāpi*—still; *te*—unto you; *prādeśa-mātram*—a synopsis only; *bhavataḥ*—unto you; *pradarśitam*—explained.
 
 **The Supreme Lord Personality of Godhead is Himself this cosmos, and still He is aloof from it. From Him only this cosmic manifestation has emanated, in Him it rests, and unto Him it enters after annihilation. Your good self knows all about this. I have only given a synopsis.**
 

@@ -15,7 +15,7 @@
 > vāsudeve bhagavati\
 > ātma-bhāvaṁ dṛḍhaṁ gataḥ
 
-*papraccha*—asked; *ca*—also; *imam*—this; *eva*—exactly like; *artham*—purpose; *yat*—that; *mām*—unto me; *pṛcchatha*—you are asking; *sattamāḥ*—O great sages; *kṛṣṇa-anubhāva*—rapt in thought of Kṛṣṇa; *śravaṇe*—in hearing; *śraddadhānaḥ*—full of faith; *mahā-manāḥ*—the great soul; *saṁsthām*—death; *vijñāya*—being informed; *sannyasya*—renouncing; *karma*—fruitive activities; *trai-vargikam*—the three principles religion, economic development and sense gratification; *ca*—also; *yat*—what it may be; *vāsudeve*—unto Lord Kṛṣṇa; *bhagavati*—the Personality of Godhead; *ātma-bhāvam*—attraction of love; *dṛḍham*—firmly fixed; *gataḥ*—achieved.
+*papraccha*—asked; *ca*—also; *imam*—this; *eva*—exactly like; *artham*—purpose; *yat*—that; *mām*—unto me; *pṛcchatha*—you are asking; *sattamāḥ*—O great sages; *kṛṣṇa-anubhāva*—rapt in thought of Kṛṣṇa; *śravaṇe*—in hearing; *śraddadhānaḥ*—full of faith; *mahā-manāḥ*—great soul; *saṁsthām*—death; *vijñāya*—being informed; *sannyasya*—renouncing; *karma*—fruitive activities; *trai-vargikam*—three principles of religion, economic development and sense gratification; *ca*—also; *yat*—what it may be; *vāsudeve*—unto Lord Kṛṣṇa; *bhagavati*—the Personality of Godhead; *ātma-bhāvam*—attraction of love; *dṛḍham*—firmly fixed; *gataḥ*—achieved.
 
 **O great sages, the great soul Mahārāja Parīkṣit, constantly rapt in the thought of Lord Kṛṣṇa, knowing well of his imminent death, renounced all sorts of fruitive activities, namely acts of religion, economic development and sense gratification, and thus fixed himself firmly in his natural love for Kṛṣṇa and asked exactly all these questions, as you are asking me.**
 

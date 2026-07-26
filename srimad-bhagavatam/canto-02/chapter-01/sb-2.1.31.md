@@ -8,7 +8,7 @@
 > hāso janonmāda-karī ca māyā\
 > duranta-sargo yad-apāṅga-mokṣaḥ
 
-*chandāṁsi*—the Vedic hymns; *anantasya*—of the Supreme; *śiraḥ*—the cerebral passage; *gṛṇanti*—they say; *daṁṣṭrāḥ*—the jaws of teeth; *yamaḥ*—Yamarāja, the director of sinners; *sneha-kalāḥ*—the art of affection; *dvijāni*—the set of teeth; *hāsaḥ*—smile; *jana-unmāda-karī*—the most alluring; *ca*—also; *māyā*—illusory energy; *duranta*—unsurpassable; *sargaḥ*—the material creation; *yat-apāṅga*—whose glance; *mokṣaḥ*—casting over.
+*chandāṁsi*—the Vedic hymns; *anantasya*—of the Supreme; *śiraḥ*—cerebral passage; *gṛṇanti*—they say; *daṁṣṭrāḥ*—jaws of teeth; *yamaḥ*—Yamarāja, the director of sinners; *sneha-kalāḥ*—the art of affection; *dvijāni*—the set of teeth; *hāsaḥ*—smile; *jana-unmāda-karī*—the most alluring; *ca*—also; *māyā*—illusory energy; *duranta*—unsurpassable; *sargaḥ*—the material creation; *yat-apāṅga*—whose glance; *mokṣaḥ*—casting over.
 
 **They say that the Vedic hymns are the cerebral passage of the Lord, and the jaws of the teeth are Yama, god of death, who punishes the sinners. The art of affection is his set of teeth, and the most alluring illusory material energy is His smile. This great ocean of material creation is but the casting of His glance over us.**
 

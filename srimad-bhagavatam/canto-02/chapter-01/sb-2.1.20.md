@@ -8,7 +8,7 @@
 > yacched dhāraṇayā dhīro\
 > hanti yā tat-kṛtaṁ malam
 
-*rajaḥ*—the passionate mode of nature; *tamobhyām*—as well as by the ignorant mode of material nature; *ākṣiptam*—agitated; *vimūḍham*—bewildered; *manaḥ*—the mind; *ātmanaḥ*—of one's own; *yacchet*—get it rectified; *dhāraṇayā*—by conception (of Viṣṇu); *dhīraḥ*—the pacified; *hanti*—destroys; *yā*—all those; *tat-kṛtam*—done by them; *malam*—dirty things.
+*rajaḥ*—passionate modes of nature; *tamobhyām*—as well as by the ignorant mode of material nature; *ākṣiptam*—agitated; *vimūḍham*—bewildered; *manaḥ*—the mind; *ātmanaḥ*—of one's own; *yacchet*—get it rectified; *dhāraṇayā*—by conception (of Viṣṇu); *dhīraḥ*—the pacified; *hanti*—destroys; *yā*—all those; *tat-kṛtam*—done by them; *malam*—dirty things.
 
 **One's mind is always agitated by the passionate modes of material nature and bewildered by the ignorant modes of nature. But one can rectify such conceptions by the relation of Viṣṇu and thus become pacified by cleansing the dirty things created by them.**
 

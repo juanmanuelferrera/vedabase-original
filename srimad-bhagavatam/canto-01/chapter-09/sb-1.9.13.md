@@ -8,7 +8,7 @@
 > yuṣmat-kṛte bahūn kleśān\
 > prāptā tokavatī muhuḥ
 
-*saṁsthite*—after the demise; *ati-rathe*—of the great general; *pāṇḍau*—Pāṇḍu; *pṛthā*—Kuntī; *bāla-prajā*—having young children; *vadhūḥ*—my daughter-in-law; *yuṣmat-kṛte*—on your account; *bahūn*—multifarious; *kleśān*—afflictions; *prāptā*—underwent; *toka-vatī*—in spite of having grown-up boys; *muhuḥ*—constantly.
+*saṁsthite*—after the demise; *ati-rathe*—of the great general; *pāṇḍau*—Pāṇḍu; *pṛthā*—Kuntī; *bāla-prajā*—having young children; *vadhūḥ*—daughter-in-law; *yuṣmat-kṛte*—on your account; *bahūn*—multifarious; *kleśān*—afflictions; *prāptā*—underwent; *toka-vatī*—in spite of having grown-up boys; *muhuḥ*—constantly.
 
 **As far as my daughter-in-law Kuntī is concerned, upon the great General Pāṇḍu's death, she became a widow with many children, and therefore she suffered greatly. And when you were grown up she suffered a great deal also because of your actions.**
 

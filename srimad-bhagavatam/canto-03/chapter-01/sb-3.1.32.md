@@ -8,7 +8,7 @@
 > yaḥ kṛṣṇa-pādāṅkita-mārga-pāṁsuṣv\
 > aceṣṭata prema-vibhinna-dhairyaḥ
 
-*kaccit*—whether; *budhaḥ*—very learned; *svasti*—well; *anamīvaḥ*—faultless; *āste*—does exist; *śvaphalka-putraḥ*—the son of Śvaphalka, Akrūra; *bhagavat*—regarding the Personality of Godhead; *prapannaḥ*—surrendered; *yaḥ*—one who; *kṛṣṇa*—the Lord; *pāda-aṅkita*—marked with footprints; *mārga*—path; *pāṁsuṣu*—in the dust; *aceṣṭata*—exhibited; *prema-vibhinna*—lost in transcendental love; *dhairyaḥ*—mental equilibrium.
+*kaccit*—whether; *budhaḥ*—very learned; *svasti*—well; *anamīvaḥ*—faultless; *āste*—do exist; *śvaphalka-putraḥ*—the son of Śvaphalka, Akrūra; *bhagavat*—regarding the Personality of Godhead; *prapannaḥ*—surrendered; *yaḥ*—one who; *kṛṣṇa*—the Lord; *pāda-aṅkita*—marked with footprints; *mārga*—path; *pāṁsuṣu*—dust; *aceṣṭata*—exhibited; *prema-vibhinna*—lost in transcendental love; *dhairyaḥ*—mental equilibrium.
 
 **Please tell me whether Akrūra, the son of Śvaphalka, is doing well. He is a faultless soul surrendered unto the Personality of Godhead. He once lost his mental equilibrium due to his ecstasy of transcendental love and fell down on the dust of a road which was marked with the footprints of Lord Kṛṣṇa.**
 

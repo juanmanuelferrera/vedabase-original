@@ -8,7 +8,7 @@
 > lokasya sadyo vidhunoti kalmaṣaṁ\
 > tasmai subhadra-śravase namo namaḥ
 
-*yat*—whose; *kīrtanam*—glorification; *yat*—whose; *smaraṇam*—remembrances; *yat*—whose; *īkṣaṇam*—audience; *yat*—whose; *vandanam*—prayers; *yat*—whose; *śravaṇam*—hearing about; *yat*—whose; *arhaṇam*—worshiping; *lokasya*—of all people; *sadyaḥ*—forthwith; *vidhunoti*—specifically cleanses; *kalmaṣam*—effects of sins; *tasmai*—unto Him; *subhadra*—all-auspicious; *śravase*—one who is heard; *namaḥ*—my due obeisances; *namaḥ*—again and again.
+*yat*—whose; *kīrtanam*—glorification; *yat*—whose; *smaraṇam*—remembrances; *yat*—whose; *īkṣaṇam*—audience; *yat*—whose; *vandanam*—prayers; *yat*—whose; *śravaṇam*—hearing about; *yat*—whose; *arhaṇam*—worshiping; *lokasya*—of all people; *sadyaḥ*—forthwith; *vidhunoti*—specifically cleanses; *kalmaṣam*—effects of sins; *tasmai*—unto Him; *subhadra*—all-auspicious; *śravase*—one who is heard; *namaḥ*—by due obeisances; *namaḥ*—again and again.
 
 **Let me offer my respectful obeisances unto the all-auspicious Lord Śrī Kṛṣṇa, about whom glorification, remembrances, audience, prayers, hearing and worship can at once cleanse the effects of all sins of the performer.**
 

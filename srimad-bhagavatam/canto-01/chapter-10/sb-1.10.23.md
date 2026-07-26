@@ -8,7 +8,7 @@
 > paśyanti bhakty-utkalitāmalātmanā\
 > nanv eṣa sattvaṁ parimārṣṭum arhati
 
-*saḥ*—He; *vai*—by providence; *ayam*—this; *yat*—that which; *padam atra*—here is the same Personality of Godhead, Śrī Kṛṣṇa; *sūrayaḥ*—great devotees; *jita-indriyāḥ*—who have overcome the influence of the senses; *nirjita*—thoroughly controlled; *mātariśvanaḥ*—life; *paśyanti*—can see; *bhakti*—by dint of devotional service; *utkalita*—developed; *amala-ātmanā*—those whose minds are thoroughly cleansed; *nanu eṣaḥ*—certainly by this only; *sattvam*—existence; *parimārṣṭum*—for purifying the mind completely; *arhati*—deserve.
+*saḥ*—He; *vai*—by providence; *ayam*—this; *yat*—that which; *padam atra*—here is the same Personality of Godhead, Śrī Kṛṣṇa; *sūrayaḥ*—great devotees; *jita-indriyā*—one who has overcome the influence of the senses; *nirjita*—thoroughly controlled; *mātariśvanaḥ*—life; *paśyanti*—can see; *bhakti*—by dint of devotional service; *utkalita*—developed; *amala-ātmanā*—those whose minds are thoroughly cleansed; *nanu eṣaḥ*—certainly by this only; *sattvam*—existence; *parimārṣṭum*—for purifying the mind completely; *arhati*—deserve.
 
 **Here is the same Supreme Personality of Godhead whose transcendental form is experienced by the great devotees who are completely cleansed of material consciousness by dint of rigid devotional service and full control of life and the senses. And that is the only way to purify existence.**
 

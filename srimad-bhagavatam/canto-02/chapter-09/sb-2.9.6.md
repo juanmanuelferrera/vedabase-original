@@ -8,7 +8,7 @@
 > sparśeṣu yat ṣoḍaśam ekaviṁśaṁ\
 > niṣkiñcanānāṁ nṛpa yad dhanaṁ viduḥ
 
-*saḥ*—he; *cintayan*—while thus thinking; *dvi*—two; *akṣaram*—syllables; *ekadā*—once upon a time; *ambhasi*—in the water; *upāśṛṇot*—heard it nearby; *dviḥ*—twice; *gaditam*—uttered; *vacaḥ*—words; *vibhuḥ*—the great; *sparśeṣu*—in the *sparśa* letters; *yat*—which; *ṣoḍaśam*—the sixteenth; *ekaviṁśam*—and the twenty-first; *niṣkiñcanānām*—of the renounced order of life; *nṛpa*—O King; *yat*—what is; *dhanam*—wealth; *viduḥ*—as it is known.
+*saḥ*—he; *cintayan*—while thus thinking; *dvi*—two; *akṣaram*—syllables; *ekadā*—once upon a time; *ambhasi*—in the water; *upāśṛṇot*—heard it nearby; *dviḥ*—twice; *gaditam*—uttered; *vacaḥ*—words; *vibhuḥ*—the great; *sparśeṣu*—of the *sparśa* letters; *yat*—which; *ṣoḍaśam*—the sixteenth; *ekaviṁśam*—and the twenty-first; *niṣkiñcanānām*—of the renounced order of life; *nṛpa*—O King; *yat*—what is; *dhanam*—wealth; *viduḥ*—as it is known.
 
 **While thus engaged in thinking, in the water, Brahmājī heard twice from nearby two syllables joined together. One of the syllables was taken from the sixteenth and the other from the twenty-first of the sparśa alphabets, and both joined to become the wealth of the renounced order of life.**
 

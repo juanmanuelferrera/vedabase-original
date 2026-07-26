@@ -8,7 +8,7 @@
 > āhartaiṣo 'śvamedhānāṁ\
 > vṛddhānāṁ paryupāsakaḥ
 
-*dhṛtyā*—by patience; *bali-samaḥ*—like Bali Mahārāja; *kṛṣṇe*—unto Lord Śrī Kṛṣṇa; *prahrāda*—Prahlāda Mahārāja; *iva*—like; *sat-grahaḥ*—devotee of; *āhartā*—performer; *eṣaḥ*—this child; *aśvamedhānām*—of Aśvamedha sacrifices; *vṛddhānām*—of the old and experienced men; *paryupāsakaḥ*—follower.
+*dhṛtyā*—by patience; *bali-samaḥ*—like Bali Mahārāja; *kṛṣṇe*—unto Lord Śrī Kṛṣṇa; *prahlāda*—Prahlāda Mahārāja; *iva*—like; *sat-grahaḥ*—devotee of; *āhartā*—performer; *eṣaḥ*—this child; *aśvamedhānām*—of Aśvamedha sacrifices; *vṛddhānām*—of the old and experienced men; *paryupāsakaḥ*—follower.
 
 **This child will be like Bali Mahārāja in patience, a staunch devotee of Lord Kṛṣṇa like Prahlāda Mahārāja, a performer of many aśvamedha [horse] sacrifices and a follower of the old and experienced men.**
 

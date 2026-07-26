@@ -8,7 +8,7 @@
 > yathārko 'gnir yathā somo\
 > yatharkṣa-graha-tārakāḥ
 
-*yena*—by whom; *sva-rociṣā*—by His own effulgence; *viśvam*—all the world; *rocitam*—already created potentially; *rocayāmi*—do manifest; *aham*—I; *yathā*—as much; *arkaḥ*—the sun; *agniḥ*—fire; *yathā*—as; *somaḥ*—the moon; *yathā*—as also; *ṛkṣa*—the firmament; *graha*—the influential planets; *tārakāḥ*—the stars.
+*yena*—by whom; *sva-rociṣā*—by His own effulgence; *viśvam*—all the world; *rocitam*—already created potentially; *rocayāmi*—do manifest; *aham*—I; *yathā*—as much; *arkaḥ*—the sun; *agniḥ*—fire; *yathā*—as; *somaḥ*—the moon; *yathā*—as also; *ṛkṣa*—firmament; *graha*—influential planets; *tārakāḥ*—stars.
 
 **I create after the Lord's creation by His personal effulgence [known as the brahmajyoti], just as when the sun manifests its fire, the moon, the firmament, the influential planets and the twinkling stars are also manifest.**
 

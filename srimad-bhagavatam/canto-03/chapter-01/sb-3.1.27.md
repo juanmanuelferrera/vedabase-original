@@ -8,7 +8,7 @@
 > yo vai svasṝṇāṁ pitṛvad dadāti\
 > varān vadānyo vara-tarpaṇena
 
-*kaccit*—whether; *kurūṇām*—of the Kurus; *paramaḥ*—greatest; *suhṛt*—well-wisher; *naḥ*—our; *bhāmaḥ*—brother-in-law; *saḥ*—he; *āste*—is; *sukham*—happy; *aṅga*—O Uddhava; *śauriḥ*—Vasudeva; *yaḥ*—one who; *vai*—certainly; *svasṝṇām*—of the sisters; *pitṛ-vat*—like a father; *dadāti*—gives; *varān*—everything desirable; *vadānyaḥ*—munificent; *vara*—wife; *tarpaṇena*—by pleasing.
+*kaccit*—whether; *kurūṇām*—of the Kurus; *paramaḥ*—greatest; *suhṛt*—well-wisher; *naḥ*—our; *bhāmaḥ*—brother-in-law; *saḥ*—he; *āste*—is; *sukham*—happy; *aṅga*—O Uddhava; *śauriḥ*—Vasudeva; *yaḥ*—one who; *vai*—certainly; *svasṝṇām*—of the sisters; *pitṛ-vat*—like father; *dadāti*—gives; *varān*—everything desirable; *vadānyaḥ*—munificent; *vara*—wife; *tarpaṇena*—by pleasing.
 
 **[Please tell me] whether the best friend of the Kurus, our brother-in-law Vasudeva, is doing well. He is very munificent. He is like a father to his sisters, and he is always pleasing to his wives.**
 

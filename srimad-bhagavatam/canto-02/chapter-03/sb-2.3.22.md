@@ -8,7 +8,7 @@
 > pādau nṛṇāṁ tau druma-janma-bhājau\
 > kṣetrāṇi nānuvrajato harer yau
 
-*barhāyite*—like plumes of a peacock; *te*—those; *nayane*—eyes; *narāṇām*—of men; *liṅgāni*—forms; *viṣṇoḥ*—of the Personality of Godhead; *na*—does not; *nirīkṣataḥ*—look upon; *ye*—all such; *pādau*—legs; *nṛṇām*—of men; *tau*—those; *druma-janma*—being born of the tree; *bhājau*—like that; *kṣetrāṇi*—holy places; *na*—never; *anuvrajataḥ*—goes after; *hareḥ*—of the Lord; *yau*—which.
+*barhāyite*—like plumes of a peacock; *te*—those; *nayane*—eyes; *narāṇām*—of men; *liṅgāni*—forms; *viṣṇoḥ*—of the Personality of Godhead; *na*—does not; *nirīkṣataḥ*—look on; *ye*—all such; *pādau*—legs; *nṛṇām*—of men; *tau*—those; *druma-janma*—being born of the tree; *bhājau*—like that; *kṣetrāṇi*—holy places; *na*—never; *anuvrajataḥ*—goes after; *hareḥ*—of the Lord; *yau*—which.
 
 **The eyes which do not look at the symbolic representations of the Personality of Godhead Viṣṇu [His forms, name, quality, etc.] are like those printed on the plumes of the peacock, and the legs which do not move to the holy places [where the Lord is remembered] are considered to be like tree trunks.**
 

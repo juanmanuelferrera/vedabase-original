@@ -8,7 +8,7 @@
 > yo yoginaś chanda-mṛtyor\
 > vāñchitas tūttarāyaṇaḥ
 
-*dharmam*—occupational duties; *pravadataḥ*—while describing; *tasya*—his; *saḥ*—that; *kālaḥ*—time; *pratyupasthitaḥ*—exactly appeared; *yaḥ*—that is; *yoginaḥ*—for the mystics; *chanda-mṛtyoḥ*—of one who dies according to one's own selection of time; *vāñchitaḥ*—is desired by; *tu*—but; *uttarāyaṇaḥ*—the period when the sun runs on the northern horizon.
+*dharmam*—occupational duties; *pravadataḥ*—while describing; *tasya*—his; *saḥ*—that; *kālaḥ*—time; *pratyupasthitaḥ*—exactly appeared; *yaḥ*—that is; *yoginaḥ*—for the mystics; *chanda-mṛtyoḥ*—of one who dies according to one's own selection of time; *vāñchitaḥ*—as desired by; *tu*—but; *uttarāyaṇaḥ*—period when the sun runs on the northern horizon.
 
 **While Bhīṣmadeva was describing occupational duties, the sun's course ran into the northern hemisphere. This period is desired by mystics who die at their will.**
 

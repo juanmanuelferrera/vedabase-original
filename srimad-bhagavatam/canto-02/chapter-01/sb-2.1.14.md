@@ -8,7 +8,7 @@
 > upakalpaya tat sarvaṁ\
 > tāvad yat sāmparāyikam
 
-*tava*—your; *api*—also; *etarhi*—therefore; *kauravya*—O one born in the family of Kuru; *saptāham*—seven days; *jīvita*—duration of life; *avadhiḥ*—up to the limit of; *upakalpaya*—get them performed; *tat*—those; *sarvam*—all; *tāvat*—so long; *yat*—which are; *sāmparāyikam*—rituals for the next life.
+*tava*—your; *api*—also; *etarhi*—therefore; *kauravya*—born in the family of Kuru; *saptāham*—seven days; *jīvita*—duration of life; *avadhiḥ*—up to the limit of; *upakalpaya*—get them performed; *tat*—those; *sarvam*—all; *tāvat*—so long; *yat*—which are; *sāmparāyikam*—rituals for the next life.
 
 **Mahārāja Parīkṣit, now your duration of life is limited to seven more days, so during this time you can perform all those rituals which are needed for the best purpose of your next life.**
 

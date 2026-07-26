@@ -8,7 +8,7 @@
 > niruddham apy āsravad ambu netrayor\
 > vilajjatīnāṁ bhṛgu-varya vaiklavāt
 
-*tam*—Him (the Lord); *ātma-jaiḥ*—by the sons; *dṛṣṭibhiḥ*—by the sight; *antara-ātmanā*—by the innermost part of the heart; *duranta-bhāvāḥ*—insuperable ecstasy; *parirebhire*—embraced; *patim*—husband; *niruddham*—choked up; *api*—in spite of; *āsravat*—tears; *ambu*—like drops of water; *netrayoḥ*—from the eyes; *vilajjatīnām*—of those situated in shyness; *bhṛgu-varya*—O chief of the Bhṛgus; *vaiklavāt*—inadvertently.
+*tam*—Him (the Lord); *ātma-jaiḥ*—by the sons; *dṛṣṭibhiḥ*—by the sight; *antara-ātmanā*—by the innermost part of the heart; *duranta-bhāvāḥ*—insuperable ecstasy; *parirebhire*—embraced; *patim*—husband; *niruddham*—choked up; *api*—in spite of; *āsravat*—tears; *ambu*—like drops of water; *netrayoḥ*—from the eyes; *vilajjatīnām*—of those compact in shyness; *bhṛgu-varya*—O chief of the Bhṛgus; *vaiklavāt*—inadvertently.
 
 **The insuperable ecstasy was so strong that the queens, who were shy, first embraced the Lord in the innermost recesses of their hearts. Then they embraced Him visually, and then they sent their sons to embrace Him [which is equal to personal embracing]. But, O chief amongst the Bhṛgus, though they tried to restrain their feelings, they inadvertently shed tears.**
 

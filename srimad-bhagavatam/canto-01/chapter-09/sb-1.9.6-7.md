@@ -15,7 +15,7 @@
 > kakṣīvān gautamo 'triś ca\
 > kauśiko 'tha sudarśanaḥ
 
-*parvataḥ*—Parvata Muni; *nāradaḥ*—Nārada Muni; *dhaumyaḥ*—Dhaumya; *bhagavān*—incarnation of Godhead; *bādarāyaṇaḥ*—Vyāsadeva; *bṛhadaśvaḥ*—Bṛhadaśva; *bharadvājaḥ*—Bharadvāja; *sa-śiṣyaḥ*—along with disciples; *reṇukā-sutaḥ*—Paraśurāma; *vasiṣṭhaḥ*—Vasiṣṭha; *indrapramadaḥ*—Indrapramada; *tritaḥ*—Trita; *gṛtsamadaḥ*—Gṛtsamada; *asitaḥ*—Asita; *kakṣīvān*—Kakṣīvān; *gautamaḥ*—Gautama; *atriḥ*—Atri; *ca*—and; *kauśikaḥ*—Kauśika; *atha*—as well as; *sudarśanaḥ*—Sudarśana.
+*parvataḥ*—Parvata Muni; *nāradaḥ*—Nārada Muni; *dhaumyaḥ*—Dhaumya; *bhagavān*—incarnation of Godhead; *bādarāyaṇaḥ*—Vyāsadeva; *bṛhadaśvaḥ*—Bṛhadaśva; *bharadvājaḥ*—Bharadvāja; *sa-śiṣyaḥ*—along with disciples; *reṇukā-sutaḥ*—Paraśurāma; *vasiṣṭhaḥ*—Vasiṣṭha; *indrapramadaḥ*—Indrapramada; *tritaḥ*—Trita; *gṛtsamadaḥ*—Gṛtsamada; *asitaḥ*—Asita; *kakṣīvān*—Kakṣīvān; *gautamaḥ*—Gautama; *atriḥ*—Atri; *kauśikaḥ*—Kauśika; *atha*—now; *sudarśanaḥ*—Sudarśana.
 
 **All the sages like Parvata Muni, Nārada, Dhaumya, Vyāsa, the incarnation of God, Bharadvāja and Paraśurāma and disciples, Vasiṣṭha, Indrapramada, Trita, Gṛtsamada, Asita, Kakṣīvān, Gautama, Atri, Kauśika and Sudarśana were present.**
 

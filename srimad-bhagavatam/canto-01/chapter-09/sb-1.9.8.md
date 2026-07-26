@@ -8,7 +8,7 @@
 > śiṣyair upetā ājagmuḥ\
 > kaśyapāṅgirasādayaḥ
 
-*anye*—many others; *ca*—also; *munayaḥ*—sages; *brahman*—O *brāhmaṇas*; *brahmarāta*—Śukadeva Gosvāmī; *ādayaḥ*—and such others; *amalāḥ*—completely purified; *śiṣyaiḥ*—by the disciples; *upetāḥ*—accompanied; *ājagmuḥ*—arrived; *kaśyapa*—Kaśyapa; *āṅgirasa*—Āṅgirasa; *ādayaḥ*—others.
+*anye*—many others; *ca*—also; *munayaḥ*—sages; *brahman*—O *brāhmaṇas*; *brahmarāta*—Śukadeva Gosvāmī; *ādayaḥ*—and such others; *amalāḥ*—completely purified; *śiṣyaiḥ*—by the disciples; *upetāḥ*—accompanied; *ājagmuḥ*—arrived; *kaśyapa*—Kaśyapa; *āṅgirasa*—Āṅgirasa; *ādayaḥ*—and others.
 
 **And many others like Śukadeva Gosvāmī and other purified souls, Kaśyapa and Āṅgira and others, all accompanied by their respective disciples, arrived there.**
 

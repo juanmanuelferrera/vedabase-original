@@ -8,7 +8,7 @@
 > udaraṁ viditaṁ puṁso\
 > hṛdayaṁ manasaḥ padam
 
-*avyakta*—the impersonal feature; *rasa-sindhūnām*—of the seas and oceans of water; *bhūtānām*—of those who take birth in the material world; *nidhanasya*—of the annihilation; *ca*—also; *udaram*—His belly; *viditam*—is known by the intelligent class of men; *puṁsaḥ*—of the great personality; *hṛdayam*—the heart; *manasaḥ*—of the subtle body; *padam*—the place.
+*avyakta*—impersonal feature; *rasa-sindhūnām*—of the seas and oceans of water; *bhūtānām*—of those who take birth in the material world; *nidhanasya*—of the annihilation; *ca*—also; *udaram*—His belly; *viditam*—is known by the intelligent class of men; *puṁsaḥ*—of the great personality; *hṛdayam*—the heart; *manasaḥ*—of the subtle body; *padam*—place.
 
 **The impersonal feature of the Lord is the abode of great oceans, and the resting place for the materially annihilated living entities is the belly of the Lord. His heart is the abode of the subtle material bodies of living beings. Thus it is known by the intelligent class of men.**
 

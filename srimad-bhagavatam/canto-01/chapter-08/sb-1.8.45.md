@@ -8,7 +8,7 @@
 > striyaś ca sva-puraṁ yāsyan\
 > premṇā rājñā nivāritaḥ
 
-*tām*—all those; *bāḍham*—accepted; *iti*—thus; *upāmantrya*—subsequently informed; *praviśya*—entering; *gajasāhvayam*—the palace of Hastināpura; *striyaḥ ca*—other ladies; *sva-puram*—own residence; *yāsyan*—while starting for; *premṇā*—with love; *rājñā*—by the King; *nivāritaḥ*—stopped.
+*tām*—all those; *bāḍham*—accepted; *iti*—thus; *upāmantrya*—subsequently informed; *praviśya*—entering; *gajasāhvayam*—the palace of Hastināpura; *striyaḥ ca*—other ladies; *sva-puram*—own residence; *yāsyan*—while starting for; *premṇā*—in love; *rājñā*—by the King; *nivāritaḥ*—stopped.
 
 **Thus accepting the prayers of Śrīmatī Kuntīdevī, the Lord subsequently informed other ladies of His departure by entering the palace of Hastināpura. But upon preparing to leave, He was stopped by King Yudhiṣṭhira, who implored Him lovingly.**
 

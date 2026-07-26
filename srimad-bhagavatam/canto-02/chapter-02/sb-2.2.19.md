@@ -8,7 +8,7 @@
 > sva-pārṣṇināpīḍya gudaṁ tato 'nilaṁ\
 > sthāneṣu ṣaṭsūnnamayej jita-klamaḥ
 
-*ittham*—thus, by Brahman realization; *muniḥ*—the philosopher; *tu*—but; *uparamet*—should retire; *vyavasthitaḥ*—well situated; *vijñāna-dṛk*—by scientific knowledge; *vīrya*—strength; *su-randhita*—well regulated; *āśayaḥ*—aim of life; *sva-pārṣṇinā*—with the heel of one's foot; *āpīḍya*—by blocking; *gudam*—the air hole; *tataḥ*—thereafter; *anilam*—life air; *sthāneṣu*—in the places; *ṣaṭsu*—six primary; *unnamayet*—must be lifted; *jita-klamaḥ*—by extinguishing material desires.
+*ittham*—thus, by Brahman realization; *muniḥ*—the philosopher; *tu*—but; *uparamet*—should retire; *vyavasthitaḥ*—well situated; *vijñāna-dṛk*—by scientific knowledge; *vīrya*—strength; *su-randhita*—well regulated; *āśayaḥ*—aim of life; *sva-pārṣṇinā*—with the heel of one's foot; *āpīḍya*—by blocking; *gudam*—air hole; *tataḥ*—thereafter; *anilam*—life air; *sthāneṣu*—in the places; *ṣaṭsu*—six primary; *unnamayet*—must be lifted; *jita-klamaḥ*—by extinguishing material desires.
 
 **By the strength of scientific knowledge, one should be well situated in absolute realization and thus be able to extinguish all material desires and then give up the material body by blocking the air hole [through which stool is evacuated] with the heel of one's foot and lifting the life air from one place to the other in the six primary places.**
 

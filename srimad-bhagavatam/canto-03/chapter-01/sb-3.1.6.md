@@ -10,7 +10,7 @@
 > bhrātur yaviṣṭhasya sutān vibandhūn\
 > praveśya lākṣā-bhavane dadāha
 
-*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *yadā*—when; *tu*—but; *rājā*—King Dhṛtarāṣṭra; *sva-sutān*—his own sons; *asādhūn*—dishonest; *puṣṇan*—nourishing; *na*—never; *dharmeṇa*—on the right path; *vinaṣṭa-dṛṣṭiḥ*—one who has lost his insight; *bhrātuḥ*—of his brother; *yaviṣṭhasya*—younger; *sutān*—sons; *vibandhūn*—having no guardian (father); *praveśya*—made to enter; *lākṣā*—lacquer; *bhavane*—in the house; *dadāha*—set on fire.
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *yadā*—when; *tu*—but; *rājā*—King Dhṛtarāṣṭra; *sva-sutān*—his own sons; *asādhūn*—dishonest; *puṣṇan*—nourished; *na*—never; *dharmeṇa*—on the right path; *vinaṣṭa-dṛṣṭiḥ*—one who has lost his insight; *bhrātuḥ*—of his brother; *yaviṣṭhasya*—younger; *sutān*—sons; *vibandhūn*—having no guardian (father); *praveśya*—made to enter; *lākṣā*—lacquer; *bhavane*—in the house; *dadāha*—set on fire.
 
 **Śrī Śukadeva Gosvāmī said: King Dhṛtarāṣṭra became blind under the influence of impious desires to nourish his dishonest sons, and thus he set fire to the lacquer house to burn his fatherless nephews, the Pāṇḍavas.**
 

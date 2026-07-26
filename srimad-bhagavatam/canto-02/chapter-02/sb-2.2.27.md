@@ -8,7 +8,7 @@
 > yac cit tato 'daḥ kṛpayānidaṁ-vidāṁ\
 > duranta-duḥkha-prabhavānudarśanāt
 
-*na*—never; *yatra*—there are; *śokaḥ*—bereavement; *na*—nor; *jarā*—old age; *na*—nor; *mṛtyuḥ*—death; *na*—nor; *artiḥ*—pains; *na*—nor; *ca*—also; *udvegaḥ*—anxieties; *ṛte*—save and except; *kutaścit*—sometimes; *yat*—because of; *cit*—consciousness; *tataḥ*—therefore; *adaḥ*—compassion; *kṛpayā*—out of heartfelt sympathy; *an-idam-vidām*—of those who are ignorant of the process of devotional service; *duranta*—unsurpassable; *duḥkha*—misery; *prabhava*—repeated birth and death; *anudarśanāt*—by successive experience.
+*na*—never; *yatra*—there are; *śokaḥ*—bereavement; *na*—nor; *jarā*—old age; *na*—nor; *mṛtyuḥ*—death; *na*—nor; *artiḥ*—pains; *na*—nor; *ca*—also; *udvegaḥ*—anxieties; *ṛte*—save and except; *kutaścit*—sometimes; *yat*—because of; *cit*—consciousness; *tataḥ*—therefore; *adaḥ*—compassion; *kṛpayā*—out of heartfelt sympathy; *an-idam-vidām*—of those who are ignorant of the process of devotional service; *duranta*—unsurpassable; *duḥkha*—misery; *prabhava*—aggrandizement; *anudarśanāt*—by successive experience.
 
 **In that planet of Satyaloka, there is neither bereavement, nor old age nor death. There is no pain of any kind and therefore no anxieties, save that sometimes, due to consciousness, there is a feeling of compassion for those who, unaware of the process of devotional service, become subjected to the aggrandizement of unsurpassable miseries in the material world.**
 

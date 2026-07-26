@@ -10,7 +10,7 @@
 > tamo viśīryate mahyaṁ\
 > hareḥ kathayataḥ kathām
 
-*rājā uvāca*—the King said; *samīcīnam*—perfectly right; *vacaḥ*—speeches; *brahman*—O learned *brāhmaṇa*; *sarva-jñasya*—one who knows all; *tava*—your; *anagha*—without any contamination; *tamaḥ*—the darkness of ignorance; *viśīryate*—gradually disappearing; *mahyam*—unto me; *hareḥ*—of the Lord; *kathayataḥ*—as you are speaking; *kathām*—topics.
+*rājā uvāca*—the King said; *samīcīnam*—perfectly right; *vacaḥ*—speeches; *brahman*—O learned *brāhmaṇa*; *sarva-jñasya*—one who knows all; *tava*—your; *anagha*—without any contamination; *tamaḥ*—darkness of ignorance; *viśīryate*—gradually disappearing; *mahyam*—unto me; *hareḥ*—of the Lord; *kathayataḥ*—as you are speaking; *kathām*—topics.
 
 **Mahārāja Parīkṣit said: O learned brāhmaṇa, you know everything because you are without material contamination. Therefore whatever you have spoken to me appears to be perfectly right. Your speeches are gradually destroying the darkness of my ignorance, for you are narrating the topics of the Lord.**
 

@@ -8,7 +8,7 @@
 > ātman yadṛcchayā prāptaṁ\
 > vibubhūṣur upādade
 
-*kālam*—eternal time; *karma*—the fate of the living entity; *svabhāvam*—nature; *ca*—also; *māyā*—potency; *īśaḥ*—the controller; *māyayā*—by the energy; *svayā*—of His own; *ātman* (*ātmani*)—unto His Self; *yadṛcchayā*—independently; *prāptam*—being merged in; *vibubhūṣuḥ*—appearing differently; *upādade*—accepted for being created again.
+*kālam*—eternal time; *karma*—fate of the living entity; *svabhāvam*—nature; *ca*—also; *māyā*—potency; *īśaḥ*—the controller; *māyayā*—by the energy; *svayā*—of His own; *ātman* (*ātmani*)—unto His Self; *yadṛcchayā*—independently; *prāptam*—being merged in; *vibubhūṣuḥ*—appearing differently; *upādade*—accepted for being created again.
 
 **The Lord, who is the controller of all energies, thus creates, by His own potency, eternal time, the fate of all living entities, and their particular nature, for which they were created, and He again merges them independently.**
 

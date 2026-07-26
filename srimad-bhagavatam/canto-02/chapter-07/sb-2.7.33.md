@@ -10,7 +10,7 @@
 > uddīpita-smara-rujāṁ vraja-bhṛd-vadhūnāṁ\
 > hartur hariṣyati śiro dhanadānugasya
 
-*krīḍan*—while engaged in His pastimes; *vane*—in the forest of Vṛndāvana; *niśi*—nocturnal; *niśākara*—the moon; *raśmi-gauryām*—white moonshine; *rāsa-unmukhaḥ*—desiring to dance with; *kala-padāyata*—accompanied by sweet songs; *mūrcchitena*—and melodious music; *uddīpita*—awakened; *smara-rujām*—sexual desires; *vraja-bhṛt*—the inhabitants of Vrajabhūmi; *vadhūnām*—of the wives; *hartuḥ*—of the kidnappers; *hariṣyati*—will vanquish; *śiraḥ*—the head; *dhanada-anugasya*—of the follower of the rich Kuvera.
+*krīḍan*—while engaged in His pastimes; *vane*—in the forest of Vṛndāvana; *niśi*—nocturnal; *niśākara*—the moon; *raśmi-gauryām*—white moonshine; *rāsa-unmukhaḥ*—desiring to dance with; *kala-padāyata*—accompanied by sweet songs; *mūrcchitena*—and melodious music; *uddīpita*—awakened; *smara-rujām*—sex desires; *vraja-bhṛt*—the inhabitants of Vrajabhūmi; *vadhūnām*—of the wives; *hartuḥ*—of the kidnappers; *hariṣyati*—will vanquish; *śiraḥ*—the head; *dhanada-anugasya*—of the follower of the rich Kuvera.
 
 **When the Lord was engaged in His pastimes of the rāsa dance in the forest of Vṛndāvana, enlivening the sexual desires of the wives of the inhabitants of Vṛndāvana by sweet and melodious songs, a demon of the name Śaṅkhacūḍa, a rich follower of the treasurer of heaven [Kuvera], kidnapped the damsels, and the Lord severed his head from his trunk.**
 

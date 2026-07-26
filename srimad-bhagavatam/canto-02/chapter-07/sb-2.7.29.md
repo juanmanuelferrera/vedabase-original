@@ -10,7 +10,7 @@
 > unneṣyati vrajam ato 'vasitānta-kālaṁ\
 > netre pidhāpya sabalo 'nadhigamya-vīryaḥ
 
-*tat*—that; *karma*—activity; *divyam*—superhuman; *iva*—like; *yat*—which; *niśi*—at night; *niḥśayānam*—sleeping carefreely; *dāva-agninā*—by the glare of the forest fire; *śuci-vane*—in the dry forest; *paridahyamāne*—being set ablaze; *unneṣyati*—would deliver; *vrajam*—all the inhabitants of Vraja; *ataḥ*—hence; *avasita*—surely; *anta-kālam*—last moments of life; *netre*—on the eyes; *pidhāpya*—simply by closing; *sa-balaḥ*—along with Baladeva; *anadhigamya*—unfathomable; *vīryaḥ*—prowess.
+*tat*—that; *karma*—activity; *divyam*—superhuman; *iva*—like; *yat*—which; *niśi*—at night; *niḥśayānam*—sleeping carefreely; *dāva-agninā*—by the flare of the forest fire; *śuci-vane*—in the dry forest; *paridahyamāne*—being set ablaze; *unneṣyati*—would deliver; *vrajam*—all the inhabitants of Vraja; *ataḥ*—hence; *avasita*—surely; *anta-kālam*—last moments of life; *netre*—on the eyes; *pidhāpya*—simply by closing; *sa-balaḥ*—along with Baladeva; *anadhigamya*—unfathomable; *vīryaḥ*—prowess.
 
 **On the very night of the day of the chastisement of the Kāliya snake, when the inhabitants of Vrajabhūmi were sleeping carefreely, there was a forest fire ablaze due to dry leaves, and it appeared that all the inhabitants were sure to meet their death. But the Lord, along with Balarama, saved them simply by closing His eyes. Such are the superhuman activities of the Lord.**
 

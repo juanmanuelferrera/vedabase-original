@@ -8,7 +8,7 @@
 > yad āha vaiyāsakir ātma-vidyā-\
 > viśārado nṛpatiṁ sādhu pṛṣṭaḥ
 
-*atha*—therefore; *abhidhehi*—please explain; *aṅga*—O Sūta Gosvāmī; *manaḥ*—mind; *anukūlam*—favorable to our mentality; *prabhāṣase*—you do speak; *bhāgavata*—the great devotee; *pradhānaḥ*—the chief; *yat āha*—what he spoke; *vaiyāsakiḥ*—Śukadeva Gosvāmī; *ātma-vidyā*—transcendental knowledge; *viśāradaḥ*—expert; *nṛpatim*—unto the King; *sādhu*—very good; *pṛṣṭaḥ*—being asked.
+*atha*—therefore; *abhidhehi*—please explain; *aṅga*—O Sūta Gosvāmī; *manaḥ*—mind; *anukūlam*—favorable to our mentality; *prabhāṣase*—you do speak; *bhāgavata*—the great devotee; *pradhānaḥ*—the chief; *yad āha*—what he spoke; *vaiyāsakiḥ*—Śukadeva Gosvāmī; *ātma-vidyā*—transcendental knowledge; *viśāradaḥ*—expert; *nṛpatim*—unto the King; *sādhu*—very good; *pṛṣṭaḥ*—being asked.
 
 **O Sūta Gosvāmī, your words are pleasing to our minds. Please therefore explain this to us as it was spoken by the great devotee Śukadeva Gosvāmī, who is very expert in transcendental knowledge, and who spoke to Mahārāja Parīkṣit upon being asked.**
 

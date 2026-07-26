@@ -11,7 +11,7 @@
 > dravya-śaktiḥ kriyā-śaktir\
 > jñāna-śaktir iti prabho
 
-*saḥ*—the very same thing; *ahaṅkāraḥ*—ego; *iti*—thus; *proktaḥ*—said; *vikurvan*—being transformed; *samabhūt*—became manifested; *tridhā*—in three features; *vaikārikaḥ*—in the mode of goodness; *taijasaḥ*—in the mode of passion; *ca*—and; *tāmasaḥ*—in the mode of ignorance; *ca*—also; *iti*—thus; *yat*—what is; *bhidā*—divided; *dravya-śaktiḥ*—powers that evolve matter; *kriyā-śaktiḥ*—initiation that creates; *jñāna-śaktiḥ*—intelligence that guides; *iti*—thus; *prabho*—O master.
+*saḥ*—the very same thing; *ahaṅkāraḥ*—ego; *iti*—thus; *proktaḥ*—said; *vikurvan*—being transformed; *samabhūt*—became manifested; *tridhā*—in three features; *vaikārikaḥ*—in the mode of goodness; *taijasaḥ*—in the mode of passion; *ca*—and; *tāmasaḥ*—in the mode of ignorance; *ca*—also; *iti*—thus; *yat*—what is; *bhidā*—divided; *dravya-śaktiḥ*—powers that evolve matter; *kriyā-śaktiḥ*—initiation that creates; *jñāna-śaktiḥ*—intelligence that guides; *iti*—thus; *prabho*—the master.
 
 **The self-centered materialistic ego, thus being transformed into three features, becomes known as the modes of goodness, passion and ignorance in three divisions, namely the powers that evolve matter, knowledge of material creations, and the intelligence that guides such materialistic activities. Nārada, you are quite competent to understand this.**
 

@@ -8,7 +8,7 @@
 > tathāpi śocasy ātmānam\
 > akṛtārtha iva prabho
 
-*jijñāsitam*—deliberated fully well; *adhītam*—the knowledge obtained; *ca*—and; *brahma*—the Absolute; *yat*—what; *tat*—that; *sanātanam*—eternal; *tathāpi*—in spite of that; *śocasi*—lamenting; *ātmānam*—unto the self; *akṛta-arthaḥ*—undone; *iva*—like; *prabho*—my dear sir.
+*jijñāsitam*—deliberated fully well; *adhītam*—the knowledge obtained; *ca*—and; *brahma*—the Absolute; *yat*—what; *tat*—that; *sanātanam*—eternal; *tathāpi*—in spite of that; *śocasi*—lamenting; *ātmānam*—unto self; *akṛta-artha*—undone; *iva*—like; *prabho*—my dear sir.
 
 **You have fully delineated the subject of impersonal Brahman as well as the knowledge derived therefrom. In spite of all this, why should you be despondent, thinking that you are undone, my dear prabhu.**
 

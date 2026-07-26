@@ -8,7 +8,7 @@
 > pitaro vibudhā daityā\
 > manuṣyāḥ kratubhir vibhum
 
-*tataḥ*—thereafter; *ca*—also; *manavaḥ*—the Manus, the fathers of mankind; *kāle*—in due course of time; *ījire*—worshiped; *ṛṣayaḥ*—great sages; *apare*—others; *pitaraḥ*—the forefathers; *vibudhāḥ*—the learned scholars; *daityāḥ*—great devotees of the demigods; *manuṣyāḥ*—mankind; *kratubhiḥ vibhum*—by performance of sacrifices to please the Supreme Lord.
+*tataḥ*—thereafter; *ca*—also; *manavaḥ*—the Manus, the fathers of mankind; *kāle*—in due course of time; *ījire*—worshiped; *ṛṣayaḥ*—great sages; *apare*—others; *pitaraḥ*—the forefathers; *vibudhāḥ*—the learned scholars; *daityāḥ*—great devotees of the demigods; *manuṣyāḥ*—mankind; *kratubhiḥ vibhum*—by performance of sacrifices in order to please the Supreme Lord.
 
 **Thereafter, by performance of sacrifice meant to please the Supreme Lord, Manu, the father of mankind, worshiped great sages, learned scholars and forefathers.**
 

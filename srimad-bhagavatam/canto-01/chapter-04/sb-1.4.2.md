@@ -10,7 +10,7 @@
 > kathāṁ bhāgavatīṁ puṇyāṁ\
 > yad āha bhagavāñ chukaḥ
 
-*śaunakaḥ*—Śaunaka; *uvāca*—said; *sūta sūta*—O Sūta Gosvāmī; *mahā-bhāga*—the most fortunate; *vada*—please speak; *naḥ*—unto us; *vadatām*—of those who can speak; *vara*—respected; *kathām*—message; *bhāgavatīm*—of the *Bhāgavatam*; *puṇyām*—pious; *yat*—which; *āha*—said; *bhagavān*—greatly powerful; *śukaḥ*—Śrī Śukadeva Gosvāmī.
+*śaunakaḥ*—Śaunaka; *uvāca*—said; *sūta sūta*—O Sūta Gosvāmī; *mahā-bhāga*—the most fortunate; *vada*—please speak; *naḥ*—unto us; *vadatām*—of those who can speak; *vara*—respectful; *kathām*—message; *bhāgavatīm*—of the *Bhāgavatam*; *puṇyām*—pious; *yat*—which; *āha*—said; *bhagavān*—greatly powerful; *śukaḥ*—Śrī Śukadeva Gosvāmī.
 
 **Śaunaka said: O Sūta Gosvāmī, you are the most fortunate and respected of all those who can speak and recite. Please relate the pious message of Śrīmad-Bhāgavatam, which was spoken by the great powerful sage Śukadeva Gosvāmī.**
 

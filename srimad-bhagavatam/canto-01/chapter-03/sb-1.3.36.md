@@ -8,7 +8,7 @@
 > bhūteṣu cāntarhita ātma-tantraḥ\
 > ṣāḍ-vargikaṁ jighrati ṣaḍ-guṇeśaḥ
 
-*saḥ*—the Supreme Lord; *vā*—alternately; *idam*—this; *viśvam*—manifested universes; *amogha-līlaḥ*—one whose activities are spotless; *sṛjati*—creates; *avati atti*—maintains and annihilates; *na*—not; *sajjate*—is affected by; *asmin*—in them; *bhūteṣu*—in all living beings; *ca*—also; *antarhitaḥ*—living within; *ātma-tantraḥ*—self-independent; *ṣāṭ-vargikam*—endowed with all the potencies of His opulences; *jighrati*—superficially attached, like smelling the fragrance; *ṣaṭ-guṇa-īśaḥ*—master of the six senses.
+*saḥ*—the Supreme Lord; *vā*—alternately; *idam*—this; *viśvam*—manifested universes; *amogha-līlaḥ*—one whose activities are spotless; *sṛjati*—creates; *avati atti*—maintains and annihilates; *na*—not; *sajjate*—is affected by; *asmin*—in them; *bhūteṣu*—in all living beings; *ca*—also; *antarhitaḥ*—living within; *ātma-tantraḥ*—self-independent; *ṣāṭ-vargikam*—endowed with all the potencies of six opulences; *jighrati*—superficially attached, like smelling the fragrance; *ṣaṭ-guṇa-īśaḥ*—master of the six senses.
 
 **The Lord, whose activities are always spotless, is the master of the six senses and is omnipotent and full with six opulences. He creates the manifested universes, maintains them and annihilates them without being in the least affected. He is within every living being and is always independent.**
 

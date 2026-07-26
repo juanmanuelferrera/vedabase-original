@@ -8,7 +8,7 @@
 > ajānann api saṁhāraṁ\
 > prāṇa-kṛcchra upasthite
 
-*atha*—thus; *upaspṛśya*—touching in sanctity; *salilam*—water; *sandadhe*—chanted the hymns; *tat*—that; *samāhitaḥ*—being in concentration; *ajānan*—without knowing; *api*—although; *saṁhāram*—withdrawal; *prāṇa-kṛcchre*—life being put in danger; *upasthite*—being placed in such a position.
+*atha*—thus; *upaspṛśya*—touching in sanctity; *salilam*—water; *sandadhe*—chanted the hymns; *tat*—that; *samāhitaḥ*—being in concentration; *ajānan*—without knowing; *api*—although; *saṁhāram*—withdrawal; *prāṇa-kṛcchre*—life being put into danger; *upasthite*—being placed in such a position.
 
 **Since his life was in danger, he touched water in sanctity and concentrated upon the chanting of the hymns for throwing nuclear weapons, although he did not know how to withdraw such weapons.**
 

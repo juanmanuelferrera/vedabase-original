@@ -8,7 +8,7 @@
 > yat kṛtaḥ kṛṣṇa-sampraśno\
 > yenātmā suprasīdati
 
-*munayaḥ*—O sages; *sādhu*—this is relevant; *pṛṣṭaḥ*—questioned; *aham*—myself; *bhavadbhiḥ*—by all of you; *loka*—the world; *maṅgalam*—welfare; *yat*—because; *kṛtaḥ*—made; *kṛṣṇa*—the Personality of Godhead; *sampraśnaḥ*—relevant question; *yena*—by which; *ātmā*—self; *suprasīdati*—completely pleased.
+*munayaḥ*—of the sages; *sādhu*—this is relevant; *pṛṣṭaḥ*—questioned; *aham*—myself; *bhavadbhiḥ*—by all of you; *loka*—the world; *maṅgalam*—welfare; *yat*—because; *kṛtaḥ*—made; *kṛṣṇa*—the Personality of Godhead; *sampraśnaḥ*—relevant question; *yena*—by which; *ātmā*—self; *suprasīdati*—completely pleased.
 
 **O sages, I have been justly questioned by you. Your questions are worthy because they relate to Lord Kṛṣṇa and so are of relevance to the world's welfare. Only questions of this sort are capable of completely satisfying the self.**
 

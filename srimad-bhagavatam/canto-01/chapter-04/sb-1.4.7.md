@@ -8,7 +8,7 @@
 > saṁvādaḥ samabhūt tāta\
 > yatraiṣā sātvatī śrutiḥ
 
-*katham*—how is it; *vā*—also; *pāṇḍaveyasya*—of the descendant of Pāṇḍu (Parīkṣit); *rājarṣeḥ*—of the king who was a sage; *muninā*—with the *muni*; *saha*—with; *saṁvādaḥ*—discussion; *samabhūt*—took place; *tāta*—O darling; *yatra*—whereupon; *eṣā*—like this; *sātvatī*—transcendental; *śrutiḥ*—essence of the *Vedas.*
+*katham*—how it is; *vā*—also; *pāṇḍaveyasya*—of the descendant of Pāṇḍu (Parīkṣit); *rājarṣeḥ*—of the king who was a sage; *muninā*—with the *muni*; *saha*—with; *saṁvādaḥ*—discussion; *samabhūt*—took place; *tāta*—O darling; *yatra*—whereupon; *eṣā*—like this; *sātvatī*—transcendental; *śrutiḥ*—essence of the *Vedas.*
 
 **How did it so happen that King Parīkṣit met this great sage, making it possible for this great transcendental essence of the Vedas [Bhāgavatam] to be sung to him?**
 

@@ -5,7 +5,7 @@
 > bāhavo loka-pālānāṁ\
 > prāyaśaḥ kṣema-karmaṇām
 
-*bāhavaḥ*—arms; *loka-pālānām*—of the governing deities of the planets, the demigods; *prāyaśaḥ*—almost always; *kṣema-karmaṇām*—of those who are leaders and protectors of the general mass.
+*bāhavaḥ*—arms; *loka-pālānām*—of the governing deities of planets, the demigods; *prāyaśaḥ*—almost always; *kṣema-karmaṇām*—of those who are leaders and protectors of the general mass.
 
 **The Lord's arms are the productive fields for the great demigods and other leaders of the living entities who protect the general mass.**
 

@@ -8,7 +8,7 @@
 > vanādri-nady-udanvanto\
 > hy edhante tava vīkṣitaiḥ
 
-*ime*—all these; *jana-padāḥ*—cities and towns; *svṛddhāḥ*—flourished; *supakva*—nature; *auṣadhi*—herbs; *vīrudhaḥ*—vegetables; *vana*—forests; *adri*—hills; *nadī*—rivers; *udanvantaḥ*—seas; *hi*—certainly; *edhante*—increasing; *tava*—by You; *vīkṣitaiḥ*—seen.
+*ime*—all these; *jana-padāḥ*—cities and towns; *svṛddhāḥ*—flourished; *supakva*—nature; *auṣadhi*—herbs; *vīrudhaḥ*—vegetables; *vana*—forests; *adri*—hills; *nadī*—rivers; *udanvantaḥ*—seas; *hi*—certainly; *edhante*—increasing; *tava*—Your; *vīkṣitaiḥ*—seen.
 
 **All these cities and villages are flourishing in all respects because the herbs and grains are in abundance, the trees are full of fruits, the rivers are flowing, the hills are full of minerals and the oceans full of wealth. And this is all due to Your glancing over them.**
 

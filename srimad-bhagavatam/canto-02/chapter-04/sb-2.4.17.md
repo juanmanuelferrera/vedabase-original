@@ -8,7 +8,7 @@
 > kṣemaṁ na vindanti vinā yad-arpaṇaṁ\
 > tasmai subhadra-śravase namo namaḥ
 
-*tapasvinaḥ*—the great learned sages; *dāna-parāḥ*—the great performer of charity; *yaśasvinaḥ*—the great worker of distinction; *manasvinaḥ*—the great philosophers or mystics; *mantra-vidaḥ*—the great chanter of the Vedic hymns; *su-maṅgalāḥ*—strict followers of Vedic principles; *kṣemam*—fruitful result; *na*—never; *vindanti*—attain; *vinā*—without; *yat-arpaṇam*—dedication; *tasmai*—unto Him; *subhadra*—auspicious; *śravase*—hearing about Him; *namaḥ*—my obeisances; *namaḥ*—again and again.
+*tapasvinaḥ*—the great learned sages; *dāna-parāḥ*—the great performer of charity; *yaśasvinaḥ*—the great worker of distinction; *manasvinaḥ*—the great philosophers or mystics; *mantra-vidaḥ*—the great chanter of the Vedic hymns; *su-maṅgalāḥ*—strict followers of Vedic principles; *kṣemam*—fruitful result; *na*—never; *vindanti*—attain; *vinā*—without; *yad-arpaṇam*—dedication; *tasmai*—unto Him; *subhadra*—auspicious; *śravase*—hearing about Him; *namaḥ*—my obeisances; *namaḥ*—again and again.
 
 **Let me offer my respectful obeisances unto the all-auspicious Lord Śrī Kṛṣṇa again and again because the great learned sages, the great performers of charities, the great workers of distinction, the great philosophers and mystics, the great chanters of the Vedic hymns and the great followers of Vedic principles cannot achieve any fruitful result without dedication of such great qualities to the service of the Lord.**
 

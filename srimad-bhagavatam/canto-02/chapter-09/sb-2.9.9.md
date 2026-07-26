@@ -8,7 +8,7 @@
 > vyapeta-saṅkleśa-vimoha-sādhvasaṁ\
 > sva-dṛṣṭavadbhir puruṣair abhiṣṭutam
 
-*tasmai*—unto him; *sva-lokam*—His own planet or abode; *bhagavān*—the Personality of Godhead; *sabhājitaḥ*—being pleased by the penance of Brahmā; *sandarśayām āsa*—manifested; *param*—the supreme; *na*—not; *yat*—of which; *param*—further supreme; *vyapeta*—completely given up; *saṅkleśa*—five kinds of material afflictions; *vimoha*—without illusion; *sādhvasam*—fear of material existence; *sva-dṛṣṭa-vadbhiḥ*—by those who have perfectly realized the self; *puruṣaiḥ*—by persons; *abhiṣṭutam*—worshiped by.
+*tasmai*—unto him; *sva-lokam*—His own planet or abode; *bhagavān*—the Personality of Godhead; *sabhājitaḥ*—being pleased by the penance of Brahmā; *sandarśayām āsa*—manifested; *param*—the supreme; *na*—not; *yat*—of which; *param*—further supreme; *vyapeta*—completely given up; *saṅkleśa*—five kinds of material afflictions; *vimoha*—without illusion; *sādhvasam*—fearfulness of material existence; *sva-dṛṣṭa-vadbhiḥ*—by those who have perfectly realized the self; *puruṣaiḥ*—by persons; *abhiṣṭutam*—worshiped by.
 
 **The Personality of Godhead, being thus very much satisfied with the penance of Lord Brahmā, was pleased to manifest His personal abode, Vaikuṇṭha, the supreme planet above all others. This transcendental abode of the Lord is adored by all self-realized persons freed from all kinds of miseries and fearfulness of illusory existence.**
 

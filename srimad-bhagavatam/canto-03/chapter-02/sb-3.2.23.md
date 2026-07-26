@@ -8,7 +8,7 @@
 > lebhe gatiṁ dhātry-ucitāṁ tato 'nyaṁ\
 > kaṁ vā dayāluṁ śaraṇaṁ vrajema
 
-*aho*—alas; *bakī*—the she-demon (Pūtanā); *yam*—whom; *stana*—of her breast; *kāla*—deadly; *kūṭam*—poison; *jighāṁsayā*—out of envy; *apāyayat*—nourished; *api*—although; *asādhvī*—unfaithful; *lebhe*—achieved; *gatim*—destination; *dhātrī-ucitām*—just suitable for the nurse; *tataḥ*—beyond whom; *anyam*—other; *kam*—who else; *vā*—certainly; *dayālum*—merciful; *śaraṇam*—shelter; *vrajema*—shall I take.
+*aho*—alas; *bakī*—the she-demon (Pūtanā); *yam*—whom; *stana*—breast; *kāla*—dead; *kūṭam*—poison; *jighāṁsayā*—out of envy; *apāyayat*—nourished; *api*—although; *asādhvī*—unfaithful; *lebhe*—achieved; *gatim*—destination; *dhātrī-ucitām*—just suitable for the nurse; *tataḥ*—beyond whom; *anyam*—other; *kam*—who else; *vā*—certainly; *dayālum*—merciful; *śaraṇam*—shelter; *vrajema*—shall I take.
 
 **Alas, how shall I take shelter of one more merciful than Him who granted the position of mother to a she-demon [Pūtanā] although she was unfaithful and she prepared deadly poison to be sucked from her breast?**
 

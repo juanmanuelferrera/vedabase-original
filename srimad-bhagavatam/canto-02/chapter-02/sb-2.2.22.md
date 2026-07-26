@@ -8,7 +8,7 @@
 > aṣṭādhipatyaṁ guṇa-sannivāye\
 > sahaiva gacchen manasendriyaiś ca
 
-*yadi*—however; *prayāsyan*—maintaining a desire; *nṛpa*—O King; *pārameṣṭhyam*—the governing planet of the material world; *vaihāyasānām*—of the beings known as the Vaihāyasas; *uta*—it is said; *yat*—what is; *vihāram*—place of enjoyment; *aṣṭa-ādhipatyam*—lording it over with eightfold achievements; *guṇa-sannivāye*—in the world of three modes of nature; *saha*—along with; *eva*—certainly; *gacchet*—should go; *manasā*—accompanied by the mind; *indriyaiḥ*—and the senses; *ca*—also.
+*yadi*—however; *prayāsyan*—maintaining a desire; *nṛpa*—O King; *pārameṣṭhyam*—the governing planet of the material world; *vaihāyasānām*—of the beings known as the Vaihāyasas; *uta*—it is said; *yat*—what is; *vihāram*—place of enjoyment; *aṣṭa-ādhipatyam*—lording over with eightfold achievements; *guṇa-sannivāye*—in the world of three modes of nature; *saha*—along with; *eva*—certainly; *gacchet*—should go; *manasā*—accompanied by mind; *indriyaiḥ*—and the senses; *ca*—also.
 
 **O King, if however, a yogi maintains a desire for improved material enjoyments, like transference to the topmost planet of Brahmaloka, or the achievement of the eightfold perfections and traveling in outer space along with the Vaihāyasas, or a situation in one of the millions of planets, then he has to take away with him the mind and the senses materially moulded.**
 

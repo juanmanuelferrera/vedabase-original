@@ -10,7 +10,7 @@
 > veda hy apratiruddhena\
 > prajñānena cikīrṣitam
 
-*brahmā uvāca*—Lord Brahmā said; *bhagavan*—O my Lord; *sarva bhūtānām*—of all living entities; *adhyakṣaḥ*—director; *avasthitaḥ*—situated; *guhām*—within the heart; *veda*—know; *hi*—certainly; *apratiruddhena*—without hindrance; *prajñānena*—by superintelligence; *cikīrṣitam*—endeavors.
+*brahmā uvāca*—Lord Brahmā said; *bhagavan*—O my Lord; *sarva*—all; *bhūtānām*—of all living entities; *adhyakṣaḥ*—director; *avasthitaḥ*—situated; *guhām*—within the heart; *veda*—know; *hi*—certainly; *apratiruddhena*—without hindrance; *prajñānena*—by superintelligence; *cikīrṣitam*—endeavors.
 
 **Lord Brahmā said: O Personality of Godhead, You are situated in every living entity's heart as the supreme director, and therefore You are aware of all endeavors by Your superior intelligence, without any hindrance whatsoever.**
 

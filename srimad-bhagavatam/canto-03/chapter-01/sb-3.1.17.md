@@ -8,7 +8,7 @@
 > anvākramat puṇya-cikīrṣayorvyām\
 > adhiṣṭhito yāni sahasra-mūrtiḥ
 
-*saḥ*—he (Vidura); *nirgataḥ*—after having quit; *kaurava*—the Kuru dynasty; *puṇya*—piety; *labdhaḥ*—so achieved; *gaja-āhvayāt*—from Hastināpura; *tīrtha-padaḥ*—of the Supreme Lord; *padāni*—pilgrimages; *anvākramat*—took shelter; *puṇya*—piety; *cikīrṣayā*—desiring so; *urvyām*—on the Earth; *adhiṣṭhitaḥ*—situated; *yāni*—all those; *sahasra*—thousands; *mūrtiḥ*—forms.
+*saḥ*—he (Vidura); *nirgataḥ*—after having quit; *kaurava*—the Kuru dynasty; *puṇya*—piety; *labdhaḥ*—so achieved; *gaja-āhvayāt*—from Hastināpura; *tīrtha-padaḥ*—of the Supreme Lord; *padāni*—pilgrimages; *anvākramat*—took shelter; *puṇya*—piety; *cikīrṣayā*—desiring so; *urvyām*—of high grade; *adhiṣṭhitaḥ*—situated; *yāni*—all those; *sahasra*—thousands; *mūrtiḥ*—forms.
 
 **By his piety, Vidura achieved the advantages of the pious Kauravas. After leaving Hastināpura, he took shelter of many places of pilgrimages, which are the Lord's lotus feet. With a desire to gain a high order of pious life, he traveled to holy places where thousands of transcendental forms of the Lord are situated.**
 

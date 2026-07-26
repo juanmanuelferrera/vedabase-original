@@ -8,7 +8,7 @@
 > tal labhyate duḥkhavad anyataḥ sukhaṁ\
 > kālena sarvatra gabhīra-raṁhasā
 
-*tasya*—for that purpose; *eva*—only; *hetoḥ*—reason; *prayateta*—should endeavor; *kovidaḥ*—one who is philosophically inclined; *na labhyate*—is not obtained; *yat*—what; *bhramatām*—wandering; *upari adhaḥ*—from top to bottom; *tat*—that; *labhyate*—can be obtained; *duḥkhavat*—like the miseries; *anyataḥ*—as a result of previous work; *sukham*—sense enjoyment; *kālena*—in course of time; *sarvatra*—everywhere; *gabhīra*—subtle; *raṁhasā*—progress.
+*tasya*—for that purpose; *eva*—only; *hetoḥ*—reason; *prayateta*—should endeavor; *kovidaḥ*—one who is philosophically inclined; *na*—not; *labhyate*—is not obtained; *yat*—what; *bhramatām*—wandering; *upari adhaḥ*—from top to bottom; *tat*—that; *labhyate*—can be obtained; *duḥkhavat*—like the miseries; *anyataḥ*—as a result of previous work; *sukham*—sense enjoyment; *kālena*—in course of time; *sarvatra*—everywhere; *gabhīra*—subtle; *raṁhasā*—progress.
 
 **Persons who are actually intelligent and philosophically inclined should endeavor only for that purposeful end which is not obtainable even by wandering from the topmost planet [Brahmaloka] down to the lowest planet [Pātāla]. As far as happiness derived from sense enjoyment is concerned, it can be obtained automatically in course of time, just as in course of time we obtain miseries even though we do not desire them.**
 

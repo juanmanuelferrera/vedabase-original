@@ -8,7 +8,7 @@
 > veda-garbho 'bhyadhāt sākṣād\
 > yad āha harir ātmanaḥ
 
-*etat*—on this matter; *eva*—exactly; *ātma-bhūḥ*—the firstborn (Brahmājī); *rājan*—my dear King; *nāradāya*—unto Nārada Muni; *vipṛcchate*—having inquired about it from; *veda-garbhaḥ*—one who is impregnated with Vedic knowledge from birth; *abhyadhāt*—apprised; *sākṣāt*—directly; *yat āha*—what he spoke; *hariḥ*—the Lord; *ātmanaḥ*—unto His own (Brahmā).
+*etat*—on this matter; *eva*—exactly; *ātma-bhūḥ*—the firstborn (Brahmājī); *rājan*—my dear King; *nāradāya*—unto Nārada Muni; *vipṛcchate*—having inquired about it from; *veda-garbhaḥ*—one who is impregnated with Vedic knowledge from birth; *abhyadhāt*—apprised; *sākṣāt*—directly; *yad āha*—what he spoke; *hariḥ*—the Lord; *ātmanaḥ*—unto His own (Brahmā).
 
 **My dear King, Brahmā, the first-born, on being questioned by Nārada, exactly apprised him on this subject, as it was directly spoken by the Lord to His own son, who is impregnated with Vedic knowledge from his very birth.**
 

@@ -8,7 +8,7 @@
 > tīvreṇa bhakti-yogena\
 > yajeta puruṣaṁ param
 
-*akāmaḥ*—one who has transcended all material desires; *sarva-kāmaḥ*—one who has the sum total of material desires; *vā*—either; *mokṣa-kāmaḥ*—one who desires liberation; *udāra-dhīḥ*—with broader intelligence; *tīvreṇa*—with great force; *bhakti-yogena*—by devotional service to the Lord; *yajeta*—should worship; *puruṣam*—the Lord; *param*—the supreme whole.
+*akāmaḥ*—one who has transcended all material desires; *sarva-kāmaḥ*—one who has the sum total of material desires; *vā*—either; *mokṣa-kāmaḥ*—one who desires liberation; *udāra-dhīḥ*—with broader intelligence; *tīvreṇa*—with great force; *bhakti-yogena*—by devotional service of the Lord; *yajeta*—should worship; *puruṣam*—the Lord; *param*—supreme whole.
 
 **A person who has broader intelligence, who may be full of all material desire or may be without any material desire, and who also desires liberation, by all means must worship the Supreme Whole Personality of Godhead.**
 

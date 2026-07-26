@@ -8,7 +8,7 @@
 > kirīṭinaṁ kuṇḍalinaṁ catur-bhujaṁ\
 > pītāṁśukaṁ vakṣasi lakṣitaṁ śriyā
 
-*bhṛtya*—the servitor; *prasāda*—affection; *abhimukham*—favorably facing; *dṛk*—the very sight; *āsavam*—an intoxication; *prasanna*—very much pleased; *hāsa*—smile; *aruṇa*—reddish; *locana*—eyes; *ānanam*—face; *kirīṭinam*—with helmet; *kuṇḍalinam*—with earrings; *catuḥ-bhujam*—with four hands; *pīta*—yellow; *aṁśukam*—dress; *vakṣasi*—on the chest; *lakṣitam*—marked; *śriyā*—with the goddess of fortune.
+*bhṛtya*—the servitor; *prasāda*—affection; *abhimukham*—favorably facing; *dṛk*—the very sight; *āsavam*—an intoxication; *prasanna*—very much pleased; *hāsa*—smile; *aruṇa*—reddish; *locana*—eyes; *ānanam*—face; *kirīṭinam*—with helmet; *kuṇḍalinam*—with earrings; *catuḥ-bhujam*—with four hands; *pītām*—yellow; *śukam*—dress; *vakṣasi*—on the chest; *lakṣitam*—marked with; *śriyā*—the goddess of fortune.
 
 **The Personality of Godhead, seen leaning favorably towards His loving servitors, His very sight intoxicating and attractive, appeared to be very much satisfied. He had a smiling face decorated with an enchanting reddish hue. He was dressed in yellow robes and wore earrings and a helmet on his head. He had four hands, and His chest was marked with the lines of the goddess of fortune.**
 

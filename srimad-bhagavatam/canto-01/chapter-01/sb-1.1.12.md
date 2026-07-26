@@ -8,7 +8,7 @@
 > devakyāṁ vasudevasya\
 > jāto yasya cikīrṣayā
 
-*sūta*—O Sūta Gosvāmī; *jānāsi*—you know; *bhadram te*—all blessings upon you; *bhagavān*—the Personality of Godhead; *sātvatām*—of the pure devotees; *patiḥ*—the protector; *devakyām*—in the womb of Devakī; *vasudevasya*—by Vasudeva; *jātaḥ*—born of; *yasya*—for the purpose of; *cikīrṣayā*—executing.
+*sūta*—O Sūta Gosvāmī; *jānāsi*—you know; *bhadram te*—all blessings upon you; *bhagavān*—the Personality of Godhead; *sātvatām*—of the pure devotees; *patiḥ*—protector; *devakyām*—in the womb of Devakī; *vasudevasya*—by Vasudeva; *jātaḥ*—born of; *yasya*—for the purpose of; *cikīrṣayā*—executing.
 
 **All blessings upon you, O Sūta Gosvāmī. You know for what purpose the Personality of Godhead appeared in the womb of Devakī as the son of Vāsudeva.**
 

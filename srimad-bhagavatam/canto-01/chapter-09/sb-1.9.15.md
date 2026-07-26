@@ -8,7 +8,7 @@
 > kṛṣṇo 'strī gāṇḍivaṁ cāpaṁ\
 > suhṛt kṛṣṇas tato vipat
 
-*yatra*—where there is; *dharma-sutaḥ*—the son of Dharmarāja; *rājā*—the King; *gadā-pāṇiḥ*—with his mighty club in hand; *vṛkodaraḥ*—Bhīma; *kṛṣṇaḥ*—Arjuna; *astrī*—carrier of the weapon; *gāṇḍivam*—Gāṇḍīva; *cāpam*—bow; *suhṛt*—well-wisher; *kṛṣṇaḥ*—Lord Kṛṣṇa, the Personality of Godhead; *tataḥ*—thereof; *vipat*—reverse.
+*yatra*—where there is; *dharma-sutaḥ*—the son of Dharmarāja; *rājā*—the King; *gadā-pāṇiḥ*—hands with his mighty club; *vṛkodaraḥ*—Bhīma; *kṛṣṇaḥ*—Arjuna; *astrī*—carrier of the weapon; *gāṇḍivam*—Gāṇḍīva; *cāpam*—arrows; *suhṛt*—well-wisher; *kṛṣṇaḥ*—Lord Kṛṣṇa, the Personality of Godhead; *tataḥ*—thereof; *vipat*—reverse.
 
 **O how wonderful is the influence of inevitable time. It is irreversible—otherwise, how can there be reverses in the presence of King Yudhiṣṭhira, the son of the demigod controlling religion, Bhīma, the great fighter with a club, the great bowman Arjuna with his mighty weapon Gāṇḍīva, and above all, the Lord, the direct well-wisher of the Pāṇḍavas?**
 

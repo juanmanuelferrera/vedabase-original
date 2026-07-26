@@ -8,7 +8,7 @@
 > gāṇḍīva-muktair viśikhair upāhare\
 > tvākramya yat snāsyasi dagdha-putrā
 
-*tadā*—at that time only; *śucaḥ*—tears in grief; *te*—your; *pramṛjāmi*—shall wipe away; *bhadre*—O gentle lady; *yat*—when; *brahma-bandhoḥ*—of a degraded *brāhmaṇa*; *śiraḥ*—head; *ātatāyinaḥ*—of the aggressor; *gāṇḍīva-muktaiḥ*—shot by the bow named Gāṇḍīva; *viśikhaiḥ*—by the arrows; *upāhare*—shall present to you; *tvā*—yourself; *ākramya*—riding on it; *yat*—which; *snāsyasi*—take your bath; *dagdha-putrā*—after burning the sons.
+*tadā*—at that time only; *śucaḥ*—tears in grief; *te*—your; *pramṛjāmi*—shall wipe out; *bhadre*—O gentle lady; *yat*—when; *brahma-bandhoḥ*—of a degraded *brāhmaṇa*; *śiraḥ*—head; *ātatāyinaḥ*—of the aggressor; *gāṇḍīva-muktaiḥ*—shot by the bow named Gāṇḍīva; *viśikhaiḥ*—by the arrows; *upāhare*—shall present to you; *tvā*—yourself; *ākramya*—riding on it; *yat*—which; *snāsyasi*—take your bath; *dagdha-putrā*—after burning the sons.
 
 **O gentle lady, when I present you with the head of that brāhmaṇa, after beheading him with arrows from my Gāṇḍīva bow, I shall then wipe the tears from your eyes and pacify you. Then, after burning your sons' bodies, you can take your bath standing on his head.**
 

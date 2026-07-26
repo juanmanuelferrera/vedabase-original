@@ -8,7 +8,7 @@
 > vadanti caitat kavayo yathā-rucaṁ\
 > sa me mukundo bhagavān prasīdatām
 
-*yat-aṅghri*—whose lotus feet; *abhidhyāna*—thinking of, at every second; *samādhi*—trance; *dhautayā*—being washed off; *dhiyā*—by such clean intelligence; *anupaśyanti*—does see by following authorities; *hi*—certainly; *tattvam*—the Absolute Truth; *ātmanaḥ*—of the Supreme Lord and of oneself; *vadanti*—they say; *ca*—also; *etat*—this; *kavayaḥ*—philosophers or learned scholars; *yathā-rucam*—as he thinks; *saḥ*—He; *me*—mine; *mukundaḥ*—Lord Kṛṣṇa (who gives liberation); *bhagavān*—the Personality of Godhead; *prasīdatām*—be pleased with me.
+*yat-aṅghri*—whose lotus feet; *abhidhyāna*—thinking of every second; *samādhi*—trance; *dhautayā*—being washed off; *dhiyā*—by such clean intelligence; *anupaśyanti*—does see by following authorities; *hi*—certainly; *tattvam*—the Absolute Truth; *ātmanaḥ*—of the Supreme Lord and of oneself; *vadanti*—they say; *ca*—also; *etat*—this; *kavayaḥ*—philosophers or learned scholars; *yathā-rucam*—as he thinks; *saḥ*—He; *me*—mine; *mukundaḥ*—Lord Kṛṣṇa (who gives liberation); *bhagavān*—the Personality of Godhead; *prasīdatām*—be pleased with me.
 
 **It is the Personality of Godhead Śrī Kṛṣṇa who gives liberation. By thinking of His lotus feet every second, the devotee in trance can see the Absolute Truth by following in the footsteps of authorities, whereas the learned mental speculators think of Him according to their whims. May the Lord be pleased with me.**
 

@@ -8,7 +8,7 @@
 > pūjayām āsa vidhivan\
 > nāradaṁ sura-pūjitam
 
-*tam abhijñāya*—seeing the good fortune of his (Nārada's) arrival; *sahasā*—all of a sudden; *pratyutthāya*—getting up; *āgatam*—arrived at; *muniḥ*—Vyāsadeva; *pūjayām āsa*—worship; *vidhi-vat*—with the same respect as offered to Vidhi (Brahmā); *nāradam*—to Nārada; *sura-pūjitam*—worshiped by the demigods.
+*tam abhijñāya*—seeing the good fortune of his (Nārada's) arrival; *sahasā*—all of a sudden; *pratyutthāya*—getting up; *āgatam*—arrived at; *muniḥ*—Vyāsadeva; *pūjayām āsa*—worship; *vidhi-vat*—with the same respect as is offered to Vidhi (Brahmā); *nāradam*—to Nārada; *sura-pūjitam*—worshiped by the demigods.
 
 **At the auspicious arrival of Śrī Nārada, Śrī Vyāsadeva got up respectfully and worshiped him, giving him veneration equal to that given to Brahmājī, the creator.**
 

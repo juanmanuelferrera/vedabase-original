@@ -8,7 +8,7 @@
 > harer adbhuta-vīryasya\
 > kathā loka-sumaṅgalāḥ
 
-*etat*—this; *veditum*—to understand; *icchāmi*—I wish; *tattvam*—truth; *tattva-vidām*—of those who are well versed in the Absolute Truth; *vara*—O best; *hareḥ*—of the Lord; *adbhuta-vīryasya*—of the one who possesses wonderful potencies; *kathāḥ*—narrations; *loka*—for all planets; *su-maṅgalāḥ*—auspicious.
+*etat*—this; *veditum*—to understand; *icchāmi*—I wish; *tattvam*—truth; *tattva-vidām*—of those who are well versed in the matter of Absolute Truth; *vara*—the great; *hareḥ*—of the Lord; *adbhuta-vīryasya*—of the one who possesses wonderful potencies; *kathāḥ*—narrations; *loka*—for all planets; *su-maṅgalāḥ*—auspicious.
 
 **The King said: I wish to know. Narrations concerning the Lord, who possesses wonderful potencies, are certainly auspicious for living beings in all planets.**
 

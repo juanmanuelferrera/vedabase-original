@@ -8,7 +8,7 @@
 > puṁsām ekāntataḥ śreyas\
 > tan naḥ śaṁsitum arhasi
 
-*tatra*—thereof; *tatra*—thereof; *añjasā*—made easy; *āyuṣman*—blessed with a long duration of life; *bhavatā*—by your good self; *yat*—whatever; *viniścitam*—ascertained; *puṁsām*—for the people in general; *ekāntataḥ*—absolutely; *śreyaḥ*—ultimate good; *tat*—that; *naḥ*—to us; *śaṁsitum*—to explain; *arhasi*—deserve.
+*tatra*—thereof; *tatra*—thereof; *añjasā*—made easy; *āyuṣman*—blessed with good duration of life; *bhavatā*—by your good self; *yat*—whatever; *viniścitam*—ascertained; *puṁsām*—for the people in general; *ekāntataḥ*—absolutely; *śreyaḥ*—ultimate good; *tat*—that; *naḥ*—to us; *śaṁsitum*—to explain; *arhasi*—deserve.
 
 **Please, therefore, being blessed with many years, explain to us what you ascertain to be the absolute and ultimate good for the people in general.**
 

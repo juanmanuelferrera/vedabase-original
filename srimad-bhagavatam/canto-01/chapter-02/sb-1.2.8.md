@@ -8,7 +8,7 @@
 > notpādayed yadi ratiṁ\
 > śrama eva hi kevalam
 
-*dharmaḥ*—occupation; *svanuṣṭhitaḥ*—executed in terms of one's own position; *puṁsām*—of humankind; *viṣvaksena*—the Personality of Godhead (plenary portion); *kathāsu*—in the message of; *yaḥ*—what is; *na*—not; *utpādayet*—does produce; *yadi*—if; *ratim*—attraction; *śramaḥ*—useless labor; *eva*—only; *hi*—certainly; *kevalam*—entirely.
+*dharmaḥ*—occupation; *svanuṣṭhitaḥ*—executed in terms of one's own position; *puṁsām*—of humankind; *viṣvaksena*—Personality of Godhead (plenary portion); *kathāsu*—in the message of; *yaḥ*—what is; *na*—not; *utpādayet*—does produce; *yadi*—if; *ratim*—attraction; *śramaḥ*—useless labor; *eva*—only; *hi*—certainly; *kevalam*—entirely.
 
 **Duties [dharma] executed by men, regardless of occupation, are only so much useless labor if they do not provoke attraction for the message of the Supreme Lord.**
 

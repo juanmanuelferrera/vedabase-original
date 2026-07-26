@@ -8,7 +8,7 @@
 > mahimaiṣa tato brahman\
 > puruṣasya duratyayaḥ
 
-*saḥ*—He (the Lord); *amṛtasya*—of deathlessness; *abhayasya*—of fearlessness; *īśaḥ*—the controller; *martyam*—dying; *annam*—fruitive action; *yat*—one who has; *atyagāt*—has transcended; *mahimā*—the glories; *eṣaḥ*—of Him; *tataḥ*—therefore; *brahman*—O *brāhmaṇa* Nārada; *puruṣasya*—of the Supreme Personality; *duratyayaḥ*—immeasurable.
+*saḥ*—He (the Lord); *amṛtasya*—of deathlessness; *abhayasya*—of fearlessness; *īśaḥ*—the controller; *martyam*—dying; *annam*—fruitive action; *yat*—one who has; *atyagāt*—has transcended; *mahimā*—glories; *eṣaḥ*—of Him; *tataḥ*—therefore; *brahman*—O *brāhmaṇa* Nārada; *puruṣasya*—of the Supreme Personality; *duratyayaḥ*—immeasurable.
 
 **The Supreme Personality of Godhead is the controller of immortality and fearlessness, and He is transcendental to death and the fruitive actions of the material world. O Nārada, O brāhmaṇa, it is therefore difficult to measure the glories of the Supreme Person.**
 

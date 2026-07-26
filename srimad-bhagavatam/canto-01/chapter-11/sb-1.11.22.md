@@ -8,7 +8,7 @@
 > āśvāsya cāśvapākebhyo\
 > varaiś cābhimatair vibhuḥ
 
-*prahvā*—by bowing His head; *abhivādana*—by greeting with words; *āśleṣa*—embracing; *kara-sparśa*—shaking hands; *smita-īkṣaṇaiḥ*—by a glancing smile; *āśvāsya*—by encouragement; *ca*—and; *āśvapākebhyaḥ*—down to the lowest rank of dog-eaters; *varaiḥ*—by benedictions; *ca*—also; *abhimataiḥ*—as desired by; *vibhuḥ*—the Almighty.
+*prahvā*—by bowing His head; *abhivādana*—by greeting with words; *āśleṣa*—embracing; *kara-sparśa*—shaking hands with; *smita-īkṣaṇaiḥ*—by a glancing smile; *āśvāsya*—by encouragement; *ca*—and; *āśvapākebhyaḥ*—down to the lowest rank of dog-eaters; *varaiḥ*—by benedictions; *ca*—also; *abhimataiḥ*—as desired by; *vibhuḥ*—the Almighty.
 
 **The Almighty Lord greeted everyone present by bowing His head, exchanging greetings, embracing, shaking hands, looking and smiling, giving assurances and awarding benedictions, even to the lowest in rank.**
 

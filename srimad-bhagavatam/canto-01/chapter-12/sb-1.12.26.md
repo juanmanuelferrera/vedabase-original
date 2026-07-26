@@ -8,7 +8,7 @@
 > nigrahītā kaler eṣa\
 > bhuvo dharmasya kāraṇāt
 
-*rāja-ṛṣīṇām*—of kings as good as sages; *janayitā*—producer; *śāstā*—chastiser; *ca*—and; *utpatha-gāminām*—of the upstarts; *nigrahītā*—molester; *kaleḥ*—of the quarrelsome; *eṣaḥ*—this; *bhuvaḥ*—of the world; *dharmasya*—of religion; *kāraṇāt*—on account of.
+*rāja-ṛṣīṇām*—of kings as good as sages; *janayitā*—producer; *śāstā*—chastiser; *ca*—and; *utpatha-gāminām*—of the upstarts; *nigrahītā*—molester; *kaleḥ*—of the quarrelsome; *eṣaḥ*—this; *bhuvaḥ*—of the world; *dharmasya*—of religiosity; *kāraṇāt*—on account of.
 
 **This child will be the father of kings who will be like sages. For world peace and for the sake of religion, he will be the chastiser of the upstarts and the quarrelsome.**
 

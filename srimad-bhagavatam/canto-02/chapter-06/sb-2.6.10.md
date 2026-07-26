@@ -8,7 +8,7 @@
 > nāḍyo nada-nadīnāṁ ca\
 > gotrāṇām asthi-saṁhatiḥ
 
-*parābhūteḥ*—of frustration; *adharmasya*—of immorality; *tamasaḥ*—of ignorance; *ca*—and; *api*—as also; *paścimaḥ*—the back; *nāḍyaḥ*—of the intestines; *nada*—of the great rivers; *nadīnām*—of the rivulets; *ca*—also; *gotrāṇām*—of the mountains; *asthi*—bones; *saṁhatiḥ*—accumulation.
+*parābhūteḥ*—of frustration; *adharmasya*—of immorality; *tamasaḥ*—of ignorance; *ca*—and; *api*—as also; *paścimaḥ*—back; *nāḍyaḥ*—of the intestines; *nada*—of the great rivers; *nadīnām*—of the rivulets; *ca*—also; *gotrāṇām*—of the mountains; *asthi*—bones; *saṁhatiḥ*—accumulation.
 
 **The back side of the Lord is the place for all kinds of frustrations and ignorance, as well as for immorality; from His veins flow the great rivers and rivulets, and on His bones are stacked the great mountains.**
 

@@ -10,7 +10,7 @@
 > lokān ghnatāṁ mati-vimoham atipralobhaṁ\
 > veṣaṁ vidhāya bahu bhāṣyata aupadharmyam
 
-*deva-dviṣām*—of those who were envious of the devotees of the Lord; *nigama*—the *Vedas*; *vartmani*—on the path of; *niṣṭhitānām*—of the well situated; *pūrbhiḥ*—by rockets; *mayena*—made by the great scientist Maya; *vihitābhiḥ*—made by; *adṛśya-tūrbhiḥ*—unseen in the sky; *lokān*—the different planets; *ghnatām*—of the killers; *mati-vimoham*—bewilderment of the mind; *atipralobham*—very attractive; *veṣam*—dress; *vidhāya*—having done so; *bahu bhāṣyate*—will talk very much; *aupadharmyam*—subreligious principles.
+*deva-dviṣām*—of those who were envious of the devotees of the Lord; *nigama*—the *Vedas*; *vartmani*—on the path of; *niṣṭhitānām*—of the well situated; *pūrbhiḥ*—by rockets; *mayena*—made by the great scientist Maya; *vihitābhiḥ*—made by; *adṛśya-tūrbhiḥ*—unseen in the sky; *lokān*—the different planets; *ghnatām*—of the killers; *mati-vimoham*—bewilderment of the mind; *atipralobham*—very attractive; *veṣam*—dress; *vidhāya*—having done so; *bahu bhāṣyate*—would talk very much; *aupadharmyam*—subreligious principles.
 
 **When the atheists, after being well versed in the Vedic scientific knowledge, would annihilate inhabitants of different planets, flying unseen in the sky on well-built rockets prepared by the great scientist Maya, the Lord would bewilder their minds by dressing Himself attractively as Buddha and would preach on subreligious principles.**
 

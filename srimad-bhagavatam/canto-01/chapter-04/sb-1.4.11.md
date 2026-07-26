@@ -10,7 +10,7 @@
 > kathaṁ sa vīraḥ śriyam aṅga dustyajāṁ\
 > yuvaiṣatotsraṣṭum aho sahāsubhiḥ
 
-*namanti*—bow down; *yat-pāda*—whose feet; *niketam*—under; *ātmanaḥ*—own; *śivāya*—welfare; *hānīya*—used to bring about; *dhanāni*—wealth; *śatravaḥ*—enemies; *katham*—for what reason; *saḥ*—he; *vīraḥ*—the chivalrous; *śriyam*—opulences; *aṅga*—O Sūta Gosvāmī; *dustyajām*—insuperable; *yuvā*—in full youth; *aiṣata*—desired; *utsraṣṭum*—to give up; *aho*—exclamation; *saha*—with; *asubhiḥ*—life.
+*namanti*—bow down; *yat-pāda*—whose feet; *niketam*—under; *ātmanaḥ*—own; *śivāya*—welfare; *hānīya*—used to bring about; *dhanāni*—wealth; *śatravaḥ*—enemies; *katham*—for what reason; *saḥ*—he; *vīraḥ*—the chivalrous; *śriyam*—opulences; *aṅga*—O; *dustyajām*—insuperable; *yuvā*—in full youth; *aiṣata*—desired; *utsraṣṭum*—to give up; *aho*—exclamation; *saha*—with; *asubhiḥ*—life.
 
 **He was such a great emperor that all his enemies would come and bow down at his feet and surrender all their wealth for their own benefit. He was full of youth and strength, and he possessed insuperable kingly opulences. Why did he want to give up everything, including his life?**
 

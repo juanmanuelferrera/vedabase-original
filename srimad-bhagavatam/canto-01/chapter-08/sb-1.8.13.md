@@ -8,7 +8,7 @@
 > sudarśanena svāstreṇa\
 > svānāṁ rakṣāṁ vyadhād vibhuḥ
 
-*vyasanam*—great danger; *vīkṣya*—having observed; *tat*—that; *teṣām*—their; *ananya*—no other; *viṣaya*—means; *ātmanām*—thus inclined; *sudarśanena*—by the wheel of Śrī Kṛṣṇa; *sva-astreṇa*—by the weapon; *svānām*—of His own devotees; *rakṣām*—protection; *vyadhāt*—did it; *vibhuḥ*—the Almighty.
+*vyasanam*—great danger; *vīkṣya*—having observed; *tat*—that; *teṣām*—their; *ananya*—any other; *viṣaya*—means; *ātmanām*—thus inclined; *sudarśanena*—by the wheel of Śrī Kṛṣṇa; *sva-astreṇa*—by the weapon; *svānām*—of His own devotees; *rakṣām*—protection; *vyadhāt*—did it; *vibhuḥ*—the Almighty.
 
 **The Almighty Personality of Godhead Śrī Kṛṣṇa, having observed that a great danger was befalling His unalloyed devotees who were fully surrendered souls, at once took up His Sudarśana disc in order to protect them.**
 

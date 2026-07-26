@@ -8,7 +8,7 @@
 > kumatim aharad ātma-vidyayā yaś\
 > caraṇa-ratiḥ paramasya tasya me 'stu
 
-*vyavahita*—standing at a distance; *pṛtanā*—soldiers; *mukham*—faces; *nirīkṣya*—by looking upon; *sva-jana*—kinsmen; *vadhāt*—from the act of killing; *vimukhasya*—one who is reluctant; *doṣa-buddhyā*—by polluted intelligence; *kumatim*—poor fund of knowledge; *aharat*—eradicated; *ātma-vidyayā*—by transcendental knowledge; *yaḥ*—He who; *caraṇa*—to the feet; *ratiḥ*—attraction; *paramasya*—of the Supreme; *tasya*—for Him; *me*—my; *astu*—let there be.
+*vyavahita*—standing at a distance; *pṛtanā*—soldiers; *mukham*—faces; *nirīkṣya*—by looking upon; *sva-jana*—kinsmen; *vadhāt*—from the act of killing; *vimukhasya*—one who is reluctant; *doṣa-buddhyā*—by polluted intelligence; *kumatim*—poor fund of knowledge; *aharat*—eradicated; *ātma-vidyayā*—by transcendental knowledge; *yaḥ*—the person; *caraṇa*—feet; *ratiḥ*—attraction; *paramasya*—of the Supreme; *tasya*—for Him; *me*—my; *astu*—let there be.
 
 **When Arjuna was seemingly polluted by ignorance upon observing the soldiers and commanders before him on the battlefield, the Lord eradicated his ignorance by delivering transcendental knowledge. May His lotus feet always remain the object of my attraction.**
 

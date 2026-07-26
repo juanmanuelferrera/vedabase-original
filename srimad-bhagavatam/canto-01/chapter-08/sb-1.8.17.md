@@ -8,7 +8,7 @@
 > prayāṇābhimukhaṁ kṛṣṇam\
 > idam āha pṛthā satī
 
-*brahma-tejaḥ*—the radiation of the *brahmāstra*; *vinirmuktaiḥ*—being saved from; *ātma-jaiḥ*—along with her sons; *saha*—with; *kṛṣṇayā*—Draupadī; *prayāṇa*—outgoing; *abhimukham*—towards; *kṛṣṇam*—unto Lord Kṛṣṇa; *idam*—this; *āha*—said; *pṛthā*—Kuntī; *satī*—chaste, devoted to the Lord.
+*brahma-tejaḥ*—radiation of the *brahmāstra*; *vinirmuktaiḥ*—being saved from; *ātma-jaiḥ*—along with her sons; *saha*—with; *kṛṣṇayā*—Draupadī; *prayāṇa*—outgoing; *abhimukham*—towards; *kṛṣṇam*—unto Lord Kṛṣṇa; *idam*—this; *āha*—said; *pṛthā*—Kuntī; *satī*—chaste, devoted to the Lord.
 
 **Thus saved from the radiation of the brahmāstra, Kuntī, the chaste devotee of the Lord, and her five sons and Draupadī, addressed Lord Kṛṣṇa as He started for home.**
 

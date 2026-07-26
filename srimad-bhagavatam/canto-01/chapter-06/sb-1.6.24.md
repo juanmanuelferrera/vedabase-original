@@ -8,7 +8,7 @@
 > prajā-sarga-nirodhe 'pi\
 > smṛtiś ca mad-anugrahāt
 
-*matiḥ*—intelligence; *mayi*—devoted to Me; *nibaddhā*—engaged; *iyam*—this; *na*—never; *vipadyeta*—separate; *karhicit*—at any time; *prajā*—living beings; *sarga*—at the time of creation; *nirodhe*—also at the time of annihilation; *api*—even; *smṛtiḥ*—remembrance; *ca*—and; *mat*—Mine; *anugrahāt*—by the mercy of.
+*matiḥ*—intelligence; *mayi*—devoted to Me; *nibaddhā*—engaged; *iyam*—thus; *na*—never; *vipadyeta*—separate; *karhicit*—at any time; *prajā*—living beings; *sarga*—at the time of creation; *nirodhe*—also at the time of annihilation; *api*—even; *smṛtiḥ*—remembrance; *ca*—and; *mat*—Mine; *anugrahāt*—by the mercy of.
 
 **Intelligence engaged in My devotion cannot be thwarted at any time. Even at the time of creation, as well as at the time of annihilation, your remembrance will continue by My mercy.**
 

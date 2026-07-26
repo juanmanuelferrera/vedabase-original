@@ -8,7 +8,7 @@
 > praṇemuḥ pāṇḍavā bhīṣmaṁ\
 > sānugāḥ saha cakriṇā
 
-*dṛṣṭvā*—thus seeing; *nipatitam*—lying down; *bhūmau*—on the ground; *divaḥ*—from the sky; *cyutam*—fallen; *iva*—like; *amaram*—demigod; *praṇemuḥ*—bowed down; *pāṇḍavāḥ*—the sons of Pāṇḍu; *bhīṣmam*—unto Bhīṣma; *sa-anugāḥ*—with the younger brothers; *saha*—also with; *cakriṇā*—the Lord (carrying the disc).
+*dṛṣṭvā*—thus seeing; *nipatitam*—lying down; *bhūmau*—on the ground; *divaḥ*—from the sky; *cyutam*—fallen; *iva*—like; *amaram*—demigod; *praṇemuḥ*—bowed down; *pāṇḍavāḥ*—the sons of Pāṇḍu; *bhīṣmam*—unto Bhīṣma; *sa-anugāḥ*—with younger brothers; *saha*—also with; *cakriṇā*—the Lord (carrying the disc).
 
 **Seeing him [Bhīṣma] lying on the ground, like a demigod fallen from the sky, the Pāṇḍava King Yudhiṣṭhira, along with his younger brothers and Lord Kṛṣṇa, bowed down before him.**
 

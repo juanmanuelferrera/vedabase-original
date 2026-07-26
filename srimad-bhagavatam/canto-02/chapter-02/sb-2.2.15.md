@@ -8,7 +8,7 @@
 > kāle ca deśe ca mano na sajjayet\
 > prāṇān niyacchen manasā jitāsuḥ
 
-*sthiram*—without being disturbed; *sukham*—comfortable; *ca*—also; *āsanam*—sitting accommodation; *āsthitaḥ*—being situated; *yatiḥ*—the sage; *yadā*—whenever; *jihāsuḥ*—desires to give up; *imam*—this; *aṅga*—O King; *lokam*—this body; *kāle*—in time; *ca*—and; *deśe*—in a proper place; *ca*—also; *manaḥ*—the mind; *na*—not; *sajjayet*—may not be perplexed; *prāṇān*—the senses; *niyacchet*—must control; *manasā*—by the mind; *jita-asuḥ*—conquering the life air.
+*sthiram*—without being disturbed; *sukham*—comfortable; *ca*—also; *āsanam*—sitting accommodation; *āsthitaḥ*—being situated; *yatiḥ*—the sage; *yadā*—whenever; *jihāsuḥ*—desires to give up; *imam*—this; *aṅga*—O King; *lokam*—this body; *kāle*—in time; *ca*—and; *deśe*—in proper place; *ca*—also; *manaḥ*—mind; *na*—not; *sajjayet*—may not be perplexed; *prāṇān*—the senses; *niyacchet*—must control; *manasā*—by the mind; *jita-asuḥ*—conquering the life air.
 
 **O King, whenever the yogi desires to leave this planet of human beings, he should not be perplexed about the proper time or place, but should comfortably sit without being disturbed and, regulating the life air, should control the senses by the mind.**
 

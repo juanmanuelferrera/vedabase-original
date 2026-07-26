@@ -8,7 +8,7 @@
 > nirūpito bālaka eva yogināṁ\
 > śuśrūṣaṇe prāvṛṣi nirvivikṣatām
 
-*aham*—I; *purā*—formerly; *atīta-bhave*—in the previous millennium; *abhavam*—became; *mune*—O *muni*; *dāsyāḥ*—of the maidservant; *tu*—but; *kasyāścana*—certain; *veda-vādinām*—of the followers of Vedānta; *nirūpitaḥ*—engaged; *bālakaḥ*—boy servant; *eva*—only; *yoginām*—of the devotees; *śuśrūṣaṇe*—in the service of; *prāvṛṣi*—during the four months of the rainy season; *nirvivikṣatām*—living together.
+*aham*—I; *purā*—formerly; *atīta-bhave*—in the previous millennium; *abhavam*—became; *mune*—of the *muni*; *dāsyāḥ*—of the maidservant; *tu*—but; *kasyāścana*—certain; *veda-vādinām*—of the followers of Vedānta; *nirūpitaḥ*—engaged; *bālakaḥ*—boy servant; *eva*—only; *yoginām*—of the devotees; *śuśrūṣaṇe*—in the service of; *prāvṛṣi*—during the four months of the rainy season; *nirvivikṣatām*—living together.
 
 **O Muni, in the last millennium I was born as the son of a certain maidservant engaged in the service of brāhmaṇas who were following the principles of Vedānta. When they were living together during the four months of the rainy season, I was engaged in their personal service.**
 

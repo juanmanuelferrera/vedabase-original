@@ -6,7 +6,7 @@
 > hena-kāle āilā tathā bhavānanda rāya\
 > cāri-putra-saṅge paḍe mahāprabhura pāya
 
-*hena-kāle*—at this time; *āilā*—came; *tathā*—there; *bhavānanda rāya*—Bhavānanda Rāya; *cāri-putra-saṅge*—with four of his sons; *paḍe*—fell down; *mahāprabhura pāya*—at the lotus feet of Śrī Caitanya Mahāprabhu.
+*hena-kāle*—at this time; *āilā*—came; *tathā*—there; *bhavānanda rāya*—Bhavānanda Rāya; *cāri-putra-saṅge*—with his four sons; *paḍe*—fell down; *mahāprabhura pāya*—at the lotus feet of Śrī Caitanya Mahāprabhu.
 
 **At this time Bhavānanda Rāya appeared with his four sons, and all of them fell down at the lotus feet of Śrī Caitanya Mahāprabhu.**
 

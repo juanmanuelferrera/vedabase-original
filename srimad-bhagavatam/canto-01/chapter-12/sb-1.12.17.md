@@ -8,7 +8,7 @@
 > na sandeho mahā-bhāga\
 > mahā-bhāgavato mahān
 
-*tasmāt*—therefore; *nāmnā*—by the name; *viṣṇu-rātaḥ*—protected by Viṣṇu, the Personality of Godhead; *iti*—thus; *loke*—in all the planets; *bhaviṣyati*—shall become well known; *na*—no; *sandehaḥ*—doubts; *mahā-bhāga*—most fortunate; *mahā-bhāgavataḥ*—the first-class devotee of the Lord; *mahān*—qualified by all good qualities.
+*tasmāt*—therefore; *nāmnā*—by the name; *viṣṇu-rātaḥ*—protected by Viṣṇu, the Personality of Godhead; *iti*—thus; *loke*—in all the planets; *bhaviṣyati*—shall become well known; *mahā-bhāga*—most fortunate; *na*—no; *sandehaḥ*—doubts; *mahā-bhāgavataḥ*—the first-class devotee of the Lord; *mahān*—qualified by all good qualities.
 
 **For this reason this child will be well known in the world as one who is protected by the Personality of Godhead. O most fortunate one, there is no doubt that this child will become a first-class devotee and will be qualified with all good qualities.**
 

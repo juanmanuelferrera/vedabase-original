@@ -8,7 +8,7 @@
 > triḥ-sapta-kṛtvaḥ kupito\
 > niḥ-kṣatrām akaron mahīm
 
-*avatāre*—in the incarnation of the Lord; *ṣoḍaśame*—the sixteenth; *paśyan*—seeing; *brahma-druhaḥ*—disobedient to the orders of the *brāhmaṇas*; *nṛpān*—the kingly order; *triḥ-sapta*—thrice seven times; *kṛtvaḥ*—had done; *kupitaḥ*—being engaged; *niḥ*—negation; *kṣatrām*—the administrative class; *akarot*—did perform; *mahīm*—the earth.
+*avatāre*—in the incarnation of the Lord; *ṣoḍaśame*—sixteenth; *paśyan*—seeing; *brahma-druhaḥ*—disobedient to the orders of the *brāhmaṇas*; *nṛpān*—the kingly order; *triḥ-sapta*—thrice seven times; *kṛtvaḥ*—had done; *kupitaḥ*—being engaged; *niḥ*—negation; *kṣatrām*—the administrative class; *akarot*—did perform; *mahīm*—the earth.
 
 **As Bhṛgupati, the sixteenth incarnation of the Godhead, the Lord annihilated the administrative class [kṣatriyas] twenty-one times, being angry with them because of their rebellion against the brāhmaṇas [the intelligent class].**
 

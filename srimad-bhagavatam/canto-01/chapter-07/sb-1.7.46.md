@@ -8,7 +8,7 @@
 > vṛjinaṁ nārhati prāptuṁ\
 > pūjyaṁ vandyam abhīkṣṇaśaḥ
 
-*tat*—therefore; *dharma-jña*—one who is aware of the principles of religion; *mahā-bhāga*—the most fortunate; *bhavadbhiḥ*—by your good self; *gauravam*—glorified; *kulam*—the family; *vṛjinam*—that which is painful; *na*—not; *arhati*—does deserve; *prāptum*—for obtaining; *pūjyam*—the worshipable; *vandyam*—respectable; *abhīkṣṇaśaḥ*—constantly.
+*tat*—therefore; *dharma-jña*—one who is aware of the principles of religion; *mahā-bhāga*—the most fortunate; *bhavadbhiḥ*—by your good self; *gauravam*—glorified; *kulam*—the family; *vṛjinam*—that which is painful; *na*—not; *arhati*—does deserve; *prāptum*—for obtaining; *pūjyam*—the worshipful; *vandyam*—respectful; *abhīkṣṇaśaḥ*—constantly.
 
 **O most fortunate one who knows the principles of religion, it is not good for you to cause grief to glorious family members who are always respectable and worshipful.**
 

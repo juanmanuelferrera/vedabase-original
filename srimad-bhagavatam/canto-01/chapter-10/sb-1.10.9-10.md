@@ -15,7 +15,7 @@
 > na sehire vimuhyanto\
 > virahaṁ śārṅga-dhanvanaḥ
 
-*subhadrā*—the sister of Kṛṣṇa; *draupadī*—the wife of the Pāṇḍavas; *kuntī*—the mother of the Pāṇḍavas; *virāṭa-tanayā*—the daughter of Virāṭa (Uttarā); *tathā*—also; *gāndhārī*—the mother of Duryodhana; *dhṛtarāṣṭraḥ*—the father of Duryodhana; *ca*—and; *yuyutsuḥ*—the son of Dhṛtarāṣṭra by his *vaiśya* wife; *gautamaḥ*—Kṛpācārya; *yamau*—the twin brothers Nakula and Sahadeva; *vṛkodaraḥ*—Bhīma; *ca*—and; *dhaumyaḥ*—Dhaumya; *ca*—and; *striyaḥ*—also other ladies of the palace; *matsya-sutā-ādayaḥ*—the daughter of a fisherman (Satyavatī, Bhīṣma's stepmother); *na*—could not; *sehire*—tolerate; *vimuhyantaḥ*—almost fainting; *viraham*—separation; *śārṅga-dhanvanaḥ*—of Śrī Kṛṣṇa, who bears a conch in His hand.
+*subhadrā*—sister of Kṛṣṇa; *draupadī*—the wife of the Pāṇḍavas; *kuntī*—mother of the Pāṇḍavas; *virāṭa-tanayā*—the daughter of Virāṭa (Uttarā); *tathā*—also; *gāndhārī*—the mother of Duryodhana; *dhṛtarāṣṭraḥ*—the father of Duryodhana; *ca*—and; *yuyutsuḥ*—the son of Dhṛtarāṣṭra by his *vaiśya* wife; *gautamaḥ*—Kṛpācārya; *yamau*—the twin brothers Nakula and Sahadeva; *vṛkodaraḥ*—Bhīma; *ca*—and; *dhaumyaḥ*—Dhaumya; *ca*—and; *striyaḥ*—also other ladies of the palace; *matsya-sutā-ādayaḥ*—the daughter of a fisherman (Satyavatī, Bhīṣma's stepmother); *na*—could not; *sehire*—tolerate; *vimuhyantaḥ*—almost fainting; *viraham*—separation; *śārṅga-dhanvanaḥ*—of Śrī Kṛṣṇa, who bears a conch in His hand.
 
 **At that time Subhadrā, Draupadī, Kuntī, Uttarā, Gāndhārī, Dhṛtarāṣṭra, Yuyutsu, Kṛpācārya, Nakula, Sahadeva, Bhīmasena, Dhaumya and Satyavatī all nearly fainted because it was impossible for them to bear separation from Lord Kṛṣṇa.**
 

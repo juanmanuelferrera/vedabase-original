@@ -11,7 +11,7 @@
 > ātmānaṁ krīḍayan krīḍan\
 > karoti vikaroti ca
 
-*yathā*—as; *gopāyati*—maintains; *vibhuḥ*—the great; *yathā*—as; *saṁyacchate*—winds up; *punaḥ*—again; *yām yām*—as; *śaktim*—energies; *upāśritya*—by employing; *puru-śaktiḥ*—the all-powerful; *paraḥ*—the Supreme; *pumān*—Personality of Godhead; *ātmānam*—plenary expansion; *krīḍayan*—having engaged them; *krīḍan*—as also personally being engaged; *karoti*—does them; *vikaroti*—and causes to be done; *ca*—and.
+*yathā*—as; *gopāyati*—maintains; *vibhuḥ*—the great; *yathā*—as; *saṁyacchate*—winds up; *punaḥ*—again; *yām yām*—as; *śaktim*—energies; *upāśritya*—by employing; *puru-śaktiḥ*—the all-powerful; *paraḥ*—the Supreme; *pumān*—Personality of Godhead; *ātmānam*—plenary expansion; *krīḍayan*—having engaged them; *krīḍan*—as also personally being engaged; *karoti*—do them; *vikaroti*—and causes to be done; *ca*—and.
 
 **Kindly describe how the Supreme Lord, who is all-powerful, engages His different energies and different expansions in maintaining and again winding up the phenomenal world in the sporting spirit of a player.**
 

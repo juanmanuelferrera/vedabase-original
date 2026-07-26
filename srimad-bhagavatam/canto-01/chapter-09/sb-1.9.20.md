@@ -8,7 +8,7 @@
 > akaroḥ sacivaṁ dūtaṁ\
 > sauhṛdād atha sārathim
 
-*yam*—the person; *manyase*—you think; *mātuleyam*—maternal cousin; *priyam*—very dear; *mitram*—friend; *suhṛt-tamam*—ardent well-wisher; *akaroḥ*—executed; *sacivam*—counsel; *dūtam*—messenger; *sauhṛdāt*—by good will; *atha*—thereupon; *sārathim*—charioteer.
+*yam*—the person; *manyase*—you think; *mātuleyam*—maternal cousin; *priyam*—very dear; *mitram*—friend; *suhṛt-tamam*—ardent well-wisher; *akaroḥ*—executed; *sacivam*—counsel; *dūtam*—messenger; *sauhṛdāt*—by good will; *atha*—thereupon; *sārathim*—character.
 
 **O King, that personality whom, out of ignorance only, you thought to be your maternal cousin, your very dear friend, well-wisher, counsellor, messenger, benefactor, etc., is that very Personality of Godhead Śrī Kṛṣṇa.**
 

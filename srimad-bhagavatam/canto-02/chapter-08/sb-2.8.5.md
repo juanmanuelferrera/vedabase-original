@@ -8,7 +8,7 @@
 > dhunoti śamalaṁ kṛṣṇaḥ\
 > salilasya yathā śarat
 
-*praviṣṭaḥ*—thus being entered; *karṇa-randhreṇa*—through the holes of the ears; *svānām*—according to one's liberated position; *bhāva*—constitutional relationship; *saraḥ-ruham*—the lotus flower; *dhunoti*—cleanses; *śamalam*—material qualities like lust, anger, avarice and hankering; *kṛṣṇaḥ*—Lord Kṛṣṇa, the Supreme Personality of Godhead; *salilasya*—of the reservoir of waters; *yathā*—as it were; *śarat*—the autumn season.
+*praviṣṭaḥ*—thus being entered; *karṇa-randhreṇa*—through the holes of the ears; *svānām*—according to one's liberated position; *bhāva*—constitutional relationship; *saraḥ-ruham*—the lotus flower; *dhunoti*—cleanses; *śamalam*—material qualities like lust, anger, avarice, hankering, etc.; *kṛṣṇaḥ*—Lord Kṛṣṇa, the Supreme Personality of Godhead; *salilasya*—of the reservoir of waters; *yathā*—as it were; *śarat*—the autumn season.
 
 **The sound incarnation of Lord Kṛṣṇa, the Supreme Soul [i.e. Śrīmad-Bhāgavatam], entering into the heart of a self-realized devotee, sits on the lotus flower of his loving relationship and thus cleanses the dust of material association, such as lust, anger, hankerings, etc., and acts like the autumnal rains upon the pools of muddy water.**
 

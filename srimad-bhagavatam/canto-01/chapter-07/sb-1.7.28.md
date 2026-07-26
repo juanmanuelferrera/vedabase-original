@@ -8,7 +8,7 @@
 > jahy astra-teja unnaddham\
 > astra-jño hy astra-tejasā
 
-*na*—not; *hi*—certainly; *asya*—of it; *anyatamam*—other; *kiñcit*—anything; *astram*—weapon; *prati*—counter; *avakarśanam*—reactionary; *jahi*—subdue it; *astra-tejaḥ*—the glare of this weapon; *unnaddham*—very powerful; *astra-jñaḥ*—expert in military science; *hi*—as a matter of fact; *astra-tejasā*—by the influence of your weapon.
+*na*—not; *hi*—certainly; *asya*—of it; *anyatamam*—other; *kiñcit*—anything; *astram*—weapon; *prati*—counter; *avakarśanam*—reactionary; *jahi*—subdue it; *astra-tejaḥ*—the glare of this weapon; *unnaddham*—very powerful; *astra-jñaḥ*—O expert in military science; *hi*—as a matter of fact; *astra-tejasā*—by the influence of your weapon.
 
 **O Arjuna, only another brahmāstra can counteract this weapon. Since you are expert in the military science, subdue this weapon's glare with your own weapon.**
 

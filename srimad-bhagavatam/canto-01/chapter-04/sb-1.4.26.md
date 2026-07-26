@@ -8,7 +8,7 @@
 > sarvātmakenāpi yadā\
 > nātuṣyad dhṛdayaṁ tataḥ
 
-*evam*—thus; *pravṛttasya*—one who is engaged in; *sadā*—always; *bhūtānām*—of the living beings; *śreyasi*—in the ultimate good; *dvijāḥ*—O twice-born; *sarvātmakena api*—by all means; *yadā*—when; *na*—not; *atuṣyat*—become satisfied; *hṛdayam*—mind; *tataḥ*—at that.
+*evam*—thus; *pravṛttasya*—one who is engaged in; *sadā*—always; *bhūtānām*—of the living beings; *śreyasi*—in the ultimate good; *dvijāḥ*—O twice-born; *sarvātmakena api*—by all means; *yadā*—when; *na*—not; *atuṣyat*—become satisfied; *hṛdayam*—mind; *tataḥ*—at that time.
 
 **O twice-born brāhmaṇas, still his mind was not satisfied, although he engaged himself in working for the total welfare of all people.**
 

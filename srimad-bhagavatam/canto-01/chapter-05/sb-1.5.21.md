@@ -8,7 +8,7 @@
 > ajaṁ prajātaṁ jagataḥ śivāya tan\
 > mahānubhāvābhyudayo 'dhigaṇyatām
 
-*tvam*—yourself; *ātmanā*—by your own self; *ātmānam*—the Supersoul; *avehi*—search out; *amogha-dṛk*—one who has perfect vision; *parasya*—of the Transcendence; *puṁsaḥ*—the Personality of Godhead; *paramātmanaḥ*—of the Supreme Lord; *kalām*—plenary part; *ajam*—birthless; *prajātam*—have taken birth; *jagataḥ*—of the world; *śivāya*—for the well-being; *tat*—that; *mahā-anubhāva*—of the Supreme Personality of Godhead Śrī Kṛṣṇa; *abhyudayaḥ*—pastimes; *adhigaṇya-tām*—describe most vividly.
+*tvam*—yourself; *ātmanā*—by your own self; *ātmānam*—the Supersoul; *avehi*—search out; *amogha-dṛk*—one who has perfect vision; *parasya*—of the Transcendence; *puṁsaḥ*—Personality of Godhead; *paramātmanaḥ*—of the Supreme Lord; *kalām*—plenary part; *ajam*—birthless; *prajātam*—have taken birth; *jagataḥ*—of the world; *śivāya*—for the well-being; *tat*—that; *mahā-anubhāva*—of the Supreme Personality of Godhead Śrī Kṛṣṇa; *abhyudayaḥ*—pastimes; *adhigaṇya-tām*—describe most vividly.
 
 **Your goodness has perfect vision. You yourself can know the Supersoul Personality of Godhead because you are present as the plenary portion of the Lord. Although you are birthless, you have appeared on this earth for the well-being of all people. Please, therefore, describe the transcendental pastimes of the Supreme Personality of Godhead Śrī Kṛṣṇa more vividly.**
 

@@ -8,7 +8,7 @@
 > bhagavaty acalo bhāvo\
 > yad bhāgavata-saṅgataḥ
 
-*etāvān*—all these different kinds of worshipers; *eva*—certainly; *yajatām*—while worshiping; *iha*—in this life; *niḥśreyasa*—the highest benediction; *udayaḥ*—development; *bhagavati*—unto the Supreme Personality of Godhead; *acalaḥ*—unflinching; *bhāvaḥ*—spontaneous attraction; *yat*—which; *bhāgavata*—the pure devotee of the Lord; *saṅgataḥ*—association.
+*etāvān*—all these different kinds of worshipers; *eva*—certainly; *yajatām*—while worshiping; *iha*—in this life; *niḥśreyasa*—highest benediction; *udayaḥ*—development; *bhagavati*—unto the Supreme Personality of Godhead; *acalaḥ*—unflinching; *bhāvaḥ*—spontaneous attraction; *yat*—which; *bhāgavata*—pure devotee of the Lord; *saṅgataḥ*—association.
 
 **All the different kinds of worshipers of multi-demigods can attain the highest perfectional benediction, which is spontaneous attraction unflinchingly fixed upon the Supreme Personality of Godhead, only by the association of the pure devotee of the Lord.**
 

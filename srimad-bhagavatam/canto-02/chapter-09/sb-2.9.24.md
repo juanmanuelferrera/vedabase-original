@@ -8,7 +8,7 @@
 > bibharmi tapasā viśvaṁ\
 > vīryaṁ me duścaraṁ tapaḥ
 
-*sṛjāmi*—I create; *tapasā*—by the same energy of penance; *eva*—certainly; *idam*—this; *grasāmi tapasā*—I do withdraw also by the same energy; *punaḥ*—again; *bibharmi*—do maintain; *tapasā*—by penance; *viśvam*—the cosmos; *vīryam*—potency; *me*—My; *duścaram*—severe; *tapaḥ*—penance.
+*sṛjāmi*—I create; *tapasā*—by the same energy of penance; *eva*—certainly; *idam*—this; *grasāmi tapasā*—I do withdraw also by the same energy; *punaḥ*—again; *bibharmi*—do maintain; *tapasā*—by penance; *viśvam*—the cosmos; *vīryam*—potency; *me*—Mine; *duścaram*—severe; *tapaḥ*—penance.
 
 **I create this cosmos by such penance, I maintain it by the same energy, and I withdraw it all by the same energy. Therefore the potential power is penance only.**
 

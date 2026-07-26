@@ -8,7 +8,7 @@
 > tasmin pratīpaḥ parakṛtya āste\
 > nirvāsyatām āśu purāc chvasānaḥ
 
-*kaḥ*—who; *enam*—this; *atra*—here; *upajuhāva*—called for; *jihmam*—crooked; *dāsyāḥ*—of a kept mistress; *sutam*—son; *yat*—whose; *balinā*—by whose subsistence; *eva*—certainly; *puṣṭaḥ*—grown up; *tasmin*—unto him; *pratīpaḥ*—enmity; *parakṛtya*—enemy's interest; *āste*—situated; *nirvāsyatām*—get him out; *āśu*—immediately; *purāt*—from the palace; *śvasānaḥ*—let him breathe only.
+*kaḥ*—who; *enam*—this; *atra*—here; *upajuhāva*—called for; *jihmam*—crooked; *dāsyāḥ*—of a kept mistress; *sutam*—son; *yat*—whose; *balinaiva*—by whose subsistence; *puṣṭaḥ*—grown up; *tasmin*—unto him; *pratīpaḥ*—enmity; *parakṛtya*—enemy's interest; *āste*—situated; *nirvāsyatām*—get him out; *āśu*—immediately; *purāt*—from the palace; *śvasānaḥ*—let him breathe only.
 
 **Who asked him to come here, this son of a kept mistress? He is so crooked that he spies in the interest of the enemy against those on whose support he has grown up. Toss him out of the palace immediately and leave him with only his breath.**
 

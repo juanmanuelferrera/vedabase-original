@@ -8,7 +8,7 @@
 > janma-karma-rahasyaṁ me\
 > bhavataś cātma-toṣaṇam
 
-*sarvam*—all; *tat*—that; *idam*—this; *ākhyātam*—described; *yat*—whatever; *pṛṣṭaḥ*—asked by; *aham*—me; *tvayā*—by you; *anagha*—without any sins; *janma*—birth; *karma*—activities; *rahasyam*—mysteries; *me*—mine; *bhavataḥ*—your; *ca*—and; *ātma*—self; *toṣaṇam*—satisfaction.
+*sarvam*—all; *tat*—that; *idam*—this; *ākhyātam*—described; *yat*—whatever; *pṛṣṭaḥ*—asked by; *aham*—myself; *tvayā*—by yourself; *anagha*—without any sins; *janma*—birth; *karma*—activities; *rahasyam*—mysteries; *me*—mine; *bhavataḥ*—your; *ca*—and; *ātma*—self; *toṣaṇam*—satisfaction.
 
 **O Vyāsadeva, you are freed from all sins. Thus I have explained my birth and activities for self-realization, as you asked. All this will be conducive for your personal satisfaction also.**
 

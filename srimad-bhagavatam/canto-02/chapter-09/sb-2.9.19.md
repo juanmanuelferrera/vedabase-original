@@ -8,7 +8,7 @@
 > babhāṣa īṣat-smita-śociṣā girā\
 > priyaḥ priyaṁ prīta-manāḥ kare spṛśan
 
-*tam*—unto Lord Brahmā; *prīyamāṇam*—worthy of being dear; *samupasthitam*—present before; *kavim*—the great scholar; *prajā*—living entities; *visarge*—in the matter of creation; *nija*—His own; *śāsana*—control; *arhaṇam*—just suitable; *babhāṣe*—addressed; *īṣat*—mild; *smita*—smiling; *śociṣā*—with enlightening; *girā*—words; *priyaḥ*—the beloved; *priyam*—the counterpart of love; *prīta-manāḥ*—being very much pleased; *kare*—by the hand; *spṛśan*—shaking.
+*tam*—unto Lord Brahmā; *prīyamāṇam*—worthy of being dear; *samupasthitam*—present before; *kavim*—the great scholar; *prajā*—living entities; *visarge*—in the matter of creation; *nija*—His own; *śāsana*—control; *arhaṇam*—just suitable; *babhāṣe*—addressed; *īṣat*—mild; *smita*—smiling; *śociṣā*—enlightening; *girā*—words; *priyaḥ*—the beloved; *priyam*—the counterpart of love; *prīta-manāḥ*—being very much pleased; *kare*—by the hand; *spṛśan*—shaking.
 
 **And seeing Brahmā present before Him, the Lord accepted him as worthy to create living beings, to be controlled as He desired, and thus being much satisfied with him, the Lord shook hands with Brahmā and, slightly smiling, addressed him thus.**
 

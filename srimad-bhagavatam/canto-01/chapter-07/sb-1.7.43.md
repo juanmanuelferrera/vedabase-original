@@ -8,7 +8,7 @@
 > mucyatāṁ mucyatām eṣa\
 > brāhmaṇo nitarāṁ guruḥ
 
-*uvāca*—said; *ca*—and; *asahantī*—being unbearable for her; *asya*—his; *bandhana*—being bound; *ānayanam*—bringing him; *satī*—the devoted; *mucyatām mucyatām*—just get him released; *eṣaḥ*—this; *brāhmaṇaḥ*—a *brāhmaṇa*; *nitarām*—our; *guruḥ*—teacher.
+*uvāca*—said; *ca*—and; *asahantī*—being unbearable for her; *asya*—his; *bandhana*—being bound; *ānayanam*—bringing him; *satī*—the devoted; *mucyatām*—just get him released; *eṣaḥ*—this; *brāhmaṇaḥ*—a *brāhmaṇa*; *nitarām*—our; *guruḥ*—teacher.
 
 **She could not tolerate Aśvatthāmā's being bound by ropes, and being a devoted lady, she said: Release him, for he is a brāhmaṇa, our spiritual master.**
 

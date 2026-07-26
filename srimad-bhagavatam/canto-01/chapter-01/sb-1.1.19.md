@@ -8,7 +8,7 @@
 > yac-chṛṇvatāṁ rasa-jñānāṁ\
 > svādu svādu pade pade
 
-*vayam*—we; *tu*—but; *na*—not; *vitṛpyāmaḥ*—shall be at rest; *uttama-śloka*—the Personality of Godhead, who is glorified by transcendental prayers; *vikrame*—adventures; *yat*—which; *śṛṇvatām*—by continuous hearing; *rasa*—humor; *jñānām*—those who are conversant with; *svādu*—relishing; *svādu*—palatable; *pade pade*—at every step.
+*vayam*—we; *tu*—but; *na*—not; *vitṛpyāmaḥ*—shall be at rest; *uttama-śloka*—the Personality of Godhead, who is glorified by transcendental prayers; *vikrame*—adventures; *yat*—which; *śṛṇvatām*—by continuous hearing; *rasa*—humor; *jñānām*—those who are conversant with; *svādu*—relishing; *svādu*—palatable; *pade pade*—in every step.
 
 **We never tire of hearing the transcendental pastimes of the Personality of Godhead who is glorified by hymns and prayers. Those who enjoy association with Him relish hearing of His pastimes at very moment.**
 

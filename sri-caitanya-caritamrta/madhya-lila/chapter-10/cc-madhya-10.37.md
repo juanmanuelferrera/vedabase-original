@@ -6,6 +6,6 @@
 > prabhu kahe,-ei deha tomā-sabākāra\
 > yei tumi kaha, sei sammata āmāra
 
-*prabhukahe*—Śrī Caitanya Mahāprabhu said; *ei deha*—this body; *tomā-sabākāra*—belongs to all of you; *yei*—whatever; *tumi*—you; *kaha*—say; *sei*—that; *sammata āmāra*—accepted by Me.
+*prabhu kahe*—Śrī Caitanya Mahāprabhu said; *ei deha*—this body; *tomā-sabākāra*—of all of you; *yei*—whatever; *tumi*—you; *kaha*—say; *sei*—that; *sammata āmāra*—accepted by Me.
 
 **Śrī Caitanya Mahāprabhu said, "My body belongs to all of you. Therefore I agree to whatever you say."**

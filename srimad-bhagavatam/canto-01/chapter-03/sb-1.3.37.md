@@ -8,7 +8,7 @@
 > nāmāni rūpāṇi mano-vacobhiḥ\
 > santanvato naṭa-caryām ivājñaḥ
 
-*na*—not; *ca*—and; *asya*—of Him; *kaścit*—anyone; *nipuṇena*—by dexterity; *dhātuḥ*—of the creator; *avaiti*—can know; *jantuḥ*—the living being; *kumanīṣaḥ*—with a poor fund of knowledge; *ūtīḥ*—activities of the Lord; *nāmāni*—His names; *rūpāṇi*—His forms; *manaḥ-vacobhiḥ*—by dint of mental speculation or deliverance of speeches; *santanvataḥ*—displaying; *naṭa-caryām*—a dramatic action; *iva*—like; *ajñaḥ*—the foolish.
+*na*—not; *ca*—and; *asya*—of Him; *kaścit*—anyone; *nipuṇena*—by dexterity; *dhātuḥ*—of the creator; *avaiti*—can know; *jantuḥ*—the living being; *kumanīṣaḥ*—with a poor fund of knowledge; *ūtīḥ*—activities of the Lord; *nāmāni*—His names; *rūpāṇi*—His forms; *mano-vacobhiḥ*—by dint of mental speculation or deliverance of speeches; *santanvataḥ*—displaying; *naṭa-caryām*—a dramatic action; *iva*—like; *ajñaḥ*—the foolish.
 
 **The foolish with poor fund of knowledge cannot know the transcendental nature of the forms, names and activities of the Lord, who is playing like an actor in a drama. Nor can they express such things, neither in their speculations nor their writings.**
 

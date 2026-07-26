@@ -8,7 +8,7 @@
 > tīvreṇa bhakti-yogena\
 > nimagnaḥ sādhu nirvṛtaḥ
 
-*saḥ*—Uddhava; *muhūrtam*—for a moment; *abhūt*—became; *tūṣṇīm*—dead silent; *kṛṣṇa-aṅghri*—the lotus feet of the Lord; *sudhayā*—by the nectar; *bhṛśam*—well matured; *tīvreṇa*—by very strong; *bhakti-yogena*—devotional service; *nimagnaḥ*—absorbed in; *sādhu*—good; *nirvṛtaḥ*—fully in love.
+*saḥ*—Uddhava; *muhūrtam*—for a moment; *abhūt*—became; *tūṣṇīm*—dead silent; *kṛṣṇa-aṅghri*—lotus feet of the Lord; *sudhayā*—by the nectar; *bhṛśam*—well matured; *tīvreṇa*—by very strong; *bhakti-yogena*—devotional service; *nimagnaḥ*—absorbed in; *sādhu*—good; *nirvṛtaḥ*—fully in love.
 
 **For a moment he remained dead silent, and his body did not move. He became absorbed in the nectar of remembering the Lord's lotus feet in devotional ecstasy, and he appeared to be going increasingly deeper into that ecstasy.**
 

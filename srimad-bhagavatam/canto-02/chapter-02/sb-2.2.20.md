@@ -8,7 +8,7 @@
 > tato 'nusandhāya dhiyā manasvī\
 > sva-tālu-mūlaṁ śanakair nayeta
 
-*nābhyām*—on the navel; *sthitam*—situated; *hṛdi*—in the heart; *adhiropya*—by placing; *tasmāt*—from there; *udāna*—soaring; *gatya*—force; *urasi*—on the chest; *tam*—thereafter; *nayet*—should draw; *muniḥ*—the meditative devotee; *tataḥ*—them; *anusandhāya*—just to search out; *dhiyā*—by intelligence; *manasvī*—the meditative; *sva-tālu-mūlam*—at the root of the palate; *śanakaiḥ*—slowly; *nayeta*—may be brought in.
+*nābhyām*—on the navel; *sthitam*—situated; *hṛdi*—in the heart; *adhiropya*—by placing; *tasmāt*—from there; *udāna*—soaring; *gatya*—force; *urasi*—on the chest; *tam*—thereafter; *nayet*—should draw; *muniḥ*—meditative devotee; *tataḥ*—them; *anusandhāya*—just to search out; *dhiyā*—by intelligence; *manasvī*—the meditative; *sva-tālu-mūlam*—at the root of the palate; *śanakaiḥ*—slowly; *nayeta*—may be brought in.
 
 **The meditative devotee should push up the life air from the navel to the heart, from there to the chest and from there to the root of the palate, slowly, and search out the proper places with intelligence.**
 

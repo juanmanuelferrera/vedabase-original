@@ -8,7 +8,7 @@
 > sva-lakṣaṇā prādurabhūt kilāsyataḥ\
 > sa me ṛṣīṇām ṛṣabhaḥ prasīdatām
 
-*pracoditā*—inspired; *yena*—by whom; *purā*—in the beginning of creation; *sarasvatī*—the goddess of learning; *vitanvatā*—amplified; *ajasya*—of Brahmā, the first created living being; *satīm smṛtim*—potent memory; *hṛdi*—in the heart; *sva*—in his own; *lakṣaṇā*—aiming at; *prādurabhūt*—was generated; *kila*—as if; *āsyataḥ*—from the mouth; *saḥ*—he; *me*—unto me; *ṛṣīṇām*—of the teachers; *ṛṣabhaḥ*—the chief; *prasīdatām*—be pleased.
+*pracoditā*—inspired; *yena*—by whom; *purā*—in the beginning of creation; *sarasvatī*—the goddess of learning; *vitanvatā*—amplified; *ajasya*—of Brahmā, the first created living being; *satīm smṛtim*—potent memory; *hṛdi*—in the heart; *sva*—in his own; *lakṣaṇā*—aiming at; *prādurabhūt*—became generated; *kila*—as if; *āsyataḥ*—from the mouth; *saḥ*—he; *me*—unto me; *ṛṣīṇām*—of the teachers; *ṛṣabhaḥ*—the chief; *prasīdatām*—be pleased.
 
 **May the Lord, who in the beginning of the creation amplified the potent knowledge of Brahmā from within his heart and inspired him with full knowledge of creation and of His own Self, and who appeared to be generated from the mouth of Brahmā, be pleased upon me.**
 

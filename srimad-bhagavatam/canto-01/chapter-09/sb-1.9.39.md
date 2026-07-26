@@ -8,7 +8,7 @@
 > bhagavati ratir astu me mumūrṣor\
 > yam iha nirīkṣya hatā gatāḥ sva-rūpam
 
-*vijaya*—Arjuna; *ratha*—chariot; *kuṭumbe*—the object of protection at all risk; *ātta-totre*—with a whip in the right hand; *dhṛta-haya*—controlling the horses; *raśmini*—ropes; *tat-śriyā*—beautifully standing; *īkṣaṇīye*—to look at; *bhagavati*—unto the Personality of Godhead; *ratiḥ astu*—let my attraction be; *me*—my; *mumūrṣoḥ*—one who is about to die; *yam*—upon whom; *iha*—in this world; *nirīkṣya*—by looking; *hatāḥ*—those who died; *gatāḥ*—attained; *sva-rūpam*—original form.
+*vijaya*—Arjuna; *ratha*—chariot; *kuṭumba*—object of protection at all risk; *ātta-totre*—with a whip in the right hand; *dhṛta-haya*—controlling the horses; *raśmini*—ropes; *tat-śriyā*—beautifully standing; *īkṣaṇīye*—to look at; *bhagavati*—unto the Personality of Godhead; *ratiḥ astu*—let my attraction be there; *mumūrṣoḥ*—one who is about to die; *yam*—unto whom; *iha*—in this world; *nirīkṣya*—by looking; *hatāḥ*—those who died; *gatāḥ*—attained; *sva-rūpam*—original form.
 
 **At the moment of death, let my ultimate attraction be to Śrī Kṛṣṇa, the Personality of Godhead. I concentrate my mind upon the chariot driver of Arjuna who stood with a whip in His right hand and a bridle rope in His left, who was very careful to give protection to Arjuna's chariot by all means. Those who saw Him on the Battlefield of Kurukṣetra attained their original forms after death.**
 

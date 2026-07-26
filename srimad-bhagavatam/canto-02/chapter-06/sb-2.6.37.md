@@ -8,7 +8,7 @@
 > tan-māyayā mohita-buddhayas tv idaṁ\
 > vinirmitaṁ cātma-samaṁ vicakṣmahe
 
-*na*—neither; *aham*—I; *na*—nor; *yūyam*—all you sons; *yat*—whose; *ṛtām*—factual; *gatim*—movements; *viduḥ*—do know; *na*—nor; *vāmadevaḥ*—Lord Śiva; *kim*—what; *uta*—else; *apare*—others; *surāḥ*—demigods; *tat*—by His; *māyayā*—by the illusory energy; *mohita*—bewildered; *buddhayaḥ*—with such intelligence; *tu*—but; *idam*—this; *vinirmitam*—what is created; *ca*—also; *ātma-samam*—by dint of one's personal ability; *vicakṣmahe*—observe.
+*na*—neither; *aham*—I; *yūyam*—all you sons; *yat*—whose; *ṛtām*—factual; *gatim*—movements; *viduḥ*—do know; *na*—nor; *vāmadevaḥ*—Lord Śiva; *kim*—what; *uta*—else; *apare*—others; *surāḥ*—demigods; *tat*—by His; *māyayā*—by the illusory energy; *mohita*—bewildered; *buddhayaḥ*—with such intelligence; *tu*—but; *idam*—this; *vinirmitam*—what is created; *ca*—also; *ātma-samam*—by dint of one's personal capacity; *vicakṣmahe*—observe.
 
 **Since neither Lord Śiva nor you nor I could ascertain the limits of spiritual happiness, how can other demigods know it? And because all of us are bewildered by the illusory external energy of the Supreme Lord, we can see only this manifested cosmos according to our individual capacity.**
 

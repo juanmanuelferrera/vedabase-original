@@ -8,7 +8,7 @@
 > sīdantyā bhūri-bhāreṇa\
 > jāto hy ātma-bhuvārthitaḥ
 
-*bhāra-avatāraṇāya*—just to reduce the burden to the world; *anye*—others; *bhuvaḥ*—of the world; *nāvaḥ*—boat; *iva*—like; *udadhau*—on the sea; *sīdantyāḥ*—aggrieved; *bhūri*—extremely; *bhāreṇa*—by the burden; *jātaḥ*—You were born; *hi*—certainly; *ātma-bhuvā*—by Brahmā; *arthitaḥ*—being prayed for.
+*bhāra-avatāraṇāya*—just to reduce the burden to the world; *anye*—others; *bhuvaḥ*—of the world; *nāvaḥ*—boat; *iva*—like that; *udadhau*—on the sea; *sīdantyāḥ*—aggrieved; *bhūri*—extremely; *bhāreṇa*—by the burden; *jātaḥ*—You were born; *hi*—certainly; *ātma-bhuvā*—by Brahmā; *arthitaḥ*—being prayed for.
 
 **Others say that the world, being overburdened like a boat at sea, is much aggrieved, and that Brahmā, who is Your son, prayed for You, and so You have appeared to diminish the trouble.**
 

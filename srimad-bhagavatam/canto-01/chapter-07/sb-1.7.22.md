@@ -10,7 +10,7 @@
 > tvam eko dahyamānānām\
 > apavargo 'si saṁsṛteḥ
 
-*arjunaḥ uvāca*—Arjuna said; *kṛṣṇa*—O Lord Kṛṣṇa; *kṛṣṇa*—O Lord Kṛṣṇa; *mahā-bāho*—He who is the Almighty; *bhaktānām*—of the devotees; *abhayaṅkara*—eradicating the fears of; *tvam*—You; *ekaḥ*—alone; *dahyamānānām*—those who are suffering from; *apavargaḥ*—the path of liberation; *asi*—are; *saṁsṛteḥ*—in the midst of material miseries.
+*arjunaḥ uvāca*—Arjuna said; *kṛṣṇa*—O Lord Kṛṣṇa; *mahā-bāho*—He who is the Almighty; *bhaktānām*—of the devotees; *abhayaṅkara*—eradicating the fears of; *tvam*—You; *ekaḥ*—alone; *dahyamānānām*—those who are suffering from; *apavargaḥ*—the path of liberation; *asi*—are; *saṁsṛteḥ*—in the midst of material miseries.
 
 **Arjuna said: O my Lord Śrī Kṛṣṇa, You are the almighty Personality of Godhead. There is no limit to Your different energies. Therefore only You are competent to instill fearlessness in the hearts of Your devotees. Every one in the flames of material miseries can find the path of liberation in You only.**
 

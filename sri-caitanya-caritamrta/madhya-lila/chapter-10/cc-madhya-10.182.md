@@ -6,7 +6,7 @@
 > prabhu kahe,-'viṣṇu' 'viṣṇu', ki kaha sārvabhauma\
 > 'ati-stuti' haya ei nindāra lakṣaṇa
 
-*prabhu kahe*—Śrī Caitanya Mahāprabhu said; *viṣṇu viṣṇu*—Lord Viṣṇu, Lord Viṣṇu; *ki kaha*—what are you speaking; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *ati-stuti*—overly glorifying; *haya*—is; *ei*—this; *nindāra lakṣaṇa*—symptom of blasphemy.
+*prabhu kahe*—Śrī Caitanya Mahāprabhu said; *viṣṇu viṣṇu*—O Lord Viṣṇu, Lord Viṣṇu; *ki kaha*—what are you speaking; *sārvabhauma*—Sārvabhauma Bhaṭṭācārya; *ati-stuti*—overly glorifying; *haya*—is; *ei*—this; *nindāra lakṣaṇa*—symptom of blasphemy.
 
 **Śrī Caitanya Mahāprabhu said, "Sārvabhauma Bhaṭṭācārya, what are you saying? Lord Viṣṇu, save Me! Such glorification is simply another form of blasphemy."**
 

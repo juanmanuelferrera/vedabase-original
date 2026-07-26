@@ -8,7 +8,7 @@
 > puṁsāṁ punaḥ pāramahaṁsya āśrame\
 > vyavasthitānām anumṛgya-dāśuṣe
 
-*bhūyaḥ*—again; *namaḥ*—my obeisances; *sat*—of the devotees or the pious; *vṛjina*—distresses; *chide*—the liberator; *asatām*—of the atheists, the nondevotee-demons; *asambhavāya*—cessation of further unhappiness; *akhila*—complete; *sattva*—goodness; *mūrtaye*—unto the Personality; *puṁsām*—of the transcendentalists; *punaḥ*—again; *pāramahaṁsye*—the highest stage of spiritual perfection; *āśrame*—in the status; *vyavasthitānām*—particularly situated; *anumṛgya*—the destination; *dāśuṣe*—one who delivers.
+*bhūyaḥ*—again; *namaḥ*—my obeisances; *sat*—of the devotees or the pious; *vṛjina*—distresses; *chide*—the liberator; *asatām*—of the atheist, non-devotee demons; *asambhavāya*—cessation of further unhappiness; *akhila*—complete; *sattva*—goodness; *mūrtaye*—unto the Personality; *puṁsām*—of the transcendentalists; *punaḥ*—again; *pāramahaṁsye*—highest stage of spiritual perfection; *āśrame*—in the status; *vyavasthitānām*—particularly situated; *anumṛgya*—destination; *dāśuṣe*—one who delivers.
 
 **I again offer my respectful obeisances unto the form of complete existence and transcendence, who is the liberator from all distresses of the pious devotees and the destroyer of the further advances in atheistic temperament of the nondevotee demons. For the transcendentalists, who are situated in the topmost spiritual perfection, He grants their specific destinations.**
 

@@ -8,7 +8,7 @@
 > yat saṁsthaṁ yat paraṁ yac ca\
 > tat tattvaṁ vada tattvataḥ
 
-*yat*—what; *rūpam*—the symptoms of manifestation; *yat*—what; *adhiṣṭhānam*—background; *yataḥ*—from where; *sṛṣṭam*—created; *idam*—this world; *prabho*—O my father; *yat*—in which; *saṁstham*—conserved; *yat*—what; *param*—under control; *yat*—what are; *ca*—and; *tat*—of this; *tattvam*—the symptoms; *vada*—please describe; *tattvataḥ*—factually.
+*yat*—what; *rūpam*—the symptoms of manifestation; *yat*—what; *adhiṣṭhānam*—background; *yataḥ*—from where; *sṛṣṭam*—created; *idam*—this world; *prabho*—O my father; *yat*—in which; *saṁstham*—conserved; *yat*—what; *param*—under control; *yat*—what are; *ca*—and; *tat*—all these; *tvam*—yourself; *vada*—please describe; *tattvataḥ*—factually.
 
 **My dear father, please describe factually the symptoms of this manifest world. What is its background? How is it created? How is it conserved? And under whose control is all this being done?**
 

@@ -8,7 +8,7 @@
 > mohayan māyayā lokaṁ\
 > gūḍhaś carati vṛṣṇiṣu
 
-*eṣaḥ*—this; *vai*—positively; *bhagavān*—the Personality of Godhead; *sākṣāt*—original; *ādyaḥ*—the first; *nārāyaṇaḥ*—the Supreme Lord (who lies down on the water); *pumān*—the supreme enjoyer; *mohayan*—bewildering; *māyayā*—by His self-created energy; *lokam*—the planets; *gūḍhaḥ*—who is inconceivable; *carati*—moves; *vṛṣṇiṣu*—among the Vṛṣṇi family.
+*eṣaḥ*—this; *vai*—positively; *bhagavān*—the Personality of Godhead; *sākṣāt*—original; *ādyaḥ*—the first; *nārāyaṇaḥ*—the Supreme Lord (who lies down on the water); *pumān*—the supreme enjoyer; *mohayan*—bewildering; *māyayā*—by His self-created energy; *lokam*—the planets; *gūḍhaḥ*—inconceivable; *carati*—moves; *vṛṣṇiṣu*—among the Vṛṣṇi family.
 
 **This Śrī Kṛṣṇa is no other than the original Personality of Godhead. He is the first Nārāyaṇa, the supreme enjoyer. But He is moving amongst the descendants of King Vṛṣṇi, just like one of us, and He is bewildering us with His Self-created energy.**
 

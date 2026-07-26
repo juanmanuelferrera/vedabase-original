@@ -8,7 +8,7 @@
 > adhyagān mahad ākhyānaṁ\
 > nityaṁ viṣṇu-jana-priyaḥ
 
-*hareḥ*—of Hari, the Personality of Godhead; *guṇa*—transcendental attribute; *ākṣipta*—being absorbed in; *matiḥ*—mind; *bhagavān*—powerful; *bādarāyaṇiḥ*—the son of Vyāsadeva; *adhyagāt*—underwent studies; *mahat*—great; *ākhyānam*—narration; *nityam*—regularly; *viṣṇu-jana*—devotees of the Lord; *priyaḥ*—beloved.
+*hareḥ*—of Hari, the Personality of Godhead; *guṇa*—transcendental attribute; *ākṣipta*—being absorbed in; *matiḥ*—mind; *bhagavān*—powerful; *bādarāyaṇiḥ*—son of Vyāsadeva; *adhyagāt*—underwent studies; *mahat*—great; *ākhyānam*—narration; *nityam*—regularly; *viṣṇu-jana*—devotees of the Lord; *priyaḥ*—beloved.
 
 **Śrīla Śukadeva Gosvāmī, son of Śrīla Vyāsadeva, was not only transcendentally powerful. He was also very dear to the devotees of the Lord. Thus he underwent the study of this great narration [Śrīmad-Bhāgavatam].**
 

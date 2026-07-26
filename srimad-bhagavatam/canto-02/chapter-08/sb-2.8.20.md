@@ -8,7 +8,7 @@
 > vedopaveda-dharmāṇām\
 > itihāsa-purāṇayoḥ
 
-*yoga-īśvara*—of the master of the mystic powers; *aiśvarya*—opulence; *gatiḥ*—advancement; *liṅga*—astral body; *bhaṅgaḥ*—detachment; *tu*—but; *yoginām*—of the mystics; *veda*—transcendental knowledge; *upaveda*—knowledge in pursuance of the *Veda* indirectly; *dharmāṇām*—of the religiosities; *itihāsa*—history; *purāṇayoḥ*—of the *Purāṇas.*
+*yogeśvara*—the master of the mystic powers; *aiśvarya*—opulence; *gatiḥ*—advancement; *liṅga*—astral body; *bhaṅgaḥ*—detachment; *tu*—but; *yoginām*—of the mystics; *veda*—transcendental knowledge; *upaveda*—knowledge in pursuance of the *Veda* indirectly; *dharmāṇām*—of the religiosities; *itihāsa*—history; *purāṇayoḥ*—of the *Purāṇas.*
 
 **What are the opulences of the great mystics, and what is their ultimate realization? How does the perfect mystic become detached from the subtle astral body? What is the basic knowledge of the Vedic literatures, including the branches of history and the supplementary Purāṇas?**
 

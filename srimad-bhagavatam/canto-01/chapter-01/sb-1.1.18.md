@@ -8,7 +8,7 @@
 > līlā vidadhataḥ svairam\
 > īśvarasyātma-māyayā
 
-*atha*—therefore; *ākhyāhi*—describe; *hareḥ*—of the Lord; *dhīman*—O sagacious one; *avatāra*—incarnations; *kathāḥ*—narratives; *śubhāḥ*—auspicious; *līlā*—adventures; *vidadhataḥ*—performed; *svairam*—pastimes; *īśvarasya*—of the supreme controller; *ātma*—personal; *māyayā*—energies.
+*atha*—therefore; *ākhyāhi*—describe; *hareḥ*—of the Lord; *dhīman*—O sagacious one; *avatāra*—incarnations; *kathāḥ*—narratives; *śubhāḥ*—auspicious; *līlā*—adventures; *vidadhataḥ*—performed; *svairam*—pastimes; *īśvarasya*—the supreme controller's; *ātma*—personal; *māyayā*—energies.
 
 **O wise Sūta, please narrate to us the transcendental pastimes of the Supreme Godhead's multi-incarnations. Such auspicious adventures and pastimes of the Lord are performed by His internal powers.**
 

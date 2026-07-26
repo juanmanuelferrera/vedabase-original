@@ -8,7 +8,7 @@
 > nehamānaḥ prajā-sargaṁ\
 > badhyeyaṁ yad-anugrahāt
 
-*bhagavat*—by the Personality of Godhead; *śikṣitam*—taught; *aham*—myself; *karavāṇi*—by acting; *hi*—certainly; *atandritaḥ*—instrumental; *na*—never; *ihamānaḥ*—although acting; *prajā-sargam*—generation of the living entities; *badhyeyam*—be conditioned; *yat*—as a matter of fact; *anugrahāt*—by the mercy of.
+*bhagavat*—by the Personality of Godhead; *śikṣitam*—taught; *aham*—myself; *karavāṇi*—be acting; *hi*—certainly; *atandritaḥ*—instrumental; *na*—never; *ihamānaḥ*—although acting; *prajā-sargam*—generation of the living entities; *badhyeyam*—be conditioned; *yat*—as a matter of fact; *anugrahāt*—by the mercy of.
 
 **Please tell me so that I may be taught in the matter by the instruction of the Personality of Godhead, and thus I may act instrumentally to generate living entities, without being conditioned by such activities.**
 

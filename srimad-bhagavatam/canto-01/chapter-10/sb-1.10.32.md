@@ -8,7 +8,7 @@
 > parebhyaḥ śaṅkitaḥ snehāt\
 > prāyuṅkta catur-aṅgiṇīm
 
-*ajāta-śatruḥ*—Mahārāja Yudhiṣṭhira, who was no one's enemy; *pṛtanām*—defensive forces; *gopīthāya*—for giving protection; *madhu-dviṣaḥ*—of the enemy of Madhu (Śrī Kṛṣṇa); *parebhyaḥ*—from others (enemies); *śaṅkitaḥ*—being afraid of; *snehāt*—out of affection; *prāyuṅkta*—engaged; *catuḥ-aṅgiṇīm*—four defensive divisions.
+*ajāta-śatruḥ*—Mahārāja Yudhiṣṭhira, who was no one's enemy; *pṛtanām*—defensive forces; *gopīthāya*—for giving protection; *madhu-dviṣaḥ*—of the enemy of Madhu (Śrī Kṛṣṇa); *parebhyaḥ*—from others (enemies); *śaṅkitaḥ*—being afraid of; *snehāt*—out of affection; *prāyuṅkta*—engaged; *catur-aṅgiṇīm*—four defensive divisions.
 
 **Mahārāja Yudhiṣṭhira, although no one's enemy, engaged four divisions of defense [horse, elephant, chariot and army] to accompany Lord Kṛṣṇa, the enemy of the asuras [demons]. The Mahārāja did this because of the enemy, and also out of affection for the Lord.**
 

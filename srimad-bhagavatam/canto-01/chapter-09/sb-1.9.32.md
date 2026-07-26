@@ -10,7 +10,7 @@
 > sva-sukham upagate kvacid vihartuṁ\
 > prakṛtim upeyuṣi yad-bhava-pravāhaḥ
 
-*śrī-bhīṣmaḥ uvāca*—Śrī Bhīṣmadeva said; *iti*—thus; *matiḥ*—thinking, feeling and willing; *upakalpitā*—invested; *vitṛṣṇā*—freed from all sense desires; *bhagavati*—unto the Personality of Godhead; *sātvata-puṅgave*—unto the leader of the devotees; *vibhūmni*—unto the great; *sva-sukham*—self-satisfaction; *upagate*—unto Him who has attained it; *kvacit*—sometimes; *vihartum*—out of transcendental pleasure; *prakṛtim*—in the material world; *upeyuṣi*—do accept it; *yat-bhava*—from whom the creation; *pravāhaḥ*—is made and annihilated.
+*śrī-bhīṣmaḥ uvāca*—Bhīṣmadeva said; *iti*—thus; *matiḥ*—thinking, feeling and willing; *upakalpitā*—invested; *vitṛṣṇā*—freed from all sense desires; *bhagavati*—unto the Personality of Godhead; *sātvata-puṅgave*—unto the leader of the devotees; *vibhūmni*—unto the great; *sva-sukham*—self-satisfaction; *upagate*—unto Him who has attained it; *kvacit*—sometimes; *vihartum*—out of transcendental pleasure; *prakṛtim*—in the material world; *upeyuṣi*—do accept it; *yat-bhava*—from whom the creation; *pravāhaḥ*—is made and annihilated.
 
 **Bhīṣmadeva said: Let me now invest my thinking, feeling and willing, which were so long engaged in different subjects and occupational duties, unto the all-powerful Lord Śrī Kṛṣṇa. He is always self-satisfied, but sometimes, being the leader of the devotees, He enjoys transcendental pleasure by descending on the material world, although from Him only the material world is created.**
 

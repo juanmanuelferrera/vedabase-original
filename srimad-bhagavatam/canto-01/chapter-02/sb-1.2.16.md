@@ -8,7 +8,7 @@
 > syān mahat-sevayā viprāḥ\
 > puṇya-tīrtha-niṣevaṇāt
 
-*śuśrūṣoḥ*—one who is engaged in hearing; *śraddadhānasya*—with care and attention; *vāsudeva*—in respect to Vāsudeva; *kathā*—the message; *ruciḥ*—affinity; *syāt*—is made possible; *mahat-sevayā*—by service rendered to pure devotees; *viprāḥ*—O twice-born; *puṇya-tīrtha*—those who are cleansed of all vice; *niṣevaṇāt*—by service.
+*śuśrūṣoḥ*—one who is engaged in hearing; *śraddadhānasya*—with care and attention; *vāsudeva*—in respect to Vāsudeva; *kathā*—message; *ruciḥ*—affinity; *syāt*—is made possible; *mahat-sevayā*—by service rendered to pure devotees; *viprāḥ*—O twice-born; *puṇya-tīrtha*—those who are cleansed of all vice; *niṣevaṇāt*—by service.
 
 **O twice-born sages, by serving those devotees who are completely freed from all vice, great service is done. By such service, one gains affinity for hearing the messages of Vāsudeva.**
 

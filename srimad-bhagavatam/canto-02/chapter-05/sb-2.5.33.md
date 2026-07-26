@@ -8,7 +8,7 @@
 > sad-asattvam upādāya\
 > cobhayaṁ sasṛjur hy adaḥ
 
-*tadā*—all those; *saṁhatya*—being assembled; *ca*—also; *anyonyam*—one another; *bhagavat*—by the Personality of Godhead; *śakti*—energy; *coditāḥ*—being applied; *sat-asattvam*—primarily and secondarily; *upādāya*—accepting; *ca*—also; *ubhayam*—both; *sasṛjuḥ*—came into existence; *hi*—certainly; *adaḥ*—this universe.
+*tadā*—all those; *saṁhatya*—being assembled; *ca*—also; *anya*—one; *anyam*—other; *bhagavat*—by the Personality of Godhead; *śakti*—energy; *coditāḥ*—being applied; *sad-asattvam*—primarily and secondarily; *upādāya*—accepting; *ca*—also; *ubhayam*—both; *sasṛjuḥ*—came into existence; *hi*—certainly; *adaḥ*—this universe.
 
 **Thus when all these became assembled by force of the energy of the Supreme Personality of Godhead, this universe certainly came into being by accepting both the primary and secondary causes of creation.**
 

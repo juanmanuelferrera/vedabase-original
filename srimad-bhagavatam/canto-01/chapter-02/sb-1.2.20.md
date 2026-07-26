@@ -8,7 +8,7 @@
 > bhagavat-tattva-vijñānaṁ\
 > mukta-saṅgasya jāyate
 
-*evam*—thus; *prasanna*—enlivened; *manasaḥ*—of the mind; *bhagavat-bhakti*—the devotional service of the Lord; *yogataḥ*—by contact of; *bhagavat*—regarding the Personality of Godhead; *tattva*—knowledge; *vijñānam*—scientific; *mukta*—liberated; *saṅgasya*—of the association; *jāyate*—becomes effective.
+*evam*—thus; *prasanna*—enlivened; *manasaḥ*—of the mind; *bhagavad-bhakti*—devotional service of the Lord; *yogataḥ*—by contact of; *bhagavat*—regarding the Personality of Godhead; *tattva*—knowledge; *vijñānam*—scientific; *mukta*—liberated; *saṅgasya*—of the association; *jāyate*—becomes effective.
 
 **Thus established in the mode of goodness, the man rejuvenated by loving service to the Lord gains liberation from material association [mukti] and comes to know scientifically of the Personality of Godhead.**
 

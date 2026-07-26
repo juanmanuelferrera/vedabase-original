@@ -8,7 +8,7 @@
 > netraiḥ pibanto nayanābhirāmaṁ\
 > pārthāstra-pūtaḥ padam āpur asya
 
-*tathā*—as also; *eva ca*—and certainly; *anye*—others; *nara-loka*—human society; *vīrāḥ*—fighters; *ye*—those; *āhave*—on the battlefield (of Kurukṣetra); *kṛṣṇa*—Lord Kṛṣṇa's; *mukha-aravindam*—face like a lotus flower; *netraiḥ*—with the eyes; *pibantaḥ*—while seeing; *nayana-abhirāmam*—very pleasing to the eyes; *pārtha*—Arjuna; *astra-pūtaḥ*—purified by arrows; *padam*—abode; *āpuḥ*—achieved; *asya*—of Him.
+*tathā*—as also; *eva ca*—and certainly; *anye*—others; *nara-loka*—human society; *vīrāḥ*—fighters; *ye*—those; *āhave*—on the battlefield (of Kurukṣetra); *kṛṣṇa*—Lord Kṛṣṇa's; *mukha-aravindam*—face like a lotus flower; *netraiḥ*—with the eyes; *pibantaḥ*—while seeing; *nayana-abhirāmam*—very pleasing to the eyes; *pārtha*—Arjuna; *astra-pūtaḥ*—purified; *padam*—abode; *āpuḥ*—achieved; *asya*—of Him.
 
 **Certainly others who were fighters on the Battlefield of Kurukṣetra were purified by the onslaught of Arjuna's arrows, and while seeing the lotuslike face of Kṛṣṇa, so pleasing to the eyes, they achieved the abode of the Lord.**
 

@@ -8,7 +8,7 @@
 > gata-vyalīkair aja-śaṅkarādibhir\
 > vitarkya-liṅgo bhagavān prasīdatām
 
-*saḥ*—He; *eṣaḥ*—it is; *ātmā*—the Supersoul; *ātmavatām*—of the self-realized souls; *adhīśvaraḥ*—the Supreme Lord; *trayī-mayaḥ*—personified *Vedas*; *dharma-mayaḥ*—personified religious scripture; *tapaḥ-mayaḥ*—personified austerity; *gata-vyalīkaiḥ*—by those who are above all pretensions; *aja*—Brahmājī; *śaṅkara-ādibhiḥ*—by Lord Śiva and others; *vitarkya-liṅgaḥ*—one who is observed with awe and veneration; *bhagavān*—the Personality of Godhead; *prasīdatām*—be kind toward me.
+*saḥ*—He; *eṣaḥ*—it is; *ātmā*—Supersoul; *ātmavatām*—of the self-realized souls; *adhīśvaraḥ*—the Supreme Lord; *trayī-mayaḥ*—personified *Vedas*; *dharma-mayaḥ*—personified religious scripture; *tapaḥ-mayaḥ*—personified austerity; *gata-vyalīkaiḥ*—by those who are above all pretensions; *aja*—Brahmājī; *śaṅkara-ādibhiḥ*—by Lord Śiva and others; *vitarkya-liṅgaḥ*—one who is observed with awe and veneration; *bhagavān*—the Personality of Godhead; *prasīdatām*—be kind toward me.
 
 **He is the Supersoul and the Supreme Lord of all self-realized souls. He is the personification of the Vedas, religious scriptures and austerities. He is worshiped by Lord Brahmā and Śiva and all those who are transcendental to all pretensions. Being so revered with awe and veneration, may that Supreme Absolute be pleased with me.**
 

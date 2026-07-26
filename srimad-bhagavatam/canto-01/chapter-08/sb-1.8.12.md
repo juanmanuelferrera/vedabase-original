@@ -8,7 +8,7 @@
 > ātmano 'bhimukhān dīptān\
 > ālakṣyāstrāṇy upādaduḥ
 
-*tarhi*—then; *eva*—also; *atha*—therefore; *muni-śreṣṭha*—O chief amongst the *munis*; *pāṇḍavāḥ*—all the sons of Pāṇḍu; *pañca*—five; *sāyakān*—weapons; *ātmanaḥ*—own selves; *abhimukhān*—towards; *dīptān*—glaring; *ālakṣya*—seeing it; *astrāṇi*—weapons; *upādaduḥ*—took up.
+*tarhi*—for that; *eva*—also; *atha*—therefore; *muni-śreṣṭha*—O chief amongst the *munis*; *pāṇḍavāḥ*—all the sons of Pāṇḍu; *pañca*—five; *sāyakān*—weapons; *ātmanaḥ*—own selves; *abhimukhān*—towards; *dīptān*—glaring; *ālakṣya*—seeing it; *astrāṇi*—weapons; *upādaduḥ*—took up.
 
 **O foremost amongst the great thinkers [munis] [Śaunaka], seeing the glaring brahmāstra proceeding towards them, the Pāṇḍavas took up their five respective weapons.**
 

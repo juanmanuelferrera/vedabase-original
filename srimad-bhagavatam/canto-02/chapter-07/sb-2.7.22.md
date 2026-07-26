@@ -10,7 +10,7 @@
 > uddhanty asāv avanikaṇṭakam ugra-vīryas\
 > triḥ-sapta-kṛtva urudhāra-paraśvadhena
 
-*kṣatram*—the royal order; *kṣayāya*—for the sake of diminishing; *vidhinā*—by destination; *upabhṛtam*—increased in proportion; *mahātmā*—the Lord in the form of the great sage Paraśurāma; *brahma-dhruk*—the ultimate truth in Brahman; *ujjhita-patham*—those who have given up the path of the Absolute Truth; *naraka-ārti-lipsu*—desirous to suffer pain in hell; *uddhanti*—exacts; *asau*—all those; *avanikaṇṭakam*—thorns of the world; *ugra-vīryaḥ*—awfully powerful; *triḥ-sapta*—thrice seven times; *kṛtvaḥ*—performed; *urudhāra*—very sharp; *paraśvadhena*—by the great chopper.
+*kṣatram*—the royal order; *kṣayāya*—for the matter of diminishing; *vidhinā*—by destination; *upabhṛtam*—increased in proportion; *mahātmā*—the Lord in the form of the great sage Paraśurāma; *brahma-dhruk*—the ultimate truth in Brahman; *ujjhita-patham*—those who have given up the path of Absolute Truth; *naraka-ārti-lipsu*—desirous to suffer pain in hell; *uddhanti*—exacts; *asau*—all those; *avanikaṇṭakam*—thorns of the world; *ugra-vīryaḥ*—awfully powerful; *triḥ-sapta*—thrice seven times; *kṛtvaḥ*—performed; *urudhāra*—very sharp; *paraśvadhena*—by the great chopper.
 
 **When the ruling administrators, who are known as the kṣatriyas, turned astray from the path of Absolute Truth, being desirous to suffer in hell, the Lord, in His incarnation as the sage Paraśurāma, uprooted those unwanted kings, who appeared as the thorns of the earth. Thus He thrice seven times uprooted the kṣatriyas with His keenly sharpened chopper.**
 

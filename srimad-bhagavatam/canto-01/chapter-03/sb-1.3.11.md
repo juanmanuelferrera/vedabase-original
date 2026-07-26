@@ -8,7 +8,7 @@
 > ānvīkṣikīm alarkāya\
 > prahlādādibhya ūcivān
 
-*ṣaṣṭham*—the sixth one; *atreḥ*—of Atri; *apatyatvam*—sonship; *vṛtaḥ*—being prayed for; *prāptaḥ*—obtained; *anasūyayā*—by Anasūyā; *ānvīkṣikīm*—on the subject of transcendence; *alarkāya*—unto Alarka; *prahlāda-ādibhyaḥ*—unto Prahlāda and others; *ūcivān*—spoke.
+*ṣaṣṭham*—the sixth one; *atreḥ*—of Atri; *apatyatvam*—sonship; *vṛtaḥ*—being prayed for; *prāptaḥ*—obtained; *anasūyayā*—by Anasūyā; *ānvīkṣikīm*—on the subject of transcendence; *alarkāya*—unto Alarka; *prahlāda-ādibhyaḥ*—unto Prahlāda, etc.; *ūcivān*—spoke.
 
 **The sixth incarnation of the puruṣa was the son of the sage Atri. He was born in the womb of Anasūyā, who prayed for an incarnation. He spoke on the subject of transcendence to Alarka, Prahlāda and others [Yadu, Haihaya, etc.].**
 

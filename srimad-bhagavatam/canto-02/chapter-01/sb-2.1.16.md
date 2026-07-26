@@ -8,7 +8,7 @@
 > śucau vivikta āsīno\
 > vidhivat kalpitāsane
 
-*gṛhāt*—from one's home; *pravrajitaḥ*—having gone out; *dhīraḥ*—self-controlled; *puṇya*—pious; *tīrtha*—sacred place; *jala-āplutaḥ*—fully washed; *śucau*—cleansed; *vivikte*—solitary; *āsīnaḥ*—seated; *vidhivat*—according to regulations; *kalpita*—having done; *āsane*—on a sitting place.
+*gṛhāt*—from one's home; *pravrajitaḥ*—having gone out; *dhīraḥ*—self-controlled; *puṇya*—pious; *tīrtha*—sacred place; *jala-āplutaḥ*—fully washed; *śucau*—cleansed; *vivikte*—solitary; *āsīnaḥ*—seated; *vidhivat*—according to regulations; *kalpita*—being done; *āsane*—on a sitting place.
 
 **One should leave home and practice self-control. In a sacred place he should bathe regularly and sit down in a lonely place duly sanctified.**
 

@@ -8,7 +8,7 @@
 > prema-smita-snigdha-nirīkṣaṇānanaṁ\
 > paśyema rūpaṁ tava sarva-saubhagam
 
-*aho*—oh, it is our good luck; *sa-nāthāḥ*—to be under the protection of the master; *bhavatā*—by Your good self; *sma*—as we have become; *yat vayam*—as we are; *traiviṣṭa-pānām*—of the demigods; *api*—also; *dūra-darśanam*—very rarely seen; *prema-smita*—smiling with love; *snigdha*—affectionate; *nirīkṣaṇa-ānanam*—face looking in that mode; *paśyema*—let us look; *rūpam*—beauty; *tava*—Your; *sarva*—all; *saubhagam*—auspiciousness.
+*aho*—oh, it is our good luck; *sa-nāthāḥ*—to be under the protection of the master; *bhavatā*—by Your good self; *sma*—as we have become; *yat vayam*—as we are; *traiviṣṭa-pānām*—of the demigods; *api*—also; *dūra-darśanam*—very rarely seen; *prema-smita*—smiling with love; *snigdha*—affectionate; *nirīkṣaṇa-ānanam*—face looking in that mode; *paśyema*—looking upon You; *rūpam*—beauty; *tava*—Your; *sarva*—all; *saubhagam*—auspiciousness.
 
 **Oh, it is our good luck that we have come again today under Your protection by Your presence, for Your Lordship rarely visits even the denizens of heaven. Now it is possible for us to look into Your smiling face, which is full of affectionate glances. We can now see Your transcendental form, full of all auspiciousness.**
 

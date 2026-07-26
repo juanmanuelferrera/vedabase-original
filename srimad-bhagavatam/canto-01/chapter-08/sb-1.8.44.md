@@ -10,7 +10,7 @@
 > mandaṁ jahāsa vaikuṇṭho\
 > mohayann iva māyayā
 
-*sūtaḥ uvāca*—Sūta said; *pṛthayā*—by Pṛthā (Kuntī); *ittham*—this; *kala-padaiḥ*—by chosen words; *pariṇūta*—being worshiped; *akhila*—universal; *udayaḥ*—glories; *mandam*—mildly; *jahāsa*—smiled; *vaikuṇṭhaḥ*—the Lord; *mohayan*—captivating; *iva*—like; *māyayā*—His mystic power.
+*sūtaḥ*—Sūta; *uvāca*—said; *pṛthayā*—by Pṛthā (Kuntī); *ittham*—this; *kala-padaiḥ*—by chosen words; *pariṇūta*—being worshiped; *akhila*—universal; *udayaḥ*—glories; *mandam*—mildly; *jahāsa*—smiled; *vaikuṇṭhaḥ*—the Lord; *mohayan*—captivating; *iva*—like; *māyayā*—by mystic power.
 
 **Sūta Gosvāmī said: The Lord, thus hearing the prayers of Kuntīdevī, composed in choice words for His glorification, mildly smiled. That smile was as enchanting as His mystic power.**
 

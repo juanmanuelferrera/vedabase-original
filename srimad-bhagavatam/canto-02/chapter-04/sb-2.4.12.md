@@ -10,7 +10,7 @@
 > gṛhīta-śakti-tritayāya dehinām\
 > antarbhavāyānupalakṣya-vartmane
 
-*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *namaḥ*—offering obeisances; *parasmai*—the Supreme; *puruṣāya*—Personality of Godhead; *bhūyase*—unto the complete whole; *sad-udbhava*—the creation of the material world; *sthāna*—its maintenance; *nirodha*—and its winding up; *līlayā*—by the pastime of; *gṛhīta*—having accepted; *śakti*—power; *tritayāya*—three modes; *dehinām*—of all who possess material bodies; *antaḥ-bhavāya*—unto Him who resides within; *anupalakṣya*—inconceivable; *vartmane*—one who has such ways.
+*namaḥ*—offering obeisances; *parasmai*—the Supreme; *puruṣāya*—Personality of Godhead; *bhūyase*—unto the complete whole; *sad-udbhava*—creation of the material world; *sthāna*—its maintenance; *nirodha*—and its winding up; *līlayā*—by the pastime of; *gṛhīta*—having accepted; *śakti*—power; *tritayāya*—three modes; *dehinām*—of all who possess material bodies; *antaḥ-bhavāya*—unto Him who resides within; *anupalakṣya*—inconceivable; *vartmane*—one who has such ways.
 
 **Śukadeva Gosvāmī said: Let me offer my respectful obeisances unto the Supreme Personality of Godhead who, for the creation of the material world, accepts the three modes of nature. He is the complete whole residing within the body of everyone, and His ways are inconceivable.**
 

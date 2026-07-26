@@ -10,7 +10,7 @@
 > niveśayitvā nija-rājya īśvaro\
 > yudhiṣṭhiraṁ prīta-manā babhūva ha
 
-*sūtaḥ uvāca*—Sūta Gosvāmī replied; *vaṁśam*—dynasty; *kuroḥ*—of King Kuru; *vaṁśa-dava-agni*—a forest fire set by the bamboos; *nirhṛtam*—exhausted; *saṁrohayitvā*—seedling of the dynasty; *bhava-bhāvanaḥ*—the maintainer of creation; *hariḥ*—the Personality of Godhead, Śrī Kṛṣṇa; *niveśayitvā*—having reestablished; *nija-rājye*—in his own kingdom; *īśvaraḥ*—the Supreme Lord; *yudhiṣṭhiram*—unto Mahārāja Yudhiṣṭhira; *prīta-manāḥ*—pleased in His mind; *babhūva ha*—became.
+*sūtaḥ uvāca*—Sūta Gosvāmī replied; *vaṁśam*—dynasty; *kuroḥ*—of King Kuru; *vaṁśa-dava-agni*—forest fire set by the bamboos; *nirhṛtam*—exhausted; *saṁrohayitvā*—seedling of the dynasty; *bhava-bhāvanaḥ*—the maintainer of creation; *hariḥ*—the Personality of Godhead, Śrī Kṛṣṇa; *niveśayitvā*—having reestablished; *nija-rājye*—in his own kingdom; *īśvaraḥ*—the Supreme Lord; *yudhiṣṭhiram*—unto Mahārāja Yudhiṣṭhira; *prīta-manāḥ*—pleased in His mind; *babhūva ha*—became.
 
 **Sūta Gosvāmī said: Lord Śrī Kṛṣṇa, the Supreme Personality of Godhead who is the maintainer of the world, became pleased after reestablishing Mahārāja Yudhiṣṭhira in his own kingdom and after restoring the Kuru dynasty, which had been exhausted by the bamboo fire of anger.**
 

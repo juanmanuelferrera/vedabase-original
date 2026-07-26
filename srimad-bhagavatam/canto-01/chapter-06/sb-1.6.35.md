@@ -8,7 +8,7 @@
 > mukunda-sevayā yadvat\
 > tathātmāddhā na śāmyati
 
-*yama-ādibhiḥ*—by the process of practicing self-restraint; *yoga-pathaiḥ*—by the system of *yoga* (mystic bodily power to attain the godly stage); *kāma*—desires for sense satisfaction; *lobha*—lust for satisfaction of the senses; *hataḥ*—curbed; *muhuḥ*—always; *mukunda*—the Personality of Godhead; *sevayā*—by the service of; *yadvat*—as it is; *tathā*—like that; *ātmā*—the soul; *addhā*—for all practical purposes; *na*—does not; *śāmyati*—be satisfied.
+*yama-ādibhiḥ*—by the process of practicing self-restraint; *yoga-pathaiḥ*—by *yoga* (mystic bodily power to attain the godly stage) system; *kāma*—desires for sense satisfaction; *lobha*—lust for satisfaction of the senses; *hataḥ*—curbed; *muhuḥ*—always; *mukunda*—the Personality of Godhead; *sevayā*—by the service of; *yadvat*—as it is; *tathā*—like that; *ātmā*—the soul; *addhā*—for all practical purposes; *na*—does not; *śāmyati*—be satisfied.
 
 **It is true that by practicing restraint of the senses by the yoga system one can get relief from the disturbances of desire and lust, but this is not sufficient to give satisfaction to the soul, for this [satisfaction] is derived from devotional service to the Personality of Godhead.**
 

@@ -8,7 +8,7 @@
 > mama niśita-śarair vibhidyamāna-\
 > tvaci vilasat-kavace 'stu kṛṣṇa ātmā
 
-*yudhi*—on the battlefield; *turaga*—horses; *rajaḥ*—dust; *vidhūmra*—turned an ashen color; *viṣvak*—waving; *kaca*—hair; *lulita*—scattered; *śramavāri*—perspiration; *alaṅkṛta*—decorated with; *āsye*—unto the face; *mama*—my; *niśita*—sharp; *śaraiḥ*—by the arrows; *vibhidyamāna*—pierced by; *tvaci*—in the skin; *vilasat*—enjoying pleasure; *kavace*—protecting armor; *astu*—let there be; *kṛṣṇe*—unto Śrī Kṛṣṇa; *ātmā*—mind.
+*yudhi*—on the battlefield; *turaga*—horses; *rajaḥ*—dust; *vidhūmra*—turned an ashen color; *viṣvak*—waving; *kaca*—hair; *lulita*—scattered; *śramavāri*—perspiration; *alaṅkṛta*—decorated with; *āsye*—unto the face; *mama*—my; *niśita*—sharp; *śaraiḥ*—by the arrows; *vibhidyamāna*—pierced by; *tvaci*—in the skin; *vilasat*—enjoying pleasure; *kavace*—protecting armor; *astu*—let there be; *kṛṣṇaḥ*—unto Śrī Kṛṣṇa; *ātmā*—mind.
 
 **On the battlefield [where Śrī Kṛṣṇa attended Arjuna out of friendship], the flowing hair of Lord Kṛṣṇa turned ashen due to the dust raised by the hoofs of the horses. And because of His labor, beads of sweat wetted His face. All these decorations, intensified by the wounds dealt by my sharp arrows, were enjoyed by Him. Let my mind thus go unto Śrī Kṛṣṇa.**
 

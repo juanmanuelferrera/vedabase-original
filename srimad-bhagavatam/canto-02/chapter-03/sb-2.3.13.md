@@ -10,7 +10,7 @@
 > kim anyat pṛṣṭavān bhūyo\
 > vaiyāsakim ṛṣiṁ kavim
 
-*śaunakaḥ uvāca*—Śaunaka said; *iti*—thus; *abhivyāhṛtam*—all that was spoken; *rājā*—the King; *niśamya*—by hearing; *bharata-ṛṣabhaḥ*—Mahārāja Parīkṣit; *kim*—what; *anyat*—more; *pṛṣṭavān*—did he inquire from him; *bhūyaḥ*—again; *vaiyāsakim*—unto the son of Vyāsadeva; *ṛṣim*—one who is well versed; *kavim*—poetic.
+*iti*—thus; *abhivyāhṛtam*—all that was spoken; *rājā*—the King; *niśamya*—by hearing; *bharata-ṛṣabhaḥ*—Mahārāja Parīkṣit; *kim*—what; *anyat*—more; *pṛṣṭavān*—did he inquire from him; *bhūyaḥ*—again; *vaiyāsakim*—unto the son of Vyāsadeva; *ṛṣim*—one who is well versed; *kavim*—poetic.
 
 **Śaunaka said, The son of Vyāsadeva, Śrīla Śukadeva Gosvāmī, was a highly learned sage and was able to describe things in a poetic manner. What did Mahārāja Parīkṣit again inquire from him after hearing all that he said?**
 

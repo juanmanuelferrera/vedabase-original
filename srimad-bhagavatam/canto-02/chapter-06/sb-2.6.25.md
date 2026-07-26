@@ -8,7 +8,7 @@
 > ṛco yajūṁṣi sāmāni\
 > cātur-hotraṁ ca sattama
 
-*vastūni*—utensils; *oṣadhayaḥ*—grains; *snehāḥ*—clarified butter; *rasa-loha-mṛdaḥ*—honey, gold and earth; *jalam*—water; *ṛcaḥ*—the *Ṛg Veda*; *yajūṁṣi*—the *Yajur Veda*; *sāmāni*—the *Sāma Veda*; *cātuḥ-hotram*—four persons conducting the performance; *ca*—all these; *sattama*—O most pious one.
+*vastūni*—utensils; *oṣadhayaḥ*—grains; *snehāḥ*—clarified butter; *rasa-loha-mṛdaḥ*—honey, gold and earth; *jalam*—water; *ṛcaḥ*—the *Ṛg Veda*; *yajūṁṣi*—the *Yajur Veda*; *sāmāni*—the *Sāma Veda*; *cātur-hotram*—four persons conducting the performance; *ca*—all these; *sattama*—O most pious one.
 
 **Other requirements are utensils, grains, clarified butter, honey, gold, earth, water, Ṛg-Veda, Yajur-Veda, Sāma-Veda and four priests to perform the sacrifice.**
 

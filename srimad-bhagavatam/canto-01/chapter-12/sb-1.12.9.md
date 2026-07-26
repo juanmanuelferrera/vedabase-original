@@ -11,7 +11,7 @@
 > paribhramantam ulkābhāṁ\
 > bhrāmayantaṁ gadāṁ muhuḥ
 
-*śrīmat*—enriched; *dīrgha*—prolonged; *catuḥ-bāhum*—four-handed; *tapta-kāñcana*—molten gold; *kuṇḍalam*—earrings; *kṣataja-akṣam*—eyes with the redness of blood; *gadā-pāṇim*—hand with a club; *ātmanaḥ*—own; *sarvataḥ*—all; *diśam*—around; *paribhramantam*—loitering; *ulkābhām*—like shooting stars; *bhrāmayantam*—encircling; *gadām*—the club; *muhuḥ*—constantly.
+*śrīmat*—enriched; *dīrgha*—prolonged; *catur-bāhum*—four-handed; *tapta-kāñcana*—molten gold; *kuṇḍalam*—earrings; *kṣataja-akṣam*—eyes with the redness of blood; *gadā-pāṇim*—hand with a club; *ātmanaḥ*—own; *sarvataḥ*—all; *diśam*—around; *paribhramantam*—loitering; *ulkābhām*—like shooting stars; *bhrāmayantam*—encircling; *gadām*—the club; *muhuḥ*—constantly.
 
 **The Lord was enriched with four hands, earrings of molten gold and eyes blood red with fury. As He loitered about, His club constantly encircled Him like a shooting star.**
 

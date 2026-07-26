@@ -8,7 +8,7 @@
 > tad dravyam atyagād viśvaṁ\
 > gobhiḥ sūrya ivātapan
 
-*yasmāt*—from whom; *aṇḍam*—the universal globes; *virāṭ*—and the gigantic universal form; *jajñe*—appeared; *bhūta*—elements; *indriya*—senses; *guṇa-ātmakaḥ*—qualitative; *tat dravyam*—the universes and the universal form, etc.; *atyagāt*—surpassed; *viśvam*—all the universes; *gobhiḥ*—by the rays; *sūryaḥ*—the sun; *iva*—like; *ātapan*—distributed rays and heat.
+*yasmāt*—from whom; *aṇḍam*—universal globes; *virāṭ*—and the gigantic universal form; *jajñe*—appeared; *bhūta*—elements; *indriya*—senses; *guṇa-ātmakaḥ*—qualitative; *tat dravyam*—the universes and the universal form, etc.; *atyagāt*—surpassed; *viśvam*—all the universes; *gobhiḥ*—by the rays; *sūryaḥ*—the sun; *iva*—like; *ātapan*—distributed rays and heat.
 
 **From that Personality of Godhead, all the universal globes and the universal form with all material elements, qualities, and senses are generated. Yet He is aloof from such material manifestations, like the sun, which is separate from its rays and heat.**
 

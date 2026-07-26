@@ -15,7 +15,7 @@
 > sarva-varṇāśramāṇāṁ yad\
 > dadhyau hitam amogha-dṛk
 
-*bhautikānām ca*—also of everything that is made of matter; *bhāvānām*—actions; *śakti-hrāsam ca*—and deterioration of natural power; *tat-kṛtam*—rendered by that; *aśraddadhānān*—of the faithless; *niḥsattvān*—impatient due to want of the mode of goodness; *durmedhān*—dull-witted; *hrasita*—reduced; *āyuṣaḥ*—of duration of life; *durbhagān ca*—also the unlucky; *janān*—people in general; *vīkṣya*—by seeing; *muniḥ*—the *muni*; *divyena*—by transcendental; *cakṣuṣā*—vision; *sarva*—all; *varṇa-āśramāṇām*—of all the statuses and orders of life; *yat*—what; *dadhyau*—contemplated; *hitam*—welfare; *amogha-dṛk*—one who is fully equipped in knowledge.
+*bhautikānām ca*—also of everything that is made of matter; *bhāvānām*—actions; *śakti-hrāsam ca*—deterioration of natural power; *tat-kṛtam*—rendered by that; *aśraddadhānān*—of the faithless; *niḥsattvān*—impatient due to want of the mode of goodness; *hrasita*—reduced; *āyuṣaḥ*—of duration of life; *durbhagān ca*—also the unlucky; *janān*—people in general; *vīkṣya*—by seeing; *muniḥ*—the *muni*; *divyena*—by transcendental; *cakṣuṣā*—vision; *sarva*—all; *varṇa-āśramāṇām*—of all the statuses and orders of life; *yat*—what; *dadhyau*—contemplated; *hitam*—welfare; *amogha-dṛk*—one who is fully equipped in knowledge.
 
 **The great sage, who was fully equipped in knowledge, could see, through his transcendental vision, the deterioration of everything material, due to the influence of the age. He could also see that the faithless people in general would be reduced in duration of life and would be impatient due to lack of goodness. Thus he contemplated for the welfare of men in all statuses and orders of life.**
 

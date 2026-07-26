@@ -10,7 +10,7 @@
 > yādṛśī vā hared āśu\
 > puruṣasya mano-malam
 
-*rājā uvāca*—the fortunate King said; *yathā*—as it is; *sandhāryate*—the conception is made; *brahman*—O *brāhmaṇa*; *dhāraṇā*—conception; *yatra*—where and how; *sammatā*—in a summary; *yādṛśī*—the way by which; *vā*—or; *haret*—extricated; *āśu*—without delay; *puruṣasya*—of a person; *manaḥ*—of the mind; *malam*—dirty things.
+*rājā uvāca*—the lucky King said; *yathā*—as it is; *sandhāryate*—the conception is made; *brahman*—O *brāhmaṇa*; *dhāraṇā*—conception; *yatra*—where and how; *sammatā*—in a summary; *yādṛśī*—the way by which; *vā*—either or; *haret*—extricated; *āśu*—without delay; *puruṣasya*—of a person; *manaḥ*—of the mind; *malam*—dirty things.
 
 **The lucky King Parīkṣit, inquiring further, said, O brāhmaṇa, please describe in full detail the process as to how and where the mind has to be applied and how the conception can be fixed so that the dirty things in a person's mind can be removed.**
 

@@ -8,7 +8,7 @@
 > ekaḥ sṛjasi bhūtāni\
 > bhūtair evātma-māyayā
 
-*yat-vijñānaḥ*—the source of knowledge; *yat-ādhāraḥ*—under whose protection; *yat-paraḥ*—under whose subordination; *tvam*—you; *yat-ātmakaḥ*—in what capacity; *ekaḥ*—alone; *sṛjasi*—you are creating; *bhūtāni*—the living entities; *bhūtaiḥ*—with the help of the material elements; *eva*—certainly; *ātma*—self; *māyayā*—by potency.
+*yat-vijñānaḥ*—the source of knowledge; *yad-ādhāraḥ*—under whose protection; *yad-paraḥ*—under whose subordination; *tvam*—you; *yad-ātmakaḥ*—in what capacity; *ekaḥ*—alone; *sṛjasi*—you are creating; *bhūtāni*—the living entities; *bhūtaiḥ*—with the help of material elements; *eva*—certainly; *ātma*—self; *māyayā*—by potency.
 
 **My dear father, what is the source of your knowledge? Under whose protection are you standing? And under whom are you working? What is your real position? Do you alone create all entities with material elements by your personal energy?**
 

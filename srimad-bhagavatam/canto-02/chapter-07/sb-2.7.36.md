@@ -10,7 +10,7 @@
 > āvirhitas tv anuyugaṁ sa hi satyavatyāṁ\
 > veda-drumaṁ viṭa-paśo vibhajiṣyati sma
 
-*kālena*—in course of time; *mīlita-dhiyām*—of the less intelligent persons; *avamṛśya*—considering the difficulties; *nṝṇām*—of humanity at large; *stoka-āyuṣām*—of the short-living persons; *sva-nigamaḥ*—the Vedic literatures compiled by Him; *bata*—exactly; *dūra-pāraḥ*—greatly difficult; *āvirhitaḥ*—having appeared as; *tu*—but; *anuyugam*—in terms of the age; *saḥ*—He (the Lord); *hi*—certainly; *satyavatyām*—in the womb of Satyavatī; *veda-drumam*—the desire tree of the *Vedas*; *viṭa-paśaḥ*—by division of branches; *vibhajiṣyati*—will divide; *sma*—as it were.
+*kālena*—in course of time; *mīlita-dhiyām*—of the less intelligent persons; *avamṛśya*—considering the difficulties; *nṝṇām*—of humanity at large; *stoka-āyuṣām*—of the short-living persons; *sva-nigamaḥ*—the Vedic literatures compiled by Him; *bata*—exactly; *dūra-pāraḥ*—greatly difficult; *āvirhitaḥ*—having appeared as; *tu*—but; *anuyugam*—in terms of the age; *saḥ*—He (the Lord); *hi*—certainly; *satyavatyām*—in the womb of Satyavatī; *veda-drumam*—the desire tree of the *Vedas*; *viṭa-paśaḥ*—by division of branches; *vibhajiṣyati*—would divide; *sma*—as it were.
 
 **The Lord Himself in His incarnation as the son of Satyavatī [Vyāsadeva] would consider His compilation of the Vedic literature to be very difficult for the less intelligent persons with short life, and thus He would divide the tree of Vedic knowledge into different branches, according to the circumstances of the particular age.**
 

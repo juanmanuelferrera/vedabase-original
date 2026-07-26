@@ -8,7 +8,7 @@
 > devīṁ sarasvatīṁ vyāsaṁ\
 > tato jayam udīrayet
 
-*nārāyaṇam*—the Personality of Godhead; *namaḥ-kṛtya*—after offering respectful obeisances; *naram ca eva*—and Nārāyaṇa Ṛṣi; *nara-uttamam*—the supermost human being; *devīm*—the goddess; *sarasvatīm*—the mistress of learning; *vyāsam*—Vyāsadeva; *tataḥ*—thereafter; *jayam*—all that is meant for conquering; *udīrayet*—be announced.
+*nārāyaṇam*—the Personality of Godhead; *namaskṛtya*—after offering respectful obeisances; *naram ca eva*—and Nārāyaṇa Ṛṣi; *nara-uttamam*—the supermost human being; *devīm*—the goddess; *sarasvatīm*—the mistress of learning; *vyāsam*—Vyāsadeva; *tataḥ*—thereafter; *jayam*—all that is meant for conquering; *udīrayet*—be announced.
 
 **Before reciting this Śrīmad-Bhāgavatam, which is our very means of conquest, I offer my respectful obeisances unto the Personality of Godhead, Nārāyaṇa, unto Nara-nārāyaṇa Ṛṣi, the supermost human being, unto Mother Sarasvatī, the goddess of learning, and unto Śrīla Vyāsadeva, the author.**
 
