@@ -8,7 +8,7 @@
 > tāṁs te pretyābhigacchanti\
 > ye ke cātma-hano janāḥ
 
-*asuryāḥ*—meant for the asuras; *nāma*—famous by the name; *te*—those; *lokāḥ*—planets; *andhena*—ignorance; *tamasā*—darkness; *āvṛtāḥ*—covered; *tān*—there; *te*—they; *pretya*—after death; *abhigacchanti*—enter into; *ye*—anyone; *ke*—everyone; *ca*—and; *ātma-hanaḥ*—the killers of the soul; *janāḥ*—persons.
+*asuryāḥ*—meant for the asuras; *nāma*—famous by the name; *te*—those; *lokāḥ*—planets; *andhena*—ignorance; *tamasā*—darkness; *āvṛtāḥ*—covered by; *tān*—there; *te*—they; *pretya*—after death; *abhigacchanti*—do enter into; *ye*—anyone; *ke*—everyone; *ca*—and; *ātma-hanaḥ*—the killer of the soul; *janāḥ*—persons.
 
 **The killer of the soul, whoever he may be, must enter into the planets known as the worlds of the faithless, full of darkness and ignorance.**
 

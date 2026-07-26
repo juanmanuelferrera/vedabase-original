@@ -9,7 +9,7 @@
 > kavir manīṣī paribhūḥ svayambhūr\
 > yāthātathyato 'rthān vyadadhāc chāśvatībhyaḥ samābhyaḥ
 
-*saḥ*—that person; *paryagāt*—must know in fact; *śukram*—the omnipotent; *akāyam*—unembodied; *avraṇam*—without reproach; *asnāviram*—without veins; *śuddham*—antiseptic; *apāpa-viddham*—prophylactic; *kaviḥ*—omniscient; *manīṣī*—philosopher; *paribhūḥ*—the greatest of all; *svayambhūḥ*—self-sufficient; *yāthātathyataḥ*—just in pursuance of; *arthān*—desirables; *vyadadhāt*—awards; *śāśvatībhyaḥ*—immemorial; *samābhyaḥ*—time.
+*saḥ*—that person; *paryagāt*—must know in fact; *śukram*—the omnipotent; *akāyam*—unembodied; *avraṇam*—without any reproach; *asnāviram*—without any veins; *śuddham*—antiseptic; *apāpa-viddham*—prophylactic; *kaviḥ*—omniscient; *manīṣī*—philosopher; *paribhūḥ*—the greatest of all; *svayambhūḥ*—self-sufficient; *yāthātathyataḥ*—just in pursuance of; *arthān*—desirables; *vyadadhāt*—awards; *śāśvatībhyaḥ*—immemorial; *samābhyaḥ*—time.
 
 **Such a person must know in fact the Greatest of all, Who is unembodied, omniscient, beyond reproach, without veins, pure and uncontaminate, the selfsufficient Philosopher Who is awarding everyone's desire since time immemorial.**
 

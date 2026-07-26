@@ -8,7 +8,7 @@
 > tato bhūya iva te tamo\
 > ya u vidyāyām ratāḥ
 
-*andham*—gross ignorance; *tamaḥ*—darkness; *praviśanti*—enter into; *ye*—those who; *avidyām*—nescience; *upāsate*—worship; *tataḥ*—further; *bhūyaḥ*—considered; *iva*—like; *te*—those; *tamaḥ*—darkness; *ye*—those; *u*—also; *vidyāyām*—in the culture of knowledge; *ratāḥ*—engaged in.
+*andham*—gross ignorance; *tamaḥ*—darkness; *praviśanti*—enter into; *ye*—those; *avidyām*—nescience; *upāsate*—worship; *tataḥ*—further; *bhūyaḥ*—considered; *iva*—like; *te*—those; *tamaḥ*—darkness; *ye*—those; *u*—also; *vidyāyām*—in the culture of knowledge; *ratāḥ*—engaged in.
 
 **Those who are engaged in the culture of nescient activities shall enter into the darkest region of ignorance. Worse still are those engaged in the so-called culture of knowledge.**
 

@@ -8,7 +8,7 @@
 > vināśena mṛtyuṁ tīrtvā\
 > sambhūtyāmṛtam aśnute
 
-*sambhūtim*—the eternal Personality of Godhead, His transcendental name, form, pastimes, Qualities, Paraphernalia, and the variegatedness of His abode, etc.; *ca*—and; *vināśam*—the temporary material manifestation of demigods, man, animals, etc., with their false names, fame, etc.; *ca*—also; *yaḥ*—as they are; *tad*—that; *veda*—knows; *ubhayam*—both; *saha*—along with; *vināśena*—everything liable to be vanquished; *mṛtyum*—death; *tīrtvā*—surpassing; *sam-bhūtyā*—in the eternal kingdom of God; *amṛtam*—deathlessness; *aśnute*—enjoys.
+*sambhūtim*—the eternal Personality of Godhead, His transcendental name, form, pastimes, Qualities, Paraphernalia, and the variegatedness of His abode, etc.; *ca*—and; *vināśam*—and the temporary material manifestation of demigods, man, animals, etc., along with their false name, fame, etc.; *ca*—also; *yaḥ*—as they are; *tad*—that; *veda*—knows; *ubhayam*—both; *saha*—along with; *vināśena*—everything liable to be vanquished; *mṛtyum*—death; *tīrtvā*—surpassing; *sam-bhūtyā*—in the eternal kingdom of God; *amṛtam*—deathlessness; *aśnute*—enjoys.
 
 **One should know perfectly well about the Personality of Godhead and His transcendental Name, as well as the temporary material creation with its temporary demigods, men and animals. When one knows these, he surpasses death, and the ephemeral cosmic manifestation with it, and in the eternal Kingdom of God he enjoys his eternal life of bliss and knowledge.**
 

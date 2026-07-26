@@ -8,7 +8,7 @@
 > iti śuśruma dhīrāṇāṁ\
 > ye nas tad vicacakṣire
 
-*anyat*—different; *eva*—certainly; *āhuḥ*—said; *vid-yayā*—by culture of knowledge; *anyat*—different; *āhuḥ*—said; *avidyayā*—by culture of nescience; *iti*—thus; *śuśruma*—I heard; *dhīrāṇām*—from the sober; *ye*—who; *naḥ*—to us; *tat*—that; *vicacakṣire*—explained.
+*anyat*—different; *eva*—certainly; *āhuḥ*—said; *vid-yayā*—by culture of knowledge; *anyat*—different; *āhuḥ*—said; *avidyayā*—nescience; *iti*—thus; *śuśruma*—heard; *dhīrāṇām*—from the sober sect; *ye*—those; *naḥ*—to us; *tat*—that; *vicacakṣire*—explained.
 
 **The wise have explained to us that one result is derived from the culture of knowledge, and it is said that a different result is obtained from the culture of nescience.**
 
