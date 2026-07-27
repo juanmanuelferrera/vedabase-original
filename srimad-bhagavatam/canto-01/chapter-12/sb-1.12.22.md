@@ -8,7 +8,7 @@
 > titikṣur vasudhevāsau\
 > sahiṣṇuḥ pitarāv iva
 
-*mṛgendraḥ*—the lion; *iva*—like; *vikrāntaḥ*—powerful; *niṣevyaḥ*—worthy of taking shelter; *himavān*—the Himalaya Mountains; *iva*—like; *titikṣuḥ*—forbearance; *vasudhā iva*—like the earth; *asau*—the child; *sahiṣṇuḥ*—tolerant; *pitarau*—parents; *iva*—like.
+*mṛgendraḥ*—the lion; *iva*—like; *vikrāntaḥ*—powerful; *niṣevyaḥ*—worthy of taking shelter; *himavān*—the Himalayan mountains; *iva*—like; *titikṣuḥ*—forbearance; *vasudhā iva*—like the earth; *asau*—the child; *sahiṣṇuḥ*—tolerant; *pitarau*—parents; *iva*—like.
 
 **This child will be as strong as a lion, and as worthy a shelter as the Himalayan mountains. He will be forbearing like the earth, and as tolerant as his parents.**
 

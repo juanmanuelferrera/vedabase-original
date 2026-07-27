@@ -8,7 +8,7 @@
 > ātmanātmānam ātmasthaṁ\
 > yathā-śrutam acintayam
 
-*tasmin*—in that; *nirmanuje*—without human habitation; *araṇye*—in the forest; *pippala*—banyan tree; *upasthe*—sitting under it; *āśritaḥ*—taking shelter of; *ātmanā*—by intelligence; *ātmānam*—the Supersoul; *ātma-stham*—situated within myself; *yathā-śrutam*—as I had heard it from the liberated souls; *acintayam*—thought over.
+*tasmin*—in that; *nirmanuje*—without human habitation; *araṇye*—in the forest; *pippala*—banyan tree; *upastha*—sitting under it; *āśritaḥ*—taking shelter of; *ātmanā*—by intelligence; *ātmānam*—the Supersoul; *ātma-stham*—situated within myself; *yathā-śrutam*—as I heard it from the liberated souls; *acintayam*—thought over.
 
 **After that, under the shadow of a banyan tree in an uninhabited forest I began to meditate upon the Supersoul situated within, using my intelligence, as I learned from liberated souls.**
 

@@ -6,7 +6,7 @@
 > sākṣāte nā deya dekhā, parokṣe ta' dayā\
 > ke bujhite pāre caitanya-candrera māyā
 
-*sākṣāte*—directiy; *nā*—not; *deya*—gives; *dekhā*—interview; *parokṣe*—indirectly; *ta'*—indeed; *dayā*—there was mercy; *ke*—who; *bujhite*—to understand; *pāre*—is able; *caitanya-candrera*—of Lord Śrī Caitanya Mahāprabhu; *māyā*—internal potency.
+*sākṣāte*—directly; *nā*—not; *deya*—gives; *dekhā*—interview; *parokṣe*—indirectly; *ta'*—indeed; *dayā*—there was mercy; *ke*—who; *bujhite*—to understand; *pāre*—is able; *caitanya-candrera*—of Lord Śrī Caitanya Mahāprabhu; *māyā*—internal potency.
 
 **Although the King was refused an interview, he was indirectly bestowed causeless mercy. Who can understand the internal potency of Śrī Caitanya Mahāprabhu?**
 

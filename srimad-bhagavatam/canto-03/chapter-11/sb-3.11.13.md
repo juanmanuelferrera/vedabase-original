@@ -8,7 +8,7 @@
 > saṁvatsarāvasānena\
 > paryety animiṣo vibhuḥ
 
-*graha*—influential planets like the moon; *ṛkṣa*—luminaries like Aśvinī; *tārā*—stars; *cakra-sthaḥ*—in the orbit; *parama-aṇu-ādinā*—along with the atoms; *jagat*—the entire universe; *saṁvatsara-avasānena*—by the end of one year; *paryeti*—completes its orbit; *animiṣaḥ*—the eternal time; *vibhuḥ*—the Almighty.
+*graha*—influencing planets like the moon; *ṛkṣa*—luminaries like Aśvinī; *tārā*—stars; *cakra-sthaḥ*—in the orbit; *parama-aṇu-ādinā*—along with the atoms; *jagat*—the entire universe; *saṁvatsara-avasānena*—by the end of one year; *paryeti*—completes its orbit; *animiṣaḥ*—the eternal time; *vibhuḥ*—the Almighty.
 
 **Influential stars, planets, luminaries and atoms all over the universe are rotating in their respective orbits under the direction of the Supreme, represented by eternal kāla.**
 

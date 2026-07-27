@@ -8,7 +8,7 @@
 > yad avidyā ca vidyā ca\
 > puruṣas tūbhayāśrayaḥ
 
-*sṛtī*—destination of the living entities; *vicakrame*—exists comprehensively; *viśvaṅ*—the all-pervading Personality of Godhead; *sāśana*—activities of lording it over; *anaśane*—activities in devotional service; *ubhe*—both; *yat*—what is; *avidyā*—nescience; *ca*—as well as; *vidyā*—factual knowledge; *ca*—and; *puruṣaḥ*—the Supreme Person; *tu*—but; *ubhaya*—for both of them; *āśrayaḥ*—master.
+*sṛtī*—destination of the living entities; *vicakrame*—exists comprehensively; *viśvam*—the all-pervading Personality of Godhead; *sāśana*—activities of lording it over; *anaśane*—activities in devotional service; *ubhe*—both; *yat*—what is; *avidyā*—nescience; *ca*—as well as; *vidyā*—factual knowledge; *ca*—and; *puruṣaḥ*—the Supreme Person; *tu*—but; *ubhaya*—for both of them; *āśrayaḥ*—master.
 
 **By His energies, the all-pervading Personality of Godhead is thus comprehensively the master in the activities of controlling and in devotional service. He is the ultimate master of both nescience and factual knowledge of all situations.**
 

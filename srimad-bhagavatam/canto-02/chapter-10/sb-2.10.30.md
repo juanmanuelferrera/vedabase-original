@@ -8,7 +8,7 @@
 > tato manaś candra iti\
 > saṅkalpaḥ kāma eva ca
 
-*nididhyāsoḥ*—being desirous to know; *ātma-māyām*—own energy; *hṛdayam*—the location of the mind; *nirabhidyata*—was manifested; *tataḥ*—thereafter; *manaḥ*—the mind; *candraḥ*—the controlling deity of the mind, the moon; *iti*—thus; *saṅkalpaḥ*—determination; *kāmaḥ*—desire; *eva*—as much as; *ca*—also.
+*nididhyāsoḥ*—being desirious to know; *ātma-māyām*—own energy; *hṛdayam*—the location of the mind; *nirabhidyata*—was manifested; *tataḥ*—thereafter; *manaḥ*—the mind; *candraḥ*—the controlling deity of the mind, the moon; *iti*—thus; *saṅkalpaḥ*—determination; *kāmaḥ*—desire; *eva*—as much as; *ca*—also.
 
 **When there was a desire to think about the activities of His own energy, then the heart (the seat of the mind), the mind, the moon, determination and all desire became manifested.**
 

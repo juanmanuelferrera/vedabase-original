@@ -8,7 +8,7 @@
 > tatra vāyur gandha-vaho\
 > ghrāṇo nasi jighṛkṣataḥ
 
-*nāsike*—in the nostrils; *nirabhidyetām*—being developed; *dodhūyati*—rapidly blowing; *nabhasvati*—air respiration; *tatra*—thereupon; *vāyuḥ*—air; *gandha-vahaḥ*—smelling odor; *ghrāṇaḥ*—sense of smell; *nasi*—in the nose; *jighṛkṣataḥ*—desiring to smell odors.
+*nāsike*—in the nostrils; *nirabhidyetām*—being developed; *dodhūyate*—rapidly blowing; *nabhasvati*—air respiration; *tatra*—thereupon; *vāyuḥ*—air; *gandha-vahaḥ*—smelling odor; *ghrāṇaḥ*—sense of smell; *nasi*—in the nose; *jighṛkṣataḥ*—desiring to smell odors.
 
 **Thereafter, when the supreme puruṣa desired to smell odors, the nostrils and respiration generated, the nasal instrument and odors came into existence, and the controlling deity of air, carrying smell, also became manifested.**
 

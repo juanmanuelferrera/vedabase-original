@@ -8,7 +8,7 @@
 > sarva-kāma-varasyāpi\
 > hareś caraṇa āspadam
 
-*vikramaḥ*—forward steps; *bhūḥ bhuvaḥ*—of the lower and upper planets; *svaḥ*—as well as of heaven; *ca*—also; *kṣemasya*—of protection of all that we have; *śaraṇasya*—of fearlessness; *ca*—also; *sarva-kāma*—all that we need; *varasya*—of all benedictions; *api*—exactly; *hareḥ*—of the Lord; *caraṇaḥ*—lotus feet; *āspadam*—shelter.
+*vikramaḥ*—forward steps; *bhūḥ bhuvaḥ*—of the lower and upper planets; *svaḥ*—as well as of heaven; *ca*—also; *kṣemasya*—of protection of all that we have; *śaraṇasya*—of fearlessness; *ca*—also; *sarva-kāma*—all that we need; *varasya*—of all benediction; *api*—exactly; *hareḥ*—of the Lord; *caraṇaḥ*—lotus feet; *āspadam*—shelter.
 
 **Thus the forward steps of the Lord are the shelter of the three upper, lower, and heavenly planets, as well as for all that we need. They serve as protection from all kinds of fear.**
 

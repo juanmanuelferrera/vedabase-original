@@ -6,7 +6,7 @@
 > kabhu nā bādhibe tomāra viṣaya-taraṅga\
 > punarapi ei ṭhāñi pābe mora saṅga"
 
-*kabhu*—at any time; *nā*—not; *bādhibe*—will obstruct; *tomāra*—your; *viṣaya-taraṅga*—materialistic way of life; *punarapi*—again; *ei ṭhāñi*—at this place; *pābe*—you will get; *mora*—My; *saṅga*—association.
+*kabhu*—at any time; *nā*—not; *vādhibe*—will obstruct; *tomāra*—your; *viṣaya-taraṅga*—materialistic way of life; *punarapi*—again; *ei ṭhāñi*—at this place; *pābe*—you will get; *mora*—My; *saṅga*—association.
 
 **Śrī Caitanya Mahāprabhu further advised the brāhmaṇa Kūrma, "If you follow this instruction, your materialistic life at home will not obstruct your spiritual advancement. Indeed, if you follow these regulative principles, we will again meet here, or, rather, you will never lose My company."**
 

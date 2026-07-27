@@ -8,7 +8,7 @@
 > jihvāsatī dārdurikeva sūta\
 > na copagāyaty urugāya-gāthāḥ
 
-*bile*—snake holes; *bata*—like; *urukrama*—the Lord, who acts marvelously; *vikramān*—prowess; *ye*—all these; *na*—never; *śṛṇvataḥ*—heard; *karṇa-puṭe*—the earholes; *narasya*—of the man; *jihvā*—tongue; *asatī*—useless; *dārdurikā*—of the frogs; *iva*—exactly like that; *sūta*—O Sūta Gosvāmī; *na*—never; *ca*—also; *upagāyati*—chants loudly; *urugāya*—worth singing; *gāthāḥ*—songs.
+*bile*—snake holes; *bata*—like; *urukrama*—the Lord, who acts marvelously; *vikramān*—prowess; *ye*—all these; *na*—never; *śṛṇvataḥ*—heard; *karṇa-puṭe*—the earholes; *narasya*—of the man; *jihvā*—tongue; *asatī*—useless; *dārdurikā*—of the frogs; *eva*—exactly like that; *sūta*—O Sūta Gosvāmī; *na*—never; *ca*—also; *upagāyati*—chants loudly; *urugāya*—worth singing; *gāthāḥ*—songs.
 
 **One who has not listened to the messages about the prowess and marvelous acts of the Personality of Godhead and has not sung or chanted loudly the worthy songs about the Lord is to be considered to possess earholes like that of the snakes and a tongue like that of the frogs.**
 

@@ -8,7 +8,7 @@
 > vindanti hi brahma-gatiṁ gata-klamās\
 > tasmai subhadra-śravase namo namaḥ
 
-*vicakṣaṇāḥ*—highly intellectual; *yat*—whose; *caraṇa-upasādanāt*—simply dedicating oneself unto the lotus feet; *saṅgam*—attachment; *vyudasya*—giving up completely; *ubhayataḥ*—for present and future existence; *antaḥ-ātmanaḥ*—of the heart and soul; *vindanti*—moves progressively; *hi*—certainly; *brahma-gatim*—toward spiritual existence; *gata-klamāḥ*—without difficulty; *tasmai*—unto Him; *subhadra*—all-auspicious; *śravase*—unto one who is heard; *namaḥ*—my due obeisances; *namaḥ*—again and again.
+*vicakṣaṇāḥ*—highly intellectual; *yat*—whose; *caraṇa-upasādanāt*—simply dedicating oneself unto the lotus feet; *saṅgam*—attachment; *vyudasya*—giving up completely; *ubhayataḥ*—for present and future existence; *antaḥ-ātmanaḥ*—of the heart and soul; *vindanti*—moves progressively; *hi*—certainly; *brahma-gatim*—towards spiritual existence; *gata-klamāḥ*—without difficulty; *tasmai*—unto Him; *subhadra*—all-auspicious; *śravase*—unto one who is heard; *namaḥ*—my due obeisances; *namaḥ*—again and again.
 
 **Let me offer my respectful obeisances again and again unto the all-auspicious Lord Śrī Kṛṣṇa. The highly intellectual, simply by surrendering unto His lotus feet, are relieved of all attachments to present and future existences and without difficulty progress towards spiritual existence.**
 

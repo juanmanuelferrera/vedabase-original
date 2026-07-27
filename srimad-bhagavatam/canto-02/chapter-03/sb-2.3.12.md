@@ -10,7 +10,7 @@
 > kaivalya-sammata-pathas tv atha bhakti-yogaḥ\
 > ko nirvṛto hari-kathāsu ratiṁ na kuryāt
 
-*jñānam*—knowledge; *yat*—that which; *ā*—up to the limit of; *pratinivṛtta*—completely withdrawn; *guṇa-ūrmi*—the waves of the material modes; *cakram*—whirlpool; *ātma-prasādaḥ*—self-satisfaction; *uta*—moreover; *yatra*—where there is; *guṇeṣu*—in the modes of nature; *asaṅgaḥ*—no attachment; *kaivalya*—transcendental; *sammata*—approved; *pathaḥ*—path; *tu*—but; *atha*—therefore; *bhakti-yogaḥ*—devotional service; *kaḥ*—who; *nirvṛtaḥ*—absorbed in; *hari-kathāsu*—in the transcendental topics of the Lord; *ratim*—attraction; *na*—shall not; *kuryāt*—do.
+*jñānam*—knowledge; *yat*—that which; *ā*—up to the limit of; *pratinivṛtta*—completely withdrawn; *guṇa-ūrmi*—the waves of the material modes; *cakram*—whirlpool; *ātma-prasādaḥ*—self-satisfaction; *uta*—moreover; *yatra*—where there is; *guṇeṣu*—in the modes of nature; *asaṅgaḥ*—no attachment; *kaivalya*—transcendental; *sammata*—approved; *pathaḥ*—path; *tu*—but; *atha*—therefore; *bhakti-yogaḥ*—devotional service; *kaḥ*—who; *nirvṛtaḥ*—absorbed in; *hari-kathāsu*—in the transcendental topic of the Lord; *ratim*—attraction; *na*—shall not; *kuryāt*—do.
 
 **Transcendental knowledge in relation with the Supreme Lord Hari is knowledge resulting in the complete suspension of the waves and whirlpools of the material modes. Such knowledge is self-satisfying due to its being free from material attachment, and being transcendental it is approved by authorities. Who could fail to be attracted?**
 

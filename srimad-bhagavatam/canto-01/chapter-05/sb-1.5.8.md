@@ -10,7 +10,7 @@
 > yenaivāsau na tuṣyeta\
 > manye tad darśanaṁ khilam
 
-*śrī-nāradaḥ*—Śrī Nārada; *uvāca*—said; *bhavatā*—by you; *anudita-prāyam*—almost not praised; *yaśaḥ*—glories; *bhagavataḥ*—of the Personality of Godhead; *amalam*—spotless; *yena*—by which; *eva*—certainly; *asau*—He (the Personality of Godhead); *na*—does not; *tuṣyeta*—be pleased; *manye*—I think; *tat*—that; *darśanam*—philosophy; *khilam*—inferior.
+*śrī-nāradaḥ*—Śrī Nārada; *uvāca*—said; *bhavatā*—by you; *anudita-prāyam*—almost not praised; *yaśaḥ*—glories; *bhagavataḥ*—of the Personality of Godhead; *amalam*—spotless; *yena*—by which; *iva*—certainly; *asau*—He (the Personality of Godhead); *na*—does not; *tuṣyeta*—be pleased; *manye*—I think; *tat*—that; *darśanam*—philosophy; *khilam*—inferior.
 
 **Śrī Nārada said: You have not actually broadcast the sublime and spotless glories of the Personality of Godhead. That philosophy which does not satisfy the transcendental senses of the Lord is considered worthless.**
 

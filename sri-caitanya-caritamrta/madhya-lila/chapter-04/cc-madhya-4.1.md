@@ -10,7 +10,7 @@
 > śrī-gopālaḥ prādurāsīd vaśaḥ san\
 > yat-premṇā taṁ mādhavendraṁ nato 'smi
 
-*yasmai*—unto whom; *dātum*—to deliver; *corayan*—stealing; *kṣīra-bhāṇḍam*—the pot of sweet rice; *gopīnāthaḥ*—Gopīnātha; *kṣīra-corā*—stealer of a pot of sweet rice; *abhidhaḥ*—celebrated; *abhūt*—became; *śrī-gopālaḥ*—Śrī Gopāla Deity; *prāduḥrāsīt*—appeared; *vaśaḥ*—captivated; *san*—being; *yat-premṇā*—by his love; *tam*—unto him; *mādhavendram*—Mādhavendra Purī, who was in the Madhva-sampradāya; *nataḥ asmi*—I offer my respectful obeisances.
+*yasmai*—unto whom; *dātum*—to deliver; *corayan*—stealing; *kṣīra-bhāṇḍam*—the pot of sweet rice; *gopīnāthaḥ*—Gopīnātha; *kṣīra-corā*—stealer of a pot of sweet rice; *abhidhaḥ*—celebrated; *abhūt*—became; *śrī-gopālaḥ*—Śrī Gopāla Deity; *prādur-āsīt*—appeared; *vaśaḥ*—captivated; *san*—being; *yat-premṇā*—by his love; *tam*—unto him; *mādhavendram*—Mādhavendra Purī, who was in the Madhva-sampradāya; *nataḥ asmi*—I offer my respectful obeisances.
 
 **I offer my respectful obeisances unto Mādhavendra Purī, who was given a pot of sweet rice stolen by Śrī Gopīnātha, celebrated thereafter as Kṣīra-corā. Being pleased by Mādhavendra Purī's love, Śrī Gopāla, the Deity at Govardhana, appeared to the public vision.**
 

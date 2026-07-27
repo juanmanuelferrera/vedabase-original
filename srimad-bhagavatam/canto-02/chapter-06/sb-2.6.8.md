@@ -8,7 +8,7 @@
 > puṁsaḥ śiśna upasthas tu\
 > prajāty-ānanda-nirvṛteḥ
 
-*apām*—of water; *vīryasya*—of the semen; *sargasya*—of the generative; *parjanyasya*—of rains; *prajāpateḥ*—of the creator; *puṁsaḥ*—of the Lord; *śiśnaḥ*—the genitals; *upasthaḥ tu*—the place where the genitals are situated; *prajāti*—due to begetting; *ānanda*—pleasure; *nirvṛteḥ*—cause.
+*apām*—of water; *vīryasya*—of the semen; *sargasya*—of the generative; *parjanyasya*—of rains; *prajāpateḥ*—of the creator; *puṁsaḥ*—of the Lord; *śiśnaḥ*—the genitals; *upasthaḥ tu*—the place where the genitals are situated; *prajāti*—due to begetting; *ānanda*—pleasure; *nirvṛtiḥ*—cause.
 
 **From the Lord's genitals originate water, semen, generatives, rains, and the procreators. His genitals are the cause of a pleasure that counteracts the distress of begetting.**
 

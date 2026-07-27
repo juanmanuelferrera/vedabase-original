@@ -8,7 +8,7 @@
 > na karmabhis tāṁ gatim āpnuvanti\
 > vidyā-tapo-yoga-samādhi-bhājām
 
-*yoga-īśvarāṇām*—of the great saints and devotees; *gatim*—destination; *āhuḥ*—it is said; *antar*—within; *bahiḥ*—without; *tri-lokyāḥ*—of the three planetary systems; *pavana-antar*—within the air; *ātmanām*—of the subtle body; *na*—never; *karmabhiḥ*—by fruitive activities; *tām*—that; *gatim*—speed; *āpnuvanti*—achieve; *vidyā*—devotional service; *tapaḥ*—austerities; *yoga*—mystic power; *samādhi*—knowledge; *bhājām*—of those who entertain.
+*yoga-īśvarāṇām*—of the great saints and devotees; *gatim*—destinations; *āhuḥ*—it is said; *antar*—within; *bahiḥ*—without; *tri-lokyāḥ*—of the three planetary systems; *pavana-antar*—within the air; *ātmanām*—of the subtle body; *na*—never; *karmabhiḥ*—by fruitive activities; *tām*—that; *gatim*—speed; *āpnuvanti*—achieve; *vidyā*—devotional service; *tapaḥ*—austerities; *yoga*—mystic power; *samādhi*—knowledge; *bhājām*—of those who entertain.
 
 **The transcendentalists are concerned with the spiritual body. As such, by the strength of their devotional service, austerities, mystic power and transcendental knowledge, their movements are unrestricted within and without the material worlds. The fruitive workers, or the gross materialists, can never move in such an unrestricted manner.**
 

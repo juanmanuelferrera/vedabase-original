@@ -8,7 +8,7 @@
 > manaḥ sarva-vikārātmā\
 > buddhir vijñāna-rūpiṇī
 
-*guṇa-ātmakāni*—attached to the qualities; *indriyāṇi*—the senses; *bhūta-ādi*—material ego; *prabhavāḥ*—influenced by; *guṇāḥ*—modes of material nature; *manaḥ*—the mind; *sarva*—all; *vikāra*—affection (happiness and distress); *ātmā*—form; *buddhiḥ*—intelligence; *vijñāna*—deliberation; *rūpiṇī*—featuring.
+*guṇa-ātmakāni*—attached to the qualities; *indriyāṇi*—senses; *bhūta-ādi*—material ego; *prabhavāḥ*—influenced by; *guṇāḥ*—modes of material nature; *manaḥ*—the mind; *sarva*—all; *vikāra*—affection (happiness and distress); *ātmā*—form; *buddhiḥ*—intelligence; *vijñāna*—deliberation; *rūpiṇī*—featuring.
 
 **The sense organs are attached to the modes of material nature, and the modes of material nature are products of the false ego. Mind is subjected to all kinds of material experiences (happiness and distress), and the intelligence is the feature of mind's deliberation.**
 

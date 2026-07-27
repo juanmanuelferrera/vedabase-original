@@ -8,7 +8,7 @@
 > tapo varāṭīṁ vidur ādi-puṁsaḥ\
 > satyaṁ tu śīrṣāṇi sahasra-śīrṣṇaḥ
 
-*uraḥ*—high; *sthalam*—place (the chest); *jyotiḥ-anīkam*—the luminary planets; *asya*—of Him; *grīvā*—the neck; *mahaḥ*—the planetary system above the luminaries; *vadanam*—mouth; *vai*—exactly; *janaḥ*—the planetary system above Mahar; *asya*—of Him; *tapaḥ*—the planetary system above the Mahaḥ; *varāṭīm*—forehead; *viduḥ*—is known; *ādi*—the original; *puṁsaḥ*—personality; *satyam*—the topmost planetary system; *tu*—but; *śīrṣāṇi*—the head; *sahasra*—one thousand; *śīrṣṇaḥ*—one with heads.
+*uraḥ*—high; *sthalam*—place (the chest); *jyotiḥ-anīkam*—the luminary planets; *asya*—of Him; *grīvā*—the neck; *mahaḥ*—the planetary system above the luminaries; *vadanam*—mouth; *vai*—exactly; *janaḥ*—the planetary system above Jano; *asya*—of Him; *tapaḥ*—the planetary system above the Mahaḥ; *varāṭīm*—forehead; *viduḥ*—is known; *ādi*—the original; *puṁsaḥ*—personality; *satyam*—the topmost planetary system; *tu*—but; *śīrṣāṇi*—the head; *sahasra*—one thousand; *śīrṣṇaḥ*—one with heads.
 
 **The chest of the Original Personality of the gigantic form is the luminary planetary system, His neck is the Mahar planets, His mouth is the Jana planets, and His forehead is the Tapas planetary system. The topmost planetary system, known as the Satyaloka, is the head of Him who has one thousand heads.**
 

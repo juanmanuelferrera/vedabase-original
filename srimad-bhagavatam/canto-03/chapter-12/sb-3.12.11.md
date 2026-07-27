@@ -8,7 +8,7 @@
 > sūryaś candras tapaś caiva\
 > sthānāny agre kṛtāni te
 
-*hṛt*—the heart; *indriyāṇi*—the senses; *asuḥ*—life air; *vyoma*—the sky; *vāyuḥ*—the air; *agniḥ*—fire; *jalam*—water; *mahī*—the earth; *sūryaḥ*—the sun; *candraḥ*—the moon; *tapaḥ*—austerity; *ca*—as well as; *eva*—certainly; *sthānāni*—all these places; *agre*—hereinbefore; *kṛtāni*—already made; *te*—for you.
+*hṛt*—the heart; *indriyāṇi*—the senses; *asuḥ*—life air; *vyoma*—the sky; *vāyuḥ*—the air; *agniḥ*—fire; *jalam*—water; *mahī*—the earth; *sūryaḥ*—the sun; *candraḥ*—the moon; *tapaḥ*—austerity; *ca*—as well as; *eva*—certainly; *sthānāni*—all these places; *agre*—hereinbefore; *kṛtāni*—already made; *te*—for your.
 
 **My dear boy, I have already selected the following places for your residence: the heart, the senses, the air of life, the sky, the air, the fire, the water, the earth, the sun, the moon and austerity.**
 

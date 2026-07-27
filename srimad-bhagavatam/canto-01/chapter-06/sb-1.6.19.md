@@ -8,7 +8,7 @@
 > vīkṣamāṇo 'pi nāpaśyam\
 > avitṛpta ivāturaḥ
 
-*didṛkṣuḥ*—desiring to see; *tat*—that; *aham*—I; *bhūyaḥ*—again; *praṇidhāya*—having concentrated the mind; *manaḥ*—mind; *hṛdi*—upon the heart; *vīkṣamāṇaḥ*—waiting to see; *api*—in spite of; *na*—never; *apaśyam*—saw Him; *avitṛptaḥ*—without being satisfied; *iva*—like; *āturaḥ*—aggrieved.
+*didṛkṣuḥ*—desiring to see; *tat*—that; *aham*—I; *bhūyaḥ*—again; *praṇidhāya*—having concentrated the mind; *manaḥ*—mind; *hṛdi*—upon the heart; *vīkṣamāṇaḥ*—awaiting to see; *api*—in spite of; *na*—never; *apaśyam*—saw Him; *avitṛptaḥ*—without being satisfied; *iva*—like; *āturaḥ*—aggrieved.
 
 **I desired to see again that transcendental form of the Lord, but despite my attempts to concentrate upon the heart with eagerness to renew the form, I could not see Him any more, and thus dissatisfied, I was very much aggrieved.**
 

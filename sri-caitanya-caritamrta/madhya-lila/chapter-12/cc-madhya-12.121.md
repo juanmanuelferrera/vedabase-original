@@ -6,6 +6,6 @@
 > mandirera catur-dik prakṣālana kaila\
 > saba antaḥpura bhāla-mate dhoyāila
 
-*mandirera*—the temple; *caturḥ-dik*—all around; *prakṣālana kaila*—washed; *saba*—all; *antaḥpura*—inside the rooms; *bhāla-mate*—with great care; *dhoyāila*—washed.
+*mandirera*—the temple; *catuḥ-dik*—all around; *prakṣālana kaila*—washed; *saba*—all; *antaḥpura*—inside the rooms; *bhāla-mate*—with great care; *dhoyāila*—washed.
 
 **Thus all places around the temple were thoroughly washed within and without.**

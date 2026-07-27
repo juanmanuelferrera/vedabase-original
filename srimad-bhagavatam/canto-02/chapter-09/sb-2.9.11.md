@@ -8,7 +8,7 @@
 > sarve catur-bāhava unmiṣan-maṇi-\
 > praveka-niṣkābharaṇāḥ suvarcasaḥ
 
-*śyāma*—sky-bluish; *avadātāḥ*—glowing; *śata-patra*—lotus flower; *locanāḥ*—eyes; *piśaṅga*—yellowish; *vastrāḥ*—clothing; *su-rucaḥ*—greatly attractive; *su-peśasaḥ*—growing youthful; *sarve*—all of them; *catuḥ*—four; *bāhavaḥ*—hands; *unmiṣan*—rising luster; *maṇi*—pearls; *praveka*—superior quality; *niṣka-ābharaṇāḥ*—ornamental medallions; *su-varcasaḥ*—effulgent.
+*śyāma*—sky-bluish; *avadātāḥ*—glowing; *śata-patra*—lotus flower; *locanāḥ*—eyes; *piśaṅga*—yellowish; *vastrāḥ*—clothing; *su-rucaḥ*—greatly attractive; *su-peśasaḥ*—growing youthful; *sarve*—all of them; *catuḥ*—four; *bāhavaḥ*—hands; *unmiṣan*—rising luster; *maṇi*—pearls; *praveka*—superior quality; *niṣka-ābharaṇāḥ*—ornamental medallion; *su-varcasaḥ*—effulgent.
 
 **The inhabitants of the Vaikuṇṭha planets are described as having a glowing sky-bluish complexion. Their eyes resemble the lotus flower, their dress is of yellowish color and their bodily features very attractive. They are just the age of growing youths, they all have four hands, they are all nicely decorated with pearl necklaces with ornamental medallions, and they all appear to be effulgent.**
 

@@ -8,7 +8,7 @@
 > ṣaṣṭhas tu tamasaḥ sargo\
 > yas tv abuddhi-kṛtaḥ prabhoḥ
 
-*vaikārikaḥ*—interaction of the mode of goodness; *deva*—the demigods, or controlling deities; *sargaḥ*—creation; *pañcamaḥ*—fifth; *yat*—that which; *mayam*—sum total; *manaḥ*—mind; *ṣaṣṭhaḥ*—sixth; *tu*—but; *tamasaḥ*—of darkness; *sargaḥ*—creation; *yaḥ*—that which; *tu*—expletive; *abuddhi-kṛtaḥ*—made foolish; *prabhoḥ*—of the master.
+*vaikārikaḥ*—interaction of the mode of goodness; *deva*—the demigods, or controlling deities; *sargaḥ*—creation; *pañcamaḥ*—fifth; *yat*—that which; *mayam*—sum total; *manaḥ*—mind; *ṣaṣṭhaḥ*—sixth; *tu*—but; *tamasaḥ*—of darkness; *sargaḥ*—creation; *yaḥ*—that which; *tu*—expletive; *abuddhi-kṛtaḥ*—made to be foolish; *prabhoḥ*—of the master.
 
 **The fifth creation is that of the controlling deities by the interaction of the mode of goodness, of which the mind is the sum total. The sixth creation is the ignorant darkness of the living entity, by which the master acts as a fool.**
 

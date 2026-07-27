@@ -6,7 +6,7 @@
 > nirveda-harṣādi—tetriśa 'vyabhicārī'\
 > saba mili' 'rasa' haya camatkārakārī
 
-*nirveda-harṣa-ādi*—complete despondency, jubilation and so on; *tetriśa*—thirty-three; *vyabhicārī*—transitory elements; *saba mili'*—all meeting together; *rasa*—the mellows; *haya*—becomes; *camatkārakārī*—a cause of wonder.
+*nirveda-harṣa-ādi*—complete despondency, jubilation and so on; *tetriśa*—thirty-three; *vyabhicārī*—transitory elements; *saba mili'*—all meeting together; *rasa*—the mellow; *haya*—becomes; *camatkārakārī*—a cause of wonder.
 
 **"There are other ingredients beginning with complete despondency and jubilation. Altogether there are thirty-three varieties, and when these combine, the mellow becomes very wonderful.There are thirty-three transitory elements known as *vyabhicārī-*ecstatic emotions. They especially wander about the permanent sentiments as assistants. They are to be known by words, by different symptoms seen in the limbs and in other parts of the body, and by the peculiar conditions of the heart. Because they set in motion the progress of the permanent sentiments, they are specifically called *sañcārī,* or impelling principles. These impelling principles rise up and fall back in the permanent sentiments of ecstatic love like waves in an ocean of ecstasy. Consequently they are called *vyabhicārī.***
 

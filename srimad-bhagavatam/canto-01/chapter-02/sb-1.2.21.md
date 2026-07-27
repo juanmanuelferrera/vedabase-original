@@ -8,7 +8,7 @@
 > kṣīyante cāsya karmāṇi\
 > dṛṣṭa evātmanīśvare
 
-*bhidyate*—pierced; *hṛdaya*—heart; *granthiḥ*—knots; *chidyante*—cut to pieces; *sarva*—all; *saṁśayāḥ*—misgivings; *kṣīyante*—terminated; *ca*—and; *asya*—his; *karmāṇi*—chain of fruitive actions; *dṛṣṭe*—having seen; *eva*—certainly; *ātmani*—unto the self; *īśvare*—dominating.
+*bhidyate*—pierced; *hṛdaya*—heart; *granthiḥ*—knots; *chidyante*—cut to pieces; *sarve*—all; *saṁśayāḥ*—misgivings; *kṣīyante*—terminated; *ca*—and; *asya*—his; *karmāṇi*—chain of fruitive actions; *dṛṣṭa*—having seen; *eva*—certainly; *ātmani*—unto the self; *īśvare*—dominating.
 
 **Thus the knots of the heart and all misgivings are cut to pieces. The chain of fruitive actions [karma] is terminated when one sees the self as master.**
 

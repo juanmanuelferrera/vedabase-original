@@ -8,7 +8,7 @@
 > sanat-kumāraṁ ca munīn\
 > niṣkriyān ūrdhva-retasaḥ
 
-*sanakam*—Sanaka; *ca*—also; *sanandam*—Sananda; *ca*—and; *sanātanam*—Sanātana; *atha*—thereafter; *ātma-bhūḥ*—Brahmā, who is self-born; *sanat-kumāram*—Sanat-kumāra; *ca*—also; *munīn*—the great sages; *niṣkriyān*—free from all fruitive action; *ūrdhva-retasaḥ*—those whose semen flows upwards.
+*sanakam*—Sanaka; *ca*—also; *sanandam*—Sananda; *ca*—and; *sanātanam*—Sanātana; *atha*—thereafter; *ātma-bhūḥ*—Brahmā, who is self-born; *sanat-kumāram*—Sanat-kumāra; *ca*—also; *munīn*—the great sages; *niṣkriyān*—free from all fruitive action; *ūrdhva-retasaḥ*—those whose semina flows upwards.
 
 **In the beginning, Brahmā created four great sages named Sanaka, Sananda, Sanātana and Sanat-kumāra. All of them were unwilling to adopt materialistic activities because they were highly elevated due to their semen's flowing upwards.**
 

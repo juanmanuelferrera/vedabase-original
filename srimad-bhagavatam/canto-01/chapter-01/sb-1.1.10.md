@@ -8,7 +8,7 @@
 > mandāḥ sumanda-matayo\
 > manda-bhāgyā hy upadrutāḥ
 
-*prāyeṇa*—almost always; *alpa*—meager; *āyuṣaḥ*—duration of life; *sabhya*—member of a learned society; *kalau*—in this age of Kali (quarrel); *asmin*—herein; *yuge*—age; *janāḥ*—the public; *mandāḥ*—lazy; *sumanda-matayaḥ*—misguided; *manda-bhāgyāḥ*—unlucky; *hi*—and above all; *upadrutāḥ*—disturbed.
+*prāyeṇa*—almost always; *alpa*—meager; *āyuṣaḥ*—duration of life; *sabhya*—member of the learned society; *kalau*—in this age of Kali (quarrel); *asmin*—herein; *yuge*—age; *janāḥ*—the public; *mandāḥ*—lazy; *sumanda-matayaḥ*—misguided; *manda-bhāgyāḥ*—unlucky; *hi*—and above all; *upadrutāḥ*—disturbed.
 
 **O learned one, in this iron age of Kali men have but short lives. They are quarrelsome, lazy, misguided, unlucky and above all, always disturbed.**
 

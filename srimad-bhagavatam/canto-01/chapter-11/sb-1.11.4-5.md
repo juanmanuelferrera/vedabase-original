@@ -15,7 +15,7 @@
 > pitaraṁ sarva-suhṛdam\
 > avitāram ivārbhakāḥ
 
-*tatra*—thereupon; *upanīta*—having offered; *balayaḥ*—presentations; *raveḥ*—up to the sun; *dīpam*—lamp; *iva*—like; *ādṛtāḥ*—being evaluated; *ātma-ārāmam*—unto the self-sufficient; *pūrṇa-kāmam*—fully satisfied; *nija-lābhena*—by His own potencies; *nitya-dā*—one who supplies incessantly; *prīti*—affection; *utphulla-mukhāḥ*—cheerful faces; *procuḥ*—said; *harṣa*—gladdened; *gadgadayā*—ecstatic; *girā*—speeches; *pitaram*—unto the father; *sarva*—all; *suhṛdam*—friends; *avitāram*—the guardian; *iva*—like; *arbhakāḥ*—wards.
+*tatra*—thereupon; *upanīta*—having offered; *balayaḥ*—presentation; *raveḥ*—up to the sun; *dīpam*—lamp; *iva*—like; *ādṛtāḥ*—being evaluated; *ātma-ārāmam*—unto the self-sufficient; *pūrṇa-kāmam*—fully satisfied; *nija-lābhena*—by His own potencies; *nitya-dā*—one who supplies incessantly; *prīti*—affection; *utphulla-mukhāḥ*—cheerful faces; *procuḥ*—said; *harṣa*—gladdened; *gadgadayā*—ecstatic; *girā*—speeches; *pitaram*—unto the father; *sarva*—all; *suhṛdam*—friends; *avitāram*—the guardian; *iva*—like; *arbhakāḥ*—wards.
 
 **The citizens arrived before the Lord with their respective presentations, offering them to the fully satisfied and self-sufficient one, who, by His own potency, incessantly supplies others. These presentations were like the offering of a lamp to the sun. Yet the citizens began to speak in ecstatic language about receiving the Lord, just as wards welcome their guardian and father.**
 

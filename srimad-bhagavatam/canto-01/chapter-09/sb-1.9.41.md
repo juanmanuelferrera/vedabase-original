@@ -8,7 +8,7 @@
 > arhaṇam upapeda īkṣaṇīyo\
 > mama dṛśi-gocara eṣa āvir ātmā
 
-*muni-gaṇa*—the great learned sages; *nṛpa-varya*—the great ruling kings; *saṅkule*—in the great assembly of; *antaḥ-sadasi*—conference; *yudhiṣṭhira*—of Emperor Yudhiṣṭhira; *rāja-sūye*—a royal performance of sacrifice; *eṣām*—of all the great elites; *arhaṇam*—respectful worship; *upapeda*—received; *īkṣaṇīyaḥ*—the object of attraction; *mama*—my; *dṛśi*—sight; *gocaraḥ*—within the view of; *eṣaḥ āviḥ*—personally present; *ātmā*—the soul.
+*muni-gaṇa*—the great learned sages; *nṛpa-varya*—the great ruling kings; *saṅkule*—in the great assembly of; *antaḥ-sadasi*—conference; *yudhiṣṭhira*—Emperor Yudhiṣṭhira; *rāja-sūya*—a royal performance of sacrifice; *eṣām*—of all the great elites; *arhaṇam*—respectful worship; *upapeda*—received; *īkṣaṇīyaḥ*—the object of attraction; *mama*—my; *dṛśi*—sight; *gocaraḥ*—within the view of; *eṣaḥ āviḥ*—personally present; *ātmā*—the soul.
 
 **At the Rājasūya-yajña [sacrifice] performed by Mahārāja Yudiṣṭhira, there was the greatest assembly of all the elite men of the world, the royal and learned orders, and in that great assembly Lord Śrī Kṛṣṇa was worshiped by one and all as the most exalted Personality of Godhead. This happened during my presence, and I remembered the incident in order to keep my mind upon the Lord.**
 

@@ -11,7 +11,7 @@
 > tatra cāntar bahir vātas\
 > tvacā labdha-guṇo vṛtaḥ
 
-*vastunaḥ*—of all matter; *mṛdu*—softness; *kāṭhinya*—hardness; *laghu*—lightness; *guru*—heaviness; *oṣṇa*—warmness; *śītatām*—coldness; *jighṛkṣataḥ*—desiring to perceive; *tvak*—touch sensation; *nirbhinnā*—distributed; *tasyām*—in the skin; *roma*—hairs on the body; *mahī-ruhāḥ*—as well as the trees, the controlling deities; *tatra*—there; *ca*—also; *antaḥ*—within; *bahiḥ*—outside; *vātaḥ tvacā*—sense of touch or the skin; *labdha*—having been perceived; *guṇaḥ*—objects of sense perception; *vṛtaḥ*—generated.
+*vastunaḥ*—of all matters; *mṛdu*—softness; *kāṭhinya*—hardness; *laghu*—lightness; *guru*—heaviness; *oṣṇa*—warmness; *śītatām*—coldness; *jighṛkṣataḥ*—desiring to perceive; *tvak*—touch sensation; *nirbhinnā*—distributed; *tasyām*—in the skin; *roma*—hairs on the body; *mahī-ruhāḥ*—as well as the trees, the controlling deities; *tatra*—there; *ca*—also; *antaḥ*—within; *bahiḥ*—outside; *vātaḥ tvacā*—sense of touch or the skin; *labdha*—having been perceived; *guṇaḥ*—objects of sense perception; *vṛtaḥ*—generated.
 
 **When there was a desire to perceive the physical characteristics of matter, as softness, hardness, warmth, cold, lightness, heaviness, etc., the background of sensation, skin, the skin pores, the hairs on the body and their controlling deities (the trees) were generated. Within and without the skin there is an air covering through which sense perception became prominent.**
 

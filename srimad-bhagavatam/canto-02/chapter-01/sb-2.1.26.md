@@ -8,7 +8,7 @@
 > mahātalaṁ viśva-sṛjo 'tha gulphau\
 > talātalaṁ vai puruṣasya jaṅghe
 
-*pātālam*—the planet in the bottom of the universe; *etasya*—of His; *hi*—exactly; *pāda-mūlam*—soles of the feet; *paṭhanti*—they study it; *pārṣṇi*—of the ankles; *prapade*—under the foot; *rasātalam*—the planets named Rasātala; *mahātalam*—the planets named Mahātala; *viśva-sṛjaḥ*—of the creator of the universe; *atha*—thus; *gulphau*—the calves; *tala*—the planet named Tala; *atala*—the planet named Atala; *vai*—as they are; *puruṣasya*—of the gigantic person; *jaṅghe*—on the knees.
+*pātālam*—the planet in the bottom of the universe; *etasya*—of His; *hi*—exactly; *pāda-mūlam*—soles of the feet; *paṭhanti*—they study it; *pārṣṇi*—of the ankles; *prapade*—under the foot; *rasātalam*—the planets named Rasātala; *mahātalam*—the planet named Mahātala; *viśva-sṛjaḥ*—of the creator of the universe; *atha*—thus; *gulphau*—the calves; *tala*—the planet named Tala; *atala*—the planet named Atala; *vai*—as they are; *puruṣasya*—of the gigantic person; *jaṅghe*—on the knees.
 
 **Persons who have realized it have studied that the planets known as Pātāla constitute the bottom of the feet of the Universal Lord, and the ankles and the soles are the Rasātala planets. The calves are Mahātala planets, and His knees constitute the Tala and Atala planets.**
 

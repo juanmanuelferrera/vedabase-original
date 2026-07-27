@@ -8,7 +8,7 @@
 > dig-vātārka-praceto 'śvi-\
 > vahnīndropendra-mitra-kāḥ
 
-*vaikārikāt*—from the mode of goodness; *manaḥ*—the mind; *jajñe*—generated; *devāḥ*—demigods; *vaikārikāḥ*—in the mode of goodness; *daśa*—ten; *dik*—the controller of directions; *vāta*—the controller of air; *arka*—the sun; *pracetaḥ*—Varuṇa; *aśvi*—the Aśvinī-kumāras; *vahni*—the fire-god; *indra*—the King of heaven; *upendra*—the deity in heaven; *mitra*—one of the twelve Ādityas; *kāḥ*—Prajāpati Brahmā.
+*vaikārikāt*—from the mode of goodness; *manaḥ*—the mind; *jajñe*—generated; *devāḥ*—demigods; *vaikārikāḥ*—in the mode of goodness; *daśa*—ten; *dik*—the controller of direction; *vāta*—the controller of air; *arka*—the sun; *pracetaḥ*—Varuṇa; *aśvi*—the Aśvinī-kumāras; *vahni*—the fire-god; *indra*—the King of heaven; *upendra*—the deity in heaven; *mitra*—one of the twelve Ādityas; *kāḥ*—Prajāpati Brahmā.
 
 **From the mode of goodness the mind was generated and became manifest, as also the ten demigods controlling the bodily movements. Such demigods are known as the controller of directions, the controller of air, the sun-god, the father of Dakṣa Prajāpati, the Aśvinīkumāras, the fire-god, the King of heaven, the worshipable deity in the heaven, the chief of the Ādityas, and Brahmājī the Prajāpati. All came into existence.**
 

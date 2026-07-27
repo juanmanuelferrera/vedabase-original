@@ -8,7 +8,7 @@
 > kathaṁ cedam udasrākṣīḥ\
 > kāle prāpte kalevaram
 
-*svāyambhuva*—O son of Brahmā; *kayā*—under what condition; *vṛttyā*—occupation; *vartitam*—was spent; *te*—you; *param*—after the initiation; *vayaḥ*—duration of life; *katham*—how; *ca*—and; *idam*—this; *udasrākṣīḥ*—did you quit; *kāle*—in due course; *prāpte*—having attained; *kalevaram*—body.
+*svāyambhuva*—O son of Brahmā; *kayā*—under what condition; *vṛttyā*—occupation; *vartitam*—was spent; *te*—you; *param*—after the initiation; *vayaḥ*—duration of life; *katham*—how; *cedam*—how that; *udasrākṣīḥ*—did you quit; *kāla*—in due course; *prāpte*—having attained; *kalevaram*—body.
 
 **O son of Brahmā, how did you pass your life after initiation, and how did you attain this body, having quit your old one in due course?**
 

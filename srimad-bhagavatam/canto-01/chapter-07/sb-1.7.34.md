@@ -8,7 +8,7 @@
 > prāhārjunaṁ prakupito\
 > bhagavān ambujekṣaṇaḥ
 
-*śibirāya*—on the way to the military camp; *ninīṣantam*—while bringing him; *rajjvā*—by the ropes; *baddhvā*—bound up; *ripum*—the enemy; *balāt*—by force; *prāha*—said; *arjunam*—unto Arjuna; *prakupitaḥ*—in an angry mood; *bhagavān*—the Personality of Godhead; *ambuja-īkṣaṇaḥ*—who looks with His lotus eyes.
+*śibirāya*—on the way to the military camp; *ninīṣantam*—while bringing him; *rajjavā*—by the ropes; *baddhvā*—bound up; *ripum*—the enemy; *balāt*—by force; *prāha*—said; *arjunam*—unto Arjuna; *prakupitaḥ*—in an angry mood; *bhagavān*—the Personality of Godhead; *ambuja-īkṣaṇaḥ*—who looks with His lotus eyes.
 
 **After binding Aśvatthāmā, Arjuna wanted to take him to the military camp. The Personality of Godhead Śrī Kṛṣṇa, looking on with His lotus eyes, spoke to angry Arjuna.**
 

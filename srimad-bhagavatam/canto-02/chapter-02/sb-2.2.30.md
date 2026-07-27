@@ -8,7 +8,7 @@
 > saṁsādya gatyā saha tena yāti\
 > vijñāna-tattvaṁ guṇa-sannirodham
 
-*saḥ*—he (the devotee); *bhūta*—the gross; *sūkṣma*—and the subtle; *indriya*—senses; *sannikarṣam*—the point of neutralization; *manaḥ-mayam*—the mental plane; *deva-mayam*—in the mode of goodness; *vikāryam*—egoism; *saṁsādya*—surpassing; *gatyā*—by the progress; *saha*—along with; *tena*—them; *yāti*—goes; *vijñāna*—perfect knowledge; *tattvam*—truth; *guṇa*—material modes; *sannirodham*—completely suspended.
+*saḥ*—he (the devotee); *bhūta*—the gross; *sūkṣma*—and the subtle; *indriya*—senses; *sannikarṣam*—the point of neutralization; *manaḥ-mayam*—mental plane; *deva-mayam*—in the mode of goodness; *vikāryam*—egoism; *saṁsādya*—surpassing; *gatyā*—by the progress; *saha*—along with; *tena*—them; *yāti*—goes; *vijñāna*—perfect knowledge; *tattvam*—truth; *guṇa*—material modes; *sannirodham*—completely suspended.
 
 **The devotee, thus surpassing the gross and the subtle forms of coverings, enters the plane of egoism. And in that status he merges the material modes of nature [ignorance and passion] in this point of neutralization and thus reaches egoism of goodness. After this, all egoism is merged in the mahat-tattva, and he comes to the point of pure self-realization.**
 

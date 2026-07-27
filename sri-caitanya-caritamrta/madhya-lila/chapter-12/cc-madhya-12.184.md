@@ -6,7 +6,7 @@
 > kāhāṅ bahirmukha tārkika-śiṣyagaṇa-saṅge\
 > kāhāṅ ei saṅga-sudhā-samudra-taraṅge
 
-*kāhāṅ*—whereas; *bahirḥ-mukha*—nondevotees; *tārkika*—of logic; *śiṣya-gaṇa*—disciples; *saṅge*—with; *kāhāṅ*—now; *ei*—this; *saṅga*—association; *sudhā*—of nectar; *samudra*—of the ocean; *taraṅge*—in the waves.
+*kāhāṅ*—whereas; *bahiḥ-mukha*—nondevotees; *tārkika*—of logic; *śiṣya-gaṇa*—disciples; *saṅge*—with; *kāhāṅ*—now; *ei*—this; *saṅga*—association; *sudhā*—of nectar; *samudra*—of the ocean; *taraṅge*—in the waves.
 
 **"Whereas I once associated with the disciples of logic, all nondevotees, I am now merged in the waves of the nectarean ocean of the association of devotees."**
 

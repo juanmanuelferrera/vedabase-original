@@ -8,7 +8,7 @@
 > gāndhārīṁ putra-śokārtāṁ\
 > pṛthāṁ kṛṣṇāṁ ca mādhavaḥ
 
-*tatra*—there; *āsīnam*—sitting; *kuru-patim*—the King of the Kurus; *dhṛtarāṣṭram*—Dhṛtarāṣṭra; *saha-anujam*—with his younger brothers; *gāndhārīm*—Gāndhārī; *putra*—son; *śoka-artām*—overtaken by bereavement; *pṛthām*—Kuntī; *kṛṣṇām*—Draupadī; *ca*—also; *mādhavaḥ*—Lord Śrī Kṛṣṇa.
+*tatra*—there; *āsīnam*—sitting; *kuru-patim*—the King of the Kurus; *dhṛtarāṣṭram*—Dhṛtarāṣṭra; *saha-anujam*—with his younger brother; *gāndhārīm*—Gāndhārī; *putra*—son; *śoka-artām*—overtaken by bereavement; *pṛthām*—Kuntī; *kṛṣṇām*—Draupadī; *ca*—also; *mādhavaḥ*—Lord Śrī Kṛṣṇa.
 
 **There the King of the Kurus, Mahārāja Yudhiṣṭhira, along with his younger brothers, Dhṛtarāṣṭra, Gāndhārī, Kuntī, Draupadī and also Lord Kṛṣṇa, all sat, overwhelmed with grief.**
 

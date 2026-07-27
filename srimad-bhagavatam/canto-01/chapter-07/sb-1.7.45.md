@@ -8,7 +8,7 @@
 > tasyātmano 'rdhaṁ patny āste\
 > nānvagād vīrasūḥ kṛpī
 
-*saḥ*—he; *eṣaḥ*—certainly; *bhagavān*—lord; *droṇaḥ*—Droṇācārya; *prajā-rūpeṇa*—in the form of his son Aśvatthāmā; *vartate*—is existing; *tasya*—his; *ātmanaḥ*—of the body; *ardham*—half; *patnī*—wife; *āste*—living; *na*—not; *anvagāt*—undertook; *vīrasūḥ*—having the son present; *kṛpī*—the sister of Kṛpācārya.
+*saḥ*—he; *eṣaḥ*—certainly; *bhagavān*—lord; *droṇaḥ*—Droṇācārya; *prajā-rūpeṇa*—in the form of his son Aśvatthāmā; *vartate*—is existing; *tasya*—his; *ātmanaḥ*—of the body; *ardham*—half; *patnī*—wife; *āste*—living; *na*—no; *anvagāt*—undertook; *vīrasūḥ*—having the son present; *kṛpī*—the sister of Kṛpācārya.
 
 **He [Droṇācārya] is certainly still existing, being represented by his son. His wife Kṛpī did not undergo a satī with him because she had a son.**
 

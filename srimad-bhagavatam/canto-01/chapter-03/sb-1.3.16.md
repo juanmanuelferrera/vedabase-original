@@ -8,7 +8,7 @@
 > dadhre kamaṭha-rūpeṇa\
 > pṛṣṭha ekādaśe vibhuḥ
 
-*sura*—the theists; *asurāṇām*—of the atheists; *udadhim*—in the ocean; *mathnatām*—churning; *mandarācalam*—the Mandarācala Hill; *dadhre*—sustained; *kamaṭha*—tortoise; *rūpeṇa*—in the form of; *pṛṣṭhe*—shell; *ekādaśe*—eleventh in the line; *vibhuḥ*—the great.
+*sura*—the theists; *asurāṇām*—of the atheists; *udadhim*—in the ocean; *mathnatām*—churning; *mandarācalam*—the Mandarācalam Hill; *dadhre*—sustained; *kamaṭha*—tortoise; *rūpeṇa*—in the form of; *pṛṣṭhe*—shell; *ekādaśe*—eleventh in the line; *vibhuḥ*—the great.
 
 **The eleventh incarnation of the Lord was in the form of a tortoise whose shell served as a pivot for the Mandarācalam Hill, which was being used as a churning rod by the theists and atheists of the universe.**
 

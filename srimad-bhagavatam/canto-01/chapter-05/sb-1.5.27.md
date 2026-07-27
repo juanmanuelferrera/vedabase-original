@@ -8,7 +8,7 @@
 > yayāham etat sad-asat sva-māyayā\
 > paśye mayi brahmaṇi kalpitaṁ pare
 
-*tasmin*—it being so; *tadā*—at that time; *labdha*—achieved; *ruceḥ*—taste; *mahā-mate*—O great sage; *priyaśravasi*—upon the Lord; *askhalitā matiḥ*—uninterrupted attention; *mama*—mine; *yayā*—by which; *aham*—I; *etat*—all these; *sat-asat*—gross and subtle; *sva-māyayā*—one's own ignorance; *paśye*—see; *mayi*—in me; *brahmaṇi*—the Supreme; *kalpitam*—is accepted; *pare*—in the Transcendence.
+*tasmin*—it being so; *tadā*—at that time; *labdha*—achieved; *ruceḥ*—taste; *mahā-mate*—great sage; *priyaśravasi*—upon the Lord; *askhalitā matiḥ*—uninterrupted attention; *mama*—mine; *yayā*—by which; *aham*—I; *etat*—all these; *sat-asat*—gross and subtle; *sva-māyayā*—one's own ignorance; *paśye*—see; *mayi*—in me; *brahmaṇi*—the Supreme; *kalpitam*—is accepted; *pare*—in the Transcendence.
 
 **O great sage, as soon as I got a taste of the Personality of Godhead, my attention to hear of the Lord was unflinching. And as my taste developed, I could realize that it was only in my ignorance that I had accepted gross and subtle coverings, for both the Lord and I are transcendental.**
 

@@ -6,7 +6,7 @@
 > caitanya-līlāra ādi-anta nāhi jāni\
 > sei likhi, yei mahāntera mukhe śuni
 
-*caitanya-līlāra*—of the pastimes of Śrī Caitanya Mahāprabhu; *ādi*—beginning; *anta*—and end; *nāhi*—not; *jāni*—I know; *sei*—that; *likhi*—I write; *yei*—which; *mahāntera*—of the great personalities; *mukhe*—from the mouths; *śuni*—I hear.
+*caitanya-līlāra*—of the pastimes of Śrī Caitanya Mahāprabhu; *ādi*—beginning; *anta*—and end; *nāhi*—not; *jāni*—I know; *sei*—that; *likhi*—I write; *yei*—which; *mahā-antera*—of the great personalities; *mukhe*—from the mouths; *śuni*—I hear.
 
 **I admit that I do not know the beginning or the end of Śrī Caitanya Mahāprabhu's pastimes. However, whatever I have written I have heard from the mouths of great personalities.**
 

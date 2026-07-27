@@ -8,7 +8,7 @@
 > nanāma pādāmbujam asya viśva-sṛg\
 > yat pāramahaṁsyena pathādhigamyate
 
-*tat*—by that audience of the Lord; *darśana*—audience; *āhlāda*—joy; *paripluta*—overwhelmed; *antaraḥ*—within the heart; *hṛṣyat*—full in ecstasy; *tanuḥ*—body; *prema-bhara*—in full transcendental love; *aśru*—tears; *locanaḥ*—in the eyes; *nanāma*—bowed down; *pāda-ambujam*—under the lotus feet; *asya*—of the Lord; *viśva-sṛk*—the creator of the universe; *yat*—which; *pāramahaṁsyena*—by the great liberated soul; *pathā*—the path; *adhigamyate*—is followed.
+*tat*—by that audience of the Lord; *darśana*—audience; *āhlāda*—joy; *paripluta*—overwhelmed; *antaraḥ*—within the heart; *hṛṣyat*—full in ecstasy; *tanuḥ*—body; *prema-bhara*—in full transcendental love; *aśru*—tears; *locanaḥ*—in the eyes; *nanāma*—bowed down; *pāda-ambujam*—under the lotus feet; *asya*—of the Lord; *viśva-sṛg*—the creator of the universe; *yat*—which; *pāramahaṁsyena*—by the great liberated soul; *pathā*—the path; *adhigamyate*—is followed.
 
 **Lord Brahmā, thus seeing the Personality of Godhead in His fullness, became overwhelmed with joy within his heart, and thus in full transcendental love and ecstasy, his eyes became full with tears of love. He thus bowed down before the Lord. That is the way of highest perfection for the living being [paramahaṁsa].**
 

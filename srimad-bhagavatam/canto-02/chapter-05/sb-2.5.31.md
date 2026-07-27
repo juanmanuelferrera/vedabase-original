@@ -11,7 +11,7 @@
 > śrotraṁ tvag-ghrāṇa-dṛg-jihvā\
 > vāg-dor-meḍhrāṅghri-pāyavaḥ
 
-*taijasāt*—by the passionate egoism; *tu*—but; *vikurvāṇāt*—transformation of; *indriyāṇi*—the senses; *daśa*—ten; *abhavan*—generated; *jñāna-śaktiḥ*—the five senses for acquiring knowledge; *kriyā-śaktiḥ*—the five senses of activities; *buddhiḥ*—intelligence; *prāṇaḥ*—the living energy; *ca*—also; *taijasau*—all products of the mode of passion; *śrotram*—the sense for hearing; *tvak*—the sense for touching; *ghrāṇa*—the sense for smelling; *dṛk*—the sense for seeing; *jihvāḥ*—the sense for tasting; *vāk*—the sense for speaking; *doḥ*—the sense for handling; *meḍhra*—the genitals; *aṅghri*—the legs; *pāyavaḥ*—the sense for evacuating.
+*taijasāt*—by the passionate egoism; *tu*—but; *vikurvāṇāt*—transformation of; *indrayāṇi*—the senses; *daśa*—ten; *abhavan*—generated; *jñāna-śaktiḥ*—the five senses for acquiring knowledge; *kriyā-śaktiḥ*—the five senses of activities; *buddhiḥ*—intelligence; *prāṇaḥ*—the living energy; *ca*—also; *taijasau*—all products of the mode of passion; *śrotram*—the sense for hearing; *tvak*—the sense for touching; *ghrāṇa*—the sense for smelling; *dṛk*—the sense for seeing; *jihvā*—the sense for tasting; *vāk*—the sense for speaking; *doḥ*—the sense for handling; *meḍhra*—the genitals; *aṅghri*—the legs; *pāyavaḥ*—the sense for evacuating.
 
 **By further transformation of the mode of passion, the sense organs like the ear, skin, nose, eyes, tongue, mouth, hands, genitals, legs, and the outlet for evacuating, together with intelligence and living energy, are all generated.**
 

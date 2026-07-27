@@ -8,7 +8,7 @@
 > na yatra sattvaṁ na rajas tamaś ca\
 > na vai vikāro na mahān pradhānam
 
-*na*—not; *yatra*—wherein; *kālaḥ*—destructive time; *animiṣām*—of the heavenly demigods; *paraḥ*—superior; *prabhuḥ*—controller; *kutaḥ*—where is there; *nu*—certainly; *devāḥ*—the demigods; *jagatām*—the mundane creatures; *ye*—those; *īśire*—rules; *na*—not; *yatra*—therein; *sattvam*—mundane goodness; *na*—nor; *rajaḥ*—mundane passion; *tamaḥ*—mundane ignorance; *ca*—also; *na*—nor; *vai*—certainly; *vikāraḥ*—transformation; *na*—nor; *mahān*—the material Causal Ocean; *pradhānam*—material nature.
+*na*—not; *yatra*—wherein; *kālaḥ*—destructive time; *animiṣām*—of the heavenly demigods; *paraḥ*—superior; *prabhuḥ*—controller; *kutaḥ*—where is there; *nu*—certainly; *devāḥ*—the demigods; *jagatām*—the mundane creatures; *ye*—those; *īśire*—rules; *na*—no; *yatra*—therein; *sattvam*—mundane goodness; *na*—nor; *rajaḥ*—mundane passion; *tamaḥ*—mundane ignorance; *ca*—also; *na*—nor; *vai*—certainly; *vikāraḥ*—transformation; *na*—nor; *mahān*—the material Causal Ocean; *pradhānam*—material nature.
 
 **In that transcendental state of labdhopaśānti there is no supremacy of devastating time, which controls even the celestial demigods (and what to speak of the demigods themselves?) who are empowered to rule over mundane creatures. Nor is there the mode of material goodness, nor passion, nor ignorance, nor even the false ego, nor the material Causal Ocean, nor the material nature.**
 

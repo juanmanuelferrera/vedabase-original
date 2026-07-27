@@ -8,7 +8,7 @@
 > nāvidaṁ yajña-sambhārān\
 > puruṣāvayavān ṛte
 
-*yadā*—at the time of; *asya*—His; *nābhyāt*—from the abdomen; *nalināt*—from the lotus flower; *aham*—myself; *āsam*—took my birth; *mahā-ātmanaḥ*—of the great person; *na avidam*—did not know; *yajña*—sacrificial; *sambhārān*—ingredients; *puruṣa*—of the Lord; *avayavān*—personal bodily limbs; *ṛte*—except.
+*yadā*—at the time of; *asya*—His; *nābhyāt*—from the abdomen; *nalināt*—from the lotus flower; *aham*—myself; *āsam*—took my birth; *mahā-ātmanaḥ*—of the great person; *na avidam*—did not know; *yajña*—sacrificial; *sambhārān*—ingredients; *puruṣa*—of the Lord; *avayavāt*—personal bodily limbs; *ṛte*—except.
 
 **When I was born from the abdominal lotus flower of the Lord [Mahā-Viṣṇu], the great person, I had no other ingredients for sacrificial performances except the bodily limbs of the great Personality of Godhead.**
 

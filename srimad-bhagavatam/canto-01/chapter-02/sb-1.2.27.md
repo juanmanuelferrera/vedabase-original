@@ -8,7 +8,7 @@
 > pitṛ-bhūta-prajeśādīn\
 > śriyaiśvarya-prajepsavaḥ
 
-*rajaḥ*—the mode of passion; *tamaḥ*—the mode of ignorance; *prakṛtayaḥ*—of that mentality; *sama-śīlāḥ*—of the same categories; *bhajanti*—do worship; *vai*—actually; *pitṛ*—the forefathers; *bhūta*—other living beings; *prajeśa-ādīn*—controllers of cosmic administration; *śriyā*—enrichment; *aiśvarya*—wealth and power; *prajā*—aristocracy; *īpsavaḥ*—so desiring.
+*rajaḥ*—the mode of passion; *tamaḥ*—the mode of ignorance; *prakṛtayaḥ*—of that mentality; *sama-śīlāḥ*—of the same categories; *bhajanti*—do worship; *vai*—actually; *pitṛ*—the forefathers; *bhūta*—other living beings; *prajeśa-ādīn*—controller of cosmic administration; *śriyā*—enrichment; *aiśvarya*—wealth and power; *prajā*—aristocracy; *īpsavaḥ*—so desiring.
 
 **Those who are in the modes of passion and ignorance worship the forefathers, other living beings and the demigods who are in charge of cosmic activities, for they are urged by a desire to be materially benefited with women, wealth, power and aristocratic birth.**
 

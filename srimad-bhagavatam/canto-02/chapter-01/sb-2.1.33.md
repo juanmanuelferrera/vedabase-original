@@ -8,7 +8,7 @@
 > ananta-vīryaḥ śvasitaṁ mātariśvā\
 > gatir vayaḥ karma guṇa-pravāhaḥ
 
-*nadyaḥ*—the rivers; *asya*—of Him; *nāḍyaḥ*—veins; *atha*—and thereafter; *tanū-ruhāṇi*—hairs on the body; *mahī-ruhāḥ*—the plants and trees; *viśva-tanoḥ*—of the universal form; *nṛpa-indra*—O King; *ananta-vīryaḥ*—of the omnipotent; *śvasitam*—breathing; *mātariśvā*—air; *gatiḥ*—movement; *vayaḥ*—passing ages; *karma*—activity; *guṇa-pravāhaḥ*—reactions of the modes of nature.
+*nadyaḥ*—the rivers; *asya*—of Him; *nāḍyaḥ*—veins; *atha*—and thereafter; *tanū-ruhāṇi*—hairs on the body; *mahī-ruhāḥ*—the plants and trees; *viśva-tanoḥ*—of the universal form; *nṛpa-indra*—O King; *ananta-vīryaḥ*—of the omnipotent; *śvasitam*—breathing; *mātariśvā*—air; *gatiḥ*—movement; *vayaḥ*—passing ages; *karma*—activity; *guṇa-pravāhaḥ*—reaction of the modes of nature.
 
 **O King, the rivers are the veins of the gigantic body, the trees are hairs of His body, and the omnipotent air is His breathing. The passing ages are His movements, and His activities are the reactions of the three modes of material nature.**
 

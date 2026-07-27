@@ -8,7 +8,7 @@
 > niśāyām anuvṛttāyāṁ\
 > nirmukta-śaśi-bhāskaram
 
-*tam*—that; *eva*—certainly; *anu*—after; *api dhīyante*—are out of sight; *lokāḥ*—the planets; *bhūḥ-ādayaḥ*—the three worlds, Bhūḥ, Bhuvaḥ and Svaḥ; *trayaḥ*—three; *niśāyām*—in the night; *anuvṛttāyām*—ordinary; *nirmukta*—without glare; *śaśi*—the moon; *bhāskaram*—the sun.
+*tam*—that; *eva*—certainly; *anu*—after; *api dhīyante*—are out of sight; *lokāḥ*—the planets; *bhūḥ-ādayaḥ*—the three worlds, Bhūr, Bhuvar and Svar; *trayaḥ*—three; *niśāyām*—in the night; *anuvṛttāyām*—ordinary; *nirmukta*—without glare; *śaśi*—the moon; *bhāskaram*—the sun.
 
 **When the night of Brahmā ensues, all the three worlds are out of sight, and the sun and the moon are without glare, just as in the due course of an ordinary night.**
 

@@ -8,7 +8,7 @@
 > tatrābda-koṭi-pratimaḥ kṣaṇo bhaved\
 > raviṁ vinākṣṇor iva nas tavācyuta
 
-*yarhi*—whenever; *ambuja-akṣa*—O lotus-eyed one; *apasasāra*—You go away; *bho*—oh; *bhavān*—Yourself; *kurūn*—the descendants of King Kuru; *madhūn*—the inhabitants of Mathurā (Vrajabhūmi); *vā*—either; *atha*—therefore; *suhṛt-didṛkṣayā*—for meeting them; *tatra*—at that time; *abda-koṭi*—millions of years; *pratimaḥ*—like; *kṣaṇaḥ*—moments; *bhavet*—becomes; *ravim*—the sun; *vinā*—without; *akṣṇoḥ*—of the eyes; *iva*—like that; *naḥ*—ours; *tava*—Your; *acyuta*—O infallible one.
+*yarhi*—whenever; *ambuja-akṣa*—O lotus-eyed one; *apasasāra*—You go away; *bho*—oh; *bhavān*—Yourself; *kurūn*—the descendants of King Kuru; *madhūn*—the inhabitants of Mathurā (Vrajabhūmi); *vā*—either; *atha*—therefore; *suhṛt-didṛkṣayā*—for meeting them; *tatra*—at that time; *abda-koṭi*—millions; *pratimaḥ*—years like that; *kṣaṇaḥ*—moments; *bhavet*—becomes; *ravim*—the sun; *vinā*—without; *akṣṇoḥ*—of the eyes; *iva*—like that; *naḥ*—ours; *tava*—Your; *acyuta*—O infallible one.
 
 **O lotus-eyed Lord, whenever You go away to Mathurā, Vṛndāvana or Hastināpura to meet Your friends and relatives, every moment of Your absence seems like a million years. O infallible one, at that time our eyes become useless, as if bereft of sun.**
 

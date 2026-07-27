@@ -8,7 +8,7 @@
 > vārāha iti vikhyāto\
 > yatrāsīc chūkaro hariḥ
 
-*ayam*—this; *tu*—but; *kathitaḥ*—known as; *kalpaḥ*—the current millennium; *dvitīyasya*—of the second half; *api*—certainly; *bhārata*—O descendant of Bharata; *vārāhaḥ*—Vārāha; *iti*—thus; *vikhyātaḥ*—is celebrated; *yatra*—in which; *āsīt*—appeared; *śūkaraḥ*—hog shape; *hariḥ*—the Personality of Godhead.
+*ayam*—this; *tu*—but; *kathitaḥ*—known as; *kalpaḥ*—the current millennium; *dvitīyasya*—of the second half; *api*—certainly; *bhārata*—O descendent of Bharata; *vārāhaḥ*—Vārāha; *iti*—thus; *vikhyātaḥ*—is celebrated; *yatra*—in which; *āsīt*—appeared; *śūkaraḥ*—hog shape; *hariḥ*—the Personality of Godhead.
 
 **O descendant of Bharata, the first millennium in the second half of the life of Brahmā is also known as the Vārāha millennium because the Personality of Godhead appeared in that millennium as the hog incarnation.**
 

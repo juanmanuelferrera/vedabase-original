@@ -8,7 +8,7 @@
 > vairājaḥ puruṣo yo 'sau\
 > bhagavān dhāraṇāśrayaḥ
 
-*aṇḍa-kośe*—within the universal shell; *śarīre*—in the body of; *asmin*—this; *sapta*—sevenfold; *āvaraṇa*—coverings; *saṁyute*—having so done; *vairājaḥ*—the gigantic universal; *puruṣaḥ*—form of the Lord; *yaḥ*—that; *asau*—He; *bhagavān*—the Personality of Godhead; *dhāraṇā*—conception; *āśrayaḥ*—object of.
+*aṇḍa-kośe*—within the universal shell; *śarīre*—in the body of; *asmin*—this; *sapta*—sevenfold; *āvaraṇa*—coverings; *saṁyute*—being so done; *vairājaḥ*—the gigantic universal; *puruṣaḥ*—form of the Lord; *yaḥ*—that; *asau*—He; *bhagavān*—the Personality of Godhead; *dhāraṇā*—conception; *āśrayaḥ*—object of.
 
 **The gigantic universal form of the Personality of Godhead, within the body of the universal shell, which is covered by sevenfold material elements, is the subject for virāṭa conception.**
 

@@ -8,7 +8,7 @@
 > parāyaṇaṁ kṣemam ihecchatāṁ paraṁ\
 > na yatra kālaḥ prabhavet paraḥ prabhuḥ
 
-*natāḥ*—bowed down; *sma*—we had done so; *te*—unto You; *nātha*—O Lord; *sadā*—always; *aṅghri-paṅkajam*—the lotus feet; *viriñca*—Brahmā, the first living being; *vairiñcya*—sons of Brahmā like Sanaka and Sanātana; *sura-indra*—the King of heaven; *vanditam*—worshiped by; *parāyaṇam*—the supreme; *kṣemam*—welfare; *iha*—in this life; *icchatām*—one who so desires; *param*—the highest; *na*—never; *yatra*—wherein; *kālaḥ*—inevitable time; *prabhavet*—can exert its influence; *paraḥ*—transcendental; *prabhuḥ*—the Supreme Lord.
+*natāḥ*—bowed down; *sma*—we had done so; *te*—unto You; *nātha*—O Lord; *sadā*—always; *aṅghri-paṅkajam*—the lotus feet; *viriñca*—Brahmā, the first living being; *vairiñcya*—sons of Brahmā like Sanaka, Sanātana, etc.; *sura-indra*—the King of heaven; *vanditam*—worshiped by; *parāyaṇam*—the supreme; *kṣemam*—welfare; *iha*—in this life; *icchatām*—one who so desires; *param*—the highest; *na*—never; *yatra*—wherein; *kālaḥ*—inevitable time; *prabhavet*—can exert its influence; *paraḥ*—transcendental; *prabhuḥ*—the Supreme Lord.
 
 **The citizens said: O Lord, You are worshiped by all demigods like Brahmā, the four Sanas and even the King of heaven. You are the ultimate rest for those who are really aspiring to achieve the highest benefit of life. You are the supreme transcendental Lord, and inevitable time cannot exert its influence upon You.**
 

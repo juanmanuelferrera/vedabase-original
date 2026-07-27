@@ -10,7 +10,7 @@
 > tumi-vidagdha, kṛpāmaya, jānaha āmāra hṛdaya,\
 > more aiche kahite nā yuyāya
 
-*pūrve*—previously; *uddhava-dvāre*—through Uddhava; *ebe*—now; *sākṣāt*—directly; *āmāre*—unto Me; *yoga*—mystic yogic meditation; *jñāne*—philosophical speculation; *kahilā*—You have said; *upāya*—the means; *tumi*—You; *vidagdha*—very humorous; *kṛpā-maya*—mercifu1; *jānaha*—You know; *āmāra*—My; *hṛdaya*—mind; *more*—unto Me; *aiche*—in that way; *kahite*—to speak; *nā yuyāya*—is not at all befitting.
+*pūrve*—previously; *uddhava-dvāre*—through Uddhava; *ebe*—now; *sākṣāt*—directly; *āmāre*—unto Me; *yoga*—mystic yogic meditation; *jñāne*—philosophical speculation; *kahilā*—You have said; *upāya*—the means; *tumi*—You; *vidagdha*—very humorous; *kṛpā-maya*—merciful; *jānaha*—You know; *āmāra*—My; *hṛdaya*—mind; *more*—unto Me; *aiche*—in that way; *kahite*—to speak; *nā yuyāya*—is not at all befitting.
 
 **“ 'My dear Kṛṣṇa, formerly, when You were staying in Mathurā, You sent Uddhava to teach Me speculative knowledge and mystic yoga. Now You Yourself are speaking the same thing, but My mind doesn't accept it. There is no place in My mind for jñāna-yoga or dhyāna-yoga. Although You know Me very well, You are still instructing Me in jñāna-yoga and dhyāna-yoga. It is not right for You to do so.' "**
 

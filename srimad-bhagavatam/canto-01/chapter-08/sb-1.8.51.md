@@ -8,7 +8,7 @@
 > karmabhir gṛhamedhīyair\
 > nāhaṁ kalpo vyapohitum
 
-*strīṇām*—of the women; *mat*—by me; *hata-bandhūnām*—of the friends who are killed; *drohaḥ*—enmity; *yaḥ*—that; *asau*—all those; *iha*—herewith; *utthitaḥ*—has accrued; *karmabhiḥ*—by dint of work; *gṛhamedhīyaiḥ*—by persons engaged in material welfare; *na*—never; *aham*—I; *kalpaḥ*—can expect; *vyapohitum*—undoing the same.
+*strīṇām*—of the woman; *mat*—by me; *hata-bandhūnām*—of the friends who are killed; *drohaḥ*—enmity; *yaḥ*—that; *asau*—all those; *iha*—herewith; *utthitaḥ*—has accrued; *karmabhiḥ*—by dint of work; *gṛhamedhīyaiḥ*—by persons engaged in material welfare; *na*—never; *aham*—I; *kalpaḥ*—can expect; *vyapohitum*—undoing the same.
 
 **I have killed many friends of women, and I have thus caused enmity to such an extent that it is not possible to undo it by material welfare work.**
 

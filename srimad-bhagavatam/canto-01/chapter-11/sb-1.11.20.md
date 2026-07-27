@@ -8,7 +8,7 @@
 > gāyanti cottamaśloka-\
 > caritāny adbhutāni ca
 
-*naṭa*—dramatists; *nartaka*—dancers; *gandharvāḥ*—celestial singers; *sūta*—professional historians; *māgadha*—professional genealogists; *vandinaḥ*—professional learned speakers; *gāyanti*—chant; *ca*—respectively; *uttamaśloka*—the Supreme Lord; *caritāni*—activities; *adbhutāni*—all superhuman; *ca*—and.
+*naṭa*—dramatists; *nartaka*—dancers; *gandharvāḥ*—celestial singers; *sūta*—professional historians; *māgadha*—professional genealogists; *vandinaḥ*—professional learned speakers; *gāyanti*—all ejaculating; *ca*—respectively; *uttamaśloka*—the Supreme Lord; *caritāni*—activities; *adbhutāni*—all superhuman; *ca*—and.
 
 **Expert dramatists, artists, dancers, singers, historians, genealogists and learned speakers all gave their respective contributions, being inspired by the superhuman pastimes of the Lord. Thus they proceeded on and on.**
 

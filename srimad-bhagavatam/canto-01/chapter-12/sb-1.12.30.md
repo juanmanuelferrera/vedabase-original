@@ -8,7 +8,7 @@
 > pūrvaṁ dṛṣṭam anudhyāyan\
 > parīkṣeta nareṣv iha
 
-*saḥ*—he; *eṣaḥ*—in this; *loke*—world; *vikhyātaḥ*—famous; *parīkṣit*—one who examines; *iti*—thus; *yat*—what; *prabhuḥ*—O my King; *pūrvam*—before; *dṛṣṭam*—seen; *anudhyāyan*—constantly contemplating; *parīkṣeta*—shall examine; *nareṣu*—unto every man; *iha*—here.
+*saḥ*—he; *eṣaḥ*—in this; *loke*—world; *vikhyātaḥ*—famous; *parīkṣit*—one who examines; *iti*—thus; *yat*—what; *prabhuḥ*—O my King; *pūrvan*—before; *dṛṣṭam*—seen; *anudhyāyan*—constantly contemplating; *parīkṣeta*—shall examine; *nareṣu*—unto every man; *iha*—here.
 
 **So his son would become famous in the world as Parīkṣit [examiner] because he would come to examine all human beings in his search after that personality whom he saw before his birth. Thus he would come to constantly contemplate Him.**
 

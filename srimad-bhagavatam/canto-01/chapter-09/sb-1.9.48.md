@@ -8,7 +8,7 @@
 > pitaraṁ sāntvayām āsa\
 > gāndhārīṁ ca tapasvinīm
 
-*tataḥ*—thereafter; *yudhiṣṭhiraḥ*—Mahārāja Yudhiṣṭhira; *gatvā*—going there; *saha*—with; *kṛṣṇaḥ*—the Lord; *gajāhvayam*—in the capital named Gajāhvaya Hastināpura; *pitaram*—unto his uncle (Dhṛtarāṣṭra); *sāntvayām āsa*—consoled; *gāndhārīm*—the wife of Dhṛtarāṣṭra; *ca*—and; *tapasvinīm*—an ascetic lady.
+*tataḥ*—thereafter; *yudhiṣṭhiraḥ*—Mahārāja Yudhiṣṭhira; *gatvā*—going there; *saha*—with; *kṛṣṇaḥ*—the Lord; *gajāhvayam*—in the capital named Gajāhvarpa Hastināpura; *pitaram*—unto his uncle (Dhṛtarāṣṭra); *sāntvayām āsa*—specified; *gāndhārīm*—wife of Dhṛtarāṣṭra; *ca*—and; *tapasvinīm*—an ascetic lady.
 
 **Thereafter, Mahārāja Yudhiṣṭhira at once went to his capital, Hastināpura, accompanied by Lord Śrī Kṛṣṇa, and there he consoled his uncle and aunt Gāndhārī, who was an ascetic.**
 

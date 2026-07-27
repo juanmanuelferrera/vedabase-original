@@ -8,7 +8,7 @@
 > sa ittham atyulbaṇa-karṇa-bāṇair\
 > gata-vyatho 'yād uru mānayānaḥ
 
-*saḥ*—he (Vidura); *ittham*—like this; *ati-ulbaṇa*—severely; *karṇa*—ear; *bāṇaiḥ*—by the arrows; *bhrātuḥ*—brother's; *puraḥ*—from the palace; *marmasu*—in the core of the heart; *tāḍitaḥ*—being afflicted; *api*—in spite of; *svayam*—he himself; *dhanuḥ dvāri*—bow on the door; *nidhāya*—keeping; *māyām*—the external nature; *gata-vyathaḥ*—without being sorry; *ayāt*—exited; *uru*—great; *māna-yānaḥ*—so thinking.
+*saḥ*—he (Vidura); *ittham*—like this; *ati-ulbaṇa*—severely; *karṇa*—ear; *bāṇaiḥ*—by the arrows; *bhrātuḥ*—brother's; *puraḥ*—from the palace; *marmasu*—in the core of the heart; *tāḍitaḥ*—being afflicted; *api*—in spite of; *svayam*—he himself; *dhanuḥ dvāri*—bow on the door; *nidhāya*—keeping; *māyām*—the external nature; *gata-vyathaḥ*—without being sorry; *ayāt*—excited; *uru*—great; *māna-yānaḥ*—so thinking.
 
 **Thus being pierced by arrows through his ears and afflicted to the core of his heart, Vidura placed his bow on the door and quit his brother's palace. He was not sorry, for he considered the acts of the external energy to be supreme.**
 

@@ -8,7 +8,7 @@
 > tathā tad-viṣayāṁ dhehi\
 > manīṣāṁ mayi mādhava
 
-*krīḍasi*—as You play; *amogha*—infallible; *saṅkalpa*—determination; *ūrṇanābhiḥ*—the spider; *yathā*—as much as; *ūrṇute*—covers; *tathā*—so and so; *tat-viṣayām*—in the subject of all those; *dhehi*—do let me know; *manīṣām*—philosophically; *mayi*—unto me; *mādhava*—O master of all energies.
+*krīḍasi*—as You play; *amogha*—infallible; *saṅkalpa*—determination; *ūrṇābhiḥ*—the spider; *yathā*—as much as; *ūrṇute*—covers; *tathā*—so and so; *tat-viṣayām*—in the subject of all those; *dhehi*—do let me know; *manīṣām*—philosophically; *mayi*—unto me; *mādhava*—O master of all energies.
 
 **O master of all energies, please tell me philosophically all about them. You play like the spider who covers itself by its own energy, and Your determination is infallible.**
 

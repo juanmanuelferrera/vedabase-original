@@ -8,7 +8,7 @@
 > prāyopaviṣṭaṁ gaṅgāyāṁ\
 > parītaṁ paramarṣibhiḥ
 
-*saḥ*—the son of Vyāsadeva; *tu*—again; *saṁśrāvayām āsa*—make them audible; *mahā-rājam*—unto the emperor; *parīkṣitam*—of the name Parīkṣit; *prāya-upaviṣṭam*—who sat until death without food or drink; *gaṅgāyām*—on the bank of the Ganges; *parītam*—being surrounded; *parama-ṛṣibhiḥ*—by great sages.
+*saḥ*—the son of Vyāsadeva; *tu*—again; *saṁśrāvayām āsa*—made them audible; *mahā-rājam*—unto the emperor; *parīkṣitam*—of the name Parīkṣit; *prāya-upaviṣṭam*—who sat until death without food or drink; *gaṅgāyām*—on the bank of the Ganges; *parītam*—being surrounded; *parama-ṛṣibhiḥ*—by great sages.
 
 **Śukadeva Gosvāmī, the son of Vyāsadeva, in his turn delivered the Bhāgavatam to the great Emperor Parīkṣit, who sat surrounded by sages on the bank of the Ganges, awaiting death without taking food or drink.**
 

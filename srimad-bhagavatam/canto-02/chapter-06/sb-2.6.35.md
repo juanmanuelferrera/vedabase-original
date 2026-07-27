@@ -8,7 +8,7 @@
 > āsthāya yogaṁ nipuṇaṁ samāhitas\
 > taṁ nādhyagacchaṁ yata ātma-sambhavaḥ
 
-*saḥ aham*—myself (the great Brahmā); *samāmnāya-mayaḥ*—in the chain of disciplic succession of Vedic wisdom; *tapaḥ-mayaḥ*—successfully having undergone all austerities; *prajāpatīnām*—of all the forefathers of living entities; *abhivanditaḥ*—worshipable; *patiḥ*—master; *āsthāya*—successfully practiced; *yogam*—mystic powers; *nipuṇam*—very expert; *samāhitaḥ*—self-realized; *tam*—the Supreme Lord; *na*—did not; *adhyagaccham*—properly understood; *yataḥ*—from whom; *ātma*—self; *sambhavaḥ*—generated.
+*saḥ aham*—myself (the great Brahmā); *samāmnāya-mayaḥ*—in the chain of disciplic succession of Vedic wisdom; *tapaḥ-mayaḥ*—successfully undergone all austerities; *prajāpatīnām*—of all the forefathers of living entities; *abhivanditaḥ*—worshipable; *patiḥ*—master; *āsthāya*—successfully practiced; *yogam*—mystic powers; *nipuṇam*—very expert; *samāhitaḥ*—self-realized; *tam*—the Supreme Lord; *na*—did not; *adhyagaccham*—properly understood; *yataḥ*—from whom; *ātma*—self; *sambhavaḥ*—generated.
 
 **Although I am known as the great Brahmā, perfect in the disciplic succession of Vedic wisdom, and although I have undergone all austerities and am an expert in mystic powers and self-realization, and although I am recognized as such by the great forefathers of the living entities, who offer me respectful obeisances, still I cannot understand Him, the Lord, the very source of my birth.**
 

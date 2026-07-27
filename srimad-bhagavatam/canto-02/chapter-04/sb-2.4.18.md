@@ -8,7 +8,7 @@
 > ye 'nye ca pāpā yad-apāśrayāśrayāḥ\
 > śudhyanti tasmai prabhaviṣṇave namaḥ
 
-*kirāta*—a province of old Bhārata; *hūṇa*—part of Germany and Russia; *āndhra*—a province of southern India; *pulinda*—the Greeks; *pulkaśāḥ*—another province; *ābhīra*—part of old Sind; *śumbhāḥ*—another province; *yavanāḥ*—the Turks; *khasa-ādayaḥ*—the Mongolian province; *ye*—even those; *anye*—others; *ca*—also; *pāpāḥ*—addicted to sinful acts; *yat*—whose; *apāśraya-āśrayāḥ*—having taken shelter of the devotees of the Lord; *śudhyanti*—at once purified; *tasmai*—unto Him; *prabhaviṣṇave*—unto the powerful Viṣṇu; *namaḥ*—my respectful obeisances.
+*kirāta*—a province of old Bhārata; *hūṇa*—part of Germany and Russia; *āndhra*—a province of southern India; *pulinda*—the Greeks; *pulkaśāḥ*—another province; *ābhīra*—part of old Sindh; *śumbhāḥ*—another province; *yavanāḥ*—the Turks; *khasa-ādayaḥ*—the Mongolian province; *ye*—even those; *anye*—others; *ca*—also; *pāpāḥ*—addicted to sinful acts; *yat*—whose; *apāśraya-āśrayāḥ*—having taken shelter of the devotees of the Lord; *śudhyanti*—at once purified; *tasmai*—unto Him; *prabhaviṣṇave*—unto the powerful Viṣṇu; *namaḥ*—my respectful obeisances.
 
 **Kirāta, Hūṇa, Āndhra, Pulinda, Pulkaśa, Ābhīra, Śumbha, Yavana and the Khasa races and even others who are addicted to sinful acts can be purified by taking shelter of the devotees of the Lord due to His being the supreme power. I beg to offer my respectful obeisances unto Him.**
 

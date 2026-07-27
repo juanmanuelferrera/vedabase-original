@@ -8,7 +8,7 @@
 > nānākhyānetihāseṣu\
 > varṇayām āsa tattvavit
 
-*dharma*—occupational duties; *artha*—economic development; *kāma*—fulfillment of desires; *mokṣān*—ultimate salvation; *ca*—and; *saha*—along with; *upāyān*—means; *yathā*—as it is; *mune*—O sage; *nānā*—various; *ākhyāna*—by recitation of historical narrations; *itihāseṣu*—in the histories; *varṇayām āsa*—described; *tattva-vit*—one who knows the truth.
+*dharma*—occupational duties; *artha*—economic development; *kāma*—fulfillment of desires; *mokṣān*—ultimate salvation; *ca*—and; *saha*—along with; *upāyān*—means; *yathā*—as it is; *mune*—O sages; *nānā*—various; *ākhyāna*—by recitation of historical narrations; *itihāseṣu*—in the histories; *varṇayām āsa*—described; *tattva-vit*—one who knows the truth.
 
 **Then he described the occupational duties of different orders and statuses of life, citing instances from history, for he was himself well acquainted with the truth.**
 

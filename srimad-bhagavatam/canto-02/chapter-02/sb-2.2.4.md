@@ -8,7 +8,7 @@
 > saty añjalau kiṁ purudhānna-pātryā\
 > dig-valkalādau sati kiṁ dukūlaiḥ
 
-*satyām*—being in possession; *kṣitau*—earthly flats; *kim*—where is the necessity; *kaśipoḥ*—of beds and cots; *prayāsaiḥ*—endeavoring for; *bāhau*—the arms; *sva-siddhe*—being self-sufficient; *hi*—certainly; *upabarhaṇaiḥ*—bed and bedstead; *kim*—what is the use; *sati*—being present; *añjalau*—the palms of the hands; *kim*—what is the use; *purudhā*—varieties of; *anna*—eatables; *pātryā*—by the utensils; *dik*—open space; *valkala-ādau*—skins of trees; *sati*—being existent; *kim*—what is the use of; *dukūlaiḥ*—clothes.
+*satyām*—being in possession; *kṣitau*—earthly flats; *kim*—where is the necessity; *kaśipoḥ*—of bed and cots; *prayāsaiḥ*—endeavoring for; *bāhau*—the arms; *sva-siddhe*—being self-sufficient; *hi*—certainly; *upabarhaṇaiḥ*—bed and bedstead; *kim*—what is the use; *sati*—being present; *añjalau*—the palms of the hands; *kim*—what is the use; *purudhā*—varieties of; *anna*—eatables; *pātryā*—by the utensils; *dik*—open space; *valkala-ādau*—skins of trees; *sati*—being existent; *kim*—what is the use of; *dukūlaiḥ*—clothes.
 
 **When there are ample earthly flats to lie on, then what is the necessity of cots and beds? When one can use his own arms, what is the necessity of a pillow? When one can use the palms of his hands, then what is the necessity of varieties of utensils? When there is ample covering, or the skins of trees, then what is the necessity of clothing?**
 

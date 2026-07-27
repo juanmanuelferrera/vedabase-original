@@ -8,7 +8,7 @@
 > yuktaṁ bhagaiḥ svair itaratra cādhruvaiḥ\
 > sva eva dhāman ramamāṇam īśvaram
 
-*adhyarhaṇīya*—greatly worshipable; *āsanam*—throne; *āsthitam*—seated on it; *param*—the Supreme; *vṛtam*—surrounded by; *catuḥ*—four, namely *prakṛti, puruṣa, mahat* and ego; *ṣoḍaśa*—the sixteen; *pañca*—the five; *śaktibhiḥ*—by the energies; *yuktam*—empowered with; *bhagaiḥ*—His opulences; *svaiḥ*—personal; *itaratra*—other minor prowesses; *ca*—also; *adhruvaiḥ*—temporary; *sve*—own; *eva*—certainly; *dhāman*—abode; *ramamāṇam*—enjoying; *īśvaram*—the Supreme Lord.
+*adhyarhaṇīya*—greatly worshipable; *āsanam*—throne; *āsthitam*—seated on it; *param*—the Supreme; *vṛtam*—surrounded by; *catuḥ*—four, namely *prakṛti, puruṣa, mahat* and ego; *ṣoḍaśa*—the sixteen; *pañca*—the five; *śaktibhiḥ*—by the energies; *yuktam*—empowered with; *bhagaiḥ*—His opulences; *svaiḥ*—personal; *itaratra*—other minor prowesses; *ca*—also; *adhruvaiḥ*—temporary; *sva*—own; *eva*—certainly; *dhāman*—abode; *ramamāṇam*—enjoying; *īśvaram*—the Supreme Lord.
 
 **The Lord was seated on His throne and was surrounded by different energies like the four, the sixteen, the five, and the six natural opulences, along with other insignificant energies of the temporary character. But He was the factual Supreme Lord, enjoying His own abode.**
 

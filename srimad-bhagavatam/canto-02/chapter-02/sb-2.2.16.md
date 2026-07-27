@@ -8,7 +8,7 @@
 > ātmānam ātmany avarudhya dhīro\
 > labdhopaśāntir virameta kṛtyāt
 
-*manaḥ*—the mind; *sva-buddhyā*—by his own intelligence; *amalayā*—unalloyed; *niyamya*—by regulating; *kṣetra-jñe*—unto the living entity; *etām*—all of them; *ninayet*—merge; *tam*—that; *ātmani*—the self; *ātmānam*—the self; *ātmani*—in the Superself; *avarudhya*—being locked up; *dhīraḥ*—the fully satisfied; *labdha-upaśāntiḥ*—one who has attained full bliss; *virameta*—ceases from; *kṛtyāt*—all other activities.
+*manaḥ*—the mind; *sva-buddhyā*—by his own intelligence; *amalayā*—unalloyed; *niyamya*—by regulating; *kṣetra-jñe*—unto the living entity; *etām*—all of them; *nilayet*—merge; *tam*—that; *ātmani*—the self; *ātmānam*—the self; *ātmani*—in the Superself; *avarudhya*—being locked up; *dhīraḥ*—the fully satisfied; *labdha-upaśāntiḥ*—one who has attained full bliss; *virameta*—ceases from; *kṛtyāt*—all other activities.
 
 **Thereafter, the yogi should merge his mind, by his unalloyed intelligence, into the living entity, and then merge the living entity into the Superself. And by doing this, the fully satisfied living entity becomes situated in the supreme stage of satisfaction, so that he ceases from all other activities.**
 

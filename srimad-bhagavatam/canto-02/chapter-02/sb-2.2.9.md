@@ -8,6 +8,6 @@
 > lasan-mahā-ratna-hiraṇmayāṅgadaṁ\
 > sphuran-mahā-ratna-kirīṭa-kuṇḍalam
 
-*prasanna*—expresses happiness; *vaktram*—mouth; *nalina-āyata*—spread like the petals of a lotus; *īkṣaṇam*—eyes; *kadamba*—*kadamba* flower; *kiñjalka*—saffron; *piśaṅga*—yellow; *vāsasam*—garments; *lasat*—hanging; *mahā-ratna*—valuable jewels; *hiraṇmaya*—made of gold; *aṅgadam*—ornament; *sphurat*—glowing; *mahā-ratna*—valuable jewels; *kirīṭa*—head dress; *kuṇḍalam*—earrings.
+*prasanna*—expresses happiness; *vaktram*—mouth; *nalina-āyata*—spread like the petals of a lotus; *īkṣaṇam*—eyes; *kadamba*—*kadamba* flower; *kiñjalka*—saffron; *piśaṅga*—yellow; *vāsasam*—garments; *lasan*—hanging; *mahā-ratna*—valuable jewels; *hiraṇmaya*—made of gold; *aṅgadam*—ornament; *sphuran*—glowing; *mahā-ratna*—valuable jewels; *kirīṭa*—head dress; *kuṇḍalam*—earrings.
 
 **His mouth expresses His happiness. His eyes are spread like the petals of a lotus, and His garments are yellowish like the saffron of a kadamba flower and bedecked with valuable jewels. His ornaments are all made of gold, set with jewels, and He wears a glowing headdress and earrings.**

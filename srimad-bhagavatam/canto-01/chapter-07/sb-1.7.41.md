@@ -8,7 +8,7 @@
 > nyavedayat taṁ priyāyai\
 > śocantyā ātma-jān hatān
 
-*atha*—thereafter; *upetya*—having reached; *sva*—own; *śibiram*—camp; *govinda*—one who enlivens the senses (Lord Śrī Kṛṣṇa); *priya*—dear; *sārathiḥ*—the charioteer; *nyavedayat*—entrusted to; *tam*—him; *priyāyai*—unto the dear; *śocantyai*—lamenting for; *ātma-jān*—own sons; *hatān*—murdered.
+*atha*—thereafter; *upetya*—having reached; *sva*—own; *śibiram*—camp; *govinda*—one who enlivens the senses (Lord Śrī Kṛṣṇa); *priya*—dear; *sārathiḥ*—the charioteer; *nyavedayat*—entrusted to; *tam*—him; *priyāyai*—unto the dear; *śocantyā*—lamenting for; *ātma-jān*—own sons; *hatān*—murdered.
 
 **After reaching his own camp, Arjuna, along with his dear friend and charioteer [Śrī Kṛṣṇa], entrusted the murderer unto his dear wife, who was lamenting for her murdered sons.**
 

@@ -8,7 +8,7 @@
 > buddho nāmnāñjana-sutaḥ\
 > kīkaṭeṣu bhaviṣyati
 
-*tataḥ*—thereafter; *kalau*—the age of Kali; *sampravṛtte*—having ensued; *sammohāya*—for the purpose of deluding; *sura*—the theists; *dviṣām*—those who are envious; *buddhaḥ*—Lord Buddha; *nāmnā*—of the name; *añjana-sutaḥ*—the son of Añjana (Lord Buddha); *kīkaṭeṣu*—in the province of Gayā (Bihar); *bhaviṣyati*—will take place.
+*tataḥ*—thereafter; *kalau*—the age of Kali; *sampravṛtte*—having ensued; *sammohāya*—for the purpose of deluding; *sura*—the theists; *dviṣām*—those who are envious; *buddhaḥ*—Lord Buddha; *nāmnā*—of the name; *añjana-sutaḥ*—the son of Añjana (Lord Buddha); *kīkaṭeṣu*—in the province of Gayā (Behar); *bhaviṣyati*—will take place.
 
 **Then, in the beginning of Kali-yuga, the Lord will appear as Lord Buddha, the son of Añjana, in the province of Gayā, just for the purpose of deluding those who are envious of the faithful theist.**
 

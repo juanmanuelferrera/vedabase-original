@@ -8,7 +8,7 @@
 > nirīkṣya kṛṣṇāpakṛtaṁ guroḥ sutaṁ\
 > vāma-svabhāvā kṛpayā nanāma ca
 
-*tathā*—thus; *āhṛtam*—brought in; *paśu-vat*—like an animal; *pāśa-baddham*—tied with ropes; *avāk-mukham*—without a word in his mouth; *karma*—activities; *jugupsitena*—being heinous; *nirīkṣya*—by seeing; *kṛṣṇā*—Draupadī; *apakṛtam*—the doer of the degrading; *guroḥ*—the teacher; *sutam*—son; *vāma*—beautiful; *svabhāvā*—nature; *kṛpayā*—out of compassion; *nanāma*—offered obeisances; *ca*—and.
+*tathā*—thus; *āhṛtam*—brought in; *paśu-vat*—like an animal; *pāśa-baddham*—tied up with ropes; *avāṅ-mukham*—without a word in his mouth; *karma*—activities; *jugupsitena*—being heinous; *nirīkṣya*—by seeing; *kṛṣṇā*—Draupadī; *apakṛtam*—the doer of the degrading; *guroḥ*—the teacher; *sutam*—son; *vāma*—beautiful; *svabhāvā*—nature; *kṛpayā*—out of compassion; *nanāma*—offered obeisances; *ca*—and.
 
 **Śrī Sūta Gosvāmī said: Draupadī then saw Aśvatthāmā, who was bound with ropes like an animal and silent for having enacted the most inglorious murder. Due to her female nature, and due to her being naturally good and well-behaved, she showed him due respects as a brāhmaṇa.**
 
