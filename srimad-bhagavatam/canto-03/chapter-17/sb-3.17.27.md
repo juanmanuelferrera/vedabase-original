@@ -8,7 +8,7 @@
 > smayan pralabdhuṁ praṇipatya nīcavaj\
 > jagāda me dehy adhirāja saṁyugam
 
-*tatra*—there; *upalabhya*—having reached; *asura-loka*—of the regions where the demons reside; *pālakam*—the guardian; *yādaḥ-gaṇānām*—of the aquatic creatures; *ṛṣabham*—the lord; *pracetasam*—Varuṇa; *smayan*—smiling; *pralabdhum*—to make fun; *praṇipatya*—having bowed down; *nīca-vat*—like a lowborn man; *jagāda*—he said; *me*—to me; *dehi*—give; *adhirāja*—O great lord; *saṁyugam*—battle.
+*tatra*—there; *upalabhya*—having reached; *asura-loka*—of the regions where the demons reside; *pālakam*—the guardian; *yādas-gaṇānām*—of the acquatic creatures; *ṛṣabham*—the lord; *pracetasam*—Varuṇa; *smayan*—smiling; *pralabdhum*—to make fun; *praṇipatya*—having bowed down; *nīca-vat*—like a lowborn man; *jagāda*—he said; *me*—to me; *dehi*—give; *adhirāja*—O great lord; *saṁyugam*—battle.
 
 **Vibhāvarī is the home of Varuṇa, lord of the aquatic creatures and guardian of the lower regions of the universe, where the demons generally reside. There Hiraṇyākṣa fell at Varuṇa's feet like a lowborn man, and to make fun of him he said with a smile, "Give me battle, O Supreme Lord!"**
 

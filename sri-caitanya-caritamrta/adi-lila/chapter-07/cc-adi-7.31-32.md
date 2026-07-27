@@ -11,7 +11,7 @@
 > keha keha eḍāila, pratijñā ha-ila bhaṅga\
 > tā-sabā ḍubaite pātiba kichu raṅga
 
-*tāhā dekhi'*—observing this advancement; *mahāprabhu*—Lord Śrī Caitanya Mahāprabhu; *karena*—does; *cintana*—thinking; *jagat*—the whole world; *ḍubāite*—to drown; *āmi*—I; *kariluṅ*—endeavored; *yatana*—attempts; *keha keha*—some of them; *eḍāila*—escaped; *pratijñā*—promise; *ha-ila*—became; *bhaṅga*—broken; *tā-sabā*—all of them; *ḍubāite*—to make them drown; *pātiba*—shall devise; *kichu*—some; *raṅga*—trick.
+*tāhā dekhi'*—observing this advancement; *mahāprabhu*—Lord Śrī Caitanya Mahāprabhu; *karena*—does; *cintana*—thinking; *jagat*—the whole world; *ḍuvāite*—to drown; *āmi*—I; *kariluṅ*—endeavored; *yatana*—attempts; *keha keha*—some of them; *eḍāila*—escaped; *pratijñā*—promise; *ha-ila*—became; *bhaṅga*—broken; *tā-sabā*—all of them; *ḍuvāite*—to make them drown; *pātiba*—shall devise; *kichu*—some; *raṅga*—trick.
 
 **Seeing that the Māyāvādīs and others were fleeing, Lord Caitanya thought: I wanted everyone to be immersed in this inundation of love of Godhead, but some of them have escaped. Therefore I shall devise a trick to drown them also.**
 

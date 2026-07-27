@@ -8,7 +8,7 @@
 > varaṁ varārho 'mbuja-nābha-pādayor\
 > anantaraṁ tvāṁ vayam aṅga śuśruma
 
-*vṛṇīhi*—please ask; *kāmam*—desire; *nṛpa*—O King; *yat*—whatever; *manaḥ-gatam*—within your mind; *mattaḥ*—from me; *tvam*—you; *auttānapade*—O son of Mahārāja Uttānapāda; *aviśaṅkitaḥ*—without hesitation; *varam*—benediction; *vara-arhaḥ*—worthy to take benedictions; *ambuja*—lotus flower; *nābha*—whose navel; *pādayoḥ*—at His lotus feet; *anantaram*—constantly; *tvām*—about you; *vayam*—we; *aṅga*—dear Dhruva; *śuśruma*—have heard.
+*vṛṇīhi*—please ask; *kāmam*—desire; *nṛpa*—O King; *yat*—whatever; *manaḥ-gatam*—within your mind; *mattaḥ*—from me; *tvam*—you; *auttānapade*—O son of Mahārāja Uttānapāda; *aviśaṅkitaḥ*—without hesitation; *varam*—benediction; *vara-arhaḥ*—worthy to take benediction; *ambuja*—lotus flower; *nābha*—whose navel; *pādayoḥ*—at His lotus feet; *anantaram*—constantly; *tvām*—about you; *vayam*—we; *aṅga*—dear Dhruva; *śuśruma*—have heard.
 
 **My dear Dhruva Mahārāja, son of Mahārāja Uttānapāda, we have heard that you are constantly engaged in transcendental loving service to the Supreme Personality of Godhead, who is known for His lotus navel. You are therefore worthy to take all benedictions from us. Please, therefore, ask whatever benediction you want from me without hesitation.**
 

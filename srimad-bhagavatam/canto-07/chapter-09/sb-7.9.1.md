@@ -10,7 +10,7 @@
 > nopaitum aśakan manyu-\
 > saṁrambhaṁ sudurāsadam
 
-*śrī-nārada uvāca*—the great saintly sage Nārada Muni said; *evam*—thus; *sura-ādayaḥ*—the groups of demigods; *sarve*—all; *brahma-rudra-puraḥ sarāḥ*—represented by Lord Brahmā and Lord Śiva; *na*—not; *upaitum*—to go before the Lord; *aśakan*—able; *manyu-saṁrambham*—in a completely angry mood; *su-durāsadam*—very difficult to approach (Lord Nṛsiṁhadeva).
+*śrī-nāradaḥ uvāca*—the great saintly sage Nārada Muni said; *evam*—thus; *sura-ādayaḥ*—the groups of demigods; *sarve*—all; *brahma-rudra-puraḥ sarāḥ*—represented by Lord Brahmā and Lord Śiva; *na*—not; *upaitum*—to go before the Lord; *aśakan*—able; *manyu-saṁrambham*—in a completely angry mood; *su-durāsadam*—very difficult to approach (Lord Nṛsiṁhadeva).
 
 **The great saint Nārada Muni continued: The demigods, headed by Lord Brahmā, Lord Śiva and other great demigods, dared not come forward before the Lord, who at that time was extremely angry.**
 

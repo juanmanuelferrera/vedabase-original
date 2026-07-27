@@ -8,7 +8,7 @@
 > na me syān nirayān mokṣo\
 > hy api varṣāyutāyutaiḥ
 
-*bāla*—boys; *dvi-ja*—the twice-born; *suhṛt*—well-wishers; *mitra*—friends; *pitṛ*—parents; *bhrātṛ*—brothers; *guru*—preceptors; *druhaḥ*—one who has killed; *na*—never; *me*—my; *syāt*—there shall be; *nirayāt*—from hell; *mokṣaḥ*—liberation; *hi*—certainly; *api*—although; *varṣa*—years; *ayuta*—millions; *āyutaiḥ*—being added.
+*bāla*—boys; *dvi-ja*—the twice-born; *suhṛt*—well-wishers; *mitra*—friends; *pitṛ*—parents; *bhrātṛ*—brothers; *guru*—preceptors; *druhaḥ*—one who has killed; *na*—never; *me*—my; *syāt*—there shall be; *nirayāt*—from hell; *mokṣaḥ*—liberation; *hi*—certainly; *api*—although; *varṣa*—years; *ayuta*—millions; *yutaiḥ*—being added.
 
 **I have killed many boys, brāhmaṇas, well-wishers, friends, parents, preceptors and brothers. Though I live millions of years, I will not be relieved from the hell that awaits me for all these sins.**
 

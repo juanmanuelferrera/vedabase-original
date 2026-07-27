@@ -8,7 +8,7 @@
 > ubhe api na gṛhṇanti\
 > māyā-sṛṣṭe vipaścitaḥ
 
-*amunī*—all these; *bhagavat*—unto the Supreme Personality of Godhead; *rūpe*—in the forms; *mayā*—by me; *te*—unto you; *hi*—certainly; *anuvarṇite*—described respectively; *ubhe*—both; *api*—also; *na*—never; *gṛhṇanti*—accepts; *māyā*—external; *sṛṣṭe*—being so manifested; *vipaḥ-citaḥ*—the learned one who knows.
+*amunī*—all these; *bhagavat*—unto the Supreme Personality of Godhead; *rūpe*—in the forms; *mayā*—by me; *te*—unto you; *hi*—certainly; *anuvarṇite*—described respectively; *ubhe*—both; *api*—also; *na*—never; *gṛhṇanti*—accepts; *māyā*—external; *sṛṣṭe*—being so manifested; *vipaś-citaḥ*—the learned one who knows.
 
 **Both the above forms of the Lord, as just described unto you from the material angle of vision, are not accepted by the pure devotees of the Lord who know Him well.**
 

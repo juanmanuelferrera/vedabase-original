@@ -8,7 +8,7 @@
 > marmāṇy abhīkṣṇaṁ pratudantaṁ duruktaiḥ\
 > pracaṇḍa-manyuḥ prahasaṁs taṁ babhāṣe
 
-*parā*—from behind; *anuṣaktam*—who followed very close; *tapanīya-upakalpam*—who had a considerable amount of gold ornaments; *mahā-gadam*—with a great mace; *kāñcana*—golden; *citra*—beautiful; *daṁśam*—armor; *marmāṇi*—the core of the heart; *abhīkṣṇam*—constantly; *pratudantam*—piercing; *duruktaiḥ*—by abusive words; *pracaṇḍa*—terrible; *manyuḥ*—anger; *prahasan*—laughing; *tam*—to him; *babhāṣe*—He said.
+*parā*—from behind; *anuṣaktam*—who followed very close; *tapanīya-upakalpam*—who had a considerable amount of gold ornaments; *mahā-gadam*—with a great mace; *kāñcana*—golden; *citra*—beautiful; *daṁśam*—armor; *marmāṇi*—the cores of the heart; *abhīkṣṇam*—constantly; *pratudantam*—piercing; *duruktaiḥ*—by abusive words; *pracaṇḍa*—terrible; *manyuḥ*—anger; *prahasan*—laughing; *tam*—to him; *babhāṣe*—He said.
 
 **The demon, who had a wealth of ornaments, bangles and beautiful golden armor on his body, chased the Lord from behind with a great mace. The Lord tolerated his piercing ill words, but in order to reply to him, He expressed His terrible anger.**
 

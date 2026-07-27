@@ -8,7 +8,7 @@
 > āsīno 'pa upaspṛśya\
 > praṇidadhyau manaḥ svayam
 
-*tasmin*—in that (*āśrama*); *sve*—own; *āśrame*—in the cottage; *vyāsaḥ*—Vyāsadeva; *badarī*—berry; *ṣaṇḍa*—trees; *maṇḍite*—surrounded by; *āsīnaḥ apaḥ*—sitting; *upaspṛśya*—touching water; *praṇidadhyau*—concentrated; *manaḥ*—the mind; *svayam*—himself.
+*tasmin*—in that (*āśrama*); *sva*—own; *āśrame*—in the cottage; *vyāsaḥ*—Vyāsadeva; *badarī*—berry; *ṣaṇḍa*—trees; *maṇḍite*—surrounded by; *āsīnaḥ apaḥ*—sitting; *upaspṛśya*—touching water; *praṇidadhyau*—concentrated; *manaḥ*—the mind; *svayam*—himself.
 
 **In that place, Śrīla Vyāsadeva, in his own āśrama, which was surrounded by berry trees, sat down to meditate after touching water for purification.**
 

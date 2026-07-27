@@ -8,7 +8,7 @@
 > bhavat-padānusmaraṇād ṛte satāṁ\
 > nimittam anyad bhagavan na vidmahe
 
-*bhajanti*—they worship; *atha*—therefore; *tvām*—You; *ataḥ eva*—therefore; *sādhavaḥ*—all saintly persons; *vyudasta*—who dispel; *māyā-guṇa*—the modes of material nature; *vibhrama*—misconceptions; *udayam*—produced; *bhavat*—Your; *pada*—lotus feet; *anusmaraṇāt*—constantly remembering; *ṛte*—except; *satām*—of great saintly persons; *nimittam*—reason; *anyat*—other; *bhagavan*—O Supreme Personality of Godhead; *na*—not; *vidmahe*—I can understand.
+*bhajanti*—they worship; *atha*—therefore; *tvām*—You; *ata eva*—therefore; *sādhavaḥ*—all saintly persons; *vyudasta*—who dispel; *māyā-guṇa*—the modes of material nature; *vibhrama*—misconceptions; *udayam*—produced; *bhavat*—Your; *pada*—lotus feet; *anusmaraṇāt*—constantly remembering; *ṛte*—except; *satām*—of great saintly persons; *nimittam*—reason; *anyat*—other; *bhagavan*—O Supreme Personality of Godhead; *na*—not; *vidmahe*—I can understand.
 
 **Great saintly persons who are always liberated take to Your devotional service because only by devotional service can one be relieved from the illusions of material existence. O my Lord, there is no reason for the liberated souls to take shelter at Your lotus feet except for the fact that they are constantly thinking of them.**
 

@@ -10,7 +10,7 @@
 > kāmāgninācyuta-ruṣā ca sudurbhareṇa\
 > sampaśyato mana urukrama sīdate me
 
-*kṣut*—hunger; *tṛṭ*—thirst; *tri-dhātubhiḥ*—three humors, namely mucus, bile and wind; *imāḥ*—all of them; *muhuḥ*—always; *ardyamānāḥ*—perplexed; *śīta*—winter; *uṣṇa*—summer; *vāta*—wind; *varaṣaiḥ*—by rains; *itara-itarāt*—and many other disturbances; *ca*—also; *kāma-agninā*—by strong sex urges; *acyuta-ruṣā*—indefatigable anger; *ca*—also; *sudurbhareṇa*—most unbearable; *sampaśyataḥ*—so observing; *manaḥ*—mind; *urukrama*—O great actor; *sīdate*—becomes despondent; *me*—my.
+*kṣut*—hunger; *tṛṣ*—thirst; *tri-dhātubhiḥ*—three secretions, namely mucus, bile and wind; *imāḥ*—all of them; *muhuḥ*—always; *ardyamānāḥ*—perplexed; *śīta*—winter; *uṣṇa*—summer; *vāta*—wind; *varaṣaiḥ*—by rains; *itara-itarāt*—and many other disturbances; *ca*—also; *kāma-agninā*—by strong sex urges; *acyuta-ruṣā*—indefatigable anger; *ca*—also; *sudurbhareṇa*—most unbearable; *sampaśyataḥ*—so observing; *manaḥ*—mind; *urukrama*—O great actor; *sīdate*—becomes despondent; *me*—my.
 
 **O great actor, my Lord, all these poor creatures are constantly perplexed by hunger, thirst, severe cold, secretion and bile, attacked by coughing winter, blasting summer, rains and many other disturbing elements, and overwhelmed by strong sex urges and indefatigable anger. I take pity on them, and I am very much aggrieved for them.**
 

@@ -6,7 +6,7 @@
 > rakta-pīta-varṇa,—nāhi aṣṭhi-valkala\
 > eka janera peṭa bhare khāile eka phala
 
-*rakta-pīta-varṇa*—the mangoes were red and yellow in color; *nāhi*—there was none; *aṣṭhi*—seed; *valkala*—or skin; *eka*—one; *janera*—man's; *peṭa*—belly; *bhare*—filled up; *khāile*—if he would eat; *eka*—one; *phala*—fruit.
+*rakta-pīta-varṇa*—the mangos were red and yellow in color; *nāhi*—there was none; *aṣṭhi*—seed; *valkala*—or skin; *eka*—one; *janera*—man's; *peṭa*—belly; *bhare*—filled up; *khāile*—if he would eat; *eka*—one; *phala*—fruit.
 
 **The fruits were all red and yellow, with no seed inside and no skin outside, and eating one fruit would immediately fill a man's belly.**
 

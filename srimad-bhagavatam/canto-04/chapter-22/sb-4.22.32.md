@@ -8,7 +8,7 @@
 > yad-adhy anyasya preyastvam\
 > ātmanaḥ sva-vyatikramāt
 
-*na*—not; *ataḥ*—after this; *parataraḥ*—greater; *loke*—in this world; *puṁsaḥ*—of the living entities; *sva-artha*—interest; *vyatikramaḥ*—obstruction; *yat-adhi*—beyond that; *anyasya*—of others; *preyastvam*—to be more interesting; *ātmanaḥ*—for the self; *sva*—own; *vyatikramāt*—by obstruction.
+*na*—not; *ataḥ*—after this; *parataraḥ*—greater; *loke*—in this world; *puṁsaḥ*—of the living entities; *sva-artha*—interest; *vyatikramaḥ*—obstruction; *yadadhi*—beyond that; *anyasya*—of others; *preyastvam*—to be more interesting; *ātmanaḥ*—for the self; *sva*—own; *vyatikramāt*—by obstruction.
 
 **There is no stronger obstruction to one's self-interest than thinking other subject matters to be more pleasing than one's self-realization.**
 

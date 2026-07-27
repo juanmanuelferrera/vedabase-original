@@ -10,6 +10,6 @@
 > sva-bhaktebhyaḥ śuddhāṁ nija-bhajana-mudrām upadiśan\
 > sa caitanyaḥ kiṁ me punar api dṛśor yāsyati padam
 
-*sadā*—always; *upāsyaḥ*—worshipable; *śrīmān*—beautiful; *dhṛta*—who accepted; *manuja-kāyaiḥ*—the bodies of men; *pranayitām*—love; *vahadbhiḥ*—who were bearing; *giḥ-vāṇaiḥ*—by the demigods; *giriśa*—Lord Śiva; *parameṣṭhi*—Lord Brahmā; *prabhṛtibhiḥ*—headed by; *sva-bhaktebhyaḥ*—unto His own devotees; *śuddhām*—pure; *nija-bhajana*—of His own worship; *mudrām*—the mark; *upadiśan*—instructing; *saḥ*—He; *caitanyaḥ*—Lord Caitanya; *kim*—what; *me*—my; *punaḥ*—again; *api*—certainly; *drśoḥ*—of the two eyes; *yāsyati*—He will go; *padam*—to the abode.
+*sadā*—always; *upāsyaḥ*—worshipable; *śrīmān*—beautiful; *dhṛta*—who accepted; *manuja-kāyaiḥ*—the bodies of men; *pranayitām*—love; *vahadbhiḥ*—who were bearing; *gīr-vāṇaiḥ*—by the demigods; *giriśa*—Lord Śiva; *parameṣṭhi*—Lord Brahmā; *prabhṛtibhiḥ*—headed by; *sva-bhaktebhyaḥ*—unto His own devotees; *śuddhām*—pure; *nija-bhajana*—of His own worship; *mudrām*—the mark; *upadiśan*—instructing; *saḥ*—He; *caitanyaḥ*—Lord Caitanya; *kim*—what; *me*—my; *punaḥ*—again; *api*—certainly; *drśoḥ*—of the two eyes; *yāsyati*—He will go; *padam*—to the abode.
 
 **"Lord Śrī Caitanya Mahāprabhu is always the most worshipable Deity of the demigods, including Lord Śiva and Lord Brahmā, who came in the garb of ordinary men, bearing love for Him. He instructs His own pure devotional service to His own devotees. Will He again be the object of my vision?"**

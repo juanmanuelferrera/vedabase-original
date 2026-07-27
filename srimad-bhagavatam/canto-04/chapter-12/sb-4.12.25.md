@@ -8,7 +8,7 @@
 > ātiṣṭha tac candra-divākarādayo\
 > graharkṣa-tārāḥ pariyanti dakṣiṇam
 
-*sudurjayam*—very difficult to achieve; *viṣṇu-padam*—planet known as Vaikuṇṭhaloka or Viṣṇuloka; *jitam*—conquered; *tvayā*—by you; *yat*—which; *sūrayaḥ*—great demigods; *aprāpya*—without achieving; *vicakṣate*—simply see; *param*—supreme; *ātiṣṭha*—please come; *tat*—that; *candra*—the moon; *diva-ākara*—sun; *ādayaḥ*—and others; *graha*—the nine planets (Mercury, Venus, Earth, Mars, Jupiter, Saturn, Uranus, Neptune and Pluto); *ṛkṣa-tārāḥ*—stars; *pariyanti*—circumambulate; *dakṣiṇam*—to the right.
+*sudurjayam*—very difficult to achieve; *viṣṇu-padam*—planet known as Vaikuṇṭhaloka or Viṣṇuloka; *jitam*—conquered; *tvayā*—by you; *yat*—which; *sūrayaḥ*—great demigods; *aprāpya*—without achieving; *vicakṣate*—simply see; *param*—supreme; *ātiṣṭha*—please come; *tat*—that; *candra*—the moon; *divākara*—sun; *ādayaḥ*—and others; *graha*—the nine planets (Mercury, Venus, Earth, Mars, Jupiter, Saturn, Uranus, Neptune and Pluto); *ṛkṣa-tārāḥ*—stars; *pariyanti*—circumambulate; *dakṣiṇam*—to the right.
 
 **To achieve Viṣṇuloka is very difficult, but by your austerity you have conquered. Even the great ṛṣis and demigods cannot achieve this position. Simply to see the supreme abode [the Viṣṇu planet], the sun and moon and all the other planets, stars, lunar mansions and solar systems are circumambulating it. Now please come; you are welcome to go there.**
 

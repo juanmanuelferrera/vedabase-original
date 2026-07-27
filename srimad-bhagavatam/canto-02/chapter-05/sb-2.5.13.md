@@ -8,7 +8,7 @@
 > vimohitā vikatthante\
 > mamāham iti durdhiyaḥ
 
-*vilajjamānayā*—by one who is ashamed; *yasya*—whose; *sthātum*—to stay; *īkṣā-pathe*—in front; *amuyā*—by the bewildering energy; *vimohitāḥ*—those who are bewildered; *vikatthante*—talk nonsense; *mama*—it is mine; *aham*—I am everything; *iti*—thus vituperating; *durdhiyaḥ*—thus ill conceived.
+*vilajjamānayā*—by one who is ashamed; *yasya*—whose; *sthātum*—to stay; *īkṣā-pathe*—in front; *amuyā*—by the bewildering energy; *vimohitāḥ*—those who are bewildered; *vikatthante*—talks nonsense; *mama*—it is mine; *aham*—I am everything; *iti*—thus vituperating; *durdhiyaḥ*—thus ill conceived.
 
 **The illusory energy of the Lord cannot take precedence, being ashamed of her position, but those who are bewildered by her always talk nonsense, being absorbed in the thought of, 'It is I, and it is mine.'**
 

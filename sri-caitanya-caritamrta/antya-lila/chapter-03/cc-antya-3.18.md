@@ -6,6 +6,6 @@
 > eta bali' dāmodara mauna ha-ilā\
 > antare santoṣa prabhu hāsi' vicārilā
 
-*eta bali'*—saying this; *dāmodara*—Dāmodara Paṇḍita; *mauna ha-ilā*—became silent; *antare*—within Himself; *santoṣa*—pleased; *prabhu*—Śrī Caitanya Mahāprabhu; *hāsi'*—smiling; *vicārilā*—considered.
+*eta bali'*—saying this; *dāmodara*—Dāmodara Paṇḍita; *mauna ha-ilā*—became silent; *antare*—within Himself; *santoṣa*—pleased; *prabhu*—Śrī Caitanya Mahāprabhu; *hāsi'*—smiling; *vicāralā*—considered.
 
 **Having said this, Dāmodara Paṇḍita became silent. Śrī Caitanya Mahāprabhu smiled, pleased within Himself, and considered the impudence of Dāmodara Paṇḍita.**

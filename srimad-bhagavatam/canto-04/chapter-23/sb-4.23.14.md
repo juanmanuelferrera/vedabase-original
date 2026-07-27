@@ -8,7 +8,7 @@
 > nābhyāṁ koṣṭheṣv avasthāpya\
 > hṛd-uraḥ-kaṇṭha-śīrṣaṇi
 
-*sampīḍya*—by blocking; *pāyum*—the door of the anus; *pārṣṇibhyām*—by the calves; *vāyum*—the air which goes up; *utsārayan*—pushing upward; *śanaiḥ*—gradually; *nābhyām*—by the navel; *koṣṭheṣu*—in the heart and in the throat; *avasthāpya*—fixing; *hṛt*—in the heart; *uraḥ*—upward; *kaṇṭha*—throat; *śīrṣaṇi*—between the two eyebrows.
+*sampīḍya*—by blocking; *pāyum*—the door of the anus; *pārṣṇibhyām*—by the calves; *vāyum*—the air which goes up; *utsārayan*—pushing upward; *śanaiḥ*—gradually; *nābhyām*—by the navel; *koṣṭheṣu*—in the heart and in the throat; *avasthāpya*—fixing; *hṛt*—in the heart; *uraḥ*—upwards; *kaṇṭha*—throat; *śīrṣaṇi*—between the two eyebrows.
 
 **When Mahārāja Pṛthu practiced a particular yogic sitting posture, he blocked the doors of his anus with his ankles, pressed his right and left calves and gradually raised his life air upward, passing it on to the circle of his navel, up to his heart and throat, and finally pushed it upward to the central position between his two eyebrows.**
 

@@ -8,7 +8,7 @@
 > mahy-ādibhiś cāvaraṇair\
 > aṣṭabhir bahir āvṛtam
 
-*etat*—all these; *bhagavataḥ*—of the Personality of Godhead; *rūpam*—form; *sthūlam*—gross; *te*—unto you; *vyāhṛtam*—explained; *mayā*—by me; *mahī*—the planets; *ādibhiḥ*—and so on; *ca*—unlimitedly; *avaraṇaiḥ*—by coverings; *aṣṭabhiḥ*—by eight; *bahiḥ*—external; *āvṛtam*—covered.
+*etat*—all these; *bhagavataḥ*—of the Personality of Godhead; *rūpam*—form; *sthūlam*—gross; *te*—unto you; *vyāhṛtam*—explained; *mayā*—by me; *mahī*—the planets; *ādibhiḥ*—et cetera; *ca*—unlimitedly; *avaraṇaiḥ*—by coverings; *aṣṭabhiḥ*—by eight; *bahiḥ*—external; *āvṛtam*—covered.
 
 **Thus by all this, the external feature of the Personality of Godhead is covered by gross forms of planets, et cetera, which were explained to you by me.**
 

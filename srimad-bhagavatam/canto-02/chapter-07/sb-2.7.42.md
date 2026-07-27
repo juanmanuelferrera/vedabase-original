@@ -10,7 +10,7 @@
 > te dustarām atitaranti ca deva-māyāṁ\
 > naiṣāṁ mamāham iti dhīḥ śva-śṛgāla-bhakṣye
 
-*yeṣām*—unto those only; *saḥ*—the Lord; *eṣaḥ*—the; *bhagavān*—the Personality of Godhead; *dayayet*—does bestow His mercy; *anantaḥ*—the unlimited potential; *sarva-ātmanā*—by all means, without reservation; *āśrita-padaḥ*—surrendered soul; *yadi*—if such surrender; *nirvyalīkam*—without pretension; *te*—those only; *dustarām*—insurmountable; *atitaranti*—can overcome; *ca*—and the paraphernalia; *deva-māyām*—diverse energies of the Lord; *na*—not; *eṣām*—of them; *mama*—mine; *aham*—myself; *iti*—thus; *dhīḥ*—conscious; *śva*—dogs; *śṛgāla*—jackals; *bhakṣye*—in the matter of eating.
+*yeṣām*—unto those only; *saḥ*—the Lord; *eṣaḥ*—the; *bhagavān*—the Personality of Godhead; *dayayet*—does bestow His mercy; *anantaḥ*—the unlimited potential; *sarva-ātmanā*—by all means, without reservation; *āśrita-padaḥ*—surrendered soul; *yadi*—if such surrender; *nirvyalīkam*—without pretention; *te*—those only; *dustarām*—insurmountable; *atitaranti*—can overcome; *ca*—and the paraphernalia; *deva-māyām*—diverse energies of the Lord; *na*—not; *eṣām*—of them; *mama*—mine; *aham*—myself; *iti*—thus; *dhīḥ*—conscious; *śva*—dogs; *śṛgāla*—jackals; *bhakṣye*—in the matter of eating.
 
 **But anyone who is specifically favored by the Supreme Lord, the Personality of Godhead, due to unalloyed surrender unto the service of the Lord, can overcome the insurmountable ocean of illusion and can understand the Lord also. But those who are attached to this body, which is meant to be eaten up at the end by dogs and jackals, cannot do so.**
 
