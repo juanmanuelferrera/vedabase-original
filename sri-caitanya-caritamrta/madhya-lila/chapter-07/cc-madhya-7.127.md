@@ -6,7 +6,7 @@
 > prabhu kahe,—"aiche bāt kabhu nā kahibā\
 > gṛhe rahi' kṛṣṇa-nāma nirantara laibā
 
-*prabhu kahe*—Śrī Caitanya Mahāprabhu said; *aiche bāt*—such words; *kabhu*—at any time; *nā kahibā*—you should not speak; *gṛhe rahi'*—staying at home; *kṛṣṇa-nāma*—the holy name of the Lord; *nirantara*—always; *laibā*—you should chant.
+*prabhu kahe*—Śrī Caitanya Mahāprabhu said; *aiche vāt*—such words; *kabhu*—at any time; *nā kahibā*—you should not speak; *gṛhe rahi'*—staying at home; *kṛṣṇa-nāma*—the holy name of the Lord; *nirantara*—always; *laibā*—you should chant.
 
 **Śrī Caitanya Mahāprabhu replied, "Don't speak like that again. Better to remain at home and chant the holy name of Kṛṣṇa always.**
 

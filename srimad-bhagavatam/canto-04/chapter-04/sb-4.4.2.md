@@ -8,7 +8,7 @@
 > bhavaṁ bhavāny apratipūruṣaṁ ruṣā\
 > pradhakṣyatīvaikṣata jāta-vepathuḥ
 
-*suhṛt-didṛkṣā*—of the desire to see her relatives; *pratighāta*—the prevention; *durmanāḥ*—feeling sorry; *snehāt*—from affection; *rudatī*—crying; *aśru-kalā*—by drops of tears; *ativihvalā*—very much afflicted; *bhavam*—Lord Śiva; *bhavānī*—Satī; *aprati-pūruṣam*—without an equal or rival; *ruṣā*—with anger; *pradhakṣyatī*—to blast; *iva*—as if; *aikṣata*—looked at; *jāta-vepathuḥ*—shaking.
+*suhṛt-didṛkṣā*—of the desire to see her relatives; *pratighāta*—the prevention; *durmanāḥ*—feeling sorry; *snehāt*—from affection; *rudatī*—crying; *aśru-kalā*—by drops of tears; *ativihvalā*—very afflicted; *bhavam*—Lord Śiva; *bhavānī*—Satī; *aprati-pūruṣam*—without an equal or rival; *ruṣā*—with anger; *pradhakṣyatī*—to blast; *iva*—as if; *aikṣata*—looked at; *jāta-vepathuḥ*—shaking.
 
 **Satī felt very sorry at being forbidden to go see her relatives at her father's house, and due to affection for them, tears fell from her eyes. Shaking and very much afflicted, she looked at her uncommon husband, Lord Śiva, as if she were going to blast him with her vision.**
 

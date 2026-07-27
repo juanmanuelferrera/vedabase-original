@@ -6,7 +6,7 @@
 > paścimera loka saba mūḍha anācāra\
 > tāhāṅ pracārila doṅhe bhakti-sadācāra
 
-*paścimera*—on the western side; *loka*—people in general; *saba*—all; *mūḍha*—less intelligent; *anācāra*—not well behaved; *tāhāṅ*—there; *pracārila*—preached; *doṅhe*—Śrīla Rūpa Gosvāmī and Sanātana Gosvāmī; *bhakti*—devotional service; *sad-ācāra*—good behavior.
+*paścimera*—on the western side; *loka*—people in general; *saba*—all; *mūḍha*—less intelligent; *anācāra*—not well behaved; *tāhāṅ*—there; *pracārila*—preached; *doṅhe*—Śrīla Rūpa and Sanātana Gosvāmī; *bhakti*—devotional service; *sad-ācāra*—good behavior.
 
 **The people in general on the western side of India were neither intelligent nor well behaved, but by the influence of Śrīla Rūpa Gosvāmī and Sanātana Gosvāmī they were trained in devotional service and good behavior.**
 

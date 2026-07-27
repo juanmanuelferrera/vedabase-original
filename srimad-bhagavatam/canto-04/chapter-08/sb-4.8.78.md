@@ -8,7 +8,7 @@
 > brahma dhārayamāṇasya\
 > trayo lokāś cakampire
 
-*ādhāram*—repose; *mahat-ādīnām*—of the material sum total known as the *mahat-tattva*; *pradhāna*—the chief; *puruṣa-īśvaram*—master of all living entities; *brahma*—the Supreme Brahman, the Personality of Godhead; *dhārayamāṇasya*—having taken into the heart; *trayaḥ*—the three planetary systems; *lokāḥ*—all the planets; *cakampire*—began to tremble.
+*ādhāram*—repose; *mahat-ādīnām*—of the material sum total known as the *mahat-tattva*; *pradhāna*—the chief; *puruṣa-īśvaram*—master of all living entities; *brahma*—the Supreme Brahman Personality of Godhead; *dhārayamāṇasya*—having taken into the heart; *trayaḥ*—the three planetary systems; *lokāḥ*—all the planets; *cakampire*—began to tremble.
 
 **When Dhruva Mahārāja thus captured the Supreme Personality of Godhead, who is the refuge of the total material creation and who is the master of all living entities, the three worlds began to tremble.**
 

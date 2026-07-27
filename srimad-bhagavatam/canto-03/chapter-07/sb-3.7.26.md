@@ -8,7 +8,7 @@
 > teṣāṁ saṁsthāṁ pramāṇaṁ ca\
 > bhūr-lokasya ca varṇaya
 
-*upari*—on the head; *adhaḥ*—underneath; *ye ca*—also; *lokāḥ*—planets; *bhūmeḥ*—of the earth; *mitra-ātmaja*—O son of Mitrā (Maitreya Muni); *āsate*—do exist; *teṣām*—their; *saṁsthām*—situation; *pramāṇam ca*—also their measurement; *bhūḥ-lokasya*—of the earthly planets; *ca*—also; *varṇaya*—please describe.
+*upari*—on the head; *adhaḥ*—underneath; *ye ca*—also; *lokāḥ*—planets; *bhūmeḥ*—of the earth; *mitra-ātmaja*—O son of Mitrā (Maitreya Muni); *āsate*—do exist; *teṣām*—their; *saṁsthām*—situation; *pramāṇam ca*—also their measurement; *bhūḥ-lokasya*—of the earth planets; *ca*—also; *varṇaya*—please describe.
 
 **O son of Mitrā, kindly describe how the planets are situated above the earth as well as underneath it, and also please mention their measurement as well as that of the earthly planets.**
 
