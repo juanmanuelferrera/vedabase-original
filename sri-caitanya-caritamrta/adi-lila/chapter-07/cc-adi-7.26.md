@@ -6,7 +6,7 @@
 > saj-jana, durjana, paṅgu, jaḍa, andha-gaṇa\
 > prema-vanyāya ḍubāila jagatera jana
 
-*sat-jana*—gentle men; *durjana*—rogues; *paṅgu*—lame; *jaḍa*—invalid; *andha-gaṇa*—blind men; *prema-vanyāya*—in the inundation of love of Godhead; *ḍubāila*—drowned; *jagatera*—all over the world; *jana*—people.
+*sat-jana*—gentle men; *durjana*—rogues; *paṅgu*—lame; *jaḍa*—invalid; *andha-gaṇa*—blind men; *prema-vanyāya*—in the inundation of love of Godhead; *ḍuvāila*—drowned; *jagatera*—all over the world; *jana*—people.
 
 **The Kṛṣṇa consciousness movement will inundate the entire world and drown everyone, whether one be a gentleman, a rogue or even lame, invalid or blind.**
 

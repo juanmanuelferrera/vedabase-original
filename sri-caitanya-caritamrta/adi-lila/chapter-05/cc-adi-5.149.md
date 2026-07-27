@@ -6,7 +6,7 @@
 > nityānanda-svarūpa pūrve ha-iyā lakṣmaṇa\
 > laghu-bhrātā haiyā kare rāmera sevana
 
-*nityānanda-svarūpa*—Lord Nityānanda Svarūpa; *pūrve*—formerly; *ha-iyā*—becoming; *lakṣmaṇa*—Lakṣmaṇa, Lord Rāmacandra's younger brother; *laghu-bhrātrā haiyā*—becoming the younger brother; *kare*—does; *rāmera sevana*—service to Lord Rāmacandra.
+*nityānanda-svarūpa*—Lord Nityānanda Svarūpa; *pūrve*—formerly; *ha-iyā*—becoming; *lakṣmaṇa*—Lakṣmaṇa, Lord Rāmacandra's younger brother; *laghu-bhrātā haiyā*—becoming the younger brother; *kare*—does; *rāmera sevana*—service to Lord Rāmacandra.
 
 **Lord Nityānanda Svarūpa formerly appeared as Lakṣmaṇa and served Lord Rāmacandra as His younger brother.**
 

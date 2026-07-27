@@ -6,6 +6,6 @@
 > nityānanda-līlā-varṇane ha-ila āveśa\
 > caitanyera śeṣa-līlā rahila avaśeṣa
 
-*nityānanda*—Lord Nityānanda; *līlā*—pastimes; *varṇane*—in the matter of description; *ha-ila*—there was; *āveśa*—ecstasy; *caitanyera*—of Lord Caitanya Mahāprabhu; *śeṣa-līlā*—pastimes in the last portion of His life; *rahila*—remained; *avaśeṣa*—supplement.
+*nityānanda*—Lord Nityānanda; *līlā*—pastime; *varṇane*—in the matter of description; *ha-ila*—there was; *āveśa*—ecstasy; *caitanyera*—of Lord Caitanya Mahāprabhu; *śeṣa-līlā*—pastimes in the last portion of His life; *rahila*—remained; *avaśeṣa*—supplement.
 
 **He ecstatically described the pastimes of Lord Nityānanda, but the later pastimes of Caitanya Mahāprabhu remained untold.**

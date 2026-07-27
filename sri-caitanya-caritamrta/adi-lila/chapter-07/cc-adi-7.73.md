@@ -6,7 +6,7 @@
 > kṛṣṇa-mantra haite habe saṁsāra-mocana\
 > kṛṣṇa-nāma haite pābe kṛṣṇera caraṇa
 
-*kṛṣṇa-mantra*—the chanting of the Hare Kṛṣṇa *mahā-mantra*; *haite*—from; *habe*—it will be; *saṁsāra*—material existence; *mocana*—delilverance; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *haite*—from; *pābe*—one will get; *kṛṣṇera*—of Lord Kṛṣṇa; *caraṇa*—lotus feet.
+*kṛṣṇa-mantra*—the chanting of the Hare Kṛṣṇa *mahā-mantra*; *haite*—from; *habe*—it will be; *saṁsāra*—material existence; *mocana*—deliverance; *kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *haite*—from; *pābe*—one will get; *kṛṣṇera*—of Lord Kṛṣṇa; *caraṇa*—lotus feet.
 
 **"Simply by chanting the holy name of Kṛṣṇa one can obtain freedom from material existence. Indeed, simply by chanting the Hare Kṛṣṇa mantra one will be able to see the lotus feet of the Lord.**
 

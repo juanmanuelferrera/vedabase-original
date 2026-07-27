@@ -8,7 +8,7 @@
 > dadāmi buddhi-yogaṁ taṁ\
 > yena mām upayānti te
 
-*teṣām*—unto them; *satata-yuktānām*—always engaged; *bhajatām*—in rendering devotional service; *prīti-pūrvakam*—in loving ecstasy; *dadāmi*—I give; *buddhi-yogam*—real intelligence; *tam*—that; *yena*—by which; *mām*—unto Me; *upayānti*—come; *te*—they.
+*teṣām*—unto them; *satata-yuktānām*—always engaged; *bhajatām*—in devotional service; *prīti-pūrvakam*—in loving ecstasy; *dadāmi*—I give; *buddhi-yogam*—real intelligence; *tam*—that; *yena*—by which; *mām*—unto Me; *upayānti*—come; *te*—they.
 
 **"To those who are constantly devoted and worship Me with love, I give the understanding by which they can come to Me."**
 

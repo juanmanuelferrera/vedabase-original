@@ -6,7 +6,7 @@
 > kṛṣṇera caraṇe haya yadi anurāga\
 > kṛṣṇa vinu anyatra tāra nāhi rahe rāga
 
-*kṛṣṇera*—of Kṛṣṇa; *caraṇe*—at the lotus feet; *haya*—becomes; *yadi*—if; *anurāga*—attachment; *kṛṣṇa*—the Supreme Personality of Godhead; *vinu*—without; *anyatra*—anywhere else; *tāra*—his; *nāhi*—there does not; *rahe*—remain; *rāga*—attachment.
+*kṛṣṇera*—of Kṛṣṇa; *caraṇe*—at the lotus feet; *haya*—becomes; *yadi*—if; *anurāga*—attachment; *kṛṣṇa*—the Supreme Personality of Godhead; *binu*—without; *anyatra*—anywhere else; *tāra*—his; *nāhi*—there does not; *rahe*—remain; *rāga*—attachment.
 
 **"If one develops his love of Godhead and becomes attached to the lotus feet of Kṛṣṇa, gradually he loses his attachment to everything else.**
 

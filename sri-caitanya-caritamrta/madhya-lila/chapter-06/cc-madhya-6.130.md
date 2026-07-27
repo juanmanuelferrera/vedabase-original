@@ -6,7 +6,7 @@
 > prabhu kahe,—"sūtrera artha bujhiye nirmala\
 > tomāra vyākhyā śuni' mana haya ta' vikala
 
-*prabhu kahe*—the Lord replied; *sūtrera artha*—the meaning of the *sūtras*; *bujhiye*—I can understand; *nirmala*—very clearly; *tomāra*—your; *vyākhyā*—explanation; *śuni'*—hearing; *mana*—mind; *haya*—becomes; *ta'*—indeed; *vikala*—disturbed.
+*prabhu kahe*—the Lord replied; *sūtrera artha*—the meaning of the *sūtra*; *bujhiye*—I can understand; *nirmala*—very clearly; *tomāra*—your; *vyākhyā*—explanation; *śuni'*—hearing; *mana*—mind; *haya*—becomes; *ta'*—indeed; *vikala*—disturbed.
 
 **Śrī Caitanya Mahāprabhu then revealed His mind, saying, "I can understand the meaning of each sūtra very clearly, but your explanations have simply agitated My mind.**
 

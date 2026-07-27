@@ -6,7 +6,7 @@
 > caitanya-nityānande nāhi esaba vicāra\
 > nāma laite prema dena, vahe aśrudhāra
 
-*caitanya-nityānande*—when chanting the holy names of Lord Caitanya and Nityānanda; *nāhi*—there are not; *esaba*—all these; *vicara*—considerations; *nāma*—the holy name; *laite*—simply by chanting; *prema*—love of Godhead; *dena*—they give; *vahe*—there is a flow; *aśru-dhāra*—tears in the eyes.
+*caitanya-nityānande*—when chanting the holy names of Lord Caitanya and Nityānanda; *nāhi*—there are not; *esaba*—all these; *vicara*—considerations; *nāma*—the holy name; *laite*—simply by chanting; *prema*—love of Godhead; *dena*—they give; *bahe*—there is a flow; *aśru-dhāra*—tears in the eyes.
 
 **But if one only chants, with some slight faith, the holy names of Lord Caitanya and Nityānanda, very quickly he is cleansed of all offenses. Thus as soon as he chants the Hare Kṛṣṇa mahā-mantra, he feels the ecstasy of love for God.**
 

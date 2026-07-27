@@ -6,7 +6,7 @@
 > eka mahāprabhu, āra prabhu duijana\
 > dui prabhu seve mahāprabhura caraṇa
 
-*eka mahāprabhu*—one Mahāprabhu, or the supreme predominator; *āra prabhu duijana*—and the other two (Nityānanda and Advaita) are two *prabhus* (masters); *dui prabhu*—the two *prabhus* (Nityānanda and Advaita Gosāñi); *seve*—serve; *mahāprabhura*—of the supreme predominator, Lord Caitanya Mahāprabhu; *caraṇa*—the lotus feet.
+*eka mahāprabhu*—one Mahāprabhu, or the supreme predominator; *āra prabhu duijana*—and the other two (Nityānanda and Advaita) are two *prabhus* (masters); *dui prabhu*—the two *prabhus* (Nityānanda and Advaita Gosāñi); *sebe*—serve; *mahāprabhura*—of the supreme predominator, Lord Caitanya Mahāprabhu; *caraṇa*—the lotus feet.
 
 **One of Them is Mahāprabhu, and the other two are prabhus. These two prabhus serve the lotus feet of Mahāprabhu.**
 

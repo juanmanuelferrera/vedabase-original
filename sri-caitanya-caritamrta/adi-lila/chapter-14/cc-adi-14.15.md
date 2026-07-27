@@ -8,7 +8,7 @@
 > tri-hrasva-pṛthu-gambhīro\
 > dvātriṁśal-lakṣaṇo mahān
 
-*pañca-dīrghaḥ*—five large; *pañca-sūkṣmaḥ*—five fine; *sapta-raktaḥ*—seven reddish; *ṣaṭ-unnataḥ*—six raised; *tri-hrasva*—three small; *pṛthu*—three broad; *gambhīraḥ*—three grave; *dvā-triṁśat*—in this way thirty-two; *lakṣaṇaḥ*—symptoms; *mahān*—for a great personality.
+*pañca-dīrghaḥ*—five large; *pañca-sūkṣmaḥ*—five fine; *sapta-raktaḥ*—seven reddish; *ṣaṣ-unnataḥ*—six raised; *tri-hrasva*—three small; *pṛthu*—three broad; *gambhīraḥ*—three grave; *dvā-triṁśat*—in this way thirty-two; *lakṣaṇaḥ*—symptoms; *mahān*—for a great personality.
 
 **“ 'There are thirty-two bodily symptoms of a great person: five of his bodily parts are large, five fine, seven reddish, six raised, three small, three broad and three grave.'**
 

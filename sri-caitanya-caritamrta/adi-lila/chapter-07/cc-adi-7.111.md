@@ -6,7 +6,7 @@
 > 'brahma'-śabde mukhya arthe kahe—'bhagavān'\
 > cid-aiśvarya-paripūrṇa, anūrdhva-samāna
 
-*brahma*—the Absolute Truth; *śabde*—by this word; *mukhya*—direct; *arthe*—meaning; *kahe*—says; *bhagavān*—the Supreme Personality of Godhead; *cit-aiśvarya*—spiritual opulence; *paripūrṇa*—full of; *anūrdhva*—unsurpassed by anyone; *samāna*—not equaled by anyone.
+*brahma*—the Absolute Truth; *śabde*—by this word; *mukhya*—direct; *arthe*—meaning; *kahe*—says; *bhagavān*—the Supreme Personality of Godhead; *cit-aiśvarya*—spiritual opulence; *paripūrṇa*—full of; *anūrdhva*—unsurpassed by anyone; *samāna*—not equalled by anyone.
 
 **"According to direct understanding, the Absolute Truth is the Supreme Personality of Godhead, who has all spiritual opulences. No one can be equal to or greater than Him.**
 

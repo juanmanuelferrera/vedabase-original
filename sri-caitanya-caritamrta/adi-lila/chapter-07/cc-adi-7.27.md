@@ -6,7 +6,7 @@
 > jagat ḍubila, jīvera haila bīja nāśa\
 > tāhā dekhi' pāṅca janera parama ullāsa
 
-*jagat*—the whole world; *ḍubila*—drowned; *jīvera*—of the living entities; *haila*—it so became; *bīja*—the seed; *nāśa*—completely finished; *tāhā*—then; *dekhi'*—by seeing; *pāñca*—five; *janera*—of the persons; *parama*—highest; *ullāsa*—happiness.
+*jagat*—the whole world; *ḍuvila*—drowned; *jīvera*—of the living entities; *haila*—it so became; *bīja*—the seed; *nāśa*—completely finished; *tāhā*—then; *dekhi'*—by seeing; *pāñca*—five; *janera*—of the persons; *parama*—highest; *ullāsa*—happiness.
 
 **When the five members of the Pañca-tattva saw the entire world drowned in love of Godhead and the seed of material enjoyment in the living entities completely destroyed, they all became exceedingly happy.**
 

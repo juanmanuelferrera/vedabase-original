@@ -6,7 +6,7 @@
 > vedamaya-mūrti tumi,—sākṣāt nārāyaṇa\
 > kṣama aparādha,—pūrve ye kailuṅ nindana
 
-*veda-maya*—transformation of the Vedic knowledge; *mūrti*—form; *tumi*—You; *sākṣāt*—directly; *nārāyaṇa*—the Supreme Personality of Godhead; *kṣama*—excuse; *aparādha*—offense; *pūrve*—before; *ye*—that; *kailuṅ*—we have done; *nindana*—criticism.
+*vedamaya*—transformation of the Vedic knowledge; *mūrti*—form; *tumi*—You; *sākṣāt*—directly; *nārāyaṇa*—the Supreme Personality of Godhead; *kṣama*—excuse; *aparādha*—offense; *pūrve*—before; *ye*—that; *kailuṅ*—we have done; *nindana*—criticism.
 
 **"Dear sir, You are Vedic knowledge personified and are directly Nārāyaṇa Himself. Kindly excuse us for the offenses we previously committed by criticizing You."**
 

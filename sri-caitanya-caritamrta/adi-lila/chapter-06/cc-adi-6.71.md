@@ -8,7 +8,7 @@
 > dāsyās te kṛpaṇāyā me\
 > sakhe darśaya sannidhim
 
-*hā*—O; *nātha*—My Lord; *ramaṇa*—O My husband; *preṣṭha*—O My most dear one; *kva asi kva asi*—where are You, where are You; *mahā-bhuja*—O mighty-armed; *dāsyāḥ*—of the maidservant; *te*—You; *kṛpaṇāyāḥ*—very much aggrieved by Your absence; *me*—to Me; *sakhe*—O My friend; *darśaya*—show; *sannidhim*—nearness to You.
+*hā*—O; *nātha*—My Lord; *ramaṇa*—O My husband; *preṣṭha*—O My most dear one; *kva asi kva asi*—where are You, where are You; *mahā-bhuja*—O mighty-armed; *dāsyāḥ*—of the maidservant; *te*—Your; *kṛpaṇāyāḥ*—very much aggrieved by Your absence; *me*—to Me; *sakhe*—O My friend; *darśaya*—show; *sannidhim*—nearness to You.
 
 **"O My Lord, O My husband, O most dearly beloved! O mighty-armed Lord! Where are You? Where are You? O My friend, reveal Yourself to Your maidservant, who is very much aggrieved by Your absence."**
 

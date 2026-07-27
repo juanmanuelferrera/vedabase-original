@@ -8,7 +8,7 @@
 > anvaya-vyatirekābhyāṁ\
 > yat syāt sarvatra sarvadā
 
-*etāvat*—up to this; *eva*—certainty; *jijñāsyam*—to be inquired about; *tattva*—of the Absolute Truth; *jijñāsunā*—by the student; *ātmanaḥ*—of the Self; *anvaya*—directly; *vyatirekābhyām*—and indirectly; *yat*—whatever; *syāt*—it may be; *sarvatra*—everywhere; *sarvadā*—always.
+*etāvat*—up to this; *eva*—certainly; *jijñāsyam*—to be inquired about; *tattva*—of the Absolute Truth; *jijñāsunā*—by the student; *ātmanaḥ*—of the Self; *anvaya*—directly; *vyatirekābhyām*—and indirectly; *yat*—whatever; *syāt*—it may be; *sarvatra*—everywhere; *sarvadā*—always.
 
 **"A person interested in transcendental knowledge must therefore always directly and indirectly inquire about it to know the all-pervading truth."**
 

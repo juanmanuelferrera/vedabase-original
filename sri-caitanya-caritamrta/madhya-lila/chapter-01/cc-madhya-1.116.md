@@ -6,7 +6,7 @@
 > tabe prabhu kaila sapta-tāla vimocana\
 > setubandhe snāna, rāmeśvara daraśana
 
-*tabe*—thereafter; *prabhu*—the Lord; *kaila*—did; *sapta-tāla-vimocana*—deliverance of the Sapta-tāla trees; *setubandhe*—at Cape Comorin; *snāna*—bathing; *rāmeśvara*—temple of Rāmeśvara; *daraśana*—visit.
+*tabe*—thereafter; *prabhu*—the Lord; *kaila*—did; *sapta-tāla-vimocana*—deliverance of the Sapta-tāla tree; *setubandhe*—at Cape Comorin; *snāna*—bathing; *rāmeśvara*—temple of Rāmeśvara; *daraśana*—visit.
 
 **After that, Lord Caitanya Mahāprabhu delivered the celebrated Saptatāla tree, took His bath at Setubandha Rāmeśvara and visited the temple of Lord Śiva known as Rāmeśvara.**
 

@@ -6,6 +6,6 @@
 > śrī-kṛṣṇa-caitanya navadvīpe avatari\
 > āṭa-calliśa vatsara prakaṭa vihari
 
-*śrī-kṛṣṇa-caitanya*—Lord Śrī Caitanya Mahāprabhu; *navadvīpe*—at Navadvīpa; *avatari*—adventing Himseif; *āṭa-calliśa*—forty-eight; *vatsara*—years; *prakaṭa*—visible; *vihari*—enjoying.
+*śrī-kṛṣṇa-caitanya*—Lord Śrī Caitanya Mahāprabhu; *navadvīpe*—at Navadvīpa; *avatari*—adventing Himself; *āṭa-calliśa*—forty-eight; *vatsara*—years; *prakaṭa*—visible; *vihari*—enjoying.
 
 **Lord Śrī Caitanya Mahāprabhu, adventing Himself in Navadvīpa, was visible for forty-eight years, enjoying His pastimes.**

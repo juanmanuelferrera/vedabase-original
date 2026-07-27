@@ -6,7 +6,7 @@
 > śrī-rūpa kahena,—āmi kichui nā jāni\
 > yei mahāprabhu kahāna, sei kahi vāṇī
 
-*śrī-rūpa kahena*—Śrīla Rūpa Gosvāmī replies; *āmi*—I; *kichui*—anything; *nā jani*—do not know; *yei*—whatever; *mahāprabhu kahāna*—Śrī Caitanya Mahāprabhu makes me say or write; *sei*—hat; *kahi*—I speak; *vāṇī*—transcendental words.
+*śrī-rūpa kahena*—Śrīla Rūpa Gosvāmī replies; *āmi*—I; *kichui*—anything; *nā jani*—do not know; *yei*—whatever; *mahāprabhu kahāna*—Śrī Caitanya Mahāprabhu makes me say or write; *sei*—that; *kahi*—I speak; *vāṇī*—transcendental words.
 
 **Śrī Rūpa Gosvāmī said, "I do not know anything. The only transcendental words I can utter are those which Śrī Caitanya Mahāprabhu makes me speak.**
 

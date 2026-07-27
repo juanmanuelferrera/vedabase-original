@@ -6,7 +6,7 @@
 > āmbuyā-muluke haya nakula-brahmacārī\
 > parama-vaiṣṇava teṅho baḍa adhikārī
 
-*āmbuyā-muluke*—in the province known as Āmbuyā; *haya*—here is; *nakula-brahmacārī*—a person known as Nakula Brahmacārī; *parama-vaiṣṇava*—a perfectly pure devotee; *teṅho*—he; *baḍa adhikārī*—very advanced in devotional service.
+*āmbuyā-muluke*—in the province known as Āmbuyā; *haya*—there is; *nakula-brahmacārī*—a person known as Nakula Brahmacārī; *parama-vaiṣṇava*—a perfectly pure devotee; *teṅho*—he; *baḍa adhikārī*—very advanced in devotional service.
 
 **In Āmbuyā-muluka there was a person named Nakula Brahmacārī, who was a perfectly pure devotee, greatly advanced in devotional service.**
 

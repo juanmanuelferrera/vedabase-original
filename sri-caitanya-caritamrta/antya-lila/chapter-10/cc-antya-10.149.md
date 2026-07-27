@@ -6,7 +6,7 @@
 > dadhi, lembu, ādā, āra phula-baḍā, lavaṇa\
 > sāmagrī dekhiyā prabhura prasanna haila mana
 
-*dadhi*—yogurt; *lembu*—lime; *ādā*—ginger; *āra*—and; *phula-baḍā*—soft cake made of *dhal*; *lavaṇa*—salt; *sāmagrī dekhiyā*—seeing these ingredients; *prabhura*—of Śrī Caitanya Mahāprabhu; *prasanna*—satisfied; *haila*—became; *mana*—the mind.
+*dadhi*—yogurt; *lembu*—lime; *ādā*—ginger; *āra*—and; *phula-baḍā*—soft cake made of *dahl*; *lavaṇa*—salt; *sāmagrī dekhiyā*—seeing these ingredients; *prabhura*—of Śrī Caitanya Mahāprabhu; *prasanna*—satisfied; *haila*—became; *mana*—the mind.
 
 **He offered yogurt, limes, ginger, soft baḍā and salt. Seeing all these arrangements, Śrī Caitanya Mahāprabhu was very pleased.**
 

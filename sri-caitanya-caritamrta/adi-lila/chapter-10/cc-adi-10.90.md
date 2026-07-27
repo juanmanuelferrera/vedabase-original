@@ -6,7 +6,7 @@
 > śāstra-dṛṣṭye kaila lupta-tīrthera uddhāra\
 > vṛndāvane kaila śrīmūrti-sevāra pracāra
 
-*śāstra-dṛṣṭye*—according to the directions of revealed scriptures; *kaila*—did; *lupta*—forgotten; *tīrthera*—places of pilgrimage; *uddhāra*—excavation; *vṛndāvane*—in Vṛndāvana; *kaila*—did; *śrī-mūrti*—Deity; *sevāra*—of worship; *pracāra*—propagation.
+*śāstra-dṛṣṭye*—according to the directions of revealed scriptures; *kaila*—did; *lupta*—forgotten; *tīrthera*—place of pilgrimage; *uddhāra*—excavation; *vṛndāvane*—in Vṛndāvana; *kaila*—did; *śrī-mūrti*—Deity; *sevāra*—of worship; *pracāra*—propagation.
 
 **In accordance with the directions of the revealed scriptures, both Gosvāmīs excavated the lost places of pilgrimage and inaugurated the worship of Deities in Vṛndāvana.**
 

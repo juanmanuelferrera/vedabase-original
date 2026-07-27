@@ -6,7 +6,7 @@
 > ei mata bāra-māsa kīrtana-avasāne\
 > āmra-mahotsava prabhu kare dine dine
 
-*ei mata*—in this way; *bāra-māsa*—for twelve months; *kīrtana*—chanting of the Hare Kṛṣṇa *mantra*; *avasāne*—at the end; *āmra-mahotsava*—festival of eating mangoes; *prabhu*—the Lord; *kare*—performs; *dine dine*—every day.
+*ei mata*—in this way; *bāra-māsa*—for twelve months; *kīrtana*—chanting of the Hare Kṛṣṇa *mantra*; *avasāne*—at the end; *āmra-mahotsava*—festival of eating mangos; *prabhu*—the Lord; *kare*—performs; *dine dine*—every day.
 
 **In this way the Lord Performed saṅkīrtana every day, and at the end of saṅkīrtana there was a mango-eating festival every day for twelve months.**
 
