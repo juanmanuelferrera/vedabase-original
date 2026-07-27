@@ -8,7 +8,7 @@
 > tan naicchan mokṣa-dharmāṇo\
 > vāsudeva-parāyaṇāḥ
 
-*tān*—unto the Kumāras, as above mentioned; *babhāṣe*—addressed; *svabhūḥ*—Brahmā; *putrān*—unto the sons; *prajāḥ*—generations; *sṛjata*—to create; *putrakāḥ*—O my sons; *tat*—that; *na*—not; *aicchan*—desired; *mokṣa-dharmāṇaḥ*—pledged to the principles of liberation; *vāsudeva*—the Personality of Godhead; *parāyaṇāḥ*—who are so devoted.
+*tān*—unto the Kumāras, as above mentioned; *babhāṣe*—addressed; *svabhūḥ*—Brahmā; *putrān*—unto the sons; *prajāḥ*—generations; *sṛjata*—do create; *putrakāḥ*—O my sons; *tat*—that; *na*—not; *aicchan*—desired; *mokṣa-dharmāṇaḥ*—pledged to the principles of liberation; *vāsudeva*—the Personality of Godhead; *parāyaṇāḥ*—who are so devoted.
 
 **Brahmā spoke to his sons after generating them. "My dear sons," he said, "now generate progeny." But due to their being attached to Vāsudeva, the Supreme Personality of Godhead, they aimed at liberation, and therefore they expressed their unwillingness.**
 

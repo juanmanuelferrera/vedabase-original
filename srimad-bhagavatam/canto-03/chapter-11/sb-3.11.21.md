@@ -8,7 +8,7 @@
 > sa evānyeṣv adharmeṇa\
 > vyeti pādena vardhatā
 
-*dharmaḥ*—religion; *catuḥ-pāt*—complete four dimensions; *manujān*—mankind; *kṛte*—in the Satya-yuga; *samanuvartate*—properly maintained; *saḥ*—that; *eva*—certainly; *anyeṣu*—in other; *adharmeṇa*—by the influence of irreligion; *vyeti*—declined; *pādena*—by one part; *vardhatā*—gradually increasing proportionately.
+*dharmaḥ*—religion; *catuḥ-pāt*—complete four dimensions; *manujān*—mankind; *kṛte*—in the Satya-yuga millennium; *samanuvartate*—properly maintained; *saḥ*—that; *eva*—certainly; *anyeṣu*—in other; *adharmeṇa*—by the influence of irreligion; *vyeti*—declined; *pādena*—by one part; *vardhatā*—gradually increasing proportionately.
 
 **O Vidura, in the Satya millennium mankind properly and completely maintained the principles of religion, but in other millenniums religion gradually decreased by one part as irreligion was proportionately admitted.**
 

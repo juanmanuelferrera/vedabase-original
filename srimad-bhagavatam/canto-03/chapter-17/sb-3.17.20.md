@@ -8,7 +8,7 @@
 > gadā-pāṇir divaṁ yāto\
 > yuyutsur mṛgayan raṇam
 
-*hiraṇyākṣaḥ*—Hiraṇyākṣa; *anujaḥ*—younger brother; *tasya*—his; *priyaḥ*—beloved; *prīti-kṛt*—ready to please; *anu-aham*—every day; *gadā-pāṇiḥ*—with a club in hand; *divam*—to the higher planets; *yātaḥ*—traveled; *yuyutsuḥ*—desirous to fight; *mṛgayan*—seeking; *raṇam*—combat.
+*hiraṇyākṣaḥ*—Hiraṇyākṣa; *anujaḥ*—younger brother; *tasya*—his; *priyaḥ*—beloved; *prīti-kṛt*—ready to please; *anvaham*—every day; *gadā-pāṇiḥ*—with a club in hand; *divam*—to the higher planets; *yātaḥ*—traveled; *yuyutsuḥ*—desirous to fight; *mṛgayan*—seeking; *raṇam*—combat.
 
 **His younger brother, Hiraṇyākṣa, was always ready to satisfy his elder brother by his activities. Hiraṇyākṣa took a club on his shoulder and traveled all over the universe with a fighting spirit just to satisfy Hiraṇyakaśipu.**
 

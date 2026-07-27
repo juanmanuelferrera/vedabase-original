@@ -8,7 +8,7 @@
 > catur-bhujaṁ kañja-rathāṅga-śaṅkha-\
 > gadā-dharaṁ dhāraṇayā smaranti
 
-*kecit*—others; *sva-deha-antaḥ*—within the body; *hṛdaya-avakāśe*—in the region of the heart; *prādeśa-mātram*—only measured by eight inches; *puruṣam*—the Personality of Godhead; *vasantam*—residing; *catuḥ-bhujam*—with four hands; *kañja*—lotus; *ratha-aṅga*—the wheel of a chariot; *śaṅkha*—conchshell; *gadā-dharam*—and with a club in the hand; *dhāraṇayā*—conceiving in that way; *smaranti*—do meditate upon Him.
+*kecit*—others; *sva-deha-antar*—within the body; *hṛdaya-avakāśe*—in the region of the heart; *prādeśa-mātram*—only measured by eight inches; *puruṣam*—the Personality of Godhead; *vasantam*—residing; *catuḥ-bhujam*—with four hands; *kañja*—lotus; *ratha-aṅga*—the wheel of a chariot; *śaṅkha*—conchshell; *gadā-dharam*—and with a club in the hand; *dhāraṇayā*—conceiving in that way; *smaranti*—do meditate upon Him.
 
 **Others conceive of the Personality of Godhead residing within the body in the region of the heart and measured only by eight inches, with four hands carrying a lotus, a wheel of a chariot, a conchshell and a club respectively.**
 

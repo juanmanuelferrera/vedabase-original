@@ -10,7 +10,7 @@
 > yāvan mano-vacaḥ stutvā\
 > virarāma sa khinnavat
 
-*maitreyaḥ uvāca*—the great sage Maitreya said; *sva-sambhavam*—the source of his appearance; *niśāmya*—by seeing; *evam*—thus; *tapaḥ*—penance; *vidyā*—knowledge; *samādhibhiḥ*—as also by concentration of the mind; *yāvat*—as far as possible; *manaḥ*—mind; *vacaḥ*—words; *stutvā*—having prayed; *virarāma*—became silent; *saḥ*—he (Brahmā); *khinna-vat*—as if tired.
+*maitreyaḥ uvāca*—the great sage Maitreya said; *sva-sambhavam*—the source of his appearance; *niśāmya*—by seeing; *evam*—thus; *tapaḥ*—penance; *vidyā*—knowledge; *samādhibhiḥ*—as also by concentration of the mind; *yāvat*—as far as possible; *manaḥ*—mind; *vacaḥ*—words; *stutvā*—by prayers; *virarāma*—became silent; *saḥ*—he (Brahmā); *khinna-vat*—as if tired.
 
 **The sage Maitreya said: O Vidura, after observing the source of his appearance, namely the Personality of Godhead, Brahmā prayed for His mercy as far as his mind and words would permit him. Thus praying, he became silent, as if tired from his activities of penance, knowledge and mental concentration.**
 

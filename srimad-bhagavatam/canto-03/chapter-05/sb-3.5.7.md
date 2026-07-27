@@ -8,7 +8,7 @@
 > mano na tṛpyaty api śṛṇvatāṁ naḥ\
 > suśloka-mauleś caritāmṛtāni
 
-*krīḍan*—manifesting pastimes; *vidhatte*—He performs; *dvija*—twice-born; *go*—cows; *surāṇām*—of the demigods; *kṣemāya*—welfare; *karmāṇi*—transcendental activities; *avatāra*—incarnations; *bhedaiḥ*—differently; *manaḥ*—mind; *na*—never; *tṛpyati*—satisfies; *api*—in spite of; *śṛṇvatām*—continuously hearing; *naḥ*—our; *su-śloka*—auspicious; *mauleḥ*—of the Lord; *carita*—characteristics; *amṛtāni*—undying.
+*krīḍan*—manifesting pastimes; *vidhatte*—perform; *dvija*—twice-born; *go*—cows; *surāṇām*—of the demigods; *kṣemāya*—welfare; *karmāṇi*—transcendental activities; *avatāra*—incarnations; *bhedaiḥ*—differently; *manaḥ*—mind; *na*—never; *tṛpyati*—satisfies; *api*—in spite of; *śṛṇvatām*—continuously hearing; *naḥ*—our; *su-śloka*—auspicious; *mauleḥ*—of the Lord; *carita*—characteristics; *amṛtāni*—undying.
 
 **You may narrate also about the auspicious characteristics of the Lord in His different incarnations for the welfare of the twice-born, the cows and the demigods. Our minds are never satisfied completely, although we continuously hear of His transcendental activities.**
 

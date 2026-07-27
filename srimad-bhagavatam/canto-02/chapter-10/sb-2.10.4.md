@@ -8,7 +8,7 @@
 > manvantarāṇi sad-dharma\
 > ūtayaḥ karma-vāsanāḥ
 
-*sthitiḥ*—the right situation; *vaikuṇṭha-vijayaḥ*—the victory of the Lord of Vaikuṇṭha; *poṣaṇam*—maintenance; *tat-anugrahaḥ*—His causeless mercy; *manvantarāṇi*—the reign of the Manus; *sat-dharmaḥ*—perfect occupational duty; *ūtayaḥ*—impetus to work; *karma-vāsanāḥ*—desire for fruitive work.
+*sthitiḥ*—the right situation; *vaikuṇṭha-vijayaḥ*—victory of the Lord of Vaikuṇṭha; *poṣaṇam*—maintenance; *tat-anugrahaḥ*—His causeless mercy; *manvantarāṇi*—reign of the Manus; *sat-dharmaḥ*—perfect occupational duty; *ūtayaḥ*—impetus to work; *karma-vāsanāḥ*—desire for fruitive work.
 
 **The right situation for the living entities is to obey the laws of the Lord and thus be in perfect peace of mind under the protection of the Supreme Personality of Godhead. The Manus and their laws are meant to give right direction in life. The impetus of activity is the desire for fruitive work.**
 

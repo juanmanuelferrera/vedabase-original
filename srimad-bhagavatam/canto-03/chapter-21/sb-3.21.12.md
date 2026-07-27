@@ -8,7 +8,7 @@
 > gīrbhis tv abhyagṛṇāt prīti-\
 > svabhāvātmā kṛtāñjaliḥ
 
-*jāta-harṣaḥ*—naturally jubilant; *apatat*—he fell down; *mūrdhnā*—with his head; *kṣitau*—on the ground; *labdha*—having been achieved; *manaḥ-rathaḥ*—his desire; *gīrbhiḥ*—with prayers; *tu*—and; *abhyagṛṇāt*—he satisfied; *prīti-svabhāva-ātmā*—whose heart is by nature always full of love; *kṛta-añjaliḥ*—with folded hands.
+*jāta-harṣaḥ*—naturally jubilant; *apatat*—he fell down; *mūrdhnā*—with his head; *kṣitau*—on the ground; *labdha*—having been achieved; *manas-rathaḥ*—his desire; *gīrbhiḥ*—with prayers; *tu*—and; *abhyagṛṇāt*—he satisfied; *prīti-svabhāva-ātmā*—whose heart is by nature always full of love; *kṛta-añjaliḥ*—with folded hands.
 
 **When Kardama Muni actually realized the Supreme Personality of Godhead in person, he was greatly satisfied because his transcendental desire was fulfilled. He fell on the ground with his head bowed to offer obeisances unto the lotus feet of the Lord. His heart naturally full of love of God, with folded hands he satisfied the Lord with prayers.**
 

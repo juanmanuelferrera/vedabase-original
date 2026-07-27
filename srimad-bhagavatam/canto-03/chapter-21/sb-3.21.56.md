@@ -8,7 +8,7 @@
 > tad vayaṁ nirvyalīkena\
 > pratipadyāmahe hṛdā
 
-*atha api*—in spite of all this; *pṛcche*—I ask; *tvām*—you; *vīra*—O valiant King; *yat-artham*—the purpose; *tvam*—you; *iha*—here; *āgataḥ*—have come; *tat*—that; *vayam*—we; *nirvyalīkena*—without reservation; *pratipadyāmahe*—we shall carry out; *hṛdā*—with heart and soul.
+*athāpi*—in spite of all this; *pṛcche*—I ask; *tvām*—you; *vīra*—O valiant King; *yat-artham*—the purpose; *tvam*—you; *iha*—here; *āgataḥ*—have come; *tat*—that; *vayam*—we; *nirvyalīkena*—without reservation; *pratipadyāmahe*—we shall carry out; *hṛdā*—with heart and soul.
 
 **In spite of all this, I ask you, O valiant King, the purpose for which you have come here. Whatever it may be, we shall carry it out without reservation.**
 

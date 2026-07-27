@@ -8,7 +8,7 @@
 > daivopasāditaṁ yāvad\
 > vīkṣyeśvara-gatiṁ budhaḥ
 
-*parituṣyet*—one should be satisfied; *tataḥ*—therefore; *tāta*—my dear boy; *tāvat*—up to such; *mātreṇa*—quality; *pūruṣaḥ*—a person; *daiva*—destiny; *upasāditam*—offered by; *yāvat*—as; *vīkṣya*—seeing; *īśvara-gatim*—the process of the Supreme; *budhaḥ*—one who is intelligent.
+*parituṣyet*—one should be satisfied; *tataḥ*—therefore; *tāta*—my dear boy; *tāvat*—up to such; *mātreṇa*—quantity; *pūruṣaḥ*—a person; *daiva*—destiny; *upasāditam*—offered by; *yāvat*—as; *vīkṣya*—seeing; *īśvara-gatim*—the process of the Supreme; *budhaḥ*—one who is intelligent.
 
 **The process of the Supreme Personality of Godhead is very wonderful. One who is intelligent should accept that process and be satisfied with whatever comes, favorable or unfavorable, by His supreme will.**
 

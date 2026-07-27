@@ -8,7 +8,7 @@
 > kālenānugatāśeṣa\
 > āste tūṣṇīṁ dinātyaye
 
-*tamaḥ*—the mode of ignorance, or the darkness of night; *mātrām*—an insignificant portion only; *upādāya*—accepting; *pratisaṁruddha-vikramaḥ*—suspending all power of manifestation; *kālena*—by means of the eternal *kāla*; *anugata*—merged in; *aśeṣaḥ*—innumerable living entities; *āste*—remains; *tūṣṇīm*—silent; *dina-atyaye*—at the end of the day.
+*tamaḥ*—mode of ignorance, or the darkness of night; *mātrām*—an insignificant portion only; *upādāya*—accepting; *pratisaṁruddha-vikramaḥ*—suspending all power of manifestation; *kālena*—by means of the eternal *kāla*; *anugata*—merged in; *aśeṣaḥ*—innumerable living entities; *āste*—remains; *tūṣṇīm*—silent; *dina-atyaye*—at the end of the day.
 
 **At the end of the day, under the insignificant portion of the mode of darkness, the powerful manifestation of the universe merges in the darkness of night. By the influence of eternal time, the innumerable living entities remain merged in that dissolution, and everything is silent.**
 

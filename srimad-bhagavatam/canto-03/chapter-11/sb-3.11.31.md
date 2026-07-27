@@ -8,7 +8,7 @@
 > plāvayanty utkaṭāṭopa-\
 > caṇḍa-vāteritormayaḥ
 
-*tāvat*—then; *tri-bhuvanam*—all the three worlds; *sadyaḥ*—immediately after; *kalpa-anta*—in the beginning of the devastation; *edhita*—inflated; *sindhavaḥ*—all the oceans; *plāvayanti*—inundate; *utkaṭa*—violent; *āṭopa*—agitation; *caṇḍa*—hurricane; *vāta*—by winds; *īrita*—blown; *ūrmayaḥ*—waves.
+*tāvat*—then; *tri-bhuvanam*—all the three worlds; *sadyaḥ*—immediately after; *kalpa-anta*—in the beginning of devastation; *edhita*—inflated; *sindhavaḥ*—all the oceans; *plāvayanti*—inundate; *utkaṭa*—violent; *āṭopa*—agitation; *caṇḍa*—hurricane; *vāta*—by winds; *īrita*—blown; *ūrmayaḥ*—waves.
 
 **At the beginning of the devastation all the seas overflow, and hurricane winds blow very violently. Thus the waves of the seas become ferocious, and in no time at all the three worlds are full of water.**
 

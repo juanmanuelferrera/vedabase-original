@@ -8,7 +8,7 @@
 > tvaṁ naḥ sva-cakṣuḥ paridehi śaktyā\
 > deva kriyārthe yad-anugrahāṇām
 
-*tataḥ*—therefore; *vayam*—all of us; *mat-pramukhāḥ*—coming from the total cosmos, the *mahat-tattva*; *yat-arthe*—for the purpose of which; *babhūvima*—created; *ātman*—O Supreme Self; *karavāma*—shall do; *kim*—what; *te*—Your service; *tvam*—Yourself; *naḥ*—to us; *sva-cakṣuḥ*—personal plan; *paridehi*—specifically grant us; *śaktyā*—with potency to work; *deva*—O Lord; *kriyā-arthe*—for acting; *yat*—from which; *anugrahāṇām*—of those who are specifically favored.
+*tataḥ*—therefore; *vayam*—all of us; *mat-pramukhāḥ*—coming from the total cosmos, the *mahat-tattva*; *yat-arthe*—for the purpose of which; *babhūvima*—created; *ātman*—the self; *karavāma*—shall do; *kim*—what; *te*—Your service; *tvam*—Yourself; *naḥ*—to us; *sva-cakṣuḥ*—personal plan; *paridehi*—specifically grant us; *śaktyā*—with potency to work; *deva*—O Lord; *kriyā-arthe*—for acting; *yat*—that which; *anugrahāṇām*—of those who are specifically favored.
 
 **O Supreme Self, please give us, who are created in the beginning from the mahat-tattva, the total cosmic energy, Your kind directions on how we shall act. Kindly award us Your perfect knowledge and potency so that we can render You service in the different departments of subsequent creation.**
 

@@ -8,7 +8,7 @@
 > bhītā nililyire devās\
 > tārkṣya-trastā ivāhayaḥ
 
-*manaḥ-vīrya*—by mental and bodily strength; *vara*—by the boon; *utsiktam*—proud; *asṛṇyam*—not able to be checked; *akutaḥ-bhayam*—fearing no one; *bhītāḥ*—frightened; *nililyire*—hid themselves; *devāḥ*—the demigods; *tārkṣya*—Garuḍa; *trastāḥ*—frightened of; *iva*—like; *ahayaḥ*—snakes.
+*manas-vīrya*—by mental and bodily strength; *vara*—by the boon; *utsiktam*—proud; *asṛṇyam*—not able to be checked; *akutaḥ-bhayam*—fearing no one; *bhītāḥ*—frightened; *nililyire*—hid themselves; *devāḥ*—the demigods; *tārkṣya*—Garuḍa; *trastāḥ*—frightened of; *iva*—like; *ahayaḥ*—snakes.
 
 **His mental and bodily strength as well as the boon conferred upon him had made him proud. He feared death at the hands of no one, and there was no checking him. The gods, therefore, were seized with fear at his very sight, and they hid themselves even as snakes hide themselves for fear of Garuḍa.**
 

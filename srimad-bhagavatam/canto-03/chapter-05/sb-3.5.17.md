@@ -10,7 +10,7 @@
 > puṁsāṁ niḥśreyasārthena\
 > tam āha bahu-mānayan
 
-*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *saḥ*—he; *evam*—thus; *bhagavān*—the great sage; *pṛṣṭaḥ*—being requested; *kṣattrā*—by Vidura; *kauṣāravaḥ*—Maitreya; *muniḥ*—the great sage; *puṁsām*—for all people; *niḥśreyasa*—for the greatest welfare; *arthena*—for that; *tam*—unto him; *āha*—narrated; *bahu*—greatly; *mānayan*—honoring.
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *saḥ*—he; *evam*—this; *bhagavān*—the great sage; *pṛṣṭaḥ*—being requested; *kṣattrā*—by Vidura; *kauṣāravaḥ*—Maitreya; *muniḥ*—the great sage; *puṁsām*—for all people; *niḥśreyasa*—for the greatest welfare; *arthena*—for that; *tam*—unto him; *āha*—narrated; *bahu*—greatly; *mānayan*—honored.
 
 **Śukadeva Gosvāmī said: The great sage Maitreya Muni, after honoring Vidura very greatly, began to speak, at Vidura's request, for the greatest welfare of all people.**
 

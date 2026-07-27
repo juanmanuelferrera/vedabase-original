@@ -8,7 +8,7 @@
 > praticakṣīta māṁ loko\
 > jahyāt tarhy eva kaśmalam
 
-*yadā*—when; *tu*—but; *sarva*—all; *bhūteṣu*—in the living entities; *dāruṣu*—in wood; *agnim*—fire; *iva*—like; *sthitam*—situated; *praticakṣīta*—you shall see; *mām*—Me; *lokaḥ*—and the universe; *jahyāt*—can give up; *tarhi*—then at once; *eva*—certainly; *kaśmalam*—illusion.
+*yadā*—when; *tu*—but; *sarva*—all; *bhūteṣu*—in the living entities; *dāruṣu*—in the wood; *agnim*—fire; *iva*—like; *sthitam*—situated; *praticakṣīta*—you shall see; *mām*—Me; *lokaḥ*—and the universe; *jahyāt*—can give up; *tarhi*—then at once; *eva*—certainly; *kaśmalam*—illusion.
 
 **You will see Me in all living entities as well as all over the universe, just as fire is situated in wood. Only in that state of transcendental vision will you be able to be free from all kinds of illusion.**
 

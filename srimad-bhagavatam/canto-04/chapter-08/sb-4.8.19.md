@@ -8,7 +8,7 @@
 > ārādhayādhokṣaja-pāda-padmaṁ\
 > yadīcchase 'dhyāsanam uttamo yathā
 
-*ātiṣṭha*—just execute; *tat*—that; *tāta*—my dear son; *vimatsaraḥ*—without being envious; *tvam*—unto you; *uktam*—said; *samātrā api*—by your stepmother; *yat*—whatever; *avyalīkam*—they are all factual; *ārādhaya*—just begin worshiping; *adhokṣaja*—the Transcendence; *pāda-padmam*—lotus feet; *yadi*—if; *icchase*—desire; *adhyāsanam*—to be seated along with; *uttamaḥ*—your stepbrother; *yathā*—as much as.
+*ātiṣṭha*—just to execute; *tat*—that; *tāta*—my dear son; *vimatsaraḥ*—without being envious; *tvam*—unto you; *uktam*—said; *samātrā api*—by your stepmother; *yat*—whatever; *avyalīkam*—they are all factual; *ārādhaya*—just begin worshiping; *adhokṣaja*—the Transcendence; *pāda-padmam*—lotus feet; *yadi*—if; *icchase*—desire; *adhyāsanam*—to be seated along with; *uttamaḥ*—your stepbrother; *yathā*—as much as.
 
 **My dear boy, whatever has been spoken by Suruci, your stepmother, although very harsh to hear, is factual. Therefore, if you desire at all to sit on the same throne as your stepbrother Uttama, then give up your envious attitude and immediately try to execute the instructions of your stepmother. Without further delay, you must engage yourself in worshiping the lotus feet of the Supreme Personality of Godhead.**
 

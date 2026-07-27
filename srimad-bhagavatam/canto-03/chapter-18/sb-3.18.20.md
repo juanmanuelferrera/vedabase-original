@@ -8,7 +8,7 @@
 > kauravya mahyāṁ dviṣator vimardanaṁ\
 > didṛkṣur āgād ṛṣibhir vṛtaḥ svarāṭ
 
-*daityasya*—of the demon; *yajña-avayavasya*—of the Personality of Godhead (of whose body *yajña* is a part); *māyā*—through His potency; *gṛhīta*—was assumed; *vārāha*—of a boar; *tanoḥ*—whose form; *mahā-ātmanaḥ*—of the Supreme Lord; *kauravya*—O Vidura (descendant of Kuru); *mahyām*—for the sake of the world; *dviṣatoḥ*—of the two enemies; *vimardanam*—the fight; *didṛkṣuḥ*—desirous to see; *āgāt*—came; *ṛṣibhiḥ*—by the sages; *vṛtaḥ*—accompanied; *svarāṭ*—Brahmā.
+*daityasya*—of the demon; *yajña-avayavasya*—of the Personality of Godhead (of whose body *yajña* is a part); *māyā*—through His potency; *gṛhīta*—was assumed; *vārāha*—of a boar; *tanoḥ*—whose form; *mahātmanaḥ*—of the Supreme Lord; *kauravya*—O Vidura (descendant of Kuru); *mahyām*—for the sake of the world; *dviṣatoḥ*—of the two enemies; *vimardanam*—the fight; *didṛkṣuḥ*—desirous to see; *āgāt*—came; *ṛṣibhiḥ*—by the sages; *vṛtaḥ*—accompanied; *svarāṭ*—Brahmā.
 
 **O descendant of Kuru, Brahmā, the most independent demigod of the universe, accompanied by his followers, came to see the terrible fight for the sake of the world between the demon and the Personality of Godhead, who appeared in the form of a boar.**
 

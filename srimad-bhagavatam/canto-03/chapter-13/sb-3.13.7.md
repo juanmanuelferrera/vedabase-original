@@ -8,7 +8,7 @@
 > tathāpi naḥ prajānāṁ te\
 > śuśrūṣā kena vā bhavet
 
-*tvam*—you; *ekaḥ*—one; *sarva*—all; *bhūtānām*—living entities; *janma-kṛt*—progenitor; *vṛtti-daḥ*—source of subsistence; *pitā*—the father; *tathā api*—yet; *naḥ*—ourselves; *prajānām*—of all who are born; *te*—of you; *śuśrūṣā*—service; *kena*—how; *vā*—either; *bhavet*—may be possible.
+*tvam*—you; *ekaḥ*—one; *sarva*—all; *bhūtānām*—living entities; *janma-kṛt*—progenitor; *vṛtti-daḥ*—source of subsistence; *pitā*—the father; *tathāpi*—yet; *naḥ*—ourselves; *prajānām*—of all who are born; *te*—of you; *śuśrūṣā*—service; *kena*—how; *vā*—either; *bhavet*—may be possible.
 
 **You are the father of all living entities and the source of their subsistence because they are all born of you. Please order us how we may be able to render service unto you.**
 

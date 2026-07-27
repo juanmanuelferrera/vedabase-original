@@ -8,7 +8,7 @@
 > ubhayor antaraṁ vyoma\
 > ye rudra-pārṣadāṁ gaṇāḥ
 
-*tārtīyena*—by excessive development of the third mode of material nature, the mode of ignorance; *svabhāvena*—by such nature; *bhagavat-nābhim*—the abdominal navel of the gigantic form of the Personality of Godhead; *āśritāḥ*—those who are so situated; *ubhayoḥ*—between the two; *antaram*—in between; *vyoma*—the sky; *ye*—all of whom; *rudra-pārṣadām*—associates of Rudra; *gaṇāḥ*—population.
+*tārtīyena*—by excessive development of the third mode of material nature, the mode of ignorance; *svabhāvena*—by such nature; *bhagavat-nābhim*—the abdominal navel of the gigantic form of the Personality of Godhead; *āśritāḥ*—those who are so situated; *ubhayoḥ*—between the two; *antaram*—in between; *vyoma*—the sky; *ye*—all of them; *rudra-pārṣadām*—associates of Rudra; *gaṇāḥ*—population.
 
 **Living entities who are associates of Rudra develop in the third mode of material nature, or ignorance. They are situated in the sky between the earthly planets.**
 

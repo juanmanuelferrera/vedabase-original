@@ -8,7 +8,7 @@
 > śaṅkha-cakra-gadā-padmair\
 > abhivyakta-caturbhujam
 
-*śrīvatsa-aṅkam*—the mark of Śrīvatsa on the chest of the Lord; *ghana-śyāmam*—deeply bluish; *puruṣam*—the Supreme Person; *vana-mālinam*—with a garland of flowers; *śaṅkha*—conchshell; *cakra*—wheel; *gadā*—club; *padmaiḥ*—lotus flower; *abhivyakta*—manifested; *catuḥ-bhujam*—four handed.
+*śrīvatsa-aṅkam*—the mark of Śrīvatsa on the chest of the Lord; *ghana-śyāmam*—deeply bluish; *puruṣam*—the Supreme Person; *vana-mālinam*—with a garland of flowers; *śaṅkha*—conchshell; *cakra*—wheel; *gadā*—club; *padmaiḥ*—lotus flower; *abhivyakta*—manifested; *catur-bhujam*—four handed.
 
 **The Lord is further described as having the mark of Śrīvatsa, or the sitting place of the goddess of fortune, and His bodily hue is deep bluish. The Lord is a person, He wears a garland of flowers, and He is eternally manifest with four hands, which hold [beginning from the lower left hand] a conchshell, wheel, club and lotus flower.**
 

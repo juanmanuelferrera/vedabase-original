@@ -8,7 +8,7 @@
 > bhṛgur vasiṣṭho dakṣaś ca\
 > daśamas tatra nāradaḥ
 
-*marīciḥ, atri, aṅgirasau, pulastyaḥ, pulahaḥ, kratuḥ, bhṛguḥ, vasiṣṭhaḥ, dakṣaḥ*—names of sons of Brahmā; *ca*—and; *daśamaḥ*—the tenth; *tatra*—there; *nāradaḥ*—Nārada.
+*marīciḥ, atri, aṅgirasau, pulastyaḥ, pulahaḥ, kratuḥ, bhṛguḥ, vasiṣṭhaḥ, dakṣaḥ*—names of sons of Brahmā; *daśamaḥ*—the tenth; *tatra*—there; *nāradaḥ*—Nārada.
 
 **Marīci, Atri, Aṅgirā, Pulastya, Pulaha, Kratu, Bhṛgu, Vasiṣṭha, Dakṣa, and the tenth son, Nārada, were thus born.**
 

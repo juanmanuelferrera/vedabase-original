@@ -8,7 +8,7 @@
 > virāṭ prāṇo daśa-vidha\
 > ekadhā hṛdayena ca
 
-*sa-ādhyātmaḥ*—the body and mind with all the senses; *sa-ādhidaivaḥ*—and the controlling demigods of the senses; *ca*—and; *sa-ādhibhūtaḥ*—the present objectives; *iti*—thus; *tridhā*—three; *virāṭ*—gigantic; *prāṇaḥ*—moving force; *daśa-vidhaḥ*—ten kinds; *ekadhā*—one only; *hṛdayena*—living energy; *ca*—also.
+*sa-ādhyātmaḥ*—the body and mind with all the senses; *sa-ādhidaivaḥ*—and the controlling demigods of the senses; *sa-ādhibhūtaḥ*—the present objectives; *iti*—thus; *tridhā*—three; *virāṭ*—gigantic; *prāṇaḥ*—moving force; *daśa-vidhaḥ*—ten kinds; *ekadhā*—one only; *hṛdayena*—living energy; *ca*—also.
 
 **The gigantic universal form is represented by three, ten and one in the sense that He is the body and the mind and the senses, He is the dynamic force for all movements by ten kinds of life energy, and He is the one heart where life energy is generated.**
 

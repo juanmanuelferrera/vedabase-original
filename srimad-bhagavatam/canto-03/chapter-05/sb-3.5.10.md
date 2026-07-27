@@ -8,7 +8,7 @@
 > atṛpnuma kṣulla-sukhāvahānāṁ\
 > teṣām ṛte kṛṣṇa-kathāmṛtaughāt
 
-*para*—higher; *avareṣām*—of these lower; *bhagavan*—O my lord, O great one; *vratāni*—occupations; *śrutāni*—heard; *me*—by me; *vyāsa*—Vyāsa; *mukhāt*—from the mouth; *abhīkṣṇam*—repeatedly; *atṛpnuma*—I am satisfied; *kṣulla*—little; *sukha-āvahānām*—that which causes happiness; *teṣām*—out of that; *ṛte*—without; *kṛṣṇa-kathā*—talks about the Personality of Godhead, Lord Kṛṣṇa; *amṛta-oghāt*—from the nectar.
+*para*—higher; *avara*—lower; *eṣām*—of all these; *bhagavan*—O my lord, O great one; *vratāni*—occupations; *śrutāni*—heard; *me*—by me; *vyāsa*—Vyāsa; *mukhāt*—from the mouth; *abhīkṣṇam*—repeatedly; *atṛpnuma*—I am satisfied; *kṣulla*—little; *sukha-āvahānām*—that which causes happiness; *teṣām*—out of that; *amṛta*—reality; *kṛṣṇa-kathā*—talks about the Personality of Godhead, Lord Kṛṣṇa; *amṛta-oghāt*—from the nectar.
 
 **O my lord, I have repeatedly heard about these higher and lower statuses of human society from the mouth of Vyāsadeva, and I am quite satiated with all these lesser subject matters and their happiness. They have not satisfied me with the nectar of topics about Kṛṣṇa.**
 

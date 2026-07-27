@@ -8,7 +8,7 @@
 > draṣṭāsi māṁ tataṁ brahman\
 > mayi lokāṁs tvam ātmanaḥ
 
-*tataḥ*—thereafter; *ātmani*—in yourself; *loke*—in the universe; *ca*—also; *bhakti-yuktaḥ*—being situated in devotional service; *samāhitaḥ*—being completely absorbed; *draṣṭā asi*—you shall see; *mām*—Me; *tatam*—spread throughout; *brahman*—O Brahmā; *mayi*—in Me; *lokān*—all the universe; *tvam*—you; *ātmanaḥ*—the living entities.
+*tataḥ*—thereafter; *ātmani*—in yourself; *loke*—in the universe; *ca*—also; *bhakti-yuktaḥ*—being situated in devotional service; *samāhitaḥ*—being completely absorbed; *draṣṭā asi*—you shall see; *mām*—Me; *tatam*—spread throughout; *brahman*—Brahmā; *mayi*—in Me; *lokān*—all the universe; *tvam*—you; *ātmanaḥ*—the living entities.
 
 **O Brahmā, when you are absorbed in devotional service, in the course of your creative activities, you will see Me in you and throughout the universe, and you will see that you yourself, the universe and the living entities are all in Me.**
 

@@ -10,7 +10,7 @@
 > tan mayāpāditaṁ hy agre\
 > yan māṁ prārthayate bhavān
 
-*śrī-bhagavān uvāca*—the Lord, the Personality of Godhead, said; *mā*—do not; *veda-garbha*—O You who have the depth of all Vedic wisdom; *gāḥ tandrīm*—become dejected; *sarge*—for creation; *udyamam*—enterprises; *āvaha*—you just undertake; *tat*—that (which you want); *mayā*—by Me; *āpāditam*—executed; *hi*—certainly; *agre*—previously; *yat*—which; *mām*—from Me; *prārthayate*—begging; *bhavān*—you.
+*śrī-bhagavān uvāca*—the Lord, the Personality of Godhead, said; *mā*—don't; *veda-garbha*—one who has the depth of all Vedic wisdom; *gāḥ tandrīm*—become dejected; *sarge*—for creation; *udyamam*—enterprises; *āvaha*—you just undertake; *tat*—that (which you want); *mayā*—by Me; *āpāditam*—executed; *hi*—certainly; *agre*—previously; *yat*—which; *mām*—from Me; *prārthayate*—begging; *bhavān*—yourself.
 
 **The Supreme Personality of Godhead then said: O Brahmā, O depth of Vedic wisdom, be neither depressed nor anxious about the execution of creation. What you are begging from Me has already been granted before.**
 

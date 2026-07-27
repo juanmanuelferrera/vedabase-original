@@ -10,7 +10,7 @@
 > salile sva-khurākrānta\
 > upādhattāvitāvanim
 
-*maitreyaḥ uvāca*—the sage Maitreya said; *iti*—thus; *upasthīyamānaḥ*—being praised by; *asau*—Lord Boar; *munibhiḥ*—by the great sages; *brahma-vādibhiḥ*—by the transcendentalists; *salile*—on the water; *sva-khura-ākrānte*—touched by His own hooves; *upādhatta*—placed; *avitā*—the maintainer; *avanim*—the earth.
+*maitreyaḥ uvāca*—the sage Maitreya said; *iti*—thus; *upasthīyamānaḥ*—being praised by; *asau*—Lord Boar; *munibhiḥ*—by the great sages; *brahma-vādibhiḥ*—by the transcendentalists; *salile*—on the water; *sva-khura-ākrānte*—touched by His own hoofs; *upādhatta*—placed; *avitā*—the maintainer; *avanim*—the earth.
 
 **The sage Maitreya said: The Lord, being thus worshiped by all the great sages and transcendentalists, touched the earth with His hoofs and placed it on the water.**
 

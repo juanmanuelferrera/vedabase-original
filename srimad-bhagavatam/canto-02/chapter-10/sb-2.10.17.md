@@ -8,7 +8,7 @@
 > pipāsato jakṣataś ca\
 > prāṅ mukhaṁ nirabhidyata
 
-*prāṇena*—by the living force; *ākṣipatā*—being agitated; *kṣut*—hunger; *tṛṭ*—thirst; *antarā*—from within; *jāyate*—generates; *vibhoḥ*—of the Supreme; *pipāsataḥ*—being desirous to quench the thirst; *jakṣataḥ*—being desirous to eat; *ca*—and; *prāk*—at first; *mukham*—the mouth; *nirabhidyata*—was opened.
+*prāṇena*—by the living force; *ākṣipatā*—being agitated; *kṣut*—hunger; *tṛṭ*—thirst; *antarā*—from within; *jāyate*—generates; *vibhoḥ*—of the Supreme; *pipāsataḥ*—being desirous to quench the thirst; *jakṣataḥ*—being desirous to eat; *ca*—and; *prāk*—at first; *mukham*—mouth; *nirabhidyata*—was opened.
 
 **The living force, being agitated by the virāṭa puruṣa, generated hunger and thirst, and when He desired to drink and eat, the mouth opened.**
 

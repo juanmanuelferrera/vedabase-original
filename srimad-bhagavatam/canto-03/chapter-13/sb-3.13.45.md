@@ -8,7 +8,7 @@
 > yad-yogamāyā-guṇa-yoga-mohitaṁ\
 > viśvaṁ samastaṁ bhagavan vidhehi śam
 
-*saḥ*—he; *vai*—certainly; *bata*—alas; *bhraṣṭa-matiḥ*—nonsense; *tava*—Your; *eṣate*—desires; *yaḥ*—one who; *karmaṇām*—of activities; *pāram*—limit; *apāra-karmaṇaḥ*—of one who has unlimited activities; *yat*—by whom; *yoga*—mystic power; *māyā*—potency; *guṇa*—modes of material nature; *yoga*—mystic power; *mohitam*—bewildered; *viśvam*—the universe; *samastam*—in total; *bhagavan*—O Supreme Personality of Godhead; *vidhehi*—just be pleased to bestow; *śam*—good fortune.
+*saḥ*—he; *vai*—certainly; *bata*—alas; *bhraṣṭa-matiḥ*—nonsense; *tava*—Your; *eṣate*—desires; *yaḥ*—one who; *karmaṇām*—of activities; *pāram*—limit; *apāra-karmaṇaḥ*—of one who has unlimited activities; *yat*—by whom; *yoga*—mystic power; *māyā*—potency; *guṇa*—modes of material nature; *yoga*—mystic power; *mohitam*—bewildered; *viśvam*—the universe; *samastam*—in total; *bhagavan*—O Supreme Personality; *vidhehi*—just be pleased to bestow; *śam*—good fortune.
 
 **O Lord, there is no limit to Your wonderful activities. Anyone who desires to know the limit of Your activities is certainly nonsensical. Everyone in this world is conditioned by the powerful mystic potencies. Please bestow Your causeless mercy upon these conditioned souls.**
 

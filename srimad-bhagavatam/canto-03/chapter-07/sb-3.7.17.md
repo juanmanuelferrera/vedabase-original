@@ -8,7 +8,7 @@
 > tāv ubhau sukham edhete\
 > kliśyaty antarito janaḥ
 
-*yaḥ*—one who is; *ca*—also; *mūḍha-tamaḥ*—the lowest of the fools; *loke*—in the world; *yaḥ ca*—and one who is; *buddheḥ*—of intelligence; *param*—transcendental; *gataḥ*—gone; *tau*—of them; *ubhau*—both; *sukham*—happiness; *edhete*—enjoy; *kliśyati*—suffer; *antaritaḥ*—situated between; *janaḥ*—persons.
+*yaḥ*—one who is; *ca*—also; *mūḍha-tamaḥ*—the lowest of the fools; *loke*—in the world; *yaḥ ca*—and one who is; *buddheḥ*—of intelligence; *param*—transcendental; *gataḥ*—gone; *tau*—all of them; *ubhau*—both; *sukham*—happiness; *edhete*—enjoy; *kliśyati*—suffer; *antaritaḥ*—via media; *janaḥ*—persons.
 
 **Both the lowest of fools and he who is transcendental to all intelligence enjoy happiness, whereas persons who are between them suffer the material pangs.**
 

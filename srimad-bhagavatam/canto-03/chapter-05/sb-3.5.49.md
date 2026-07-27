@@ -8,7 +8,7 @@
 > yathobhayeṣāṁ ta ime hi lokā\
 > baliṁ haranto 'nnam adanty anūhāḥ
 
-*yāvat*—as it may be; *balim*—offerings; *te*—Your; *aja*—O unborn one; *harāma*—shall offer; *kāle*—at the right time; *yathā*—as much as; *vayam*—we; *ca*—also; *annam*—food grains; *adāma*—shall partake; *yatra*—whereupon; *yathā*—as much as; *ubhayeṣām*—both for You and for us; *te*—all; *ime*—these; *hi*—certainly; *lokāḥ*—living entities; *balim*—offerings; *harantaḥ*—while offering; *annam*—grains; *adanti*—eat; *anūhāḥ*—without disturbance.
+*yāvat*—as it may be; *balim*—offerings; *te*—Your; *aja*—O unborn one; *harāma*—shall offer; *kāle*—at the right time; *yathā*—as much as; *vayam*—we; *ca*—also; *annam*—food grains; *adāma*—shall partake; *yatra*—whereupon; *yathā*—as much as; *ubhayeṣām*—both for You and us; *ta*—all; *ime*—these living entities; *hi*—certainly; *lokāḥ*—in the world; *balim*—offerings; *harantaḥ*—while offering; *annam*—grains; *adanti*—eat; *anūhāḥ*—without disturbance.
 
 **O unborn one, please enlighten us regarding the ways and means by which we can offer You all enjoyable grains and commodities so that both we and all other living entities in this world can maintain ourselves without disturbance and can easily accumulate the necessities of life both for You and for ourselves.**
 

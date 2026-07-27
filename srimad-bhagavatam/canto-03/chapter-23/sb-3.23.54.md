@@ -8,7 +8,7 @@
 > ajānantyā paraṁ bhāvaṁ\
 > tathāpy astv abhayāya me
 
-*indriya-artheṣu*—to sense gratification; *sajjantyā*—being attached; *prasaṅgaḥ*—affinity; *tvayi*—for you; *me*—by me; *kṛtaḥ*—was done; *ajānantyā*—not knowing; *param bhāvam*—your transcendent situation; *tathā api*—nonetheless; *astu*—let it be; *abhayāya*—for fearlessness; *me*—my.
+*indriya-artheṣu*—to sense gratification; *sajjantyā*—being attached; *prasaṅgaḥ*—affinity; *tvayi*—for you; *me*—by me; *kṛtaḥ*—was done; *ajānantyā*—not knowing; *param bhāvam*—your transcendent situation; *tathāpi*—nonetheless; *astu*—let it be; *abhayāya*—for fearlessness; *me*—my.
 
 **Not knowing your transcendental situation, I have loved you while remaining attached to the objects of the senses. Nonetheless, let the affinity I have developed for you rid me of all fear.**
 

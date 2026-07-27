@@ -8,7 +8,7 @@
 > tritayaṁ tatra yo veda\
 > sa ātmā svāśrayāśrayaḥ
 
-*ekam*—one; *ekatara*—another; *abhāve*—in the absence of; *yadā*—because; *na*—does not; *upalabhāmahe*—perceptible; *tritayam*—in three stages; *tatra*—there; *yaḥ*—the one; *veda*—who knows; *saḥ*—he; *ātmā*—the Supersoul; *sva*—own; *āśraya*—shelter; *āśrayaḥ*—of the shelter.
+*ekam*—one; *ekatara*—another; *abhāve*—in the absence of; *yadā*—because; *na*—does not; *upalabhāmahe*—perceptible; *tritayam*—in three stages; *tatra*—there; *yaḥ*—the one; *veda*—who knows; *saḥ ātmā*—the Supersoul; *sva*—own; *āśraya*—shelter; *āśrayaḥ*—of the shelter.
 
 **All the above-mentioned three stages of different living entities are interdependent. In the absence of one, the other is not understood. And the Supreme Being who is seeing every one of them as the shelter of the shelter is independent of all, and therefore He is the supreme shelter.**
 

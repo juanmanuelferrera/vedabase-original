@@ -10,7 +10,7 @@
 > kolāhalo viramate 'cira-mātram uccair\
 > bhṛṅgādhipe hari-kathām iva gāyamāne
 
-*pārāvata*—pigeons; *anyabhṛta*—cuckoo; *sārasa*—crane; *cakravāka*—*cakravāka*; *dātyūha*—gallinule; *haṁsa*—swan; *śuka*—parrot; *tittiri*—partridge; *barhiṇām*—of the peacock; *yaḥ*—which; *kolāhalaḥ*—tumult; *viramate*—stops; *acira-mātram*—temporarily; *uccaiḥ*—loudly; *bhṛṅga-adhipe*—king of the bumblebees; *hari-kathām*—the glories of the Lord; *iva*—as; *gāyamāne*—while singing.
+*pārāvata*—pigeons; *anyabhṛta*—cuckoo; *sārasa*—crane; *cakravāka*—*cakravāka*; *dātyūha*—a gallinule; *haṁsa*—swan; *śuka*—parrot; *tittiri*—partridge; *barhiṇām*—of the peacock; *yaḥ*—which; *kolāhalaḥ*—tumult; *viramate*—stops; *acira-mātram*—temporarily; *uccaiḥ*—loudly; *bhṛṅga-adhipe*—king of the bumblebees; *hari-kathām*—the glories of the Lord; *iva*—as; *gāyamāne*—while singing.
 
 **When the king of bees hums in a high pitch, singing the glories of the Lord, there is a temporary lull in the noise of the pigeon, the cuckoo, the crane, the cakravāka, the swan, the parrot, the partridge and the peacock. Such transcendental birds stop their own singing simply to hear the glories of the Lord.**
 

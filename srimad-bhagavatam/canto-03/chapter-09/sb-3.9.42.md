@@ -8,7 +8,7 @@
 > ato mayi ratiṁ kuryād\
 > dehādir yat-kṛte priyaḥ
 
-*aham*—I am; *ātmā*—the Supersoul; *ātmanām*—of all other souls; *dhātaḥ*—director; *preṣṭhaḥ*—the dearest; *san*—being; *preyasām*—of all dear things; *api*—certainly; *ataḥ*—therefore; *mayi*—unto Me; *ratim*—attachment; *kuryāt*—one should do; *deha-ādiḥ*—the body and mind; *yat-kṛte*—on whose account; *priyaḥ*—very dear.
+*aham*—I am; *ātmā*—Supersoul; *ātmanām*—of all other souls; *dhātaḥ*—director; *preṣṭhaḥ*—the dearest; *san*—being; *preyasām*—of all dear things; *api*—certainly; *ataḥ*—therefore; *mayi*—unto Me; *ratim*—attachment; *kuryāt*—one should do; *deha-ādiḥ*—the body and mind; *yat-kṛte*—on whose account; *priyaḥ*—very dear.
 
 **I am the Supersoul of every individual. I am the supreme director and the dearest. People are wrongly attached to the gross and subtle bodies, but they should be attached to Me only.**
 

@@ -8,7 +8,7 @@
 > sarva-bhūta-guhāvāsam\
 > añjasā vindate pumān
 
-*tapasā*—by penance; *eva*—only; *param*—the supreme; *jyotiḥ*—light; *bhagavantam*—unto the Personality of Godhead; *adhokṣajam*—He who is beyond the approach of the senses; *sarva-bhūta-guhā-āvāsam*—residing in the heart of all living entities; *añjasā*—completely; *vindate*—can know; *pumān*—a person.
+*tapasā*—by penance; *eva*—only; *param*—the supreme; *jyotiḥ*—light; *bhagavantam*—unto the Personality of Godhead; *adhokṣajam*—He who is beyond the approach of the senses; *sarva-bhūta-guhā-āvāsam*—residing in the heart of all living entities; *añjasā*—complete; *vindate*—can know; *pumān*—a person.
 
 **By penance only can one even approach the Personality of Godhead, who is within the heart of every living entity and at the same time beyond the reach of all senses.**
 

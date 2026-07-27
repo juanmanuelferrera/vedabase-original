@@ -8,7 +8,7 @@
 > lakṣyate 'ntar-gatāś cānye\
 > koṭiśo hy aṇḍa-rāśayaḥ
 
-*daśa-uttara-adhikaiḥ*—with ten times greater thickness; *yatra*—in which; *praviṣṭaḥ*—entered; *parama-aṇu-vat*—like atoms; *lakṣyate*—it (the mass of universes) appears; *antaḥ-gatāḥ*—come together; *ca*—and; *anye*—in the other; *koṭiśaḥ*—clustered; *hi*—for; *aṇḍa-rāśayaḥ*—huge combination of universes.
+*daśa-uttara-adhikaiḥ*—with ten times greater thickness; *yatra*—in which; *praviṣṭaḥ*—entered; *parama-aṇu-vat*—like atoms; *lakṣyate*—it (mass of universes) appears; *antaḥ-gatāḥ*—come together; *ca*—and; *anye*—in the other; *koṭiśaḥ*—clustered; *hi*—for; *aṇḍa-rāśayaḥ*—huge combination of universes.
 
 **The layers or elements covering the universes are each ten times thicker than the one before, and all the universes clustered together appear like atoms in a huge combination.**
 

@@ -8,7 +8,7 @@
 > tasmai prādād varaṁ putraṁ\
 > mṛtaṁ pañca-janodarāt
 
-*sāndīpaneḥ*—of Sāndīpani Muni; *sakṛt*—once only; *proktam*—instructed; *brahma*—all the *Vedas* with their different branches of knowledge; *adhītya*—after studying; *sa-vistaram*—in all details; *tasmai*—unto him; *prādāt*—rewarded; *varam*—a benediction; *putram*—his son; *mṛtam*—who was already dead; *pañca-jana*—the region of the departed souls; *udarāt*—from within.
+*sāndīpaneḥ*—of Sāndīpani Muni; *sakṛt*—once only; *proktam*—instructed; *brahma*—all the *Vedas* with their different branches of knowledge; *adhītya*—after studying; *sa-vistaram*—in all details; *tasmai*—unto him; *prādāt*—rewarded; *varam*—benediction; *putram*—son; *mṛtam*—who was already dead; *pañca-jana*—the region of the departed souls; *udarāt*—from within.
 
 **The Lord learned all the Vedas with their different branches simply by hearing them once from His teacher, Sāndīpani Muni, whom He rewarded by bringing back his dead son from the region of Yamaloka.**
 

@@ -8,7 +8,7 @@
 > caritreṇānavadyena\
 > śrī-niketena cātmanā
 
-*snigdha*—gentle; *smita-avalokena*—by a glance with a sweet smile; *vācā*—by words; *pīyūṣa-kalpayā*—compared to nectar; *caritreṇa*—by character; *anavadyena*—without flaw; *śrī*—fortune; *niketena*—residence; *ca*—and; *ātmanā*—by His transcendental body.
+*snigdha*—gentle; *smita-avalokena*—by a glance with sweet smile; *vācā*—by words; *pīyūṣa-kalpayā*—compared to nectar; *caritreṇa*—by character; *anavadyena*—without flaw; *śrī*—fortune; *niketena*—residence; *ca*—and; *ātmanā*—by His transcendental body.
 
 **He was there in His transcendental body, the residence of the goddess of fortune, with His usual gentle and sweetly smiling face, His nectarean words and His flawless character.**
 

@@ -8,7 +8,7 @@
 > pratīyata upadraṣṭuḥ\
 > sva-śiraś chedanādikaḥ
 
-*yat*—thus; *arthena*—a purpose or meaning; *vinā*—without; *amuṣya*—of such a one; *puṁsaḥ*—of the living entity; *ātma-viparyayaḥ*—upset about self-identification; *pratīyate*—so appear; *upadraṣṭuḥ*—of the superficial onlooker; *sva-śiraḥ*—own head; *chedana-ādikaḥ*—cutting off.
+*yat*—thus; *arthena*—by purpose or meaning; *vinā*—without; *amuṣya*—of such a one; *puṁsaḥ*—of the living entity; *ātma-viparyayaḥ*—upset about self-identification; *pratīyate*—so appear; *upadraṣṭuḥ*—of the superficial onlooker; *sva-śiraḥ*—own head; *chedana-ādikaḥ*—cutting off.
 
 **The living entity is in distress regarding his self-identity. He has no factual background, like a man who dreams that he sees his head cut off.**
 

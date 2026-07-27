@@ -8,7 +8,7 @@
 > sarva-bhūtamayo viśvaṁ\
 > sasarjedaṁ sa pūrvavat
 
-*antarhita*—on the disappearance; *indriya-arthāya*—unto the Personality of Godhead, the objective of all senses; *haraye*—unto the Lord; *vihita-añjaliḥ*—in folded hands; *sarva-bhūta*—all living entities; *mayaḥ*—full of; *viśvam*—the universe; *sasarja*—created; *idam*—this; *saḥ*—he (Brahmājī); *pūrva-vat*—exactly like before.
+*antarhita*—on disappearance; *indriya-arthāya*—unto the Personality of Godhead, the objective of all senses; *haraye*—unto the Lord; *vihita-añjaliḥ*—in folded hands; *sarva-bhūta*—all living entities; *mayaḥ*—full of; *viśvam*—the universe; *sasarja*—created; *idam*—this; *saḥ*—he (Brahmājī); *pūrva-vat*—exactly like before.
 
 **On the disappearance of the Supreme Personality of Godhead, Hari, who is the object of transcendental enjoyment for the senses of devotees, Brahmā, with folded hands, began to recreate the universe full with living entities, as it was previously.**
 

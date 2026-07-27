@@ -10,7 +10,7 @@
 > sarahasyaṁ tad-aṅgaṁ ca\
 > gṛhāṇa gaditaṁ mayā
 
-*śrī-bhagavān uvāca*—the Personality of Godhead said; *jñānam*—knowledge acquired; *parama*—extremely; *guhyam*—confidential; *me*—of Me; *yat*—which is; *vijñāna*—realization; *samanvitam*—coordinated; *sa-rahasyam*—with devotional service; *tat*—of that; *aṅgam ca*—necessary paraphernalia; *gṛhāṇa*—just try to take up; *gaditam*—explained; *mayā*—by Me.
+*śrī-bhagavān uvāca*—the Personality of Godhead said; *jñānam*—knowledge acquired; *parama*—extremely; *guhyam*—confidential; *me*—of Mine; *yat*—which is; *vijñāna*—realization; *samanvitam*—coordinated; *sa-rahasyam*—with devotional service; *tat*—of that; *aṅgam ca*—necessary paraphernalia; *gṛhāṇa*—just try to take up; *gaditam*—explained; *mayā*—by Me.
 
 **The Personality of Godhead said: Knowledge about Me as described in the scriptures is very confidential, and it has to be realized in conjunction with devotional service. The necessary paraphernalia for that process is being explained by Me. You may take it up carefully.**
 

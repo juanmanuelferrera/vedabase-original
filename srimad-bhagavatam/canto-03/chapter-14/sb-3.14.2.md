@@ -10,7 +10,7 @@
 > ādi-daityo hiraṇyākṣo\
 > hata ity anuśuśruma
 
-*viduraḥ uvāca*—Śrī Vidura said; *tena*—by Him; *eva*—certainly; *tu*—but; *muni-śreṣṭha*—O chief among the sages; *hariṇā*—by the Personality of Godhead; *yajña-mūrtinā*—the form of sacrifices; *ādi*—original; *daityaḥ*—demon; *hiraṇyākṣaḥ*—by the name Hiraṇyākṣa; *hataḥ*—slain; *iti*—thus; *anuśuśruma*—heard in succession.
+*viduraḥ uvāca*—Śrī Vidura said; *tena*—by Him; *eva*—certainly; *tu*—but; *muni-śreṣṭha*—O chief amongst the sages; *hariṇā*—by the Personality of Godhead; *yajña-mūrtinā*—the form of sacrifices; *ādi*—original; *daityaḥ*—demon; *hiraṇyākṣaḥ*—by the name Hiraṇyākṣa; *hataḥ*—slain; *iti*—thus; *anuśuśruma*—heard in succession.
 
 **Śrī Vidura said: O chief amongst the great sages, I have heard by disciplic succession that Hiraṇyākṣa, the original demon, was slain by the same form of sacrifices, the Personality of Godhead [Lord Boar].**
 

@@ -8,7 +8,7 @@
 > pṛccheḥ prabho mugdha ivāpramattas\
 > tan no mano mohayatīva deva
 
-*mantreṣu*—in consultations; *mām*—unto me; *vai*—as either; *upahūya*—by calling; *yat*—as much as; *tvam*—Your Lordship; *akuṇṭhita*—without hesitation; *akhaṇḍa*—without being separated; *sadā*—eternally; *ātma*—self; *bodhaḥ*—intelligent; *pṛccheḥ*—asked; *prabho*—O my Lord; *mugdhaḥ*—bewildered; *iva*—as if it were so; *apramattaḥ*—although never bewildered; *tat*—that; *naḥ*—our; *manaḥ*—mind; *mohayati*—bewilders; *iva*—as it is so; *deva*—O my Lord.
+*mantreṣu*—in consultations; *mām*—unto me; *vai*—as either; *upahūya*—by calling; *yat*—as much as; *tvam*—Your Lordship; *akuṇṭhita*—without hesitation; *akhaṇḍa*—without being separated; *sadā*—eternally; *ātma*—self; *bodhaḥ*—intelligent; *pṛccheḥ*—asked; *prabho*—O my Lord; *mugdhaḥ*—bewildered; *iva*—as if it were so; *apramattaḥ*—although never bewildered; *tat*—that; *naḥ*—us; *manaḥ*—mind; *mohayati*—bewilders; *iva*—as it is so; *deva*—O my Lord.
 
 **O my Lord, Your eternal Self is never divided by the influence of time, and there is no limitation to Your perfect knowledge. Thus You were sufficiently able to consult with Yourself, yet You called upon me for consultation, as if bewildered, although You are never bewildered. And this act of Yours bewilders me.**
 

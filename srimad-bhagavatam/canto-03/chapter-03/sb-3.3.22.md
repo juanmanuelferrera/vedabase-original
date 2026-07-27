@@ -8,7 +8,7 @@
 > gṛhamedheṣu yogeṣu\
 > virāgaḥ samajāyata
 
-*tasya*—His; *evam*—thus; *ramamāṇasya*—enjoying; *saṁvatsara*—years; *gaṇān*—many; *bahūn*—great many; *gṛhamedheṣu*—in household life; *yogeṣu*—in sex life; *virāgaḥ*—detachment; *samajāyata*—awakened.
+*tasya*—His; *evam*—thus; *ramamāṇasya*—enjoying; *saṁvatsara*—many years; *gaṇān*—number; *bahūn*—great many; *gṛhamedheṣu*—in household life; *yogeṣu*—in sex life; *virāgaḥ*—detachment; *samajāyata*—awakened.
 
 **The Lord was thus engaged in household life for many, many years, but at last His detachment from ephemeral sex life was fully manifested.**
 

@@ -10,7 +10,7 @@
 > kṣemaṁ vidhāsyati sa no bhagavāṁs tryadhīśas\
 > tatrāsmadīya-vimṛśena kiyān ihārthaḥ
 
-*viśvasya*—of the universe; *yaḥ*—who; *sthiti*—maintenance; *laya*—destruction; *udbhava*—creation; *hetuḥ*—the cause; *ādyaḥ*—the most ancient person; *yoga-īśvaraiḥ*—by the masters of *yoga*; *api*—even; *duratyaya*—cannot be easily understood; *yoga-māyaḥ*—His *yogamāyā* potency; *kṣemam*—good; *vidhāsyati*—will do; *saḥ*—He; *naḥ*—of us; *bhagavān*—the Supreme Personality of Godhead; *tri-adhīśaḥ*—the controller of the three modes of material nature; *tatra*—there; *asmadīya*—by our; *vimṛśena*—deliberation; *kiyān*—what; *iha*—on this subject; *arthaḥ*—purpose.
+*viśvasya*—of the universe; *yaḥ*—who; *sthiti*—maintenance; *laya*—destruction; *udbhava*—creation; *hetuḥ*—the cause; *ādyaḥ*—most ancient person; *yoga-īśvaraiḥ*—by the masters of *yoga*; *api*—even; *duratyaya*—cannot be easily understood; *yoga-māyaḥ*—His *yogamāyā* potency; *kṣemam*—good; *vidhāsyati*—will do; *saḥ*—He; *naḥ*—of us; *bhagavān*—the Supreme Personality of Godhead; *tri-adhīśaḥ*—the controller of the three modes of material nature; *tatra*—there; *asmadīya*—by our; *vimṛśena*—deliberation; *kiyān*—what; *iha*—on this subject; *arthaḥ*—purpose.
 
 **My dear sons, the Lord is the controller of the three modes of nature and is responsible for the creation, preservation and dissolution of the universe. His wonderful creative power, yogamāyā, cannot be easily understood even by the masters of yoga. That most ancient person, the Personality of Godhead, will alone come to our rescue. What purpose can we serve on His behalf by deliberating on the subject?**
 

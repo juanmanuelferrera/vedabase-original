@@ -10,7 +10,7 @@
 > saṁhṛtya sva-kulaṁ sphītaṁ\
 > tyakṣyan deham acintayat
 
-*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *brahma-śāpa*—cursing by the *brāhmaṇas*; *apadeśena*—on the plea, by such a show; *kālena*—by the eternal time; *amogha*—unfailing; *vāñchitaḥ*—one who so desires; *saṁhṛtya*—closing; *sva-kulam*—own family; *sphītam*—excessively numerous; *tyakṣyan*—after giving up; *deham*—the universal form; *acintayat*—thought to Himself.
+*śrī-śukaḥ uvāca*—Śukadeva Gosvāmī said; *brahma-śāpa*—cursing by the *brāhmaṇas*; *apadeśena*—on the plea, by such a show; *kālena*—by the eternal time; *amogha*—unfailing; *vāñchitaḥ*—one who so desires; *saṁhṛtya*—closing; *sva-kulam*—own family; *sphītam*—excessively numerous; *tyakṣyan*—for disappearing; *deham*—the universal form; *acintayat*—thought to Himself.
 
 **Śukadeva Gosvāmī replied: My dear King, the cursing of the brāhmaṇas was only a plea, but the actual fact is the supreme desire of the Lord. He wanted to disappear from the face of the earth after dispatching His excessively numerous family members. He thought to Himself as follows:**
 

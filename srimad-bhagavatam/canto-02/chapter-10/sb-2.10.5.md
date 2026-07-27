@@ -8,7 +8,7 @@
 > puṁsām īśa-kathāḥ proktā\
 > nānākhyānopabṛṁhitāḥ
 
-*avatāra*—incarnation of Godhead; *anucaritam*—activities; *hareḥ*—of the Personality of Godhead; *ca*—also; *asya*—of His; *anuvartinām*—followers; *puṁsām*—of the persons; *īśa-kathāḥ*—the science of God; *proktāḥ*—is said; *nānā*—various; *ākhyāna*—narrations; *upabṛṁhitāḥ*—described.
+*avatāra*—incarnation of Godhead; *anucaritam*—activities; *hareḥ*—of the Personality of Godhead; *ca*—also; *asya*—of His; *anuvartinām*—followers; *puṁsām*—of the persons; *īśa-kathāḥ*—science of God; *proktāḥ*—is said; *nānā*—various; *ākhyāna*—narrations; *upabṛṁhitāḥ*—described.
 
 **The science of God describes the incarnations of the Personality of Godhead and His different activities together with the activities of His great devotees.**
 

@@ -10,7 +10,7 @@
 > rūpaṁ sthaviṣṭham aja te mahad-ādy-anekaṁ\
 > nātaḥ paraṁ parama vedmi na yatra vādaḥ
 
-*tiryak*—by animals; *naga*—trees; *dvija*—birds; *sarīsṛpa*—reptiles; *deva*—demigods; *daitya*—demons; *martya-ādibhiḥ*—by men, etc.; *paricitam*—pervaded; *sat-asat-viśeṣam*—with varieties manifest and unmanifest; *rūpam*—form; *sthaviṣṭham*—gross universal; *aja*—O Unborn; *te*—Your; *mahat-ādi*—caused by the total material energy, etc.; *anekam*—various causes; *na*—not; *ataḥ*—from this; *param*—transcendental; *parama*—O Supreme; *vedmi*—I know; *na*—not; *yatra*—where; *vādaḥ*—various arguments.
+*tiryak*—by animals; *naga*—trees; *dvija*—birds; *sarīsṛpa*—reptiles; *deva*—demigods; *daitya*—demons; *martya-ādibhiḥ*—by men, etc.; *paricitam*—pervaded; *sat-asat-viśeṣam*—with varieties manifest and nonmanifest; *rūpam*—form; *sthaviṣṭham*—gross universal; *aja*—O Unborn; *te*—Your; *mahat-ādi*—caused by the total material energy, etc.; *anekam*—various causes; *na*—not; *ataḥ*—from this; *param*—transcendental; *parama*—O Supreme; *vedmi*—I know; *na*—not; *yatra*—where; *vādaḥ*—various arguments.
 
 **My dear Lord, O Supreme Unborn, I know that the different varieties of living entities, such as animals, trees, birds, reptiles, demigods and human beings, are spread throughout the universe, which is caused by the total material energy, and I know that they are sometimes manifest and sometimes unmanifest; but I have never experienced the supreme form I behold as I see You now. Now all kinds of methods of theorizing processes are finished.**
 

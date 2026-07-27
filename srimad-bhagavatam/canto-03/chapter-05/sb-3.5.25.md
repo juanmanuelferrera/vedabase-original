@@ -8,7 +8,7 @@
 > māyā nāma mahā-bhāga\
 > yayedaṁ nirmame vibhuḥ
 
-*sā*—that external energy; *vā*—is either; *etasya*—of the Lord; *saṁdraṣṭuḥ*—of the perfect seer; *śaktiḥ*—energy; *sat-asat-ātmikā*—as both the cause and the effect; *māyā nāma*—called by the name *māyā*; *mahā-bhāga*—O fortunate one; *yayā*—by which; *idam*—this material world; *nirmame*—constructed; *vibhuḥ*—the Almighty.
+*sā*—that external energy; *vā*—is either; *etasya*—of the Lord; *saṁdraṣṭuḥ*—of the perfect seer; *śaktiḥ*—energy; *sat-asat-ātmikā*—both as the cause and the effect; *māyā nāma*—called by the name *māyā*; *mahā-bhāga*—O fortunate one; *yayā*—by which; *idam*—this material world; *nirmame*—constructed; *vibhuḥ*—the Almighty.
 
 **The Lord is the seer, and the external energy, which is seen, works both as cause and effect in the cosmic manifestation. O greatly fortunate Vidura, this external energy is known as māyā or illusion, and through her agency only is the entire material manifestation made possible.**
 

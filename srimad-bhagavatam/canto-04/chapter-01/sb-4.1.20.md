@@ -8,7 +8,7 @@
 > prajām ātma-samāṁ mahyaṁ\
 > prayacchatv iti cintayan
 
-*śaraṇam*—taking shelter; *tam*—unto Him; *prapadye*—surrender; *aham*—I; *yaḥ*—one who; *eva*—certainly; *jagat-īśvaraḥ*—master of the universe; *prajām*—son; *ātma-samām*—like Himself; *mahyam*—unto me; *prayacchatu*—let Him give; *iti*—thus; *cintayan*—thinking.
+*śaraṇam*—taking shelter; *tam*—unto Him; *prapadye*—surrendered; *aham*—I; *yaḥ*—one who; *eva*—certainly; *jagat-īśvaraḥ*—master of the universe; *prajām*—son; *ātma-samām*—like Himself; *mahyam*—unto me; *prayacchatu*—let Him give; *iti*—thus; *cintayan*—thinking.
 
 **He was thinking: May the Lord of the universe, of whom I have taken shelter, kindly be pleased to offer me a son exactly like Him.**
 

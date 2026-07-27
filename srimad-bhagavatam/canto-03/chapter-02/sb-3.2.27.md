@@ -8,7 +8,7 @@
 > yamunopavane kūjad-\
 > dvija-saṅkulitāṅghripe
 
-*parītaḥ*—surrounded by; *vatsapaiḥ*—cowherd boys; *vatsān*—calves; *cārayan*—herding, tending; *vyaharat*—enjoyed by traveling; *vibhuḥ*—the Almighty; *yamunā*—the Yamunā River; *upavane*—gardens on the shore; *kūjat*—vibrated by the voice; *dvija*—the twice-born birds; *saṅkulita*—densely situated; *aṅghripe*—in the trees.
+*parītaḥ*—surrounded by; *vatsapaiḥ*—cowherd boys; *vatsān*—calves; *cārayan*—herding, tending; *vyaharat*—enjoyed by traveling; *vibhuḥ*—the Almighty; *yamunā*—the Yamunā River; *upavane*—gardens on the shore; *kūjat*—vibrated by the voice; *dvija*—the twice-born birds; *saṅkulita*—densely situated; *aṅghripe*—trees.
 
 **In His childhood, the Almighty Lord was surrounded by cowherd boys and calves, and thus He traveled on the shore of the Yamunā River, through gardens densely covered with trees and filled with vibrations of chirping birds.**
 

@@ -8,7 +8,7 @@
 > kṣiṇoti devo 'nimiṣas tu yeṣām\
 > āyur vṛthā-vāda-gati-smṛtīnām
 
-*tān*—all those; *śocya*—pitiable; *śocyān*—of the pitiable; *avidaḥ*—ignorant; *anuśoce*—I pity; *hareḥ*—of the Lord; *kathāyām*—to the topics of; *vimukhān*—adverse; *aghena*—because of sinful activities; *kṣiṇoti*—decaying; *devaḥ*—the Lord; *animiṣaḥ*—eternal time; *tu*—but; *yeṣām*—of whom; *āyuḥ*—duration of life; *vṛthā*—uselessly; *vāda*—philosophical speculations; *gati*—ultimate goal; *smṛtīnām*—of those following different rituals.
+*tān*—all those; *śocya*—pitiable; *śocyān*—of the pitiable; *avidaḥ*—ignorant; *anuśoce*—I pity; *hareḥ*—of the Lord; *kathāyām*—to the topics of; *vimukhān*—adverse; *aghena*—because of sinful activities; *kṣiṇoti*—decaying; *devaḥ*—O sage; *animiṣaḥ*—eternal time; *tu*—but; *yeṣām*—of whom; *āyuḥ*—duration of life; *vṛthā*—uselessly; *vāda*—philosophical speculations; *gati*—ultimate goal; *smṛtīnām*—of those following different rituals.
 
 **O sage, persons who because of their sinful activities are adverse to the topics of Transcendence and thus ignorant of the purpose of the Mahābhārata [Bhagavad-gītā] are pitied by the pitiable. I also pity them because I see how their duration of life is spoiled by eternal time while they involve themselves in presentations of philosophical speculation, theoretical ultimate goals of life, and different modes of ritual.**
 

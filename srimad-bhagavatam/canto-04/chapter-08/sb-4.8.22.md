@@ -8,7 +8,7 @@
 > ananya-bhāve nija-dharma-bhāvite\
 > manasy avasthāpya bhajasva pūruṣam
 
-*tam*—Him; *eva*—also; *vatsa*—my dear boy; *āśraya*—take shelter; *bhṛtya-vatsalam*—of the Supreme Personality of Godhead, who is very kind to His devotees; *mumukṣubhiḥ*—also by persons desiring liberation; *mṛgya*—to be sought; *pada-abja*—lotus feet; *paddhatim*—system; *ananya-bhāve*—in an unflinching situation; *nija-dharma-bhāvite*—being situated in one's original constitutional position; *manasi*—unto the mind; *avasthāpya*—placing; *bhajasva*—go on executing devotional service; *pūruṣam*—the Supreme Person.
+*tam*—Him; *eva*—also; *vatsa*—my dear boy; *āśraya*—take shelter; *bhṛtya-vatsalam*—of the Supreme Personality of Godhead, who is very kind to His devotees; *mumukṣubhiḥ*—also by persons desiring liberation; *mṛgya*—to be sought; *pada-abja*—lotus feet; *paddhatim*—system; *ananya-bhāve*—in unflinching situation; *nija-dharma-bhāvite*—being situated in one's original constitutional position; *manasi*—unto the mind; *avasthāpya*—placing; *bhajasva*—go on executing devotional service; *pūruṣam*—the Supreme Person.
 
 **My dear boy, you also should take shelter of the Supreme Personality of Godhead, who is very kind to His devotees. Persons who are seeking liberation from the cycle of birth and death always take shelter of the lotus feet of the Lord in devotional service. Becoming purified by executing your allotted occupation, just situate the Supreme Personality of Godhead in your heart, and without deviating for a moment, engage always in His service.**
 

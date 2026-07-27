@@ -8,7 +8,7 @@
 > kṣaṇān pañca viduḥ kāṣṭhāṁ\
 > laghu tā daśa pañca ca
 
-*nimeṣaḥ*—the duration of time called a *nimeṣa*; *tri-lavaḥ*—the duration of three *lavas*; *jñeyaḥ*—is to be known; *āmnātaḥ*—it is so called; *te*—they; *trayaḥ*—three; *kṣaṇaḥ*—the duration of time called a *kṣaṇa*; *kṣaṇān*—such *kṣaṇas*; *pañca*—five; *viduḥ*—one should understand; *kāṣṭhām*—the duration of time called a *kāṣṭhā*; *laghu*—the duration of time called a *laghu*; *tāḥ*—those; *daśa pañca*—fifteen; *ca*—also.
+*nimeṣaḥ*—duration of time called a *nimeṣa*; *tri-lavaḥ*—duration of three *lavas*; *jñeyaḥ*—is to be known; *āmnātaḥ*—it is so called; *te*—they; *trayaḥ*—three; *kṣaṇaḥ*—duration of time called a *kṣaṇa*; *kṣaṇān*—such *kṣaṇas*; *pañca*—five; *viduḥ*—one should understand; *kāṣṭhām*—duration of time called a *kāṣṭhā*; *laghu*—duration of time called a *laghu*; *tāḥ*—those; *daśa pañca*—fifteen; *ca*—also.
 
 **The duration of time of three lavas is equal to one nimeṣa, the combination of three nimeṣas makes one kṣaṇa, five kṣaṇas combined together make one kāṣṭhā, and fifteen kāṣṭhās make one laghu.**
 

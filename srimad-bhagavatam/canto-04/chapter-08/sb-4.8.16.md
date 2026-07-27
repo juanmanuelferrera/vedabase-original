@@ -8,7 +8,7 @@
 > vākyaṁ sapatnyāḥ smaratī saroja-\
 > śriyā dṛśā bāṣpa-kalām uvāha
 
-*sā*—she; *utsṛjya*—giving up; *dhairyam*—patience; *vilalāpa*—lamented; *śoka-dāva-agninā*—by the fire of grief; *dāva-latā iva*—like burnt leaves; *bālā*—the woman; *vākyam*—words; *sa-patnyāḥ*—spoken by her co-wife; *smaratī*—remember; *saroja-śriyā*—a face as beautiful as a lotus; *dṛśā*—by looking; *bāṣpa-kalām*—weeping; *uvāha*—said.
+*sā*—she; *utsṛjya*—giving up; *dhairyam*—patience; *vilalāpa*—lamented; *śoka-dāva-agninā*—by the fire of grief; *dāva-latā iva*—like burned leaves; *bālā*—the woman; *vākyam*—words; *sa-patnyāḥ*—spoken by her co-wife; *smaratī*—remember; *saroja-śriyā*—a face as beautiful as a lotus; *dṛśā*—by looking; *bāṣpa-kalām*—weeping; *uvāha*—said.
 
 **This incident was unbearable to Sunīti's patience. She began to burn as if in a forest fire, and in her grief she became just like a burnt leaf and so lamented. As she remembered the words of her co-wife, her bright lotuslike face became filled with tears, and thus she spoke.**
 

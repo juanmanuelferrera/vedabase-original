@@ -8,7 +8,7 @@
 > badarīṁ tvaṁ prayāhīti\
 > sva-kulaṁ sañjihīrṣuṇā
 
-*aham*—I; *ca*—and; *uktaḥ*—was told; *bhagavatā*—by the Supreme Lord; *prapanna*—of the surrendered; *ārti-hareṇa*—by He who is the vanquisher of the distresses; *ha*—indeed; *badarīm*—to Badarī; *tvam*—you; *prayāhi*—should go; *iti*—thus; *sva-kulam*—His own family; *sañjihīrṣuṇā*—who desired to destroy.
+*aham*—I; *ca*—and; *uktaḥ*—was told; *bhagavatā*—by the Supreme Lord; *prapanna*—of the surrendered; *ārti-hareṇa*—by He who is the vanquisher of the distresses; *ha*—indeed; *badarīm*—to Badarī; *tvam*—you; *prayāhi*—should go; *iti*—thus; *sva-kulam*—His own family; *sañjihīrṣuṇā*—by desiring to destroy.
 
 **The Lord is the vanquisher of the distresses of one who is surrendered unto Him. Thus He who desired to destroy His family told me previously to go to Badarikāśrama.**
 

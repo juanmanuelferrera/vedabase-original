@@ -8,7 +8,7 @@
 > mithunaṁ brahma-varcasvī\
 > parameṇa samādhinā
 
-*prajāpatiḥ*—one who is entrusted with begetting children; *saḥ*—he; *bhagavān*—the most opulent; *ruciḥ*—the great sage Ruci; *tasyām*—in her; *ajījanat*—gave birth; *mithunam*—couple; *brahma-varcasvī*—spiritually very much powerful; *parameṇa*—with great strength; *samādhinā*—in trance.
+*prajāpatiḥ*—one who is entrusted to beget children; *saḥ*—he; *bhagavān*—the most opulent; *ruciḥ*—the great sage Ruci; *tasyām*—in her; *ajījanat*—gave birth; *mithunam*—couple; *brahma-varcasvī*—very much spiritually powerful; *parameṇa*—with great strength; *samādhinā*—in trance.
 
 **Ruci, who was very powerful in his brahminical qualifications and was appointed one of the progenitors of the living entities, begot one son and one daughter by his wife, Ākūti.**
 

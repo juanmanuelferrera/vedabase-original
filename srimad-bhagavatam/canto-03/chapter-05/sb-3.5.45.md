@@ -8,7 +8,7 @@
 > atho na paśyanty urugāya nūnaṁ\
 > ye te padanyāsa-vilāsa-lakṣyāḥ
 
-*tān*—the lotus feet of the Lord; *vai*—certainly; *hi*—for; *asat*—materialistic; *vṛttibhiḥ*—by those who are influenced by external energy; *akṣibhiḥ*—by the senses; *ye*—those; *parāhṛta*—missing at a distance; *antaḥ-manasaḥ*—of the internal mind; *pareśa*—O Supreme; *atho*—therefore; *na*—never; *paśyanti*—can see; *urugāya*—O great; *nūnam*—but; *ye*—those who; *te*—Your; *padanyāsa*—activities; *vilāsa*—transcendental enjoyment; *lakṣyāḥ*—those who see.
+*tān*—the lotus feet of the Lord; *vai*—certainly; *hi*—for; *asat*—materialistic; *vṛttibhiḥ*—by those who are influenced by external energy; *akṣibhiḥ*—by the senses; *ye*—those; *parāhṛta*—missing at a distance; *antaḥ-manasaḥ*—of the internal mind; *pareśa*—O Supreme; *atho*—therefore; *na*—never; *paśyanti*—can see; *urugāya*—O great; *nūnam*—but; *ye*—those; *te*—who are; *padanyāsa*—activities; *vilāsa*—transcendental enjoyment; *lakṣyāḥ*—those who see.
 
 **O great Supreme Lord, offensive persons whose internal vision has been too affected by external materialistic activities cannot see Your lotus feet, but they are seen by Your pure devotees, whose one and only aim is to transcendentally enjoy Your activities.**
 

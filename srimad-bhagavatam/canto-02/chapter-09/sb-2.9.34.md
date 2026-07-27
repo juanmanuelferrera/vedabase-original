@@ -8,7 +8,7 @@
 > tad vidyād ātmano māyāṁ\
 > yathābhāso yathā tamaḥ
 
-*ṛte*—without; *artham*—value; *yat*—that which; *pratīyeta*—appears to be; *na*—not; *pratīyeta*—appears to be; *ca*—and; *ātmani*—in relation to Me; *tat*—that; *vidyāt*—you must know; *ātmanaḥ*—My; *māyām*—illusory energy; *yathā*—just as; *ābhāsaḥ*—the reflection; *yathā*—as; *tamaḥ*—the darkness.
+*ṛte*—without; *artham*—value; *yat*—which; *pratīyeta*—appears to be; *na*—does not; *pratīyeta*—appears to be; *ca*—certainly; *ātmani*—in My relation; *tat*—that; *vidyāt*—must you know; *ātmanaḥ*—Mine; *māyām*—illusory energy; *yathā*—as much as; *ābhāsaḥ*—in reflection; *yathā*—as; *tamaḥ*—the darkness.
 
 **O Brahmā, whatever appears to be of any value, if it is without relation to Me, has no reality. Know it as My illusory energy, that reflection which appears to be in darkness.**
 

@@ -8,7 +8,7 @@
 > putrikā-dharmam āśritya\
 > śatarūpānumoditaḥ
 
-*ākūtim*—Ākūti; *rucaye*—unto the great sage Ruci; *prādāt*—handed over; *api*—although; *bhrātṛ-matīm*—daughter having a brother; *nṛpaḥ*—the King; *putrikā*—get the resultant son; *dharmam*—religious rites; *āśritya*—taking shelter; *śatarūpā*—by the wife of Svāyambhuva Manu; *anumoditaḥ*—being sanctioned.
+*ākūtim*—Ākūti; *rucaye*—unto the great sage Ruci; *prādāt*—handed over; *api*—although; *bhrātṛ-matīm*—daughter having a brother; *nṛpaḥ*—the King; *putrikā*—get the resultant son; *dharmam*—religious rites; *āśritya*—taking shelter; *śatarūpā*—the wife of Svāyambhuva Manu; *anumoditaḥ*—being sanctioned.
 
 **Ākūti had two brothers, but in spite of her brothers, King Svāyambhuva Manu handed her over to Prajāpati Ruci on the condition that the son born of her be returned to him as his son. This he did in consultation with his wife, Śatarūpā.**
 

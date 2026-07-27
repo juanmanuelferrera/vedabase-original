@@ -8,7 +8,7 @@
 > anena lokān prāg-līnān\
 > kalpitāsmīty acintayat
 
-*tat vilokya*—looking into that; *viyat-vyāpi*—extensively widespread; *puṣkaram*—the lotus; *yat*—that which; *adhiṣṭhitam*—he was situated; *anena*—by this; *lokān*—all the planets; *prāk-līnān*—previously merged in dissolution; *kalpitā asmi*—I shall create; *iti*—thus; *acintayat*—he thought.
+*tat vilokya*—looking into that; *viyat-vyāpi*—extensively widespread; *puṣkaram*—the lotus; *yat*—that which; *adhiṣṭhitam*—he was situated; *anena*—by this; *lokān*—all the planets; *prāk-līnān*—previously merged in dissolution; *kalpitā asmi*—I shall create; *iti*—thus; *acintayat*—thought like that.
 
 **Thereafter he saw that the lotus on which he was situated was spread throughout the universe, and he contemplated how to create all the planets, which were previously merged in that very same lotus.**
 

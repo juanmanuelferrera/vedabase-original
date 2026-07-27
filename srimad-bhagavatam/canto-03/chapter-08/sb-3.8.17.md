@@ -8,7 +8,7 @@
 > upāśritaḥ kañjam u loka-tattvaṁ\
 > nātmānam addhāvidad ādi-devaḥ
 
-*tasmāt*—from there; *yuga-anta*—at the end of the millennium; *śvasana*—the air of devastation; *avaghūrṇa*—because of movement; *jala*—water; *ūrmi-cakrāt*—out of the circle of waves; *salilāt*—from the water; *virūḍham*—situated on them; *upāśritaḥ*—having the shelter of; *kañjam*—lotus flower; *u*—in astonishment; *loka-tattvam*—the mystery of creation; *na*—not; *ātmānam*—himself; *addhā*—perfectly; *avidat*—could understand; *ādi-devaḥ*—the first demigod.
+*tasmāt*—from there; *yuga-anta*—at the end of the millennium; *śvasanāva*—the air of devastation; *ghūrṇa*—because of movement; *jala*—water; *ūrmi-cakrāt*—out of the circle of waves; *salilāt*—from the water; *virūḍham*—situated on them; *upāśritaḥ*—having the shelter of; *kañjam*—lotus flower; *u*—in astonishment; *loka-tattvam*—the mystery of creation; *na*—not; *ātmānam*—himself; *addhā*—perfectly; *avidat*—could understand; *ādi-devaḥ*—the first demigod.
 
 **Lord Brahmā, situated in that lotus, could not perfectly understand the creation, the lotus or himself. At the end of the millennium the air of devastation began to move the water and the lotus in great circular waves.**
 

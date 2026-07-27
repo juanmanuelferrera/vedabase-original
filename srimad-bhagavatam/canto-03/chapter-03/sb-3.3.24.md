@@ -8,7 +8,7 @@
 > kopitā munayaḥ śepur\
 > bhagavan-mata-kovidāḥ
 
-*puryām*—in the city of Dvārakā; *kadācit*—once upon a time; *krīḍadbhiḥ*—by sporting activities; *yadu*—the descendants of Yadu; *bhoja*—the descendants of Bhoja; *kumārakaiḥ*—princes; *kopitāḥ*—became angry; *munayaḥ*—the great sages; *śepuḥ*—cursed; *bhagavat*—the Personality of Godhead; *mata*—desire; *kovidāḥ*—cognizant.
+*puryām*—in the city of Dvārakā; *kadācit*—once upon a time; *krīḍadbhiḥ*—by sporting activities; *yadu*—the descendants of Yadu; *bhoja*—the descendants of Bhoja; *kumārakaiḥ*—princes; *kopitāḥ*—became angry; *munayaḥ*—the great sages; *śepuḥ*—cursed; *bhagavat*—Personality of Godhead; *mata*—desire; *kovidāḥ*—cognizant.
 
 **Once upon a time, great sages were made angry by the sporting activities of the princely descendants of the Yadu and Bhoja dynasties, and thus, as desired by the Lord, the sages cursed them.**
 

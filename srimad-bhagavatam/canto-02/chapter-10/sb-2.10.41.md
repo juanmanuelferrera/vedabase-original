@@ -11,7 +11,7 @@
 > yadaikaikataro 'nyābhyāṁ\
 > sva-bhāva upahanyate
 
-*sattvam*—the mode of goodness; *rajaḥ*—the mode of passion; *tamaḥ*—the mode of darkness; *iti*—thus; *tisraḥ*—the three; *sura*—demigod; *nṛ*—human being; *nārakāḥ*—one who is suffering hellish conditions; *tatra api*—even there; *ekaikaśaḥ*—another; *rājan*—O King; *bhidyante*—divide into; *gatayaḥ*—movements; *tridhā*—three; *yadā*—at that time; *ekaikataraḥ*—one in relation with another; *anyābhyām*—from the other; *sva-bhāvaḥ*—habit; *upahanyate*—develops.
+*sattvam*—the mode of goodness; *rajaḥ*—the mode of passion; *tamaḥ*—the mode of darkness; *iti*—thus; *tisraḥ*—trio; *sura*—demigod; *nṛ*—human being; *nārakāḥ*—one who is suffering hellish conditions; *tatra api*—even there; *ekaikaśaḥ*—another; *rājan*—O King; *bhidyante*—divide into; *gatayaḥ*—movements; *tridhā*—three; *yadā*—at that time; *ekaikataraḥ*—one in relation with another; *anyābhyām*—from the other; *sva-bhāvaḥ*—habit; *upahanyate*—develops.
 
 **According to the different modes of material nature—the mode of goodness, the mode of passion and the mode of darkness—there are different living creatures, who are known as demigods, human beings and hellish living entities. O King, even a particular mode of nature, being mixed with the other two, is divided into three, and thus each kind of living creature is influenced by the other modes and acquires its habits also.**
 

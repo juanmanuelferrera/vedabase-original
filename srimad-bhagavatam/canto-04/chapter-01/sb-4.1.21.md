@@ -8,7 +8,7 @@
 > nirgatena muner mūrdhnaḥ\
 > samīkṣya prabhavas trayaḥ
 
-*tapyamānam*—while practicing austerities; *tri-bhuvanam*—the three worlds; *prāṇāyāma*—practice by breathing exercise; *edhasā*—fuel; *agninā*—by the fire; *nirgatena*—issuing out; *muneḥ*—of the great sage; *mūrdhnaḥ*—the top of the head; *samīkṣya*—looking over; *prabhavaḥ trayaḥ*—the three great gods (Brahmā, Viṣṇu and Maheśvara).
+*tapyamānam*—while practicing austerities; *tri-bhuvanam*—the three worlds; *prāṇāyāma*—practice by breathing exercise; *edhasā*—fuel; *agninā*—by the fire; *nirgatena*—issuing out; *muneḥ*—of the great sage; *mūrdhnaḥ*—top of the head; *samīkṣya*—looking over; *prabhavaḥ trayaḥ*—the three great gods (Brahmā, Viṣṇu and Maheśvara).
 
 **While Atri Muni was engaged in these severe austerities, a blazing fire came out of his head due to his breathing exercise, and that fire was seen by the three principal deities of the three worlds.**
 

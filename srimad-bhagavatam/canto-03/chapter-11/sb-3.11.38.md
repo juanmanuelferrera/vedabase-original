@@ -8,7 +8,7 @@
 > avyākṛtasyānantasya\
 > hy anāder jagad-ātmanaḥ
 
-*kālaḥ*—eternal time; *ayam*—this (as measured by Brahmā's duration of life); *dvi-parārdha-ākhyaḥ*—measured by the two halves of Brahmā's life; *nimeṣaḥ*—less than a second; *upacaryate*—is so measured; *avyākṛtasya*—of one who is unchanged; *anantasya*—of the unlimited; *hi*—certainly; *anādeḥ*—of the beginningless; *jagat-ātmanaḥ*—of the soul of the universe.
+*kālaḥ*—eternal time; *ayam*—this (as measured by Brahmā's duration of life); *dvi-para-ardha-ākhyaḥ*—measured by the two halves of Brahmā's life; *nimeṣaḥ*—less than a second; *upacaryate*—is so measured; *avyākṛtasya*—of one who is unchanged; *anantasya*—of the unlimited; *hi*—certainly; *anādeḥ*—of the beginningless; *jagat-ātmanaḥ*—of the soul of the universe.
 
 **The duration of the two parts of Brahmā's life, as above mentioned, is calculated to be equal to one nimeṣa [less than a second] for the Supreme Personality of Godhead, who is unchanging and unlimited and is the cause of all causes of the universe.**
 

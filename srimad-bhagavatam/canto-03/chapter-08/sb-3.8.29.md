@@ -8,7 +8,7 @@
 > avyakta-mūlaṁ bhuvanāṅghripendram\
 > ahīndra-bhogair adhivīta-valśam
 
-*parārdhya*—very valuable; *keyūra*—ornaments; *maṇi-praveka*—highly valuable jewels; *paryasta*—disseminating; *dordaṇḍa*—arms; *sahasra-śākham*—with thousands of branches; *avyakta-mūlam*—self-situated; *bhuvana*—universal; *aṅghripa*—trees; *indram*—the Lord; *ahi-indra*—Anantadeva; *bhogaiḥ*—by hoods; *adhivīta*—surrounded; *valśam*—shoulders.
+*parārdhya*—very valuable; *keyūra*—ornaments; *maṇi-praveka*—highly valuable jewels; *paryasta*—disseminating; *dordaṇḍa*—arms; *sahasra-śākham*—with thousands of branches; *avyakta-mūlam*—self-situated; *bhuvana*—universal; *aṅghripa*—trees; *indram*—the Lord; *ahi-indra*—Anantadeva; *bhogaiḥ*—by hoods; *adhivīta*—surrounded; *valśam*—branches.
 
 **As a sandalwood tree is decorated with fragrant flowers and branches, the Lord's body was decorated with valuable jewels and pearls. He was the self-situated tree, the Lord of all others in the universe. And as a sandalwood tree is covered with many snakes, so the Lord's body was also covered by the hoods of Ananta.**
 

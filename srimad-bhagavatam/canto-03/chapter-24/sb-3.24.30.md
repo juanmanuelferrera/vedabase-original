@@ -8,7 +8,7 @@
 > cikīrṣur bhagavān jñānaṁ\
 > bhaktānāṁ māna-vardhanaḥ
 
-*svīyam*—Your own; *vākyam*—words; *ṛtam*—true; *kartum*—to make; *avatīrṇaḥ*—descended; *asi*—You are; *me gṛhe*—in my house; *cikīrṣuḥ*—desirous of disseminating; *bhagavān*—the Personality of Godhead; *jñānam*—knowledge; *bhaktānām*—of the devotees; *māna*—the honor; *vardhanaḥ*—who increases.
+*svīyam*—Your own; *vākyam*—words; *ṛtam*—true; *kartum*—to make; *avatīrṇaḥ*—descended; *asi*—You are; *me gṛhe*—in my house; *cikīrṣuḥ*—desirous to disseminate; *bhagavān*—the Personality of Godhead; *jñānam*—knowledge; *bhaktānām*—of the devotees; *māna*—the honor; *vardhanaḥ*—who increases.
 
 **Kardama Muni said: You, my dear Lord, who are always increasing the honor of Your devotees, have descended in my home just to fulfill Your word and disseminate the process of real knowledge.**
 

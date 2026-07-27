@@ -8,7 +8,7 @@
 > vyasanārṇavam atyeti\
 > jala-yānair yathārṇavam
 
-*sarva*—all; *āśramān*—social orders; *upādāya*—completing; *sva*—own; *āśrameṇa*—by the social orders; *kalatra-vān*—a person living with a wife; *vyasana-arṇavam*—the dangerous ocean of material existence; *atyeti*—one can cross over; *jala-yānaiḥ*—with seagoing vessels; *yathā*—as; *arṇavam*—the ocean.
+*sarva*—all; *āśramān*—social orders; *upādāya*—completing; *sva*—own; *āśrameṇa*—by the social orders; *kalatra-vān*—a person living with a wife; *vyasana-arṇavam*—the dangerous ocean of material existence; *atyeti*—one can cross over; *jala-yānaiḥ*—seagoing vessel; *yathā*—as; *arṇavam*—the ocean.
 
 **As one can cross over the ocean with seagoing vessels, one can cross the dangerous situation of the material ocean by living with a wife.**
 

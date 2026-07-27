@@ -8,7 +8,7 @@
 > cikīrṣur bhagavān asyāḥ\
 > śam ajenābhiyācitaḥ
 
-*vasudevasya*—of the wife of Vasudeva; *devakyām*—in the womb of Devakī; *jātaḥ*—born of; *bhoja-indra*—of the King of the Bhojas; *bandhane*—in the prison house; *cikīrṣuḥ*—for doing; *bhagavān*—the Personality of Godhead; *asyāḥ*—of the earth; *śam*—welfare; *ajena*—by Brahmā; *abhiyācitaḥ*—being prayed for.
+*vasudevasya*—of the wife of Vasudeva; *devakyām*—in the womb of Devakī; *jātaḥ*—born of; *bhoja-indra*—the King of the Bhojas; *bandhane*—in the prison house; *cikīrṣuḥ*—for doing; *bhagavān*—the Personality of Godhead; *asyāḥ*—of the earth; *śam*—welfare; *ajena*—by Brahmā; *abhiyācitaḥ*—being prayed for.
 
 **The Personality of Godhead, Lord Śrī Kṛṣṇa, being prayed to by Brahmā to bring welfare to the earth, was begotten by Vasudeva in the womb of his wife Devakī in the prison of the King of Bhoja.**
 

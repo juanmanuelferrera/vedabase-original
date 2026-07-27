@@ -8,7 +8,7 @@
 > nirbhinne hy akṣiṇī tasya\
 > jyotiś cakṣur guṇa-grahaḥ
 
-*yadā*—while; *ātmani*—unto Himself; *nirālokam*—without any light; *ātmānam*—His own transcendental body; *ca*—also other bodily forms; *didṛkṣataḥ*—desired to look upon; *nirbhinne*—due to being sprouted; *hi*—for; *akṣiṇī*—of the eyes; *tasya*—of Him; *jyotiḥ*—the sun; *cakṣuḥ*—the eyes; *guṇa-grahaḥ*—the power of seeing.
+*yadā*—while; *ātmani*—unto Himself; *nirālokam*—without any light; *ātmānam*—His own transcendental body; *ca*—also other bodily forms; *didṛkṣataḥ*—desired to look upon; *nirbhinne*—due to being sprouted; *akṣiṇī*—of the eyes; *tasya*—of Him; *jyotiḥ*—the sun; *cakṣuḥ*—the eyes; *guṇa-grahaḥ*—the power of seeing.
 
 **Thus when everything existed in darkness, the Lord desired to see Himself and all that was created. Then the eyes, the illuminating god Sun, the power of vision and the object of sight all became manifested.**
 

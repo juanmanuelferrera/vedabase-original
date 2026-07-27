@@ -8,7 +8,7 @@
 > yo jātas trāyate varṇān\
 > pauruṣaḥ kaṇṭaka-kṣatāt
 
-*bāhubhyaḥ*—from the arms; *avartata*—generate d; *kṣatram*—the power of protection; *kṣatriyaḥ*—in relation to the power of protection; *tat*—that; *anuvrataḥ*—followers; *yaḥ*—one who; *jātaḥ*—so becomes; *trāyate*—delivers; *varṇān*—the other occupations; *pauruṣaḥ*—representative of the Personality of Godhead; *kaṇṭaka*—of disturbing elements like thieves and debauchees; *kṣatāt*—from the mischief.
+*bāhubhyaḥ*—from the arms; *avartata*—generate d; *kṣatram*—the power of protection; *kṣatriyaḥ*—in relation to the power of protection; *tat*—that; *anuvrataḥ*—followers; *yaḥ*—one who; *jātaḥ*—so becomes; *trāyate*—delivers; *varṇān*—the other occupations; *pauruṣaḥ*—representative of the Personality of Godhead; *kaṇṭaka*—disturbing elements like thieves and debauchees; *kṣatāt*—mischief.
 
 **Thereafter the power of protection was generated from the arms of the gigantic virāṭ form, and in relation to such power the kṣatriyas also came into existence by following the kṣatriya principle of protecting society from the disturbance of thieves and miscreants.**
 

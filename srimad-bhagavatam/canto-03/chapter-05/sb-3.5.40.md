@@ -8,7 +8,7 @@
 > ātman labhante bhagavaṁs tavāṅghri-\
 > cchāyāṁ sa-vidyām ata āśrayema
 
-*dhātaḥ*—O father; *yat*—because; *asmin*—in this; *bhave*—material world; *īśa*—O Lord; *jīvāḥ*—the living entities; *tāpa*—miseries; *trayeṇa*—by the three; *abhihatāḥ*—always embarrassed; *na*—never; *śarma*—in happiness; *ātman*—self; *labhante*—do gain; *bhagavan*—O Personality of Godhead; *tava*—Your; *aṅghri-chāyām*—shade of Your feet; *sa-vidyām*—full of knowledge; *ataḥ*—obtain; *āśrayema*—shelter.
+*dhātaḥ*—O father; *yat*—because; *asmin*—in this; *bhave*—material world; *īśa*—O Lord; *jīvāḥ*—the living entities; *tāpa*—miseries; *trayeṇa*—by the three; *abhihatāḥ*—always embarrassed; *na*—never; *śarma*—in happiness; *ātman*—self; *labhante*—do gain; *bhagavan*—Personality of Godhead; *tava*—Your; *aṅghri-chāyām*—shade of Your feet; *sa-vidyām*—full of knowledge; *ataḥ*—obtain; *āśrayema*—shelter.
 
 **O Father, O Lord, O Personality of Godhead, the living entities in the material world can never have any happiness because they are overwhelmed by the three kinds of miseries. Therefore they take shelter of the shade of Your lotus feet, which are full of knowledge, and we also thus take shelter of them.**
 

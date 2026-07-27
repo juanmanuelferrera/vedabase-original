@@ -8,7 +8,7 @@
 > padmaṁ yad arcanty ahi-rāja-kanyāḥ\
 > sa-prema nānā-balibhir varārthāḥ
 
-*svardhunī-uda*—by the water of the Ganges; *ārdraiḥ*—being moistened; *sva-jaṭā*—bunch of hairs; *kalāpaiḥ*—situated on the head; *upaspṛśantaḥ*—by so touching; *caraṇa-upadhānam*—the shelter of His feet; *padmam*—the lotus shelter; *yat*—that which; *arcanti*—worships; *ahi-rāja*—the serpent-king; *kanyāḥ*—daughters; *sa-prema*—with great devotion; *nānā*—various; *balibhiḥ*—paraphernalia; *vara-arthāḥ*—being desirous of husbands.
+*svaḥ-dhunī-uda*—by the water of the Ganges; *ārdraiḥ*—being moistened; *sva-jaṭā*—bunch of hairs; *kalāpaiḥ*—situated on the head; *upaspṛśantaḥ*—by so touching; *caraṇa-upadhānam*—the shelter of His feet; *padmam*—the lotus shelter; *yat*—that which; *arcanti*—worships; *ahi-rāja*—the serpent-king; *kanyāḥ*—daughters; *sa-prema*—with great devotion; *nānā*—various; *balibhiḥ*—paraphernalia; *vara-arthāḥ*—being desirous of husbands.
 
 **The sages came from the highest planets down to the lower region through the water of the Ganges, and therefore the hair on their heads was wet. They touched the lotus feet of the Lord, which are worshiped with various paraphernalia by the daughters of the serpent-king when they desire good husbands.**
 

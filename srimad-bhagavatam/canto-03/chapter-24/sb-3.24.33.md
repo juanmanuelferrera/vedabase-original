@@ -8,7 +8,7 @@
 > ātmānubhūtyānugata-prapañcaṁ\
 > svacchanda-śaktiṁ kapilaṁ prapadye
 
-*param*—transcendental; *pradhānam*—supreme; *puruṣam*—person; *mahāntam*—who is the origin of the material world; *kālam*—who is time; *kavim*—fully cognizant; *tri-vṛtam*—three modes of material nature; *loka-pālam*—who is the maintainer of all the universes; *ātma*—in Himself; *anubhūtya*—by internal potency; *anugata*—dissolved; *prapañcam*—whose material manifestations; *sva-chanda*—independently; *śaktim*—who is powerful; *kapilam*—to Lord Kapila; *prapadye*—I surrender.
+*param*—transcendental; *pradhānam*—supreme; *puruṣam*—person; *mahāntam*—who is the origin of the material world; *kālam*—who is time; *kavim*—fully cognizant; *tri-vṛtam*—three modes of material nature; *loka-pālam*—who is the maintainer of all the universes; *ātma*—in Himself; *anubhūtya*—by internal potency; *anugata*—dissolved; *prapañcam*—whose material manifestations; *svacchanda*—independently; *śaktim*—who is powerful; *kapilam*—to Lord Kapila; *prapadye*—I surrender.
 
 **I surrender unto the Supreme Personality of Godhead, descended in the form of Kapila, who is independently powerful and transcendental, who is the Supreme Person and the Lord of the sum total of matter and the element of time, who is the fully cognizant maintainer of all the universes under the three modes of material nature, and who absorbs the material manifestations after their dissolution.**
 

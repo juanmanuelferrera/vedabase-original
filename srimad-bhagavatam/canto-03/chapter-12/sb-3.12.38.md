@@ -8,7 +8,7 @@
 > sthāpatyaṁ cāsṛjad vedaṁ\
 > kramāt pūrvādibhir mukhaiḥ
 
-*āyuḥ-vedam*—medical science; *dhanuḥ-vedam*—military science; *gāndharvam*—musical art; *vedam*—they are all Vedic knowledge; *ātmanaḥ*—of his own; *sthāpatyam*—architectural; *ca*—also; *asṛjat*—created; *vedam*—knowledge; *kramāt*—respectively; *pūrva-ādibhiḥ*—beginning from the front face; *mukhaiḥ*—by the mouths.
+*āyuḥ-vedam*—medical science; *dhanuḥ-vedam*—military science; *gāndharvam*—musical art; *vedam*—they are all Vedic knowledge; *ātmanaḥ*—of his own; *sthāpatyam*—architectural; *ca*—also; *asṛjat*—created; *vedam*—knowledge; *kramāt*—respectively; *pūrva-ādibhiḥ*—beginning from the front face; *mukhaiḥ*—mouth.
 
 **He also created the medical science, military art, musical art and architectural science, all from the Vedas. They all emanated one after another, beginning from the front face.**
 

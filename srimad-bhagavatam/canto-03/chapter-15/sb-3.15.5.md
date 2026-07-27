@@ -8,7 +8,7 @@
 > gṛhīta-guṇa-bhedāya\
 > namas te 'vyakta-yonaye
 
-*namaḥ*—respectful obeisances; *vijñāna-vīryāya*—O original source of strength and scientific knowledge; *māyayā*—by the external energy; *idam*—this body of Brahmā; *upeyuṣe*—having obtained; *gṛhīta*—accepting; *guṇa-bhedāya*—the differentiated mode of passion; *namaḥ te*—offering obeisances unto you; *avyakta*—unmanifested; *yonaye*—source.
+*namaḥ*—respectful obeisances; *vijñāna-vīryāya*—O original source of strength and scientific knowledge; *māyayā*—by the external energy; *idam*—this body of Brahmā; *upeyuṣe*—having obtained; *gṛhīta*—accepting; *guṇa-bhedāya*—differentiated mode of passion; *namaḥ te*—offering obeisances unto you; *avyakta*—unmanifested; *yonaye*—source.
 
 **O original source of strength and scientific knowledge, all obeisances unto you! You have accepted the differentiated mode of passion from the Supreme Personality of Godhead. With the help of external energy you are born of the unmanifested source. All obeisances unto you!**
 

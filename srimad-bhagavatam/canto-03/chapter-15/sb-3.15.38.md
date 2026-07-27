@@ -10,7 +10,7 @@
 > haṁsa-śriyor vyajanayoḥ śiva-vāyu-lolac-\
 > chubhrātapatra-śaśi-kesara-śīkarāmbum
 
-*tam*—Him; *tu*—but; *āgatam*—coming forward; *pratihṛta*—carried; *aupayikam*—the paraphernalia; *sva-pumbhiḥ*—by His own associates; *te*—the great sages (the Kumāras); *acakṣata*—saw; *akṣa-viṣayam*—now a subject matter for seeing; *sva-samādhi-bhāgyam*—visible simply by ecstatic trance; *haṁsa-śriyoḥ*—as beautiful as white swans; *vyajanayoḥ*—the *cāmaras* (bunches of white hair); *śiva-vāyu*—favorable winds; *lolat*—moving; *śubhra-ātapatra*—the white umbrella; *śaśi*—the moon; *kesara*—pearls; *śīkara*—drops; *ambum*—water.
+*tam*—Him; *tu*—but; *āgatam*—coming forward; *pratihṛta*—carried; *aupayikam*—the paraphernalia; *sva-pumbhiḥ*—by His own associates; *te*—the great sages (Kumāras); *acakṣata*—saw; *akṣa-viṣayam*—now subject matter for seeing; *sva-samādhi-bhāgyam*—visible simply by ecstatic trance; *haṁsa-śriyoḥ*—as beautiful as white swans; *vyajanayoḥ*—the *cāmaras* (bunches of white hair); *śiva-vāyu*—favorable winds; *lolat*—moving; *śubhra-ātapatra*—the white umbrella; *śaśi*—the moon; *kesara*—pearls; *śīkara*—drops; *ambum*—water.
 
 **The sages, headed by Sanaka Ṛṣi, saw that the Supreme Personality of Godhead, Viṣṇu, who was formerly only visible within their hearts in ecstatic trance, had now actually become visible to their eyes. As He came forward, accompanied by His own associates bearing all paraphernalia, such as an umbrella and a cāmara fan, the white bunches of hair moved very gently, like two swans, and due to their favorable breeze the pearls garlanding the umbrella also moved, like drops of nectar falling from the white full moon or ice melting due to a gust of wind.**
 

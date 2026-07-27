@@ -11,7 +11,7 @@
 > tāṁ diśo jagṛhur ghorāṁ\
 > nīhāraṁ yad vidus tamaḥ
 
-*saḥ*—he (Brahmā); *ittham*—thus; *gṛṇataḥ*—speaking; *putrān*—sons; *puraḥ*—before; *dṛṣṭvā*—seeing; *prajā-patīn*—all the progenitors of living entities; *prajāpati-patiḥ*—the father of them (Brahmā); *tanvam*—body; *tatyāja*—quit; *vrīḍitaḥ*—ashamed; *tadā*—at that time; *tām*—that body; *diśaḥ*—all directions; *jagṛhuḥ*—accepted; *ghorām*—blamable; *nīhāram*—fog; *yat*—which; *viduḥ*—they know as; *tamaḥ*—darkness.
+*saḥ*—he (Brahmā); *ittham*—thus; *gṛṇataḥ*—speaking; *putrān*—sons; *puraḥ*—before; *dṛṣṭvā*—seeing; *prajā-patīn*—all the progenitors of living entities; *prajāpati-patiḥ*—the father of all of them (Brahmā); *tanvam*—body; *tatyāja*—quit; *vrīḍitaḥ*—ashamed; *tadā*—at that time; *tām*—that body; *diśaḥ*—all directions; *jagṛhuḥ*—accepted; *ghorām*—blamable; *nīhāram*—fog; *yat*—which; *viduḥ*—they know as; *tamaḥ*—darkness.
 
 **The father of all Prajāpatis, Brahmā, thus seeing all his Prajāpati sons speaking in that way, became very much ashamed and at once gave up the body he had accepted. Later that body appeared in all directions as the dangerous fog in darkness.**
 

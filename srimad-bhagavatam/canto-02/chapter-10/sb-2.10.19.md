@@ -8,7 +8,7 @@
 > jale caitasya suciraṁ\
 > nirodhaḥ samajāyata
 
-*vivakṣoḥ*—when there was a need to speak; *mukhataḥ*—from the mouth; *bhūmnaḥ*—of the Supreme; *vahniḥ*—fire or the controlling deity of fire; *vāk*—vibration; *vyāhṛtam*—speeches; *tayoḥ*—by both; *jale*—in the water; *ca*—however; *etasya*—of all these; *suciram*—a very, very long time; *nirodhaḥ*—suspension; *samajāyata*—did continue.
+*vivakṣoḥ*—when there was a need to speak; *mukhataḥ*—from the mouth; *bhūmnaḥ*—of the Supreme; *vahniḥ*—fire or the controlling deity of fire; *vāk*—vibration; *vyāhṛtam*—speeches; *tayoḥ*—by both; *jale*—in the water; *ca*—however; *etasya*—of all these; *suciram*—very, very long time; *nirodhaḥ*—suspension; *samajāyata*—did continue.
 
 **When the Supreme desired to speak, there was vibration of speeches from the mouth. Then the controlling deity Fire generated from the mouth. But when He was lying in the water, all these functions remained suspended.**
 

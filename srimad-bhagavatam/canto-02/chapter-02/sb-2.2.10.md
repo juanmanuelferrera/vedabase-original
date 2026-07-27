@@ -8,7 +8,7 @@
 > śrī-lakṣaṇaṁ kaustubha-ratna-kandharam\
 > amlāna-lakṣmyā vana-mālayācitam
 
-*unnidra*—blooming; *hṛt*—heart; *paṅkaja*—lotus flower; *karṇikā-ālaye*—on the surface of the whorl; *yoga-īśvara*—the great mystics; *āsthāpita*—placed; *pāda-pallavam*—lotus feet; *śrī*—goddess of fortune, or a beautiful calf; *lakṣaṇam*—marked in that way; *kaustubha*—Kaustubha jewel; *ratna*—other jewels; *kandharam*—on the shoulder; *amlāna*—quite fresh; *lakṣmyā*—beauty; *vana-mālayā*—by a flower garland; *ācitam*—spread over.
+*unnidra*—blooming; *hṛt*—heart; *paṅkaja*—lotus flower; *karṇikā-ālaye*—on the surface of the whorl; *yogeśvara*—the great mystics; *āsthāpita*—placed; *pāda-pallavam*—lotus feet; *śrī*—goddess of fortune, or a beautiful calf; *lakṣaṇam*—marked in that way; *kaustubha*—Kaustubha jewel; *ratna*—other jewels; *kandharam*—on the shoulder; *amlāna*—quite fresh; *lakṣmyā*—beauty; *vana-mālayā*—by a flower garland; *ācitam*—spread over.
 
 **His lotus feet are placed over the whorl of the lotus-like hearts of great mystics. On His chest there is the Kaustubha jewel engraved with a beautiful calf, and there are other jewels on His shoulders, and the complete torso is garlanded with fresh flowers.**
 

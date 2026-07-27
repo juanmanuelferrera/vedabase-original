@@ -8,7 +8,7 @@
 > visṛjya daurātmyam ananya-sauhṛdā\
 > hṛdopaguhyārha-padaṁ pade pade
 
-*param*—the supreme; *padam*—situation; *vaiṣṇavam*—in relation with the Personality of Godhead; *āmananti*—do they know; *tat*—that; *yat*—which; *na iti*—not this; *na iti*—not this; *iti*—thus; *atat*—godless; *utsisṛkṣavaḥ*—those who desire to avoid; *visṛjya*—giving it up completely; *daurātmyam*—perplexities; *ananya*—absolutely; *sauhṛdāḥ*—in good will; *hṛdā upaguhya*—taking them into his heart; *arha*—that which is only worshipable; *padam*—lotus feet; *pade pade*—every moment.
+*param*—the supreme; *padam*—situation; *vaiṣṇavam*—in relation with the Personality of Godhead; *āmananti*—do they know; *tat*—that; *yat*—which; *neti*—not this; *neti*—not this; *iti*—thus; *atat*—godless; *utsisṛkṣavaḥ*—those who desire to avoid; *visṛjya*—giving it up completely; *daurātmyam*—perplexities; *ananya*—absolutely; *sauhṛdāḥ*—in good will; *hṛdā upaguhya*—taking them into his heart; *arha*—that which is only worshipable; *padam*—lotus feet; *pade pade*—every moment.
 
 **The transcendentalists desire to avoid everything which is godless, knowing that supreme situation in which everything is in relation with the Supreme Lord Viṣṇu. Therefore a pure devotee who is in absolute harmony with the Lord does not create perplexities, but worships the lotus feet of the Lord at every moment, taking them into his heart.**
 

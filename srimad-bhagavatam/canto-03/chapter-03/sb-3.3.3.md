@@ -8,7 +8,7 @@
 > gāndharva-vṛttyā miṣatāṁ sva-bhāgaṁ\
 > jahre padaṁ mūrdhni dadhat suparṇaḥ
 
-*samāhutāḥ*—invited; *bhīṣmaka*—of King Bhīṣmaka; *kanyayā*—by the daughter; *ye*—all those; *śriyaḥ*—fortune; *sa-varṇena*—by a similar sequence; *bubhūṣayā*—expecting to be so; *eṣām*—of them; *gāndharva*—in marrying; *vṛttyā*—by such a custom; *miṣatām*—carrying so; *sva-bhāgam*—own share; *jahre*—took away; *padam*—feet; *mūrdhni*—on the head; *dadhat*—placed; *suparṇaḥ*—Garuḍa.
+*samāhutāḥ*—invited; *bhīṣmaka*—of King Bhīṣmaka; *kanyayā*—by the daughter; *ye*—all those; *śriyaḥ*—fortune; *sa-varṇena*—by a similar sequence; *bubhūṣayā*—expecting to be so; *eṣām*—of them; *gāndharva*—in marrying; *vṛttyā*—by such a custom; *miṣatām*—carrying so; *sva-bhāgam*—own share; *jahre*—took away; *padam*—let; *mūrdhni*—on the head; *dadhat*—placed; *suparṇaḥ*—Garuḍa.
 
 **Attracted by the beauty and fortune of Rukmiṇī, the daughter of King Bhīṣmaka, many great princes and kings assembled to marry her. But Lord Kṛṣṇa, stepping over the other hopeful candidates, carried her away as His own share, as Garuḍa carried away nectar.**
 

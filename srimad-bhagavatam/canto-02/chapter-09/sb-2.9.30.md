@@ -8,7 +8,7 @@
 > aviklavas te parikarmaṇi sthito\
 > mā me samunnaddha-mado 'ja māninaḥ
 
-*yāvat*—as it is; *sakhā*—friend; *sakhyuḥ*—unto the friend; *iva*—like that; *īśa*—O Lord; *te*—You; *kṛtaḥ*—have accepted; *prajā*—the living entities; *visarge*—in the matter of creation; *vibhajāmi*—as I shall do it differently; *bhoḥ*—O my Lord; *janam*—those who are born; *aviklavaḥ*—without being perturbed; *te*—Your; *parikarmaṇi*—in the matter of service; *sthitaḥ*—thus situated; *mā*—may it never be; *me*—unto me; *samunnaddha*—resulting arise; *madaḥ*—madness; *aja*—O unborn one; *māninaḥ*—thus being thought of.
+*yāvat*—as it is; *sakhā*—friend; *sakhyuḥ*—unto the friend; *iva*—like that; *īśa*—O Lord; *te*—You; *kṛtaḥ*—have accepted; *prajā*—the living entities; *visarge*—in the matter of creation; *vibhajāmi*—as I shall do it differently; *bhoḥ*—O my Lord; *janam*—those who are born; *aviklavaḥ*—without being perturbed; *te*—Your; *parikarmaṇi*—in the matter of service; *sthitaḥ*—thus situated; *mā*—never it may be; *me*—unto me; *samunnaddha*—resulting arise; *madaḥ*—madness; *aja*—O unborn one; *māninaḥ*—thus being thought of.
 
 **O my Lord, the unborn, You have shaken hands with me just like a friend does with a friend [as if equal in position]. I shall be engaged in the creation of different types of living entities, and I shall be occupied in Your service. I shall have no perturbation, but I pray that all this may not give rise to pride, as if I were the Supreme.**
 

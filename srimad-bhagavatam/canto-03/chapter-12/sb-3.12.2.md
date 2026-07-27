@@ -8,7 +8,7 @@
 > mahāmohaṁ ca mohaṁ ca\
 > tamaś cājñāna-vṛttayaḥ
 
-*sasarja*—created; *agre*—at first; *andha-tāmisram*—the sense of death; *atha*—then; *tāmisram*—anger upon frustration; *ādi-kṛt*—all these; *mahā-moham*—ownership of enjoyable objects; *ca*—also; *moham*—illusory conception; *ca*—also; *tamaḥ*—darkness in self-knowledge; *ca*—as well as; *ajñāna*—nescience; *vṛttayaḥ*—engagements.
+*sasarja*—created; *agre*—at first; *andha-tāmisram*—sense of death; *atha*—then; *tāmisram*—anger upon frustration; *ādi-kṛt*—all these; *mahā-moham*—ownership of enjoyable objects; *ca*—also; *moham*—illusory conception; *ca*—also; *tamaḥ*—darkness in self-knowledge; *ca*—as well as; *ajñāna*—nescience; *vṛttayaḥ*—engagements.
 
 **Brahmā first created the nescient engagements like self-deception, the sense of death, anger after frustration, the sense of false ownership, and the illusory bodily conception, or forgetfulness of one's real identity.**
 

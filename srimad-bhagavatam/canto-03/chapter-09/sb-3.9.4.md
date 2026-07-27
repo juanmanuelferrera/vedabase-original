@@ -10,7 +10,7 @@
 > tasmai namo bhagavate 'nuvidhema tubhyaṁ\
 > yo 'nādṛto naraka-bhāgbhir asat-prasaṅgaiḥ
 
-*tat*—the Supreme Personality of Godhead, Śrī Kṛṣṇa; *vā*—or; *idam*—this present form; *bhuvana-maṅgala*—O You who are all-auspicious for all the universes; *maṅgalāya*—for the sake of all prosperity; *dhyāne*—in meditation; *sma*—as it were; *naḥ*—unto us; *darśitam*—manifested; *te*—Your; *upāsakānām*—of the devotees; *tasmai*—unto Him; *namaḥ*—my respectful obeisances; *bhagavate*—unto the Personality of Godhead; *anuvidhema*—I perform; *tubhyam*—unto You; *yaḥ*—which; *anādṛtaḥ*—is neglected; *naraka-bhāgbhiḥ*—by persons destined for hell; *asat-prasaṅgaiḥ*—by material topics.
+*tat*—the Supreme Personality of Godhead, Śrī Kṛṣṇa; *vā*—or; *idam*—this present form; *bhuvana-maṅgala*—they are all auspicious for all the universes; *maṅgalāya*—for the sake of all prosperity; *dhyāne*—in meditation; *sma*—as it were; *naḥ*—unto us; *darśitam*—manifested; *te*—Your; *upāsakānām*—of the devotees; *tasmai*—unto Him; *namaḥ*—my respectful obeisances; *bhagavate*—unto the Personality of Godhead; *anuvidhema*—I perform; *tubhyam*—unto You; *yaḥ*—which; *anādṛtaḥ*—is neglected; *naraka-bhāgbhiḥ*—by persons who are destined for hell; *asat-prasaṅgaiḥ*—by material topics.
 
 **This present form, or any transcendental form expanded by the Supreme Personality of Godhead, Śrī Kṛṣṇa, is equally auspicious for all the universes. Since You have manifested this eternal personal form upon whom Your devotees meditate, I therefore offer my respectful obeisances unto You. Those who are destined to be dispatched to the path of hell neglect Your personal form because of speculating on material topics.**
 

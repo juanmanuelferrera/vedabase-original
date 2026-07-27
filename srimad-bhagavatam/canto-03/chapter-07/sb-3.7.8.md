@@ -10,7 +10,7 @@
 > pratyāha bhagavac-cittaḥ\
 > smayann iva gata-smayaḥ
 
-*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *saḥ*—he (Maitreya Muni); *ittham*—in this way; *coditaḥ*—being agitated; *kṣattrā*—by Vidura; *tattva-jijñāsunā*—by one who was anxious to inquire to know the truth; *muniḥ*—the great sage; *pratyāha*—replied; *bhagavat-cittaḥ*—God conscious; *smayan*—wondering; *iva*—as if; *gata-smayaḥ*—without hesitation.
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *saḥ*—he (Maitreya Muni); *ittham*—in this way; *coditaḥ*—being agitated; *kṣattrā*—by Vidura; *tattva-jijñāsunā*—by one who was anxious to inquire to know the truth; *muniḥ*—the great sage; *pratyāha*—replied; *bhagavat-cittaḥ*—God conscious; *smayan*—wonder; *iva*—since; *gata-smayaḥ*—without hesitation.
 
 **Śrī Śukadeva Gosvāmī said: O King, Maitreya, being thus agitated by the inquisitive Vidura, at first seemed astonished, but then he replied to him without hesitation, since he was fully God conscious.**
 

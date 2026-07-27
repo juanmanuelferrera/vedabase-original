@@ -8,7 +8,7 @@
 > anvaya-vyatirekābhyāṁ\
 > yat syāt sarvatra sarvadā
 
-*etāvat*—up to this; *eva*—certainly; *jijñāsyam*—is to be inquired; *tattva*—the Absolute Truth; *jijñāsunā*—by the student; *ātmanaḥ*—of the Self; *anvaya*—directly; *vyatirekābhyām*—indirectly; *yat*—whatever; *syāt*—it may be; *sarvatra*—in all space and time; *sarvadā*—in all circumstances.
+*etāvat*—up to this; *eva*—certainly; *jijñāsyam*—is to be required; *tattva*—Absolute Truth; *jijñāsunā*—the student; *ātmanaḥ*—of the Self; *anvaya*—directly; *vyatirekābhyām*—indirectly; *yat*—whatever; *syāt*—it may be; *sarvatra*—in all space and time; *sarvadā*—in all circumstances.
 
 **A person who is searching after the Supreme Absolute Truth, the Personality of Godhead, has to search it out up to this, certainly in all circumstances, and in all space and time, and both directly and indirectly.**
 

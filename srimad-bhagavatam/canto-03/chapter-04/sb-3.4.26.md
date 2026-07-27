@@ -10,7 +10,7 @@
 > sākṣād bhagavatādiṣṭo\
 > martya-lokaṁ jihāsatā
 
-*uddhavaḥ uvāca*—Uddhava said; *nanu*—however; *te*—of yourself; *tattva-saṁrādhyaḥ*—one who is worshipable for reception of transcendental knowledge; *ṛṣiḥ*—learned scholar; *kauṣāravaḥ*—unto the son of Kuṣāru (Maitreya); *antike*—staying nearby; *sākṣāt*—directly; *bhagavatā*—by the Personality of Godhead; *ādiṣṭaḥ*—instructed; *martya-lokam*—mortal world; *jihāsatā*—while quitting.
+*uddhavaḥ uvāca*—Uddhava said; *nanu*—however; *te*—yourself; *tattva-saṁrādhyaḥ*—one who is worshipable for reception of transcendental knowledge; *ṛṣiḥ*—learned scholar; *kauṣāravaḥ*—unto the son of Kuṣāru (Maitreya); *antike*—staying nearby; *sākṣāt*—directly; *bhagavatā*—by the Personality of Godhead; *ādiṣṭaḥ*—instructed; *martya-lokam*—mortal world; *jihāsatā*—while quitting.
 
 **Śrī Uddhava said: You may take lessons from the great learned sage Maitreya, who is nearby and who is worshipable for reception of transcendental knowledge. He was directly instructed by the Personality of Godhead while He was about to quit this mortal world.**
 

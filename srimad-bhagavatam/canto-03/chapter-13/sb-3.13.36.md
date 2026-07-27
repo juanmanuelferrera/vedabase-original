@@ -8,7 +8,7 @@
 > prāśitram āsye grasane grahās tu te\
 > yac carvaṇaṁ te bhagavann agni-hotram
 
-*srak*—the plate for sacrifice; *tuṇḍe*—on the tongue; *āsīt*—there is; *sruvaḥ*—another plate for sacrifice; *īśa*—O Lord; *nāsayoḥ*—of the nostrils; *iḍā*—the plate for eating; *udare*—in the belly; *camasāḥ*—another plate for sacrifices; *karṇa-randhre*—in the holes of the ears; *prāśitram*—the plate called the Brahmā plate; *āsye*—in the mouth; *grasane*—in the throat; *grahāḥ*—the plates known as *soma* plates; *tu*—but; *te*—Your; *yat*—that which; *carvaṇam*—chewing; *te*—Your; *bhagavan*—O my Lord; *agni-hotram*—is Your eating through Your sacrificial fire.
+*srak*—the plate for sacrifice; *tuṇḍe*—on the tongue; *āsīt*—there is; *sruvaḥ*—another plate for sacrifice; *īśa*—O Lord; *nāsayoḥ*—of the nostrils; *iḍā*—the plate for eating; *udare*—in the belly; *camasāḥ*—another plate for sacrifices; *karṇa-randhre*—in the holes of the ears; *prāśitram*—the plate which is called the Brahmā plate; *āsye*—in the mouth; *grasane*—in the throat; *grahāḥ*—the plates known as *soma* plates; *tu*—but; *te*—Your; *yat*—that which; *carvaṇam*—chewing; *te*—Your; *bhagavan*—O my Lord; *agni-hotram*—is Your eating through Your sacrificial fire.
 
 **O Lord, Your tongue is the plate of sacrifice, Your nostril is another plate of sacrifice, in Your belly is the eating plate of sacrifice, and another plate of sacrifice is the holes of Your ears. In Your mouth is the Brahmā plate of sacrifice, Your throat is the plate of sacrifice known as soma, and whatever You chew is known as agni-hotra.**
 

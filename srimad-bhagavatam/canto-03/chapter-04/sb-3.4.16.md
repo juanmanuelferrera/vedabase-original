@@ -8,7 +8,7 @@
 > kālātmano yat pramadā-yutāśramaḥ\
 > svātman-rateḥ khidyati dhīr vidām iha
 
-*karmāṇi*—activities; *anīhasya*—of one who has no desire; *bhavaḥ*—birth; *abhavasya*—of one who is never born; *te*—your; *durga-āśrayaḥ*—taking shelter of the fort; *atha*—thereafter; *ari-bhayāt*—out of fear of the enemies; *palāyanam*—flee; *kāla-ātmanaḥ*—of He who is the controller of eternal time; *yat*—that; *pramadā-āyuta*—in the association of women; *āśramaḥ*—household life; *sva-ātman*—in Your own Self; *rateḥ*—one who enjoys; *khidyati*—is disturbed; *dhīḥ*—intelligence; *vidām*—of the learned; *iha*—in this world.
+*karmāṇi*—activities; *anīhasya*—of one who has no desire; *bhavaḥ*—birth; *abhavasya*—of one who is never born; *te*—your; *durga-āśrayaḥ*—taking shelter of the fort; *atha*—thereafter; *ari-bhayāt*—out of fear of the enemies; *palāyanam*—flee; *kāla-ātmanaḥ*—of He who is the controller of eternal time; *yat*—that; *pramadā-āyuta*—in the association of women; *āśramaḥ*—household life; *sva-ātman*—by Your own Self; *rateḥ*—one who enjoys; *khidyati*—disturbs; *dhīḥ*—intelligence; *vidām*—of the learned; *iha*—in this world.
 
 **My Lord, even the learned sages become disturbed in their intelligence when they see that Your Greatness engages in fruitive work although You are free from all desires, that You take birth although You are unborn, that You flee out of fear of the enemy and take shelter in a fort although You are the controller of invincible time, and that You enjoy householder life surrounded by many women although You enjoy in Your Self.**
 

@@ -8,7 +8,7 @@
 > vairāgya-sāraṁ pratilabhya bodhaṁ\
 > yathāñjasānvīyur akuṇṭha-dhiṣṇyam
 
-*pānena*—by drinking; *te*—of You; *deva*—O Lord; *kathā*—topics; *sudhāyāḥ*—of the nectar; *pravṛddha*—highly enlightened; *bhaktyā*—by devotional service; *viśada-āśayāḥ*—with a greatly serious attitude; *ye*—those who; *vairāgya-sāram*—the entire purport of renunciation; *pratilabhya*—achieving; *bodham*—intelligence; *yathā*—as much as; *añjasā*—quickly; *anvīyuḥ*—achieve; *akuṇṭha-dhiṣṇyam*—Vaikuṇṭhaloka in the spiritual sky.
+*pānena*—by drinking; *te*—of You; *deva*—O Lord; *kathā*—topics; *sudhāyāḥ*—of the nectar; *pravṛddha*—highly enlightened; *bhaktyā*—by devotional service; *viśada-āśayāḥ*—with a greatly serious attitude; *ye*—those; *vairāgya-sāram*—the entire purport of renunciation; *pratilabhya*—achieving; *bodham*—intelligence; *yathā*—as much as; *añjasā*—quickly; *anvīyuḥ*—achieve; *akuṇṭha-dhiṣṇyam*—Vaikuṇṭhaloka in the spiritual sky.
 
 **O Lord, persons who, because of their serious attitude, attain the stage of enlightened devotional service achieve the complete meaning of renunciation and knowledge and attain the Vaikuṇṭhaloka in the spiritual sky simply by drinking the nectar of Your topics.**
 

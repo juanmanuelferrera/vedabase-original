@@ -8,7 +8,7 @@
 > nirvṛtyā parayā tūrṇaṁ\
 > sampannaṁ na nivartate
 
-*evam*—thus; *bhagavataḥ*—of the Supreme Personality of Godhead; *rūpam*—form; *su-bhadram*—very auspicious; *dhyāyataḥ*—meditating; *manaḥ*—the mind; *nirvṛtyā*—being freed from all material contamination; *parayā*—transcendental; *tūrṇam*—very soon; *sampannam*—being enriched; *na*—never; *nivartate*—come down.
+*evam*—thus; *bhagavataḥ*—of the Supreme Personality of Godhead; *rūpam*—form; *su-bhadram*—very auspicious; *dhyāyataḥ*—meditating; *manaḥ*—the mind; *nirvṛtyā*—being freed from all material contamination; *parayā*—transcendental; *tūrṇam*—very soon; *sampannam*—being enriched; *na*—never; *nivartate*—do not come down.
 
 **One who meditates in this way, concentrating his mind upon the always auspicious form of the Lord, very soon is freed from all material contamination, and he does not come down from meditation upon the Lord.**
 

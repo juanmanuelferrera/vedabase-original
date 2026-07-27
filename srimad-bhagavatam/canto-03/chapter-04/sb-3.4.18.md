@@ -8,7 +8,7 @@
 > api kṣamaṁ no grahaṇāya bhartar\
 > vadāñjasā yad vṛjinaṁ tarema
 
-*jñānam*—knowledge; *param*—supreme; *sva-ātma*—own self; *rahaḥ*—mystery; *prakāśam*—enlightening; *provāca*—said; *kasmai*—unto Ka (Brahmājī); *bhagavān*—the Personality of Godhead; *samagram*—in sum total; *api*—if so; *kṣamam*—able; *naḥ*—unto me; *grahaṇāya*—acceptable; *bhartaḥ*—O my Lord; *vada*—say; *añjasā*—in detail; *yat*—that which; *vṛjinam*—miseries; *tarema*—can cross over.
+*jñānam*—knowledge; *param*—supreme; *sva-ātma*—own self; *rahaḥ*—mystery; *prakāśam*—enlightening; *provāca*—said; *kasmai*—unto Ka (Brahmājī); *bhagavān*—the Personality of Godhead; *samagram*—in sum total; *api*—if so; *kṣamam*—able; *naḥ*—unto me; *grahaṇāya*—acceptable; *bhartaḥ*—my Lord; *vada*—say; *añjasā*—in detail; *yat*—that which; *vṛjinam*—miseries; *tarema*—can cross over.
 
 **My Lord, kindly explain to us, if You think us competent to receive it, that transcendental knowledge which gives enlightenment about Yourself and which You explained before to Brahmājī.**
 

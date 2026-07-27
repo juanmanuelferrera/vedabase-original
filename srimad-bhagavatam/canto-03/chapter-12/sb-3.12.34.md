@@ -8,7 +8,7 @@
 > kathaṁ srakṣyāmy ahaṁ lokān\
 > samavetān yathā purā
 
-*kadācit*—once upon a time; *dhyāyataḥ*—while contemplating; *sraṣṭuḥ*—of Brahmā; *vedāḥ*—the Vedic literature; *āsan*—became manifested; *catuḥ-mukhāt*—from the four mouths; *katham srakṣyāmi*—how shall I create; *aham*—myself; *lokān*—all these worlds; *samavetān*—assembled; *yathā*—as they were; *purā*—in the past.
+*kadācit*—once upon a time; *dhyāyataḥ*—while contemplating; *sraṣṭuḥ*—of Brahmā; *vedāḥ*—the Vedic literature; *āsan*—became manifested; *catur-mukhāt*—from the four mouths; *katham srakṣyāmi*—how shall I create; *aham*—myself; *lokān*—all these worlds; *samavetān*—assembled; *yathā*—as they were; *purā*—in the past.
 
 **Once upon a time, when Brahmā was thinking of how to create the worlds as in the past millennium, the four Vedas, which contain all varieties of knowledge, became manifested from his four mouths.**
 

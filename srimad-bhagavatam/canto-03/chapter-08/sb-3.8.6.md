@@ -8,7 +8,7 @@
 > kirīṭa-sāhasra-maṇi-praveka-\
 > pradyotitoddāma-phaṇā-sahasram
 
-*muhuḥ*—again and again; *gṛṇantaḥ*—glorifying; *vacasā*—by words; *anurāga*—with great affection; *skhalat-padena*—with symmetrical rhythm; *asya*—of the Lord; *kṛtāni*—activities; *tat-jñāḥ*—those who know the pastimes; *kirīṭa*—helmets; *sāhasra*—thousands; *maṇi-praveka*—glowing effulgence of the valuable stones; *pradyotita*—emanating from; *uddāma*—raised; *phaṇā*—hoods; *sahasram*—thousands.
+*muhuḥ*—again and again; *gṛṇantaḥ*—glorifying; *vacasā*—by words; *anurāga*—with great affection; *skhalat-padena*—with symmetrical rhythm; *asya*—of the Lord; *kṛtāni*—activities; *tat-jñāḥ*—one who knows the pastimes; *kirīṭa*—helmets; *sāhasra*—thousands; *maṇi-praveka*—glowing effulgence of the valuable stones; *pradyotita*—emanating from; *uddāma*—raised; *phaṇā*—hoods; *sahasram*—thousands.
 
 **The four Kumāras, headed by Sanat-kumāra, who all knew the transcendental pastimes of the Lord, glorified the Lord in rhythmic accents with selected words full of affection and love. At that time Lord Saṅkarṣaṇa, with His thousands of raised hoods, began to radiate an effulgence from the glowing stones on His head.**
 

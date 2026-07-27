@@ -8,7 +8,7 @@
 > pravartaye bhāgavataṁ purāṇaṁ\
 > yad āha sākṣād bhagavān ṛṣibhyaḥ
 
-*saḥ*—that; *aham*—I; *nṛṇām*—of the human being; *kṣulla*—very little; *sukhāya*—for happiness; *duḥkham*—distress; *mahat*—great; *gatānām*—entered into; *viramāya*—for mitigation; *tasya*—his; *pravartaye*—in beginning; *bhāgavatam*—*Śrīmad-Bhāgavatam*; *purāṇam*—Vedic supplement; *yat*—which; *āha*—said; *sākṣāt*—directly; *bhagavān*—the Personality of Godhead; *ṛṣibhyaḥ*—unto the sages.
+*saḥ*—that; *aham*—I; *nṛṇām*—of the human being; *kṣulla*—very little; *sukhāya*—for happiness; *duḥkham*—distress; *mahat*—great; *gatānām*—entered into; *viramāya*—for mitigation; *tasya*—his; *pravartaye*—shall begin; *bhāgavatam*—*Śrīmad-Bhāgavatam*; *purāṇam*—Vedic supplement; *yat*—which; *āha*—said; *sākṣāt*—directly; *bhagavān*—the Personality of Godhead; *ṛṣibhyaḥ*—unto the sages.
 
 **Let me now begin speaking on the Bhāgavata Purāṇa, which was directly spoken to the great sages by the Personality of Godhead for the benefit of those who are entangled in extreme miseries for the sake of very little pleasure.**
 

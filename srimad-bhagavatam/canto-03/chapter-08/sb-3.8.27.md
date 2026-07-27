@@ -8,7 +8,7 @@
 > śoṇāyitenādhara-bimba-bhāsā\
 > pratyarhayantaṁ sunasena subhrvā
 
-*mukhena*—by a gesture of the face; *loka-ārti-hara*—vanquisher of the distress of the devotees; *smitena*—by smiling; *parisphurat*—dazzling; *kuṇḍala*—earrings; *maṇḍitena*—decorated with; *śoṇāyitena*—acknowledging; *adhara*—of His lips; *bimba*—reflection; *bhāsā*—rays; *pratyarhayantam*—reciprocating; *su-nasena*—by His pleasing nose; *su-bhrvā*—and pleasing eyebrows.
+*mukhena*—by a gesture of the face; *loka-ārti-hara*—vanquisher of distress of the devotees; *smitena*—by smiling; *parisphurat*—dazzling; *kuṇḍala*—earrings; *maṇḍitena*—decorated with; *śoṇāyitena*—acknowledging; *adhara*—lips; *bimba*—reflection; *bhāsā*—rays; *pratyarhayantam*—reciprocating; *su-nasena*—by His pleasing nose; *su-bhrvā*—and pleasing eyebrows.
 
 **He also acknowledged the service of the devotees by His beautiful smile. The reflection of His face was so pleasing because it dazzled with the rays from His earrings and the beauty of His nose and eyebrows.**
 

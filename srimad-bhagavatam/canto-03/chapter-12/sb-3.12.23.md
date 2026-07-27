@@ -8,7 +8,7 @@
 > prāṇād vasiṣṭhaḥ sañjāto\
 > bhṛgus tvaci karāt kratuḥ
 
-*utsaṅgāt*—by transcendental deliberation; *nāradaḥ*—Mahāmuni Nārada; *jajñe*—was generated; *dakṣaḥ*—Dakṣa; *aṅguṣṭhāt*—from the thumb; *svayambhuvaḥ*—of Brahmā; *prāṇāt*—from the life air, or breathing; *vasiṣṭhaḥ*—Vasiṣṭha; *sañjātaḥ*—was born; *bhṛguḥ*—the sage Bhṛgu; *tvaci*—from the touch; *karāt*—from the hand; *kratuḥ*—the sage Kratu.
+*utsaṅgāt*—by transcendental deliberation; *nāradaḥ*—Mahāmuni Nārada; *jajñe*—generated; *dakṣaḥ*—Dakṣa; *aṅguṣṭhāt*—from the thumb; *svayambhuvaḥ*—of Brahmā; *prāṇāt*—from the life air, or breathing; *vasiṣṭhaḥ*—Vasiṣṭha; *sañjātaḥ*—was born; *bhṛguḥ*—the sage Bhṛgu; *tvaci*—from the touch; *karāt*—from the hand; *kratuḥ*—the sage Kratu.
 
 **Nārada was born from the deliberation of Brahmā, which is the best part of his body. Vasiṣṭha was born from his breathing, Dakṣa from a thumb, Bhṛgu from his touch, and Kratu from his hand.**
 

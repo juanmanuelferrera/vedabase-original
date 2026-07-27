@@ -8,7 +8,7 @@
 > uddhariṣyann upādatta\
 > yajñeśaḥ saukaraṁ vapuḥ
 
-*dvitīyam*—the second; *tu*—but; *bhavāya*—for welfare; *asya*—of this earth; *rasātala*—of the lowest region; *gatām*—having gone; *mahīm*—the earth; *uddhariṣyan*—lifting; *upādatta*—established; *yajñeśaḥ*—the proprietor or the supreme enjoyer; *saukaram*—hoggish; *vapuḥ*—incarnation.
+*dvitīyam*—the second; *tu*—but; *bhavāya*—for welfare; *asya*—of this earth; *rasātala*—the lowest; *gatām*—having gone; *mahīm*—the earth; *uddhariṣyan*—lifting; *upādatta*—established; *yajñeśaḥ*—the proprietor or the supreme enjoyer; *saukaram*—hoggish; *vapuḥ*—incarnation.
 
 **The supreme enjoyer of all sacrifices accepted the incarnation of a boar [the second incarnation], and for the welfare of the earth He lifted the earth up from the nether regions of the universe.**
 

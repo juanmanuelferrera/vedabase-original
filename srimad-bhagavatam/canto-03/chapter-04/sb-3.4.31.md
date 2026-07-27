@@ -8,7 +8,7 @@
 > ato mad-vayunaṁ lokaṁ\
 > grāhayann iha tiṣṭhatu
 
-*na*—not; *uddhavaḥ*—Uddhava; *aṇu*—slightly; *api*—also; *mat*—to Myself; *nyūnaḥ*—inferior; *yat*—because; *guṇaiḥ*—by the modes of material nature; *na*—nor; *arditaḥ*—affected; *prabhuḥ*—master; *ataḥ*—therefore; *mat-vayunam*—knowledge of Me (the Personality of Godhead); *lokam*—the world; *grāhayan*—just to disseminate; *iha*—in this world; *tiṣṭhatu*—may remain.
+*na*—not; *uddhavaḥ*—Uddhava; *aṇu*—slightly; *api*—also; *mat*—Myself; *nyūnaḥ*—inferior; *yat*—because; *guṇaiḥ*—by the modes of material nature; *na*—nor; *arditaḥ*—affected; *prabhuḥ*—master; *ataḥ*—therefore; *mat-vayunam*—knowledge of Me (the Personality of Godhead); *lokam*—the world; *grāhayan*—just to disseminate; *iha*—in this world; *tiṣṭhatu*—may remain.
 
 **Uddhava is not inferior to Me in any way because he is never affected by the modes of material nature. Therefore he may remain in this world in order to disseminate specific knowledge of the Personality of Godhead.**
 

@@ -8,7 +8,7 @@
 > praviṣṭāny apraviṣṭāni\
 > tathā teṣu na teṣv aham
 
-*yathā*—just as; *mahānti*—the universal; *bhūtāni*—elements; *bhūteṣu ucca-avaceṣu*—in the minute and gigantic; *anu*—after; *praviṣṭāni*—entered; *apraviṣṭāni*—not entered; *tathā*—so; *teṣu*—in them; *na*—not; *teṣu*—in them; *aham*—Myself.
+*yathā*—just as; *mahānti*—the universal; *bhūtāni*—elements; *bhūteṣu ucca-avaceṣu*—in the minute and gigantic; *anu*—after; *praviṣṭāni*—entered; *apraviṣṭāni*—not entered; *tathā*—so much so; *teṣu*—in them; *na*—not; *teṣu*—in them; *aham*—Myself.
 
 **O Brahmā, please know that the universal elements enter into the cosmos and at the same time do not enter into the cosmos; similarly, I Myself also exist within everything created, and at the same time I am outside of everything.**
 

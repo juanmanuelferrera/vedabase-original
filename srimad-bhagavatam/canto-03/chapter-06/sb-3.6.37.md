@@ -8,7 +8,7 @@
 > śruteś ca vidvadbhir upākṛtāyāṁ\
 > kathā-sudhāyām upasamprayogam
 
-*eka-anta*—the one which has no comparison; *lābham*—gain; *vacasaḥ*—by discussions; *nu puṁsām*—after the Supreme Person; *suśloka*—pious; *mauleḥ*—activities; *guṇa-vādam*—glorification; *āhuḥ*—it is so said; *śruteḥ*—of the ear; *ca*—also; *vidvadbhiḥ*—by the learned; *upākṛtāyām*—being so edited; *kathā-sudhāyām*—in the nectar of such a transcendental message; *upasamprayogam*—serves the real purpose, being nearer to.
+*ekānta*—the one which has no comparison; *lābham*—gain; *vacasaḥ*—by discussions; *nu puṁsām*—after the Supreme Person; *suśloka*—pious; *mauleḥ*—activities; *guṇa-vādam*—glorification; *āhuḥ*—it is so said; *śruteḥ*—of the ear; *ca*—also; *vidvadbhiḥ*—by the learned; *upākṛtāyām*—being so edited; *kathā-sudhāyām*—in the nectar of such a transcendental message; *upasamprayogam*—serves the real purpose, being nearer to.
 
 **The highest perfectional gain of humanity is to engage in discussions of the activities and glories of the Pious Actor. Such activities are so nicely arranged in writing by the greatly learned sages that the actual purpose of the ear is served just by being near them.**
 

@@ -8,7 +8,7 @@
 > jitaṁ jitaṁ sthānam apohya dhārayet\
 > paraṁ paraṁ śuddhyati dhīr yathā yathā
 
-*eka-ekaśaḥ*—one to one, or one after another; *aṅgāni*—limbs; *dhiyā*—by attention; *anubhāvayet*—meditate upon; *pāda-ādi*—legs, etc.; *yāvat*—until; *hasitam*—smiling; *gadā-bhṛtaḥ*—the Personality of Godhead; *jitam jitam*—gradually controlling the mind; *sthānam*—place; *apohya*—leaving; *dhārayet*—meditate upon; *param param*—higher and higher; *śuddhyati*—purified; *dhīḥ*—intelligence; *yathā yathā*—as much as.
+*ekaikaśaḥ*—one to one, or one after another; *aṅgāni*—limbs; *dhiyā*—by attention; *anubhāvayet*—meditate upon; *pāda-ādi*—legs, etc.; *yāvat*—until; *hasitam*—smiling; *gadā-bhṛtaḥ*—the Personality of Godhead; *jitam jitam*—gradually controlling the mind; *sthānam*—place; *apohya*—leaving; *dhārayet*—meditate upon; *param param*—higher and higher; *śuddhyati*—purified; *dhīḥ*—intelligence; *yathā yathā*—as much as.
 
 **The process of meditation should begin from the lotus feet of the Lord and progress to His smiling face. The meditation should be concentrated upon the lotus feet, then the calves, then the thighs, and in this way higher and higher. The more the mind becomes fixed upon the different parts of the limbs, one after another, the more the intelligence becomes purified.**
 

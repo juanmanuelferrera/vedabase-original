@@ -8,7 +8,7 @@
 > sanat-kumārāya sa cāha pṛṣṭaḥ\
 > sāṅkhyāyanāyāṅga dhṛta-vratāya
 
-*proktam*—was said; *kila*—certainly; *etat*—this; *bhagavattamena*—by Lord Saṅkarṣaṇa; *nivṛtti*—renunciation; *dharma-abhiratāya*—unto one who has taken this religious vow; *tena*—by Him; *sanat-kumārāya*—unto Sanat-kumāra; *saḥ*—he; *ca*—also; *āha*—said; *pṛṣṭaḥ*—when inquired of; *sāṅkhyāyanāya*—unto the great sage Sāṅkhyāyana; *aṅga*—my dear Vidura; *dhṛta-vratāya*—unto one who has taken such a vow.
+*proktam*—was said; *kila*—certainly; *etat*—this; *bhagavattamena*—by Lord Saṅkarṣaṇa; *nivṛtti*—renunciation; *dharma-abhiratāya*—unto one who has taken this religious vow; *tena*—unto him; *sanat-kumārāya*—unto Sanat-kumāra; *saḥ*—he; *ca*—also; *āha*—said; *pṛṣṭaḥ*—when inquired of; *sāṅkhyāyanāya*—unto the great sage Sāṅkhyāyana; *aṅga*—my dear Vidura; *dhṛta-vratāya*—unto one who has taken such a vow.
 
 **Lord Saṅkarṣaṇa thus spoke the purport of Śrīmad-Bhāgavatam to the great sage Sanat-kumāra, who had already taken the vow of renunciation. Sanat-kumāra also, in his turn, when inquired of by Sāṅkhyāyana Muni, explained Śrīmad-Bhāgavatam as he had heard it from Saṅkarṣaṇa.**
 

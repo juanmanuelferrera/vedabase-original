@@ -8,7 +8,7 @@
 > khārkāra-rabhasā mattāḥ\
 > paryadhāvan varūthaśaḥ
 
-*kharāḥ*—asses; *ca*—and; *karkaśaiḥ*—hard; *kṣattaḥ*—O Vidura; *khuraiḥ*—with their hooves; *ghnantaḥ*—striking; *dharā-talam*—the surface of the earth; *khāḥ-kāra*—braying; *rabhasāḥ*—wildly engaged in; *mattāḥ*—mad; *paryadhāvan*—ran hither and thither; *varūthaśaḥ*—in herds.
+*kharāḥ*—asses; *ca*—and; *karkaśaiḥ*—hard; *kṣattaḥ*—O Vidura; *khuraiḥ*—with their hoofs; *ghnantaḥ*—striking; *dharā-talam*—the surface of the earth; *khār-kāra*—braying; *rabhasāḥ*—wildly engaged in; *mattāḥ*—mad; *paryadhāvan*—ran hither and thither; *varūthaśaḥ*—in herds.
 
 **O Vidura, the asses ran hither and thither in herds, striking the earth with their hard hoofs and wildly braying.**
 

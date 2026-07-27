@@ -8,7 +8,7 @@
 > muktir hitvānyathā rūpaṁ\
 > sva-rūpeṇa vyavasthitiḥ
 
-*nirodhaḥ*—the winding up of the cosmic manifestation; *asya*—of His; *anuśayanam*—the lying down of the *puruṣa* incarnation Mahā-Viṣṇu in mystic slumber; *ātmanaḥ*—of the living entities; *saha*—along with; *śaktibhiḥ*—with the energies; *muktiḥ*—liberation; *hitvā*—giving up; *anyathā*—otherwise; *rūpam*—form; *sva-rūpeṇa*—in constitutional form; *vyavasthitiḥ*—permanent situation.
+*nirodhaḥ*—winding up of the cosmic manifestation; *asya*—of His; *anuśayanam*—lying down of the *puruṣa* incarnation Mahā-Viṣṇu in mystic slumber; *ātmanaḥ*—of the living entities; *saha*—along with; *śaktibhiḥ*—with the energies; *muktiḥ*—liberation; *hitvā*—giving up; *anyathā*—otherwise; *rūpam*—form; *sva-rūpeṇa*—in constitutional form; *vyavasthitiḥ*—permanent situation.
 
 **When the living entity, along with his conditional living tendency, merges with the mystic lying down of the Mahā-Viṣṇu, it is called the winding up of the cosmic manifestation. Liberation is the permanent situation of the form of the living entity after giving up the changeable material gross and subtle bodies.**
 

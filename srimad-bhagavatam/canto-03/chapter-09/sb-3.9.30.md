@@ -8,7 +8,7 @@
 > tābhyām antar-hṛdi brahman\
 > lokān drakṣyasy apāvṛtān
 
-*bhūyaḥ*—again; *tvam*—yourself; *tapaḥ*—penance; *ātiṣṭha*—be situated; *vidyām*—in the knowledge; *ca*—also; *eva*—certainly; *mat*—My; *āśrayām*—under the protection; *tābhyām*—by those qualifications; *antaḥ*—within; *hṛdi*—in the heart; *brahman*—O *brāhmaṇa*; *lokān*—all the worlds; *drakṣyasi*—you will see; *apāvṛtān*—all disclosed.
+*bhūyaḥ*—again; *tvam*—yourself; *tapaḥ*—penance; *ātiṣṭha*—be situated; *vidyām*—in the knowledge; *ca*—also; *eva*—certainly; *mat*—My; *āśrayām*—under the protection; *tābhyām*—by those qualifications; *antaḥ*—within; *hṛdi*—in the heart; *brahman*—O *brāhmaṇa*; *lokān*—all the worlds; *drakṣyasi*—you can see; *apāvṛtān*—all disclosed.
 
 **O Brahmā, situate yourself in penance and meditation and follow the principles of knowledge to receive My favor. By these actions you will be able to understand everything from within your heart.**
 

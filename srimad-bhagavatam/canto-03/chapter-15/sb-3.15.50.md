@@ -10,7 +10,7 @@
 > tasmā idaṁ bhagavate nama id vidhema\
 > yo 'nātmanāṁ durudayo bhagavān pratītaḥ
 
-*prāduścakartha*—You have manifested; *yat*—which; *idam*—this; *puruhūta*—O greatly worshiped; *rūpam*—eternal form; *tena*—by that form; *īśa*—O Lord; *nirvṛtim*—satisfaction; *avāpuḥ*—obtained; *alam*—so much; *dṛśaḥ*—vision; *naḥ*—our; *tasmai*—unto Him; *idam*—this; *bhagavate*—unto the Supreme Personality of Godhead; *namaḥ*—obeisances; *it*—only; *vidhema*—let us offer; *yaḥ*—who; *anātmanām*—of those who are less intelligent; *durudayaḥ*—cannot be seen; *bhagavān*—the Supreme Personality of Godhead; *pratītaḥ*—has been seen by us.
+*prāduścakartha*—You have manifested; *yat*—which; *idam*—this; *puruhūta*—greatly worshiped; *rūpam*—eternal form; *tena*—by that form; *īśa*—O Lord; *nirvṛtim*—satisfaction; *avāpuḥ*—obtained; *alam*—so much; *dṛśaḥ*—vision; *naḥ*—our; *tasmai*—unto Him; *idam*—this; *bhagavate*—unto the Supreme Personality of Godhead; *namaḥ*—obeisances; *it*—only; *vidhema*—let us offer; *yaḥ*—who; *anātmanām*—of those who are less intelligent; *durudayaḥ*—cannot be seen; *bhagavān*—the Supreme Personality of Godhead; *pratītaḥ*—has been seen by us.
 
 **O Lord, we therefore offer our respectful obeisances unto Your eternal form as the Personality of Godhead, which You have so kindly manifested before us. Your supreme, eternal form cannot be seen by unfortunate, less intelligent persons, but we are so much satisfied in our mind and vision to see it.**
 

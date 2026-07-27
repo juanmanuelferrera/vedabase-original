@@ -10,7 +10,7 @@
 > katham enāṁ samunneṣya\
 > iti dadhyau dhiyā ciram
 
-*maitreyaḥ uvāca*—Śrī Maitreya Muni said; *parameṣṭhī*—Brahmā; *tu*—also; *apām*—the water; *madhye*—within; *tathā*—thus; *sannām*—situated; *avekṣya*—seeing; *gām*—the earth; *katham*—how; *enām*—this; *samunneṣye*—I shall lift; *iti*—thus; *dadhyau*—gave attention; *dhiyā*—by intelligence; *ciram*—for a long time.
+*maitreyaḥ uvāca*—Śrī Maitreya Muni said; *parameṣṭhī*—Brahmā; *tu*—also; *apām*—the water; *madhye*—within; *tathā*—thus; *sannām*—situated; *avekṣya*—seeing; *gām*—the earth; *katham*—how; *enām*—this; *samunneṣye*—I will lift; *iti*—thus; *dadhyau*—gave attention; *dhiyā*—by intelligence; *ciram*—for a long time.
 
 **Śrī Maitreya said: Thus, seeing the earth merged in the water, Brahmā gave his attention for a long time to how it could be lifted.**
 

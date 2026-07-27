@@ -8,7 +8,7 @@
 > jaitraṁ syandanam āsthāya\
 > gataḥ puṇya-janālayam
 
-*dhruvaḥ*—Dhruva Mahārāja; *bhrātṛ-vadham*—the killing of his brother; *śrutvā*—hearing this news; *kopa*—anger; *amarṣa*—vengeance; *śucā*—lamentation; *arpitaḥ*—being filled with; *jaitram*—victorious; *syandanam*—chariot; *āsthāya*—getting on; *gataḥ*—went; *puṇya-jana-ālayam*—to the city of the Yakṣas.
+*dhruvaḥ*—Dhruva Mahārāja; *bhrātṛ-vadham*—killing of his brother; *śrutvā*—hearing this news; *kopa*—anger; *amarṣa*—vengeance; *śucā*—lamentation; *arpitaḥ*—being filled with; *jaitram*—victorious; *syandanam*—chariot; *āsthāya*—getting on; *gataḥ*—went; *puṇya-jana-ālayam*—to the city of the Yakṣas.
 
 **When Dhruva Mahārāja heard of the killing of his brother Uttama by the Yakṣas in the Himalayan Mountains, being overwhelmed with lamentation and anger, he got on his chariot and went for victory over the city of the Yakṣas, Alakāpurī.**
 

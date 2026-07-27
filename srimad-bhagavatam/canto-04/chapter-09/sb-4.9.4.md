@@ -8,7 +8,7 @@
 > kṛtāñjaliṁ brahmamayena kambunā\
 > pasparśa bālaṁ kṛpayā kapole
 
-*saḥ*—the Supreme Personality of Godhead; *tam*—Dhruva Mahārāja; *vivakṣantam*—wanting to offer prayers describing His qualities; *a-tat-vidam*—not experienced at that; *hariḥ*—the Personality of Godhead; *jñātvā*—having understood; *asya*—of Dhruva Mahārāja; *sarvasya*—of everyone; *ca*—and; *hṛdi*—in the heart; *avasthitaḥ*—being situated; *kṛta-añjalim*—situated with folded hands; *brahma-mayena*—just consistent with the words of the Vedic hymns; *kambunā*—with His conchshell; *pasparśa*—touched; *bālam*—the boy; *kṛpayā*—out of causeless mercy; *kapole*—on the forehead.
+*saḥ*—the Supreme Personality of Godhead; *tam*—Dhruva Mahārāja; *vivakṣantam*—wanting to offer prayers describing His qualities; *a-tat-vidam*—not experienced at that; *hariḥ*—the Personality of Godhead; *jñātvā*—having understood; *asya*—of Dhruva Mahārāja; *sarvasya*—of everyone; *ca*—and; *hṛdi*—in the heart; *avasthitaḥ*—being situated; *kṛta-añjalim*—situated with folded hands; *brahma-mayena*—just up to the words of the Vedic hymns; *kambunā*—with His conchshell; *pasparśa*—touched; *bālam*—the boy; *kṛpayā*—out of causeless mercy; *kapole*—on the forehead.
 
 **Although Dhruva Mahārāja was a small boy, still he wanted to offer prayers to the Supreme Personality of Godhead in suitable language. But because he was inexperienced, he could not adjust himself immediately. The Supreme Personality of Godhead, being situated in everyone's heart, could understand Dhruva Mahārāja's awkward position. Out of His causeless mercy He touched His conchshell to the forehead of Dhruva Mahārāja, who stood before Him with folded hands.**
 

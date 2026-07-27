@@ -15,7 +15,7 @@
 > tam āhāgādhayā vācā\
 > kaśmalaṁ śamayann iva
 
-*atha*—thereupon; *abhipretam*—intention; *anvīkṣya*—observing; *brahmaṇaḥ*—of Brahmā; *madhusūdanaḥ*—the killer of the Madhu demon; *viṣaṇṇa*—depressed; *cetasam*—of the heart; *tena*—by him; *kalpa*—millennium; *vyatikara-ambhasā*—devastating water; *loka-saṁsthāna*—situation of the planetary system; *vijñāne*—in the science; *ātmanaḥ*—of himself; *parikhidyataḥ*—sufficiently anxious; *tam*—unto him; *āha*—said; *agādhayā*—deeply thoughtful; *vācā*—by words; *kaśmalam*—impurities; *śamayan*—removing; *iva*—like that.
+*atha*—thereupon; *abhipretam*—intention; *anvīkṣya*—observing; *brahmaṇaḥ*—of Brahmā; *madhusūdanaḥ*—the killer of the Madhu demon; *viṣaṇṇa*—depressed; *cetasam*—of the heart; *tena*—by him; *kalpa*—millennium; *vyatikara-ambhasā*—devastating water; *loka-saṁsthāna*—situation of the planetary system; *vijñāne*—science; *ātmanaḥ*—of himself; *parikhidyataḥ*—sufficiently anxious; *tam*—unto him; *āha*—said; *agādhayā*—deeply thoughtful; *vācā*—by words; *kaśmalam*—impurities; *śamayan*—removing; *iva*—like that.
 
 **The Lord saw that Brahmā was very anxious about the planning and construction of the different planetary systems and was depressed upon seeing the devastating water. He could understand the intention of Brahmā, and thus He spoke in deep, thoughtful words, removing all the illusion that had arisen.**
 

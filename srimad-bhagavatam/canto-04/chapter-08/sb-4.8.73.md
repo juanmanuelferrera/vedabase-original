@@ -8,6 +8,6 @@
 > tṛṇa-parṇādibhiḥ śīrṇaiḥ\
 > kṛtānno 'bhyarcayan vibhum
 
-*dvitīyam*—the next month; *ca*—also; *tathā*—as mentioned above; *māsam*—month; *ṣaṣṭhe ṣaṣṭhe*—every sixth day; *arbhakaḥ*—the innocent boy; *dine*—on days; *tṛṇa-parṇa-ādibhiḥ*—by grasses and leaves; *śīrṇaiḥ*—which were dry; *kṛta-annaḥ*—made for his food; *abhyarcayan*—and thus continued his method of worship; *vibhum*—for the Supreme Personality of Godhead.
+*dvitīyam*—next month; *ca*—also; *tathā*—as mentioned above; *māsam*—month; *ṣaṣṭhe ṣaṣṭhe*—every sixth day; *arbhakaḥ*—the innocent boy; *dine*—on days; *tṛṇa-parṇa-ādibhiḥ*—by grasses and leaves; *śīrṇaiḥ*—which were dry; *kṛta-annaḥ*—made for his food; *abhyarcayan*—and thus continued his method of worship; *vibhum*—for the Supreme Personality of Godhead.
 
 **In the second month Dhruva Mahārāja ate only every six days, and for his eatables he took dry grass and leaves. Thus he continued his worship.**

@@ -6,6 +6,6 @@
 > dugdha āuṭi' dadhi mathe tomāra gopī-gaṇe\
 > āmāra ṭhākurāṇī vaise ratna-siṁhāsane
 
-*dugdha āuṭi'*—boiling milk; *dadhi*—into yogurt; *mathe*—churn; *tomāra*—your; *gopī-gaṇe*—*gopīs*; *āmāra*—my; *ṭhākurāṇī*—mistress; *vaise*—sits down; *ratna-siṁhāsane*—on a throne of gems.
+*dugdha āuṭi'*—boiling milk; *dadhi*—into yogurt; *mathe*—chum; *tomāra*—your; *gopī-gaṇe*—*gopīs*; *āmāra*—my; *ṭhākurāṇī*—mistress; *vaise*—sits down; *ratna-siṁhāsane*—on a throne of gems.
 
 **Śrīvāsa Ṭhākura continued to address Svarūpa Dāmodara: "Your gopīs are engaged in boiling milk and churning it to turn it into yogurt, but my mistress, the goddess of fortune, sits on a throne made of jewels and gems."**

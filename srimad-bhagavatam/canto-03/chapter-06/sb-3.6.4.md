@@ -8,7 +8,7 @@
 > prerito 'janayat svābhir\
 > mātrābhir adhipūruṣam
 
-*prabuddha*—awakened; *karmā*—activities; *daivena*—by the will of the Supreme; *trayaḥ-viṁśatikaḥ*—by the twenty-three principal ingredients; *gaṇaḥ*—the combination; *preritaḥ*—induced by; *ajanayat*—manifested; *svābhiḥ*—by His personal; *mātrābhiḥ*—plenary expansion; *adhipūruṣam*—the gigantic universal form (*viśva-rūpa*).
+*prabuddha*—awakened; *karmā*—activities; *daivena*—by the will of the Supreme; *trayaḥ-viṁśatikaḥ*—by the twenty-three principal ingredients; *gaṇaḥ*—combination; *preritaḥ*—induced by; *ajanayat*—manifested; *svābhiḥ*—by His personal; *mātrābhiḥ*—by plenary expansion; *adhipūruṣam*—the gigantic universal form (*viśva-rūpa*).
 
 **When the twenty-three principal elements were set in action by the will of the Supreme, the gigantic universal form, or the viśva-rūpa body of the Lord, came into existence.**
 

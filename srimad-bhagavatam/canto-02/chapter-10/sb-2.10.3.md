@@ -8,7 +8,7 @@
 > brahmaṇo guṇa-vaiṣamyād\
 > visargaḥ pauruṣaḥ smṛtaḥ
 
-*bhūta*—the five gross elements (the sky, etc.); *mātrā*—objects perceived by the senses; *indriya*—the senses; *dhiyām*—of the mind; *janma*—creation; *sargaḥ*—manifestation; *udāhṛtaḥ*—is called the creation; *brahmaṇaḥ*—of Brahmā, the first *puruṣa*; *guṇa-vaiṣamyāt*—by interaction of the three modes of nature; *visargaḥ*—re-creation; *pauruṣaḥ*—resultant activities; *smṛtaḥ*—it is so known.
+*bhūta*—the five gross elements like the sky, etc.; *mātrā*—objects perceived by the senses; *indriya*—the senses; *dhiyām*—of the mind; *janma*—creation; *sargaḥ*—manifestation; *udāhṛtaḥ*—is called the creation; *brahmaṇaḥ*—of Brahmā, the first *puruṣa*; *guṇa-vaiṣamyāt*—by interaction of the three modes of nature; *visargaḥ*—re-creation; *pauruṣaḥ*—resultant activities; *smṛtaḥ*—it is so known.
 
 **The elementary creation of sixteen items of matter—namely the five elements [fire, water, land, air and sky], sound, form, taste, smell, touch, eyes, ears, nose, tongue, skin and mind—is known as sarga, whereas subsequent resultant interaction of the modes of material nature is called visarga.**
 

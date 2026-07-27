@@ -8,7 +8,7 @@
 > tathaiva tattva-vijñānam\
 > astu te mad-anugrahāt
 
-*yāvān*—as I am in eternal form; *aham*—Myself; *yathā*—as much as; *bhāvaḥ*—transcendental existence; *yat*—those; *rūpa*—various forms and colors; *guṇa*—qualities; *karmakaḥ*—activities; *tathā*—so and so; *eva*—certainly; *tattva-vijñānam*—factual realization; *astu*—let it be; *te*—unto you; *mat*—My; *anugrahāt*—by causeless mercy.
+*yāvān*—as I am in eternal form; *aham*—Myself; *yathā*—as much as; *bhāvaḥ*—transcendental existence; *yat*—those; *rūpa*—various forms and colors; *guṇa*—qualities; *karmakaḥ*—activities; *tathā*—so and so; *eva*—certainly; *tattva-vijñānam*—factual realization; *astu*—let it be unto you; *te*—unto you; *mat*—My; *anugrahāt*—by causeless mercy.
 
 **All of Me, namely My actual eternal form, My transcendental existence, color, qualities and activities—let all be awakened within you by factual realization, out of My causeless mercy.**
 

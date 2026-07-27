@@ -8,7 +8,7 @@
 > rudann iva hasan mugdha-\
 > bāla-siṁhāvalokanaḥ
 
-*kaumārīm*—just suitable to childhood; *darśayan*—while showing; *ceṣṭām*—activities; *prekṣaṇīyām*—worthy to be seen; *vraja-okasām*—by the inhabitants of the land of Vṛndāvana; *rudan*—crying; *iva*—just like; *hasan*—laughing; *mugdha*—struck with wonder; *bāla-siṁha*—lion cub; *avalokanaḥ*—looking like that.
+*kaumārīm*—just suitable to childhood; *darśayan*—used to show; *ceṣṭām*—activities; *prekṣaṇīyām*—worthy to be seen; *vraja-okasām*—by the inhabitants of the land of Vṛndāvana; *rudan*—crying; *iva*—just like; *hasan*—laughing; *mugdha*—struck with wonder; *bāla-siṁha*—lion cub; *avalokanaḥ*—looking like that.
 
 **When the Lord displayed His activities just suitable for childhood, He was only visible to the residents of Vṛndāvana. Sometimes He would cry and sometimes laugh, just like a child, and while so doing He would appear like a lion cub.**
 

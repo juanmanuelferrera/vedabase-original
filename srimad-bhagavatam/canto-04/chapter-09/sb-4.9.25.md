@@ -8,7 +8,7 @@
 > upariṣṭād ṛṣibhyas tvaṁ\
 > yato nāvartate gataḥ
 
-*tataḥ*—thereafter; *gantā asi*—you will go; *mat-sthānam*—to My abode; *sarva-loka*—by all planetary systems; *namaḥ-kṛtam*—offered obeisances; *upariṣṭāt*—situated higher; *ṛṣibhyaḥ*—than the planetary systems of the *ṛṣis*; *tvam*—you; *yataḥ*—wherefrom; *na*—never; *āvartate*—will come back; *gataḥ*—having gone there.
+*tataḥ*—thereafter; *gantā asi*—you will go; *mat-sthānam*—to My abode; *sarva-loka*—by all planetary systems; *namaḥ-kṛtam*—offered obeisances to; *upariṣṭāt*—situated higher; *ṛṣibhyaḥ*—than the planetary systems of the *ṛṣis*; *tvam*—you; *yataḥ*—wherefrom; *na*—never; *āvartate*—will come back; *gataḥ*—having gone there.
 
 **The Personality of Godhead continued: My dear Dhruva, after your material life in this body, you will go to My planet, which is always offered obeisances by the residents of all other planetary systems. It is situated above the planets of the seven ṛṣis, and when you go there you will never have to come back again to this material world.**
 

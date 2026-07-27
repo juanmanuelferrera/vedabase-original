@@ -8,7 +8,7 @@
 > sa sva-dṛg bhagavān yasya\
 > toṣyate 'nanyayā dṛśā
 
-*yat*—by whose; *prasādāt*—mercy of; *idam*—this; *viśvam*—universe; *prasīdati*—becomes happy; *yat*—whose; *ātmakam*—because of His omnipotence; *saḥ*—He; *sva-dṛk*—taking special care for His devotees; *bhagavān*—the Supreme Personality of Godhead; *yasya*—whose; *toṣyate*—becomes pleased; *ananyayā*—without deviation; *dṛśā*—by intelligence.
+*yat*—by whose; *prasādāt*—mercy of; *idam*—this; *viśvam*—universe; *prasīdati*—becomes happy; *yat*—whose; *ātmakam*—because of His omnipotency; *saḥ*—He; *sva-dṛk*—taking special care for His devotees; *bhagavān*—the Supreme Personality of Godhead; *yasya*—whose; *toṣyate*—becomes pleased; *ananyayā*—without deviation; *dṛśā*—by intelligence.
 
 **Everyone will be pleased with him because the Personality of Godhead, the supreme controller of the universe, is always satisfied with a devotee who does not wish for anything beyond Him.**
 

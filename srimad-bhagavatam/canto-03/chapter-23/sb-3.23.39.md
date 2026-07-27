@@ -10,7 +10,7 @@
 > siddhair nuto dyudhuni-pāta-śiva-svanāsu\
 > reme ciraṁ dhanadaval-lalanā-varūthī
 
-*tena*—by that airplane; *aṣṭa-loka-pa*—of the predominating deities of the eight heavenly planets; *vihāra*—the pleasure grounds; *kula-acala-indra*—of the king of the mountains (Meru); *droṇīṣu*—in the valleys; *anaṅga*—of passion; *sakha*—the companions; *māruta*—with breezes; *saubhagāsu*—beautiful; *siddhaiḥ*—by the Siddhas; *nutaḥ*—being praised; *dyu-dhuni*—of the Ganges; *pāta*—of the downfall; *śiva-svanāsu*—vibrating with auspicious sounds; *reme*—he enjoyed; *ciram*—for a long time; *dhanada-vat*—like Kuvera; *lalanā*—by damsels; *varūthī*—surrounded.
+*tena*—by that airplane; *aṣṭa-loka-pa*—of the predominating deities of the eight heavenly planets; *vihāra*—the pleasure grounds; *kula-acala-indra*—of the king of mountains (Meru); *droṇīṣu*—in the valleys; *anaṅga*—of passion; *sakha*—the companions; *māruta*—with breezes; *saubhagāsu*—beautiful; *siddhaiḥ*—by the Siddhas; *nutaḥ*—being praised; *dyu-dhuni*—of the Ganges; *pāta*—of the downfall; *śiva-svanāsu*—vibrating with auspicious sounds; *reme*—he enjoyed; *ciram*—for a long time; *dhanada-vat*—like Kuvera; *lalanā*—by damsels; *varūthī*—surrounded.
 
 **In that aerial mansion he traveled to the pleasure valleys of Mount Meru, which were rendered all the more beautiful by cool, gentle, fragrant breezes that stimulated passion. In these valleys, the treasurer of the gods, Kuvera, surrounded by beautiful women and praised by the Siddhas, generally enjoys pleasure. Kardama Muni also, surrounded by the beautiful damsels and his wife, went there and enjoyed for many, many years.**
 

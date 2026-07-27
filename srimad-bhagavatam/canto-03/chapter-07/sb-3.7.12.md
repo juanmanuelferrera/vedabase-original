@@ -8,7 +8,7 @@
 > bhagavad-bhakti-yogena\
 > tirodhatte śanair iha
 
-*saḥ*—that; *vai*—also; *nivṛtti*—detachment; *dharmeṇa*—by engagement; *vāsudeva*—the Supreme Personality of Godhead; *anukampayā*—by the mercy of; *bhagavat*—in relation with the Personality of Godhead; *bhakti-yogena*—by linking up; *tirodhatte*—diminishes; *śanaiḥ*—gradually; *iha*—in this existence.
+*saḥ*—that; *vai*—also; *nivṛtti*—detachment; *dharmeṇa*—by engagement; *vāsudeva*—the Supreme Personality of Godhead; *anukampayā*—by the mercy of; *bhagavat*—in relation with the Personality of Godhead; *bhakti-yogena*—by linking up; *tirodhatte*—gradually diminishes; *śanaiḥ*—very soon; *iha*—in this existence.
 
 **But that misconception of self-identity can be diminished gradually by the mercy of the Personality of Godhead, Vāsudeva, by the process of devotional service to the Lord in the mode of detachment.**
 

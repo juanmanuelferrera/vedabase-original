@@ -8,7 +8,7 @@
 > saṅkhyātāni sahasrāṇi\
 > dvi-guṇāni śatāni ca
 
-*catvāri*—four; *trīṇi*—three; *dve*—two; *ca*—also; *ekam*—one; *kṛta-ādiṣu*—in the Satya-yuga; *yathā-kramam*—and subsequently others; *saṅkhyātāni*—numbering; *sahasrāṇi*—thousands; *dvi-guṇāni*—twice; *śatāni*—hundreds; *ca*—also.
+*catvāri*—four; *trīṇi*—three; *dve*—two; *ca*—also; *ekam*—one; *kṛta-ādiṣu*—in the Satya-yuga millennium; *yathā-kramam*—and subsequently others; *saṅkhyātāni*—numbering; *sahasrāṇi*—thousands; *dvi-guṇāni*—twice; *śatāni*—hundreds; *ca*—also.
 
 **The duration of the Satya millennium equals 4,800 years of the years of the demigods; the duration of the Treta millennium equals 3600 years of the demigods; the duration of the Dvāpara millennium equals 2,400 years; and that of the Kali millennium is 1,200 years of the demigods.**
 

@@ -8,7 +8,7 @@
 > padbhyāṁ yajñaḥ svayaṁ havyaṁ\
 > karmabhiḥ kriyate nṛbhiḥ
 
-*gatim*—movement; *jigīṣataḥ*—so desiring; *pādau*—the legs; *ruruhāte*—being manifested; *abhikāmikām*—purposeful; *padbhyām*—from the legs; *yajñaḥ*—Lord Viṣṇu; *svayam*—personally Himself; *havyam*—the duties; *karmabhiḥ*—by one's occupational duty; *kriyate*—caused to be done; *nṛbhiḥ*—by different human beings.
+*gatim*—movement; *jigīṣataḥ*—so desiring; *pādau*—the legs; *ruruhāte*—being manifested; *abhikāmikām*—purposeful; *padbhyām*—from the legs; *yajñaḥ*—a certain demigod of the name Viṣṇu; *svayam*—personally Himself; *havyam*—the duties; *karmabhiḥ*—by one's occupational duty; *kriyate*—caused to be done; *nṛbhiḥ*—by different human beings.
 
 **Thereupon, by so desiring to control movement, His legs became manifested, and from the legs the controlling deity named Viṣṇu generated. By His personal supervision of this act, all varieties of human being are busily engaged in dutiful occupational sacrifice.**
 

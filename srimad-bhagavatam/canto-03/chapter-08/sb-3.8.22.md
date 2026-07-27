@@ -8,7 +8,7 @@
 > svayaṁ tad antar-hṛdaye 'vabhātam\
 > apaśyatāpaśyata yan na pūrvam
 
-*kālena*—in due course of time; *saḥ*—he; *ajaḥ*—the self-born Brahmā; *puruṣa-āyuṣā*—by the duration of his age; *abhipravṛtta*—being engaged; *yogena*—in meditation; *virūḍha*—developed; *bodhaḥ*—intelligence; *svayam*—automatically; *tat antaḥ-hṛdaye*—in the heart; *avabhātam*—manifested; *apaśyata*—saw; *apaśyata*—did see; *yat*—which; *na*—not; *pūrvam*—before.
+*kālena*—in due course of time; *saḥ*—he; *ajaḥ*—the self-born Brahmā; *puruṣa-āyuṣā*—by the duration of his age; *abhipravṛtta*—being engaged; *yogena*—in meditation; *virūḍha*—developed; *bodhaḥ*—intelligence; *svayam*—automatically; *tat antaḥ*—inside his; *hṛdaye*—in the heart; *avabhātam*—manifested; *apaśyata*—which he did not see before; *apaśyata*—saw it; *yat*—which; *na*—not; *pūrvam*—before.
 
 **At the end of Brahmā's one hundred years, when his meditation was complete, he developed the required knowledge, and as a result he could see in his heart the Supreme within himself, whom he could not see before with the greatest endeavor.**
 

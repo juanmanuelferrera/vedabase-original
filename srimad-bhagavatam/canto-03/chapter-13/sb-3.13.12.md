@@ -8,7 +8,7 @@
 > bhagavāṁs te prajā-bhartur\
 > hṛṣīkeśo 'nutuṣyati
 
-*param*—the greatest; *śuśrūṣaṇam*—devotional service; *mahyam*—unto me; *syāt*—should be; *prajā*—the living entities born in the material world; *rakṣayā*—by saving them from being spoiled; *nṛpa*—O King; *bhagavān*—the Personality of Godhead; *te*—with you; *prajā-bhartuḥ*—with the protector of the living beings; *hṛṣīkeśaḥ*—the Lord of the senses; *anutuṣyati*—is satisfied.
+*param*—the greatest; *śuśrūṣaṇam*—devotional service; *mahyam*—unto me; *syāt*—should be; *prajā*—the living entities who are born in the material world; *rakṣayā*—by saving them from being spoiled; *nṛpa*—O King; *bhagavān*—the Personality of Godhead; *te*—with you; *prajā-bhartuḥ*—with the protector of the living beings; *hṛṣīkeśaḥ*—the Lord of the senses; *anutuṣyati*—is satisfied.
 
 **O King, if you can give proper protection to the living beings in the material world, that will be the best service for me. When the Supreme Lord sees you to be a good protector of the conditioned souls, certainly the master of the senses will be very pleased with you.**
 

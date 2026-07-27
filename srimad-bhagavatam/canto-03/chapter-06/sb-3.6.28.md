@@ -8,7 +8,7 @@
 > dharāṁ rajaḥ-svabhāvena\
 > paṇayo ye ca tān anu
 
-*ātyantikena*—excessive; *sattvena*—by the mode of goodness; *divam*—in the higher planets; *devāḥ*—the demigods; *prapedire*—have been situated; *dharām*—on the earth; *rajaḥ*—the mode of passion; *svabhāvena*—by nature; *paṇayaḥ*—the human being; *ye*—all those; *ca*—also; *tān*—their; *anu*—subordinate.
+*ātyantikena*—excessive; *sattvena*—by the mode of goodness; *divam*—in the higher planets; *devāḥ*—the demigods; *prapedire*—have been situated; *dharām*—on the earth; *rajaḥ*—mode of passion; *svabhāvena*—by nature; *paṇayaḥ*—the human being; *ye*—all those; *ca*—also; *tān*—their; *anu*—subordinate.
 
 **The demigods are situated in the heavenly planets qualified by the superexcellent quality of the mode of goodness, whereas the human beings, because of their nature in the mode of passion, live on the earth in company with their subordinates.**
 

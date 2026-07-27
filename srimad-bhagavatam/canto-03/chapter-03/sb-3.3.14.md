@@ -8,7 +8,7 @@
 > aṣṭādaśākṣauhiṇiko mad-aṁśair\
 > āste balaṁ durviṣahaṁ yadūnām
 
-*kiyān*—what is this; *bhuvaḥ*—of the earth; *ayam*—this; *kṣapita*—abated; *uru*—very great; *bhāraḥ*—burden; *yat*—which; *droṇa*—Droṇa; *bhīṣma*—Bhīṣma; *arjuna*—Arjuna; *bhīma*—Bhīma; *mūlaiḥ*—with the help; *aṣṭādaśa*—eighteen; *akṣauhiṇikaḥ*—phalanxes of military strength (vide *SB* 1.16.34); *mat-aṁśaiḥ*—with My descendants; *āste*—are still there; *balam*—great strength; *durviṣaham*—unbearable; *yadūnām*—of the Yadu dynasty.
+*kiyān*—what is this; *bhuvaḥ*—of the earth; *ayam*—this; *kṣapita*—abated; *uru*—very great; *bhāraḥ*—burden; *yat*—which; *droṇa*—Droṇa; *bhīṣma*—Bhīṣma; *arjuna*—Arjuna; *bhīma*—Bhīma; *mūlaiḥ*—on the background; *aṣṭādaśa*—eighteen; *akṣauhiṇī*—phalanxes of military strength (vide *SB* 1.16.34); *mat-aṁśaiḥ*—with My descendants; *āste*—are still there; *balam*—great strength; *durviṣaham*—unbearable; *yadūnām*—of the Yadu dynasty.
 
 **[After the end of the Battle of Kurukṣetra, the Lord said:] The abatement of the great burden of the earth has now been effected with the help of Droṇa, Bhīṣma, Arjuna and Bhīma. But what is this? There is still the great strength of the Yadu dynasty, born of Myself, which may be a more unbearable burden.**
 

@@ -8,7 +8,7 @@
 > sa vai drauṇy-astra-sampluṣṭaḥ\
 > punar bhagavatā dhṛtaḥ
 
-*uttarāyām*—unto Uttarā; *dhṛtaḥ*—conceived; *pūroḥ*—of Pūru; *vaṁśaḥ*—descendant; *sādhu-abhimanyunā*—by the hero Abhimanyu; *saḥ*—he; *vai*—certainly; *drauṇi-astra*—by the weapon of Drauṇi, the son of Droṇa; *sampluṣṭaḥ*—being burnt; *punaḥ*—again, for the second time; *bhagavatā*—by the Personality of Godhead; *dhṛtaḥ*—was protected.
+*uttarāyām*—unto Uttarā; *dhṛtaḥ*—conceived; *pūroḥ*—of Pūru; *vaṁśaḥ*—descendant; *sādhu-abhimanyunā*—by the hero Abhimanyu; *saḥ*—he; *vai*—certainly; *drauṇi-astra*—by the weapon of Drauṇi, the son of Droṇa; *sampluṣṭaḥ*—being burnt; *punaḥ*—again, for the second time; *bhagavatā*—by the Personality of Godhead; *dhṛtaḥ*—protected.
 
 **The embryo of the descendant of Pūru, who was begotten by the great hero Abhimanyu in the womb of Uttarā, his wife, was burnt by the weapon of the son of Droṇa, but later on he was again protected by the Lord.**
 

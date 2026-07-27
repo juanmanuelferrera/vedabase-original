@@ -8,7 +8,7 @@
 > saṭā-śikhoddhūta-śivāmbu-bindubhir\
 > vimṛjyamānā bhṛśam īśa pāvitāḥ
 
-*vidhunvatā*—while shaking; *veda-mayam*—personified *Vedas*; *nijam*—own; *vapuḥ*—body; *janaḥ*—the Janaloka planetary system; *tapaḥ*—the Tapoloka planetary system; *satya*—the Satyaloka planetary system; *nivāsinaḥ*—the inhabitants; *vayam*—we; *saṭā*—hairs on the shoulder; *śikha-uddhūta*—sustained by the tip of the hair; *śiva*—auspicious; *ambu*—water; *bindubhiḥ*—by the particles; *vimṛjyamānāḥ*—we are thus sprinkled by; *bhṛśam*—highly; *īśa*—O Supreme Lord; *pāvitāḥ*—purified.
+*vidhunvatā*—while shaking; *veda-mayam*—personified *Vedas*; *nijam*—own; *vapuḥ*—body; *janaḥ*—the Janaloka planetary system; *tapaḥ*—the Tapoloka planetary system; *satya*—the Satyaloka planetary system; *nivāsinaḥ*—the inhabitants; *vayam*—we; *saṭā*—hairs on the shoulder; *śikha-uddhūta*—sustained by the tip of the hair; *śiva*—auspicious; *ambu*—water; *bindubhiḥ*—by the particles; *vimṛjyamānāḥ*—we are thus sprinkled by; *bhṛśam*—highly; *īśa*—Supreme Lord; *pāvitāḥ*—purified.
 
 **O Supreme Lord, undoubtedly we are inhabitants of the most pious planets—the Jana, Tapas and Satya lokas—but still we have been purified by the drops of water sprinkled from Your shoulder hairs by the shaking of Your body.**
 

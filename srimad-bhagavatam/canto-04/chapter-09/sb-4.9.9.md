@@ -10,7 +10,7 @@
 > arcanti kalpaka-taruṁ kuṇapopabhogyam\
 > icchanti yat sparśajaṁ niraye 'pi nṝṇām
 
-*nūnam*—certainly; *vimuṣṭa-matayaḥ*—those who have lost their right intelligence; *tava*—Your; *māyayā*—by the influence of the illusory energy; *te*—they; *ye*—who; *tvām*—You; *bhava*—from birth; *apyaya*—and death; *vimokṣaṇam*—the cause of liberation; *anya-hetoḥ*—for other purposes; *arcanti*—worship; *kalpaka-tarum*—who are like the desire tree; *kuṇapa*—of this dead body; *upabhogyam*—sense gratification; *icchanti*—they desire; *yat*—that which; *sparśa-jam*—derived by touch sensation; *niraye*—in hell; *api*—even; *nṝṇām*—for persons.
+*nūnam*—certainly; *vimuṣṭa-matayaḥ*—those who have lost their right intelligence; *tava*—Your; *māyayā*—by influence of the illusory energy; *te*—they; *ye*—who; *tvām*—You; *bhava*—from birth; *apyaya*—and death; *vimokṣaṇam*—the cause of liberation; *anya-hetoḥ*—for other purposes; *arcanti*—worship; *kalpaka-tarum*—who are like the desire tree; *kuṇapa*—of this dead body; *upabhogyam*—sense gratification; *icchanti*—they desire; *yat*—that which; *sparśa-jam*—derived by touch sensation; *niraye*—in hell; *api*—even; *nṝṇām*—for persons.
 
 **Persons who worship You simply for the sense gratification of this bag of skin are certainly influenced by Your illusory energy. In spite of having You, who are like a desire tree and are the cause of liberation from birth and death, foolish persons, such as me, desire benedictions from You for sense gratification, which is available even for those who live in hellish conditions.**
 

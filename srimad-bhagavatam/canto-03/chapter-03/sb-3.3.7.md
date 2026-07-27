@@ -8,7 +8,7 @@
 > utthāya sadyo jagṛhuḥ praharṣa-\
 > vrīḍānurāga-prahitāvalokaiḥ
 
-*tatra*—inside the house of Narakāsura; *āhṛtāḥ*—kidnapped; *tāḥ*—all those; *nara-deva-kanyāḥ*—daughters of many kings; *kujena*—by the demon; *dṛṣṭvā*—by seeing; *harim*—the Lord; *ārta-bandhum*—the friend of the distressed; *utthāya*—at once got up; *sadyaḥ*—then and there; *jagṛhuḥ*—accepted; *praharṣa*—joyfully; *vrīḍa*—shyness; *anurāga*—attachment; *prahita-avalokaiḥ*—by eager glances.
+*tatra*—inside the house of Narakāsura; *āhṛtāḥ*—kidnapped; *tāḥ*—all those; *nara-deva-kanyāḥ*—daughters of many kings; *kujena*—by the demon; *dṛṣṭvā*—by seeing; *harim*—the Lord; *ārta-bandhum*—the friend of the distressed; *utthāya*—at once got up; *sadyaḥ*—then and there; *jagṛhuḥ*—accepted; *praharṣa*—joyfully; *vrīḍa*—shyness; *anurāga*—attachment; *prahita-avalokaiḥ*—by eager glancing.
 
 **There in the house of the demon, all the princesses kidnapped by Narakāsura at once became alert upon seeing the Lord, the friend of the distressed. They looked upon Him with eagerness, joy and shyness and offered to be His wives.**
 

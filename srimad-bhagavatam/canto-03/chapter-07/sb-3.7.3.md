@@ -8,7 +8,7 @@
 > svatas-tṛptasya ca kathaṁ\
 > nivṛttasya sadānyataḥ
 
-*krīḍāyām*—in the matter of playing; *udyamaḥ*—enthusiasm; *arbhasya*—of the boys; *kāmaḥ*—desire; *cikrīḍiṣā*—willingness to play; *anyataḥ*—with other boys; *svataḥ-tṛptasya*—for one who is self-satisfied; *ca*—also; *katham*—what for; *nivṛttasya*—one who is detached; *sadā*—at all times; *anyataḥ*—otherwise.
+*krīḍāyām*—in the matter of playing; *udyamaḥ*—enthusiasm; *arbhasya*—of the boys; *kāmaḥ*—desire; *cikrīḍiṣā*—willingness to play; *anyataḥ*—with other boys; *svataḥ-tṛptasya*—for one who is self-satisfied; *ca*—also; *katham*—what for; *nivṛttasya*—one who is detached; *sadā*—for all time; *anyataḥ*—otherwise.
 
 **Boys are enthusiastic to play with other boys or with various diversions because they are encouraged by desire. But there is no possibility of such desire for the Lord because He is self-satisfied and detached from everything.**
 

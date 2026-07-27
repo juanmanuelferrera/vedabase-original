@@ -8,7 +8,7 @@
 > virājam atapat svena\
 > tejasaiṣāṁ vivṛttaye
 
-*smaran*—remembering; *viśva-sṛjām*—of the demigods entrusted with the task of cosmic construction; *īśaḥ*—the Supreme Lord; *vijñāpitam*—as He was prayed for; *adhokṣajaḥ*—the Transcendence; *virājam*—the gigantic universal form; *atapat*—considered thus; *svena*—by His own; *tejasā*—energy; *eṣām*—for them; *vivṛttaye*—for understanding.
+*smaran*—remembering; *viśva-sṛjām*—of the demigods entrusted with the task of cosmic construction; *īśaḥ*—the Supreme Lord; *vijñāpitam*—as He was prayed for; *adhokṣajaḥ*—the Transcendence; *virājam*—the gigantic universal form; *atapat*—considered thus; *svena*—by His own; *tejasā*—energy; *eṣām*—for them; *vivṛttaye*—understanding.
 
 **The Supreme Lord is the Supersoul of all the demigods entrusted with the task of constructing the cosmic manifestation. Being thus prayed to [by the demigods], He thought to Himself and thus manifested the gigantic form for their understanding.**
 

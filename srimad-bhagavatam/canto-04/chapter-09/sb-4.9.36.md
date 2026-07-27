@@ -10,7 +10,7 @@
 > vāñchanti tad-dāsyam ṛte 'rtham ātmano\
 > yadṛcchayā labdha-manaḥ-samṛddhayaḥ
 
-*maitreyaḥ uvāca*—the great sage Maitreya continued; *na*—never; *vai*—certainly; *mukundasya*—of the Lord, who can give liberation; *pada-aravindayoḥ*—of the lotus feet; *rajaḥ-juṣaḥ*—persons who are eager to taste the dust; *tāta*—my dear Vidura; *bhavādṛśāḥ*—like yourself; *janāḥ*—persons; *vāñchanti*—desire; *tat*—His; *dāsyam*—servitorship; *ṛte*—without; *artham*—interest; *ātmanaḥ*—for themselves; *yadṛcchayā*—automatically; *labdha*—by what is achieved; *manaḥ-samṛddhayaḥ*—considering themselves very rich.
+*maitreyaḥ uvāca*—the great sage Maitreya continued; *na*—never; *vai*—certainly; *mukundasya*—of the Lord, who can give liberation; *pada-aravindayoḥ*—of the lotus feet; *rajaḥ-juṣaḥ*—persons who are eager to taste the dust; *tāta*—my dear Vidura; *bhavādṛśāḥ*—like yourself; *janāḥ*—persons; *vāñchanti*—desire; *tat*—His; *dāsyam*—servitorship; *ṛte*—without; *artham*—interest; *ātmanaḥ*—for themselves; *yadṛcchayā*—automatically; *labdha*—by what is achieved; *manaḥ-samṛddhayaḥ*—considering themselves to be very rich.
 
 **The great sage Maitreya continued: My dear Vidura, persons who, like you, are pure devotees of the lotus feet of Mukunda [the Supreme Personality of Godhead, who can offer liberation] and who are always attached to the honey of His lotus feet, are always satisfied in serving at the lotus feet of the Lord. In any condition of life, such persons remain satisfied, and thus they never ask the Lord for material prosperity.**
 

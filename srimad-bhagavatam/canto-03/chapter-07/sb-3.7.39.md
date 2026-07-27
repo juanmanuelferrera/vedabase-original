@@ -8,7 +8,7 @@
 > svato jñānaṁ kutaḥ puṁsāṁ\
 > bhaktir vairāgyam eva vā
 
-*nimittāni*—the source of knowledge; *ca*—also; *tasya*—of such knowledge; *iha*—in this world; *proktāni*—mentioned; *anagha*—spotless; *sūribhiḥ*—by devotees; *svataḥ*—self-sufficient; *jñānam*—knowledge; *kutaḥ*—how; *puṁsām*—of the living entity; *bhaktiḥ*—devotional service; *vairāgyam*—detachment; *eva*—certainly; *vā*—also.
+*nimittāni*—the source of knowledge; *ca*—also; *tasya*—of such knowledge; *iha*—in this world; *proktāni*—mentioned; *anagha*—spotless; *sūribhiḥ*—by devotees; *svataḥ*—self-sufficient; *jñānam*—knowledge; *kutaḥ*—how; *puṁsām*—of the living entity; *bhaktiḥ*—devotional service; *vairāgyam*—detachment; *eva*—certainly; *ca*—also.
 
 **Spotless devotees of the Lord have mentioned the source of such knowledge. How could one have knowledge of devotional service and detachment without the help of such devotees?**
 

@@ -8,7 +8,7 @@
 > natvā diṣṭāya rahasi\
 > tayāthopaviveśa hi
 
-*saḥ*—he; *viditvā*—understanding; *atha*—thereupon; *bhāryāyāḥ*—of the wife; *tam*—that; *nirbandham*—obstinacy; *vikarmaṇi*—in the forbidden act; *natvā*—offering obeisances; *diṣṭāya*—unto worshipable fate; *rahasi*—in a secluded place; *tayā*—with her; *atha*—thus; *upaviveśa*—lay; *hi*—certainly.
+*saḥ*—he; *viditvā*—understanding; *atha*—thereupon; *bhāryāyāḥ*—of the wife; *tam*—that; *nirbandham*—obstinacy; *vikarmaṇi*—in the forbidden act; *natvā*—offering obeisances; *diṣṭāya*—unto worshipable fate; *rahasi*—in a secluded place; *tayā*—with her; *atha*—thus; *upaviveśa*—sat on; *hi*—certainly.
 
 **Understanding his wife's purpose, he was obliged to perform the forbidden act, and thus after offering his obeisances unto worshipable fate, he lay with her in a secluded place.**
 

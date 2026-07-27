@@ -10,7 +10,7 @@
 > tasmai namas ta udara-stha-bhavāya yoga-\
 > nidrāvasāna-vikasan-nalinekṣaṇāya
 
-*yat*—whose; *nābhi*—navel; *padma*—lotus; *bhavanāt*—from the house of; *aham*—I; *āsam*—became manifested; *īḍya*—O worshipable one; *loka-traya*—the three worlds; *upakaraṇaḥ*—helping in the creation of; *yat*—whose; *anugraheṇa*—by the mercy; *tasmai*—unto Him; *namaḥ*—my obeisances; *te*—unto You; *udara-stha*—situated within the abdomen; *bhavāya*—having the universe; *yoga-nidrā-avasāna*—after the end of that transcendental sleep; *vikasat*—blossoming; *nalina-īkṣaṇāya*—unto Him whose opening eyes are like lotuses.
+*yat*—whose; *nābhi*—navel; *padma*—lotus; *bhavanāt*—from the house of; *aham*—I; *āsam*—became manifested; *īḍya*—O worshipable one; *loka-traya*—three worlds; *upakaraṇaḥ*—helping in the creation of; *yat*—whose; *anugraheṇa*—by the mercy; *tasmai*—unto Him; *namaḥ*—my obeisances; *te*—unto You; *udara-stha*—situated within the abdomen; *bhavāya*—having the universe; *yoga-nidrā-avasāna*—after the end of that transcendental sleep; *vikasat*—blossoming; *nalina-īkṣaṇāya*—unto Him whose opening eyes are like lotuses.
 
 **O object of my worship, I am born from the house of Your lotus navel for the purpose of creating the universe by Your mercy. All these planets of the universe were stationed within Your transcendental abdomen while You were enjoying sleep. Now, Your sleep having ended, Your eyes are opened like a blossoming lotus in the morning.**
 

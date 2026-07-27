@@ -11,7 +11,7 @@
 > vaikārikas taijasaś ca\
 > tāmasaś cety ahaṁ tridhā
 
-*mahat*—the great; *tattvāt*—from the causal truth; *vikurvāṇāt*—being transformed; *aham*—false ego; *tattvam*—material truth; *vyajāyata*—became manifested; *kārya*—effects; *kāraṇa*—cause; *kartṛ*—doer; *ātmā*—soul or source; *bhūta*—material ingredients; *indriya*—senses; *manaḥ-mayaḥ*—hovering on the mental plane; *vaikārikaḥ*—the mode of goodness; *taijasaḥ*—the mode of passion; *ca*—and; *tāmasaḥ*—the mode of ignorance; *ca*—and; *iti*—thus; *aham*—false ego; *tridhā*—three kinds.
+*mahat*—the great; *tattvāt*—causal truth; *vikurvāṇāt*—being transformed; *aham*—false ego; *tattvam*—material truth; *vyajāyata*—became manifested; *kārya*—effects; *kāraṇa*—cause; *kartṛ*—doer; *ātmā*—soul or source; *bhūta*—material ingredients; *indriya*—senses; *manaḥ-mayaḥ*—hovering on the mental plane; *vaikārikaḥ*—mode of goodness; *taijasaḥ*—mode of passion; *tāmasaḥ*—mode of ignorance; *ca*—and; *iti*—thus; *aham*—false ego; *tridhā*—three kinds.
 
 **Mahat-tattva, or the great causal truth, transforms into false ego, which is manifested in three phases—cause, effect and the doer. All such activities are on the mental plane and are based on the material elements, gross senses and mental speculation. The false ego is represented in three different modes—goodness, passion and ignorance.**
 

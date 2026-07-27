@@ -8,7 +8,7 @@
 > kiṁ vā punas tac-caraṇāravinda-\
 > parāga-sevā-ratir ātma-labdhā
 
-*aśeṣa*—unlimited; *saṅkleśa*—miserable conditions; *śamam*—cessation; *vidhatte*—can perform; *guṇa-anuvāda*—of the transcendental name, form, qualities, pastimes, entourage and paraphernalia, etc.; *śravaṇam*—hearing and chanting; *murāreḥ*—of Murāri (Śrī Kṛṣṇa), the Personality of Godhead; *kim vā*—what to speak of; *punaḥ*—again; *tat*—His; *caraṇa-aravinda*—lotus feet; *parāga-sevā*—to the service of the flavorful dust; *ratiḥ*—attraction; *ātma-labdhā*—those who have gained such self-achievement.
+*aśeṣa*—unlimited; *saṅkleśa*—miserable conditions; *śamam*—cessation; *vidhatte*—can perform; *guṇa-anuvāda*—description of the transcendental name, form, quality, pastimes, entourage and paraphernalia, etc.; *śravaṇam*—hearing and chanting; *murāreḥ*—of Murāri (Śrī Kṛṣṇa), the Personality of Godhead; *kim vā*—what to speak of; *punaḥ*—again; *tat*—His; *caraṇa-aravinda*—lotus feet; *parāga-sevā*—service of the dust of flavor; *ratiḥ*—attraction; *ātma-labdhā*—those who have gained such self-achievement.
 
 **Simply by chanting and hearing of the transcendental name, form, etc., of the Personality of Godhead, Śrī Kṛṣṇa, one can achieve the cessation of unlimited miserable conditions. Therefore what to speak of those who have attained attraction for serving the flavor of the dust of the lotus feet of the Lord?**
 

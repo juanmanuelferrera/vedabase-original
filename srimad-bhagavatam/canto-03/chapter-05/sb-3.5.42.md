@@ -8,7 +8,7 @@
 > jñānena vairāgya-balena dhīrā\
 > vrajema tat te 'ṅghri-saroja-pīṭham
 
-*yat*—that which; *śraddhayā*—by eagerness; *śrutavatyā*—simply by hearing; *ca*—also; *bhaktyā*—in devotion; *sammṛjyamāne*—being cleansed; *hṛdaye*—in the heart; *avadhāya*—meditation; *jñānena*—by knowledge; *vairāgya*—detachment; *balena*—by the strength of; *dhīrāḥ*—the pacified; *vrajema*—must go to; *tat*—that; *te*—Your; *aṅghri*—feet; *saroja-pīṭham*—lotus sanctuary.
+*yat*—that which; *śraddhayā*—by eagerness; *śrutavatyā*—simply by hearing; *ca*—also; *bhaktyā*—in devotion; *sammṛjyamāne*—being cleansed; *hṛdaye*—in the heart; *avadhāya*—meditation; *jñānena*—by knowledge; *vairāgya*—detachment; *balena*—by the strength of; *dhīrāḥ*—pacified; *vrajema*—must go to; *tat*—that; *te*—Your; *aṅghri*—feet; *saroja-pīṭham*—lotus sanctuary.
 
 **Simply by hearing about Your lotus feet with eagerness and devotion and by meditating upon them within the heart, one at once becomes enlightened with knowledge, and on the strength of detachment one becomes pacified. We must therefore take shelter of the sanctuary of Your lotus feet.**
 

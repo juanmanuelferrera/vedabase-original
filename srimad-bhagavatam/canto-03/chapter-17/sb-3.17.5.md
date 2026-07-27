@@ -8,7 +8,7 @@
 > unmūlayan naga-patīn\
 > vātyānīko rajo-dhvajaḥ
 
-*vavau*—blew; *vāyuḥ*—the winds; *su-duḥsparśaḥ*—unpleasant to touch; *phūt-kārān*—hissing sounds; *īrayan*—giving out; *muhuḥ*—again and again; *unmūlayan*—uprooting; *naga-patīn*—gigantic trees; *vātyā*—cyclonic air; *anīkaḥ*—armies; *rajaḥ*—dust; *dhvajaḥ*—ensigns.
+*vavau*—blew; *vāyuḥ*—the winds; *su-duḥsparśaḥ*—unpleasant to touch; *phūt-kārān*—hissing sounds; *īrayan*—giving out; *muhuḥ*—again and again; *unmūlayan*—uprooting; *naga-patīn*—gigantic trees; *vātyā*—cyclonic air; *anīkaḥ*—armies; *rajas*—dust; *dhvajaḥ*—ensigns.
 
 **There blew winds which were most uninviting to the touch, hissing again and again and uprooting gigantic trees. They had storms for their armies and clouds of dust for their ensigns.**
 

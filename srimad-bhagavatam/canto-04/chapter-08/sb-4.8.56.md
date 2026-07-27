@@ -8,7 +8,7 @@
 > ābhṛtātmā muniḥ śānto\
 > yata-vāṅ mita-vanya-bhuk
 
-*labdhvā*—by getting; *dravya-mayīm*—made of physical elements; *arcām*—worshipable Deity; *kṣiti*—earth; *ambu*—water; *ādiṣu*—beginning with; *vā*—or; *arcayet*—worship; *ābhṛta-ātmā*—one who is fully self-controlled; *muniḥ*—a great personality; *śāntaḥ*—peacefully; *yata-vāk*—controlling the force of talking; *mita*—frugal; *vanya-bhuk*—eating whatever is available in the forest.
+*labdhvā*—by getting; *dravya-mayīm*—made of physical elements; *arcām*—worshipable Deity; *kṣiti*—earth; *ambu*—water; *ādiṣu*—beginning with; *vā*—or; *arcayet*—worship; *ābhṛta-ātmā*—one who is fully self-controlled; *muniḥ*—great personality; *śāntaḥ*—peacefully; *yata-vāk*—controlling the force of talking; *mita*—frugal; *vanya-bhuk*—eating whatever is available in the forest.
 
 **It is possible to worship a form of the Lord made of physical elements such as earth, water, pulp, wood and metal. In the forest one can make a form with no more than earth and water and worship Him according to the above principles. A devotee who has full control over his self should be very sober and peaceful and must be satisfied simply with eating whatever fruits and vegetables are available in the forest.**
 

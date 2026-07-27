@@ -8,7 +8,7 @@
 > khurāhatābhraḥ sita-daṁṣṭra īkṣā-\
 > jyotir babhāse bhagavān mahīdhraḥ
 
-*utkṣipta-vālaḥ*—slashing with the tail; *kha-caraḥ*—in the sky; *kaṭhoraḥ*—very hard; *saṭāḥ*—hairs on the shoulder; *vidhunvan*—quivering; *khara*—sharp; *romaśa-tvak*—skin full of hairs; *khura-āhata*—struck by the hooves; *abhraḥ*—the clouds; *sita-daṁṣṭraḥ*—white tusks; *īkṣā*—glance; *jyotiḥ*—luminous; *babhāse*—began to emit an effulgence; *bhagavān*—the Personality of Godhead; *mahī-dhraḥ*—the supporter of the world.
+*utkṣipta-vālaḥ*—slashing with the tail; *kha-caraḥ*—in the sky; *kaṭhoraḥ*—very hard; *saṭāḥ*—hairs on the shoulder; *vidhunvan*—quivering; *khara*—sharp; *romaśa-tvak*—skin full of hairs; *khura-āhata*—struck by the hoofs; *abhraḥ*—the clouds; *sita-daṁṣṭraḥ*—white tusks; *īkṣā*—glance; *jyotiḥ*—luminous; *babhāse*—began to emit an effulgence; *bhagavān*—the Personality of Godhead; *mahī-dhraḥ*—the supporter of the world.
 
 **Before entering the water to rescue the earth, Lord Boar flew in the sky, slashing His tail, His hard hairs quivering. His very glance was luminous, and He scattered the clouds in the sky with His hoofs and His glittering white tusks.**
 

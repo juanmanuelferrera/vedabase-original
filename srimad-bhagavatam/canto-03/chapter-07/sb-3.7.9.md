@@ -10,7 +10,7 @@
 > īśvarasya vimuktasya\
 > kārpaṇyam uta bandhanam
 
-*maitreyaḥ uvāca*—Maitreya said; *sā iyam*—such a statement; *bhagavataḥ*—of the Personality of Godhead; *māyā*—illusion; *yat*—that which; *nayena*—by logic; *virudhyate*—becomes contradictory; *īśvarasya*—of the Supreme Personality of Godhead; *vimuktasya*—of the ever liberated; *kārpaṇyam*—insufficiency; *uta*—as also, what to speak of; *bandhanam*—bondage.
+*śrī maitreyaḥ uvāca*—Śrī Maitreya said; *sā iyam*—such a statement; *bhagavataḥ*—of the Personality of Godhead; *māyā*—illusion; *yat*—that which; *nayena*—by logic; *virudhyate*—becomes contradictory; *īśvarasya*—of the Supreme Personality of Godhead; *vimuktasya*—of the ever liberated; *kārpaṇyam*—insufficiency; *uta*—as also, what to speak of; *bandhanam*—bondage.
 
 **Śrī Maitreya said: Certain conditioned souls put forward the theory that the Supreme Brahman, or the Personality of Godhead, is overcome by illusion, or māyā, and at the same time they maintain that He is unconditioned. This is against all logic.**
 

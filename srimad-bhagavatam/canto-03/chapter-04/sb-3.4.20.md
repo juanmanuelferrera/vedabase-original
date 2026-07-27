@@ -8,7 +8,7 @@
 > praṇamya pādau parivṛtya devam\
 > ihāgato 'haṁ virahāturātmā
 
-*saḥ*—so myself; *evam*—thus; *ārādhita*—worshiped; *pāda-tīrthāt*—from the Personality of Godhead; *adhīta*—studied; *tattva-ātma*—self-knowledge; *vibodha*—understanding; *mārgaḥ*—path; *praṇamya*—after saluting; *pādau*—at His lotus feet; *parivṛtya*—after circumambulating; *devam*—the Lord; *iha*—at this place; *āgataḥ*—reached; *aham*—I; *viraha*—separation; *ātura-ātmā*—aggrieved in self.
+*saḥ*—so myself; *evam*—thus; *ārādhita*—worshiped; *pāda-tīrthāt*—the Personality of Godhead; *adhīta*—studied; *tattva-ātma*—self-knowledge; *vibodha*—understanding; *mārgaḥ*—path; *praṇamya*—after saluting; *pādau*—at His lotus feet; *parivṛtya*—after circumambulating; *devam*—the Lord; *iha*—at this place; *āgataḥ*—reached; *aham*—I; *viraha*—separation; *ātura-ātmā*—aggrieved in self.
 
 **I have studied the path of understanding self-knowledge from my spiritual master, the Personality of Godhead, and thus after circumambulating Him I have come to this place, very much aggrieved due to separation.**
 

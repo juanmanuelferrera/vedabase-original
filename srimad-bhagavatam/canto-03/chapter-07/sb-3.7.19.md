@@ -8,7 +8,7 @@
 > rati-rāso bhavet tīvraḥ\
 > pādayor vyasanārdanaḥ
 
-*yat*—to whom; *sevayā*—by service; *bhagavataḥ*—of the Personality of Godhead; *kūṭa-sthasya*—of the unchangeable; *madhu-dviṣaḥ*—the enemy of the Madhu *asura*; *rati-rāsaḥ*—attachment in different relationships; *bhavet*—develops; *tīvraḥ*—highly ecstatic; *pādayoḥ*—of the feet; *vyasana*—distresses; *ardanaḥ*—vanquishing.
+*yat*—which; *sevayā*—by service; *bhagavataḥ*—of the Personality of Godhead; *kūṭa-sthasya*—of the unchangeable; *madhu-dviṣaḥ*—the enemy of the Madhu *asura*; *rati-rāsaḥ*—attachment in different relationships; *bhavet*—develops; *tīvraḥ*—highly ecstatic; *pādayoḥ*—of the feet; *vyasana*—distresses; *ardanaḥ*—vanquishing.
 
 **By serving the feet of the spiritual master, one is enabled to develop transcendental ecstasy in the service of the Personality of Godhead, who is the unchangeable enemy of the Madhu demon and whose service vanquishes one's material distresses.**
 
