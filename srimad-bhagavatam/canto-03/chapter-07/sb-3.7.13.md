@@ -8,7 +8,7 @@
 > vilīyante tadā kleśāḥ\
 > saṁsuptasyeva kṛtsnaśaḥ
 
-*yadā*—when; *indriya*—senses; *uparāmaḥ*—satiated; *atha*—thus; *draṣṭṛ-ātmani*—unto the seer, the Supersoul; *pare*—in the Transcendence; *harau*—unto the Supreme Personality of Godhead; *vilīyante*—become merged in; *tadā*—at that time; *kleśāḥ*—miseries; *saṁsuptasya*—one who has enjoyed sound sleep; *iva*—like; *kṛtsnaśaḥ*—completely.
+*yadā*—when; *indriya*—senses; *uparāmaḥ*—satiated; *atha*—thus; *draṣṭā-ātmani*—unto the seer, the Supersoul; *pare*—in the Transcendence; *harau*—unto the Supreme Personality of Godhead; *vilīyante*—become merged in; *tadā*—at that time; *kleśāḥ*—miseries; *saṁsuptasya*—one who has enjoyed sound sleep; *iva*—like; *kṛtsnaśaḥ*—completely.
 
 **When the senses are satisfied in the seer-Supersoul, the Personality of Godhead, and merge in Him, all miseries are vanquished, as after a sound sleep.**
 
