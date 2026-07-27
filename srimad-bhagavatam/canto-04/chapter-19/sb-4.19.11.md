@@ -8,7 +8,7 @@
 > vainye yajña-paśuṁ spardhann\
 > apovāha tirohitaḥ
 
-*carameṇa*—by the last one; *aśva-medhena*—by the *aśvamedha* sacrifice; *yajamāne*—when he was performing the sacrifice; *yajuḥ-patim*—for satisfaction of the Lord of *yajña,* Viṣṇu; *vainye*—the son of King Vena; *yajña-paśum*—the animal meant to be sacrificed in the *yajña*; *spardhan*—being envious; *apovāha*—stole; *tirohitaḥ*—being invisible.
+*carameṇa*—by the last one; *aśva-medhena*—by the sacrifice of *aśvamedha-yajña*; *yajamāne*—when he was performing the sacrifice; *yajuḥ-patim*—for satisfaction of the Lord of *yajña,* Viṣṇu; *vainye*—the son of King Vena; *yajña-paśum*—the animal meant to be sacrificed in the *yajña*; *spardhan*—being envious; *apovāha*—stole; *tirohitaḥ*—being invisible.
 
 **When Pṛthu Mahārāja was performing the last horse sacrifice [aśvamedha-yajña], King Indra, invisible to everyone, stole the horse intended for sacrifice. He did this because of his great envy of King Pṛthu.**
 

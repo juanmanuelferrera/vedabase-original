@@ -10,7 +10,7 @@
 > yad utāha haraḥ prītas\
 > tan no brahman vadārthavat
 
-*viduraḥ uvāca*—Vidura inquired; *pracetasām*—of all the Pracetās; *giritreṇa*—by Lord Śiva; *yathā*—just as; *āsīt*—it was; *pathi*—on the road; *saṅgamaḥ*—meeting; *yat*—which; *uta āha*—said; *haraḥ*—Lord Śiva; *prītaḥ*—being pleased; *tat*—that; *naḥ*—unto us; *brahman*—O great *brāhmaṇa*; *vada*—speak; *artha-vat*—with clear meaning.
+*viduraḥ uvāca*—Vidura inquired; *pracetasām*—of all the Pracetās; *giritreṇa*—by Lord Śiva; *yathā*—as and as; *āsīt*—it was; *pathi*—on the road; *saṅgamaḥ*—meeting; *yat*—which; *uta āha*—said; *haraḥ*—Lord Śiva; *prītaḥ*—being pleased; *tat*—that; *naḥ*—unto us; *brahman*—O great *brāhmaṇa*; *vada*—speak; *artha-vat*—with clear meaning.
 
 **Vidura asked Maitreya: My dear brāhmaṇa, why did the Pracetās meet Lord Śiva on the way? Please tell me how the meeting happened, how Lord Śiva became very pleased with them, and how he instructed them. Certainly such talks are important, and I wish that you please be merciful upon me and describe them.**
 

@@ -8,7 +8,7 @@
 > samatvena ca sarvātmā\
 > bhagavān samprasīdati
 
-*titikṣayā*—by tolerance; *karuṇayā*—by mercy; *maitryā*—by friendship; *ca*—also; *akhila*—universal; *jantuṣu*—unto the living entities; *samatvena*—by equilibrium; *ca*—also; *sarva-ātmā*—the Supersoul; *bhagavān*—the Personality of Godhead; *samprasīdati*—becomes very satisfied.
+*titikṣayā*—by tolerance; *karuṇayā*—by mercy; *maitryā*—by friendship; *ca*—also; *akhila*—universal; *jantuṣu*—unto the living entities; *samatvena*—by equilibrium; *ca*—also; *sarva-ātmā*—the Supersoul; *bhagavān*—Personality of Godhead; *samprasīdati*—becomes very satisfied.
 
 **The Lord is very satisfied with His devotee when the devotee greets other people with tolerance, mercy, friendship and equality.**
 

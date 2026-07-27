@@ -10,7 +10,7 @@
 > deva-māyābhibhūtānāṁ\
 > daṇḍas tatra dhṛto mayā
 
-*mahādevaḥ*—Lord Śiva; *uvāca*—said; *na*—not; *agham*—offense; *prajā-īśa*—O lord of created beings; *bālānām*—of the children; *varṇaye*—I regard; *na*—not; *anucintaye*—I consider; *deva-māyā*—the external energy of the Lord; *abhibhūtānām*—of those deluded by; *daṇḍaḥ*—rod; *tatra*—there; *dhṛtaḥ*—used; *mayā*—by me.
+*mahādevaḥ*—Lord Śiva; *uvāca*—said; *na*—not; *agham*—offense; *prajeśa*—O lord of created beings; *bālānām*—of the children; *varṇaye*—I regard; *na*—not; *anucintaye*—I consider; *deva-māyā*—the external energy of the Lord; *abhibhūtānām*—of those deluded by; *daṇḍaḥ*—rod; *tatra*—there; *dhṛtaḥ*—used; *mayā*—by me.
 
 **Lord Śiva said: My dear father, Brahmā, I do not mind the offenses created by the demigods. Because they are childish and less intelligent, I do not take a serious view of their offenses, and I have punished them only in order to right them.**
 

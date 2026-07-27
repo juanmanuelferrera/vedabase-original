@@ -8,7 +8,7 @@
 > nāsajjatendriyārtheṣu\
 > niraham-matir arkavat
 
-*gṛheṣu*—at home; *vartamānaḥ*—being present; *api*—although; *saḥ*—King Pṛthu; *sāmrājya*—the entire empire; *śriyā*—opulence; *anvitaḥ*—being absorbed in; *na*—never; *asajjata*—became attracted; *indriya-artheṣu*—for sense gratification; *niḥ*—nor; *aham*—I am; *matiḥ*—consideration; *arka*—the sun; *vat*—like.
+*gṛheṣu*—at home; *vartamānaḥ*—being present; *api*—although; *saḥ*—King Pṛthu; *sāmrājya*—the entire empire; *śriyā*—opulence; *anvitaḥ*—being absorbed in; *na*—never; *asajjata*—became attracted; *indriya-artheṣu*—for sense gratification; *nir*—nor; *aham*—I am; *matiḥ*—consideration; *arka*—the sun; *vat*—like.
 
 **Mahārāja Pṛthu, who was very opulent due to the prosperity of his entire empire, remained at home as a householder. Since he was never inclined to utilize his opulences for the gratification of his senses, he remained unattached, exactly like the sun, which is unaffected in all circumstances.**
 

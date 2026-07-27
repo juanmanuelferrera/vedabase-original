@@ -8,7 +8,7 @@
 > mukta-saṅga-prasaṅgo 'yaṁ\
 > daṇḍa-pāṇir asādhuṣu
 
-*dehinām*—to all living entities having a body; *ātma-vat*—as himself; *preṣṭhaḥ*—considering dear; *suhṛdām*—of his friends; *nandi-vardhanaḥ*—increasing pleasures; *mukta-saṅga*—with persons devoid of all material contamination; *prasaṅgaḥ*—intimately associated; *ayam*—this King; *daṇḍa-pāṇiḥ*—a chastising hand; *asādhuṣu*—to the criminals.
+*dehinām*—to all living entities having a body; *ātma-vat*—as himself; *preṣṭhaḥ*—considering as dear; *suhṛdām*—of his friends; *nandi-vardhanaḥ*—increasing pleasures; *mukta-saṅga*—with persons devoid of all material contamination; *prasaṅgaḥ*—intimately associated; *ayam*—this King; *daṇḍa-pāṇiḥ*—a chastising hand; *asādhuṣu*—to the criminals.
 
 **The King will consider all embodied living entities as dear as his own self, and he will always be increasing the pleasures of his friends. He will intimately associate with liberated persons, and he will be a chastising hand to all impious persons.**
 

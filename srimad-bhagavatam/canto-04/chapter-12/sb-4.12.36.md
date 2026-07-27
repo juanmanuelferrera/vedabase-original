@@ -8,7 +8,7 @@
 > yan nāvrajañ jantuṣu ye 'nanugrahā\
 > vrajanti bhadrāṇi caranti ye 'niśam
 
-*yat*—which planet; *bhrājamānam*—illuminating; *sva-rucā*—by self-effulgence; *eva*—only; *sarvataḥ*—everywhere; *lokāḥ*—planetary systems; *trayaḥ*—three; *hi*—certainly; *anu*—thereupon; *vibhrājante*—give off light; *ete*—these; *yat*—which planet; *na*—not; *avrajan*—have reached; *jantuṣu*—to living entities; *ye*—those who; *ananugrahāḥ*—not merciful; *vrajanti*—reach; *bhadrāṇi*—welfare activities; *caranti*—engage in; *ye*—those who; *aniśam*—constantly.
+*yat*—which planet; *bhrājamānam*—illuminating; *sva-rucā*—by self-effulgence; *eva*—only; *sarvataḥ*—everywhere; *lokāḥ*—planetary systems; *trayaḥ*—three; *hi*—certainly; *anu*—thereupon; *vibhrājante*—give off light; *ete*—these; *yat*—which planet; *na*—not; *avrajat*—have reached; *jantuṣu*—to living entities; *ye*—those who; *ananugrahāḥ*—not merciful; *vrajanti*—reach; *bhadrāṇi*—welfare activities; *caranti*—engage in; *ye*—those who; *aniśam*—constantly.
 
 **The self-effulgent Vaikuṇṭha planets, by whose illumination alone all the illuminating planets within this material world give off reflected light, cannot be reached by those who are not merciful to other living entities. Only persons who constantly engage in welfare activities for other living entities can reach the Vaikuṇṭha planets.**
 

@@ -8,7 +8,7 @@
 > paribhramaṁs tatra na vindate 'rthān\
 > māyāmaye vāsanayā śayānaḥ
 
-*śābdasya*—of the Vedic sound; *hi*—certainly; *brahmaṇaḥ*—of the *Vedas*; *eṣaḥ*—these; *panthāḥ*—the way; *yat*—what is; *nāmabhiḥ*—by different names; *dhyāyati*—ponders over over; *dhīḥ*—intelligence; *apārthaiḥ*—by meaningless ideas; *paribhraman*—wandering; *tatra*—there; *na*—never; *vindate*—enjoys; *arthān*—realities; *māyā-maye*—in illusory things; *vāsanayā*—by different desires; *śayānaḥ*—as if dreaming in sleep.
+*śābdasya*—of the Vedic sound; *hi*—certainly; *brahmaṇaḥ*—of the *Vedas*; *eṣaḥ*—these; *panthāḥ*—the way; *yat*—what is; *nāmabhiḥ*—by different names; *dhyāyati*—ponders over over over; *dhīḥ*—intelligence; *apārthaiḥ*—by meaningless ideas; *paribhraman*—wandering; *tatra*—there; *na*—never; *vindate*—enjoys; *arthān*—realities; *māyā-maye*—in illusory things; *vāsanayā*—by different desires; *śayānaḥ*—as if dreaming in sleep.
 
 **The way of presentation of the Vedic sounds is so bewildering that the intelligence of the people is directed to meaningless things, like the heavenly kingdoms, etc. The conditioned souls hover in a dream of such heavenly illusory pleasures, but actually they do not relish any tangible happiness in such places.**
 

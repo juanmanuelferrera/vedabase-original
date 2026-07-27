@@ -6,7 +6,7 @@
 > āpani candana pari' parena phula-mālā\
 > naivedya kāḍiyā khā'na—sandeśa, cāla, kalā
 
-*āpani*—Himself; *candana*—pulp of sandalwood; *pari'*—smearing over the body; *parena*—takes; *phula-mālā*—the flower garlands; *naivedya*—offering of foodstuffsstuffsstuffs; *kādiyā*—snatching; *khā'na*—begins to eat; *sandeśa*—the sweetmeats; *cāla*—rice; *kalā*—bananas.
+*āpani*—Himself; *candana*—pulp of sandalwood; *pari'*—smearing over the body; *parena*—takes; *phula-mālā*—the flower garlands; *naivedya*—offering of foodstuffsstuffsstuffsstuffs; *kādiyā*—snatching; *khā'na*—begins to eat; *sandeśa*—the sweetmeats; *cāla*—rice; *kalā*—bananas.
 
 **Without the permission of the girls, the Lord would take the sandalwood pulp and smear it on His own body, put the flower garlands on His neck, and snatch and eat all the offerings of sweetmeats, rice and bananas.**
 

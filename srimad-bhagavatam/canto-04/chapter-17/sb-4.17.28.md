@@ -8,7 +8,7 @@
 > praṇatā prāñjaliḥ prāha\
 > mahī sañjāta-vepathuḥ
 
-*evam*—thus; *manyu-mayīm*—very much angry; *mūrtim*—form; *kṛta-antam*—death personified, Yamarāja; *iva*—like; *bibhratam*—possessing; *praṇatā*—surrendered; *prāñjaliḥ*—with folded hands; *prāha*—said; *mahī*—the planet earth; *sañjāta*—arisen; *vepathuḥ*—trembling in her body.
+*evam*—thus; *manyu-mayīm*—very much angry; *mūrtim*—form; *kṛta-antam*—death personified, Yamarāja; *iva*—like; *bibhratam*—possessing; *praṇatā*—surrendered; *prāñjaliḥ*—with folded hands; *prāha*—said; *mahī*—the earthly planet; *sañjāta*—arisen; *vepathuḥ*—trembling in her body.
 
 **At this time Pṛthu Mahārāja became exactly like Yamarāja, and his whole body appeared very angry. In other words, he was anger personified. After hearing him, the planet earth began to tremble. She surrendered, and with folded hands began to speak as follows.**
 

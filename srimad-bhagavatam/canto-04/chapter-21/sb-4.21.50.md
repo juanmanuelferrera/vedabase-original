@@ -8,7 +8,7 @@
 > prajānurāgo mahatāṁ\
 > prakṛtiḥ karuṇātmanām
 
-*na*—not; *ati*—very great; *adbhutam*—wonderful; *idam*—this; *nātha*—O lord; *tava*—your; *ājīvya*—source of income; *anuśāsanam*—ruling over the citizens; *prajā*—citizens; *anurāgaḥ*—affection; *mahatām*—of the great; *prakṛtiḥ*—nature; *karuṇa*—merciful; *ātmanām*—of the living entities.
+*na*—not; *ati*—very great; *adbhutam*—wonderful; *idam*—this; *nātha*—lord; *tava*—your; *ājīvya*—source of income; *anuśāsanam*—ruling over the citizens; *prajā*—citizens; *anurāgaḥ*—affection; *mahatām*—of the great; *prakṛtiḥ*—nature; *karuṇa*—merciful; *ātmanām*—of the living entities.
 
 **Our dear lord, it is your occupational duty to rule over your citizens. That is not a very wonderful task for a personality like you, who are so affectionate in seeing to the interests of the citizens, because you are full of mercy. That is the greatness of your character.**
 

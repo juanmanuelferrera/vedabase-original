@@ -8,7 +8,7 @@
 > goptā ca dharma-setūnāṁ\
 > śāstā tat-paripanthinām
 
-*eṣaḥ*—this King Pṛthu; *dharma-bhṛtām*—of persons executing religious activities; *śreṣṭhaḥ*—the best; *lokam*—the whole world; *dharme*—in religious activities; *anuvartayan*—engaging them properly; *goptā*—the protector; *ca*—also; *dharma-setūnām*—of the principles of religion; *śāstā*—the chastiser; *tat-paripanthinām*—of those who are against religious principles.
+*eṣaḥ*—this King Pṛthu; *dharma-bhṛtām*—of persons executing religious activities; *śreṣṭhaḥ*—the best; *lokam*—the whole world; *dharme*—in religious activities; *anuvartayan*—engaging them properly; *goptā*—the protector; *ca*—also; *dharma-setūnām*—of the principles of religiosity; *śāstā*—the chastiser; *tat-paripanthinām*—of those who are against religious principles.
 
 **This King, Mahārāja Pṛthu, is the best amongst those who are following religious principles. As such, he will engage everyone in the pursuit of religious principles and give them all protection. He will also be a great chastiser to the irreligious and atheistic.**
 

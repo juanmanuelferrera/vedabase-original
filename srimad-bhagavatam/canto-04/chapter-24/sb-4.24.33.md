@@ -10,7 +10,7 @@
 > bhavatārādhasā rāddhaṁ\
 > sarvasmā ātmane namaḥ
 
-*śrī-rudraḥ uvāca*—Lord Śiva began to speak; *jitam*—all glories; *te*—unto You; *ātma-vit*—self-realized; *varya*—the best; *svastaye*—unto the auspicious; *svastiḥ*—auspiciousness; *astu*—let there be; *me*—of me; *bhavatā*—by You; *ārādhasā*—by the all-perfect; *rāddham*—worshipable; *sarvasmai*—the Supreme Soul; *ātmane*—unto the Supreme Soul; *namaḥ*—obeisances.
+*śrī-rudraḥ uvāca*—Lord Śiva began to speak; *jitam*—all glories; *te*—unto You; *ātma-vit*—self-realized; *varya*—the best; *svastaye*—unto the auspicious; *svastiḥ*—auspiciousness; *astu*—let there be; *me*—of me; *bhavatā*—by You; *ārādhasā*—by the all-perfect; *rāddham*—worshipable; *sarvātmā*—the Supreme Soul; *ātmane*—unto the Supreme Soul; *namaḥ*—obeisances.
 
 **Lord Śiva addressed the Supreme Personality of Godhead with the following prayer: O Supreme Personality of Godhead, all glories unto You. You are the most exalted of all self-realized souls. Since You are always auspicious for the self-realized, I wish that You be auspicious for me. You are worshipable by virtue of the all-perfect instructions which You give. You are the Supersoul; therefore I offer my obeisances unto You as the supreme living being.**
 

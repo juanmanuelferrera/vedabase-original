@@ -8,7 +8,7 @@
 > puroḍāśaṁ niravapan\
 > śipi-viṣṭāya viṣṇave
 
-*iti*—thus; *vyavasitāḥ*—having decided; *viprāḥ*—the *brāhmaṇas*; *tasya*—his; *rājñaḥ*—of the king; *prajātaye*—for the purpose of getting a son; *puroḍāśam*—the paraphernalia of sacrifice; *niravapan*—offered; *śipi-viṣṭāya*—to the Lord, who is situated in the sacrificial fire; *viṣṇave*—to Lord Viṣṇu.
+*iti*—thus; *vyavasitāḥ*—having decided; *viprāḥ*—the *brāhmaṇas*; *tasya*—his; *rājñaḥ*—of the king; *prajātaye*—for the purpose of getting a son; *puraḥ-dāśam*—the paraphernalia of sacrifice; *niravapan*—offered; *śipi-viṣṭāya*—to the Lord, who is situated in the sacrificial fire; *viṣṇave*—to Lord Viṣṇu.
 
 **Thus for the sake of a son for King Aṅga, they decided to offer oblations to Lord Viṣṇu, who is situated in the hearts of all living entities.**
 

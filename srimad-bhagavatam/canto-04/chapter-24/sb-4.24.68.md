@@ -8,7 +8,7 @@
 > viśvaṁ rudra-bhaya-dhvastam\
 > akutaścid-bhayā gatiḥ
 
-*atha*—therefore; *tvam*—You, my Lord; *asi*—are; *naḥ*—our; *brahman*—O Supreme Brahman; *parama-ātman*—O Supersoul; *vipaścitām*—for the learned wise men; *viśvam*—the whole universe; *rudra-bhaya*—being afraid of Rudra; *dhvastam*—annihilated; *akutaścit-bhayā*—undoubtedly fearless; *gatiḥ*—destination.
+*atha*—therefore; *tvam*—my Lord, Yourself; *asi*—are; *naḥ*—our; *brahman*—O Supreme Brahman; *parama-ātman*—O Supersoul; *vipaścitām*—for the learned wise men; *viśvam*—the whole universe; *rudra-bhaya*—being afraid of Rudra; *dhvastam*—annihilated; *akutaścit-bhayā*—undoubtedly fearless; *gatiḥ*—destination.
 
 **My dear Lord, all actually learned persons know You as the Supreme Brahman and the Supersoul. Although the entire universe is afraid of Lord Rudra, who ultimately annihilates everything, for the learned devotees You are the fearless destination of all.**
 

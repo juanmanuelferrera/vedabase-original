@@ -8,7 +8,7 @@
 > śamayiṣyāmi mad-bāṇair\
 > bhinnāyās tava medasā
 
-*amūṣām*—of all of them; *kṣut-parītānām*—suffering from hunger; *ārtānām*—of the distressed; *paridevitam*—the lamentation; *śamayiṣyāmi*—I shall pacify; *mat-bāṇaiḥ*—by my arrows; *bhinnāyāḥ*—being cut to pieces; *tava*—of you; *medasā*—by the flesh.
+*amūṣām*—of all of them; *kṣudh-parītānām*—suffering from hunger; *ārtānām*—of the distressed; *paridevitam*—the lamentation; *śamayiṣyāmi*—I shall pacify; *mat-bāṇaiḥ*—by my arrows; *bhinnāyāḥ*—being cut into pieces; *tava*—of you; *medasā*—by the flesh.
 
 **Now, with the help of my arrows, I shall cut you to pieces and with your flesh satisfy the hunger-stricken citizens who are now crying for want of grains. Thus I shall satisfy the crying citizens of my kingdom.**
 

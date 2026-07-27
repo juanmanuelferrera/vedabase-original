@@ -8,7 +8,7 @@
 > viśvātmānam ajaṁ brahma\
 > praṇato 'smi paraṁ padam
 
-*saḥ*—that; *aham*—I (the person desiring release from material life); *viśva-sṛjam*—unto Him who has created this cosmic manifestation; *viśvam*—who is Himself the whole cosmic presentation; *aviśvam*—although He is transcendental to the cosmic manifestation; *viśva-vedasam*—who is the knower or ingredient of this universal manifestation; *viśva-ātmānam*—the soul of the universe; *ajam*—who is never born, eternally existing; *brahma*—the Supreme; *praṇataḥ asmi*—I offer my respectful obeisances; *param*—who is transcendental; *padam*—the shelter.
+*saḥ*—that; *aham*—I (the person desiring release from material life); *viśva-sṛjam*—unto He who has created this cosmic manifestation; *viśvam*—who is Himself the whole cosmic presentation; *aviśvam*—although He is transcendental to the cosmic manifestation; *viśva-vedasam*—who is the knower or ingredient of this universal manifestation; *viśva-ātmānam*—the soul of the universe; *ajam*—who is never born, eternally existing; *brahma*—the Supreme; *praṇataḥ asmi*—I offer my respectful obeisances; *param*—who is transcendental; *padam*—the shelter.
 
 **Now, fully desiring release from material life, I offer my respectful obeisances unto that Supreme Person who is the creator of the universe, who is Himself the form of the universe and who is nonetheless transcendental to this cosmic manifestation. He is the supreme knower of everything in this world, the Supersoul of the universe. He is the unborn, supremely situated Lord. I offer my respectful obeisances unto Him.**
 

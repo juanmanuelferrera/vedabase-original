@@ -8,7 +8,7 @@
 > yo 'dhiyajña-patiṁ viṣṇuṁ\
 > vinindaty anapatrapaḥ
 
-*na*—never; *ayam*—this man; *arhati*—deserves; *asat-vṛttaḥ*—full of impious activities; *nara-deva*—of the worldly king or worldly god; *vara-āsanam*—the exalted throne; *yaḥ*—he who; *adhiyajña-patim*—the master of all sacrifices; *viṣṇum*—Lord Viṣṇu; *vinindati*—insults; *anapatrapaḥ*—shameless.
+*na*—never; *ayam*—this man; *arhati*—deserves; *asat-vṛttaḥ*—full of impious activities; *nara-deva*—of the worldly king or worldly god; *vara-āsanam*—the exalted throne; *yaḥ*—he who; *adhiyajña-patim*—master of all sacrifices; *viṣṇum*—Lord Viṣṇu; *vinindati*—insults; *anapatrapaḥ*—shameless.
 
 **The saintly sages continued: This impious, impudent man does not deserve to sit on the throne at all. He is so shameless that he even dared insult the Supreme Personality of Godhead, Lord Viṣṇu.**
 

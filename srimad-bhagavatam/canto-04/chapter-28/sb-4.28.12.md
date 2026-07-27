@@ -8,7 +8,7 @@
 > kauṭumbikaḥ kuṭumbinyā\
 > upātapyata sānvayaḥ
 
-*tasyām*—when that city; *sandahyamānāyām*—was ablaze; *sa-pauraḥ*—along with all the citizens; *sa-paricchadaḥ*—along with all servants and followers; *kauṭumbikaḥ*—the King, having so many relatives; *kuṭumbinyā*—along with his wife; *upātapyata*—began to suffer the heat of the fire; *sa-anvayaḥ*—along with descendants.
+*tasyām*—when that city; *sandahyamānāyām*—was ablaze; *sa-pauraḥ*—along with all the citizens; *sa-paricchadaḥ*—along with all servants and followers; *kauṭumbikaḥ*—the King, having so many relatives; *kuṭumbinyā*—along with his wife; *upātapyata*—began to suffer the temperature of the fire; *sa-anvayaḥ*—along with descendants.
 
 **When the city was set ablaze, all the citizens and servants of the King, as well as all family members, sons, grandsons, wives and other relatives, were within the fire. King Purañjana thus became very unhappy.**
 

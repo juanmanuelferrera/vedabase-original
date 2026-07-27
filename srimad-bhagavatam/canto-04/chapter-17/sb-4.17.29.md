@@ -10,7 +10,7 @@
 > namaḥ svarūpānubhavena nirdhuta-\
 > dravya-kriyā-kāraka-vibhramormaye
 
-*dharā*—the planet earth; *uvāca*—said; *namaḥ*—I offer my obeisances; *parasmai*—unto the Transcendence; *puruṣāya*—unto the person; *māyayā*—by the material energy; *vinyasta*—expanded; *nānā*—various; *tanave*—whose forms; *guṇa-ātmane*—unto the source of the three modes of material nature; *namaḥ*—I offer my obeisances; *svarūpa*—of the real form; *anubhavena*—by understanding; *nirdhuta*—not affected by; *dravya*—matter; *kriyā*—action; *kāraka*—doer; *vibhrama*—bewilderment; *ūrmaye*—the waves of material existence.
+*dharā*—the earthly planet; *uvāca*—said; *namaḥ*—I offer my obeisances; *parasmai*—unto the Transcendence; *puruṣāya*—unto the person; *māyayā*—by the material energy; *vinyasta*—expanded; *nānā*—various; *tanave*—whose forms; *guṇa-ātmane*—unto the source of the three modes of material nature; *namaḥ*—I offer my obeisances; *svarūpa*—of the real form; *anubhavena*—by understanding; *nirdhuta*—not affected by; *dravya*—matter; *kriyā*—action; *kāraka*—doer; *vibhrama*—bewilderment; *ūrmaye*—the waves of material existence.
 
 **The planet earth spoke: My dear Lord, O Supreme Personality of Godhead, You are transcendental in Your position, and by Your material energy You have expanded Yourself in various forms and species of life through the interaction of the three modes of material nature. Unlike some other masters, You always remain in Your transcendental position and are not affected by the material creation, which is subject to different material interactions. Consequently You are not bewildered by material activities.**
 

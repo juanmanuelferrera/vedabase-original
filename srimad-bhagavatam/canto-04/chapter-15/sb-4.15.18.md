@@ -8,7 +8,7 @@
 > bhūḥ pāduke yogamayyau\
 > dyauḥ puṣpāvalim anvaham
 
-*agniḥ*—the demigod of fire; *āja-gavam*—made of the horns of goats and cows; *cāpam*—a bow; *sūryaḥ*—the sun-god; *raśmi-mayān*—brilliant as sunshine; *iṣūn*—arrows; *bhūḥ*—Bhūmi, the predominating goddess of the earth; *pāduke*—two slippers; *yoga-mayyau*—full of mystic power; *dyauḥ*—the demigods in outer space; *puṣpa*—of flowers; *āvalim*—presentation; *anu-aham*—day after day.
+*agniḥ*—the demigod of fire; *āja-gavam*—made of the horns of goats and cows; *cāpam*—a bow; *sūryaḥ*—the sun-god; *raśmi-mayān*—brilliant as sunshine; *iṣūn*—arrows; *bhūḥ*—Bhūmi, the predominating goddess of the earth; *pāduke*—two slippers; *yoga-mayyau*—full of mystic power; *dyauḥ*—the demigods in outer space; *puṣpa*—of flowers; *āvalim*—presentation; *anvaham*—day after day.
 
 **The demigod of fire, Agni, presented him with a bow made of the horns of goats and cows. The sun-god presented him arrows as brilliant as sunshine. The predominating deity of Bhūloka presented him with slippers full of mystic power. The demigods from outer space brought him presentations of flowers again and again.**
 

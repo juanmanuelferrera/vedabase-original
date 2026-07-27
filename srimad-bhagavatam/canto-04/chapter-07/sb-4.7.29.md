@@ -12,7 +12,7 @@
 > yadi racita-dhiyaṁ māvidya-loko 'paviddhaṁ\
 > japati na gaṇaye tat tvat-parānugraheṇa
 
-*rudraḥ uvāca*—Lord Śiva said; *tava*—Your; *vara-da*—O supreme benefactor; *vara-aṅghrau*—precious lotus feet; *āśiṣā*—by desire; *iha*—in the material world; *akhila-arthe*—for fulfillment; *hi api*—certainly; *munibhiḥ*—by the sages; *asaktaiḥ*—liberated; *ādareṇa*—with care; *arhaṇīye*—worshipable; *yadi*—if; *racita-dhiyam*—mind fixed; *mā*—me; *avidya-lokaḥ*—the ignorant persons; *apaviddham*—unpurified activity; *japati*—utters; *na gaṇaye*—do not value; *tat*—it; *tvat-para-anugraheṇa*—by compassion like Yours.
+*rudraḥ uvāca*—Lord Śiva said; *tava*—Your; *vara-da*—O supreme benefactor; *vara-aṅghrau*—precious lotus feet; *āśiṣā*—by desire; *iha*—in the material world; *akhila-arthe*—for fulfillment; *hi api*—certainly; *munibhiḥ*—by the sages; *asaktaiḥ*—liberated; *ādareṇa*—with care; *arhaṇīye*—worshipable; *yadi*—if; *racita-dhiyam*—mind fixed; *mā*—me; *avidya-lokaḥ*—the ignorant persons; *apaviddham*—unpurified activity; *japati*—utters; *na gaṇaye*—don't value; *tat*—it; *tvat-para-anugraheṇa*—by compassion like Yours.
 
 **Lord Śiva said: My dear Lord, my mind and consciousness are always fixed on Your lotus feet, which, as the source of all benediction and the fulfillment of all desires, are worshiped by all liberated great sages because they are worthy of worship. With my mind fixed on Your lotus feet, I am no longer disturbed by persons who blaspheme me, claiming that my activities are not purified. I do not mind their accusations, and I excuse them out of compassion, just as You exhibit compassion toward all living entities.**
 

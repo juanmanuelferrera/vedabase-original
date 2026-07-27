@@ -8,7 +8,7 @@
 > kīrtyamāne nṛbhir nāmni yajñeśa te\
 > yajña-vighnāḥ kṣayaṁ yānti tasmai namaḥ
 
-*saḥ*—that same person; *prasīda*—be pleased; *tvam*—You; *asmākam*—upon us; *ākāṅkṣatām*—awaiting; *darśanam*—audience; *te*—Your; *paribhraṣṭa*—fallen down; *sat-karmaṇām*—of whom the performance of sacrifice; *kīrtyamāne*—being chanted; *nṛbhiḥ*—by persons; *nāmni*—Your holy name; *yajña-īśa*—O Lord of sacrifice; *te*—Your; *yajña-vighnāḥ*—obstacles; *kṣayam*—destruction; *yānti*—attain; *tasmai*—unto You; *namaḥ*—respectful obeisances.
+*saḥ*—that same person; *prasīda*—be pleased; *tvam*—You; *asmākam*—upon us; *ākāṅkṣatām*—awaiting; *darśanam*—audience; *te*—Your; *paribhraṣṭa*—fallen down; *sat-karmaṇām*—of whom the performance of sacrifice; *kīrtyamāne*—being chanted; *nṛbhiḥ*—by persons; *nāmni*—Your holy name; *yajñeśa*—O Lord of sacrifice; *te*—Your; *yajña-vighnāḥ*—obstacles; *kṣayam*—destruction; *yānti*—attain; *tasmai*—unto You; *namaḥ*—respectful obeisances.
 
 **Dear Lord, we were awaiting Your audience because we have been unable to perform the yajñas according to the Vedic rituals. We pray unto You, therefore, to be pleased with us. Simply by chanting Your holy name, one can surpass all obstacles. We offer our respectful obeisances unto You in Your presence.**
 

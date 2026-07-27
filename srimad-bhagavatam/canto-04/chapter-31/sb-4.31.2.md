@@ -8,7 +8,7 @@
 > pratīcyāṁ diśi velāyāṁ\
 > siddho 'bhūd yatra jājaliḥ
 
-*dīkṣitāḥ*—being determined; *brahma-satreṇa*—by understanding of the Supreme Spirit; *sarva*—all; *bhūta*—living entities; *ātma-medhasā*—considering like one's self; *pratīcyām*—in the western; *diśi*—direction; *velāyām*—on the seashore; *siddhaḥ*—perfect; *abhūt*—became; *yatra*—where; *jājaliḥ*—the great sage Jājali.
+*dīkṣitāḥ*—being determined; *brahma-satreṇa*—by understanding of the Supreme Spirit; *sarva*—all; *bhūta*—living entities; *ātma-medhasā*—considering as one's self; *pratīcyām*—in the western; *diśi*—direction; *velāyām*—on the seashore; *siddhaḥ*—perfect; *abhūt*—became; *yatra*—where; *jājaliḥ*—the great sage Jājali.
 
 **The Pracetās went to the seashore in the west where the great liberated sage Jājali was residing. After perfecting the spiritual knowledge by which one becomes equal to all living entities, the Pracetās became perfect in Kṛṣṇa consciousness.**
 

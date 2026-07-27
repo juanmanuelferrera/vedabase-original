@@ -10,7 +10,7 @@
 > yat sapatnair hṛta-śrīṇāṁ\
 > cyāvitānāṁ sva-dhāmataḥ
 
-*śrī-bhagavān uvāca*—the Supreme Personality of Godhead said; *deva-mātaḥ*—O mother of the demigods; *bhavatyāḥ*—of you; *me*—by Me; *vijñātam*—understood; *cira-kāṅkṣitam*—what You have desired for a long time; *yat*—because; *sapatnaiḥ*—by the rivals; *hṛta-śrīṇām*—of your sons, who are bereft of all opulences; *cyāvitānām*—vanquished; *sva-dhāmataḥ*—from their own residential quarters.
+*śrī-bhagavān uvāca*—the Supreme Personality of Godhead said; *deva-mātar*—O mother of the demigods; *bhavatyāḥ*—of you; *me*—by Me; *vijñātam*—understood; *cira-kāṅkṣitam*—what You have desired for a long time; *yat*—because; *sapatnaiḥ*—by the rivals; *hṛta-śrīṇām*—of your sons, who are bereft of all opulences; *cyāvitānām*—vanquished; *sva-dhāmataḥ*—from their own residential quarters.
 
 **The Supreme Personality of Godhead said: O mother of the demigods, I have already understood your long-cherished desires for the welfare of your sons, who have been deprived of all opulences and driven from their residence by their enemies.**
 

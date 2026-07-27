@@ -8,7 +8,7 @@
 > asamparāyābhimukham\
 > aśvastana-vidaṁ paśum
 
-*kaṁ*—unto whom; *nu*—then; *tvat*—than you; *anyaṁ*—other; *ramaye*—I shall allow to enjoy; *hi*—certainly; *arati-jñam*—without knowledge of sex enjoyment; *akovidam*—therefore almost foolish; *asamparāya*—without knowledge of the next life; *abhimukham*—looking forward; *aśvastana-vidam*—one who does not know what is happening next; *paśum*—like animals.
+*kaṁ*—unto whom; *nu*—then; *tvat*—than yourself; *anyaṁ*—other; *ramaye*—I shall allow to enjoy; *hi*—certainly; *arati-jñam*—without knowledge of sex enjoyment; *akovidam*—therefore almost foolish; *asamparāya*—without knowledge of the next life; *abhimukham*—looking forward; *aśvastana-vidam*—one who does not know what is happening next; *paśum*—like animals.
 
 **How can I expect to unite with others who are neither conversant about sex nor capable of knowing how to enjoy life while living or after death? Such foolish persons are like animals because they do not know the process of sense enjoyment in this life and after death.**
 

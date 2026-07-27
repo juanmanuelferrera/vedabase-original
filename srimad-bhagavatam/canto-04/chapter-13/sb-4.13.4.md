@@ -8,7 +8,7 @@
 > ijyamāno bhaktimatā\
 > nāradeneritaḥ kila
 
-*sva-dharma-śīlaiḥ*—executing sacrificial duties; *puruṣaiḥ*—by the men; *bhagavān*—the Supreme Personality of Godhead; *yajña-pūruṣaḥ*—the enjoyer of all sacrifices; *ijyamānaḥ*—being worshiped; *bhaktimatā*—by the devotee; *nāradena*—by Nārada; *īritaḥ*—described; *kila*—indeed.
+*sva-dharma-śīlaiḥ*—executing sacrificial duties; *puruṣaiḥ*—by the men; *bhagavān*—Supreme Personality of Godhead; *yajña-pūruṣaḥ*—the enjoyer of all sacrifices; *ijyamānaḥ*—being worshiped; *bhaktimatā*—by the devotee; *nāradena*—by Nārada; *īritaḥ*—described; *kila*—indeed.
 
 **While all the Pracetās were executing religious rituals and sacrificial ceremonies and thus worshiping the Supreme Personality of Godhead for His satisfaction, the great sage Nārada described the transcendental qualities of Dhruva Mahārāja.**
 

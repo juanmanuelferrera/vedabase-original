@@ -11,7 +11,7 @@
 > jñāna-vairāgya-vīryeṇa\
 > svarūpa-stho 'jahāt prabhuḥ
 
-*tam*—unto Him; *sarva-guṇa-vinyāsam*—the reservoir of all qualities; *jīve*—unto the designations; *māyā-maye*—the reservoir of all potencies; *nyadhāt*—placed; *tam*—that; *ca*—also; *anuśayam*—designation; *ātma-stham*—situated in self-realization; *asau*—he; *anuśayī*—the living entity; *pumān*—the enjoyer; *jñāna*—knowledge; *vairāgya*—renunciation; *vīryeṇa*—by the prowess of; *svarūpa-sthaḥ*—being situated in one's constitutional position; *ajahāt*—returned home; *prabhuḥ*—the controller.
+*tam*—unto Him; *sarva-guṇa-vinyāsam*—the reservoir of all qualities; *jīve*—unto the designations; *māyā-maye*—the reservoir of all potencies; *nyadhāt*—placed; *tam*—that; *ca*—also; *anuśayam*—designation; *ātma-stham*—situated in self-realization; *asau*—he; *anuśayī*—the living entity; *pumān*—the enjoyer; *jñāna*—knowledge; *vairāgya*—renunciation; *vīryeṇa*—by the prowess of; *svarūpa-sthaḥ*—being situated in one's constitutional position; *ajahāt*—returned back home; *prabhuḥ*—the controller.
 
 **Pṛthu Mahārāja then offered the total designation of the living entity unto the supreme controller of illusory energy. Being released from all the designations by which the living entity became entrapped, he became free by knowledge and renunciation and by the spiritual force of his devotional service. In this way, being situated in his original constitutional position of Kṛṣṇa consciousness, he gave up this body as a prabhu, or controller of the senses.**
 

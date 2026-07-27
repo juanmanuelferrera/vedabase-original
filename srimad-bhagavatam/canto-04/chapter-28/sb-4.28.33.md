@@ -8,7 +8,7 @@
 > ārirādhayiṣuḥ kṛṣṇaṁ\
 > sa jagāma kulācalam
 
-*vibhajya*—having divided; *tanayebhyaḥ*—among his sons; *kṣmām*—the whole world; *rāja-ṛṣiḥ*—the great saintly king; *malayadhvajaḥ*—named Malayadhvaja; *ārirādhayiṣuḥ*—desiring to worship; *kṛṣṇam*—Lord Kṛṣṇa; *saḥ*—he; *jagāma*—went; *kulācalam*—unto Kulācala.
+*vibhajya*—having divided; *tanayebhyaḥ*—amongst his sons; *kṣmām*—the whole world; *rāja-ṛṣiḥ*—great saintly king; *malayadhvajaḥ*—named Malayadhvaja; *ārirādhayiṣuḥ*—desiring to worship; *kṛṣṇam*—Lord Kṛṣṇa; *saḥ*—he; *jagāma*—went; *kulācalam*—unto Kulācala.
 
 **After this, the great saintly King Malayadhvaja divided his entire kingdom amongst his sons. Then, in order to worship Lord Kṛṣṇa with full attention, he went to a solitary place known as Kulācala.**
 

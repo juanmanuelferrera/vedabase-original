@@ -8,7 +8,7 @@
 > samājo brahmarṣīṇāṁ ca\
 > rājarṣīṇāṁ ca sattama
 
-*ekadā*—once upon a time; *āsīt*—took a vow; *mahā-satra*—great sacrifice; *dīkṣā*—initiation; *tatra*—in that function; *diva-okasām*—of the demigods; *samājaḥ*—assembly; *brahma-ṛṣīṇām*—of great saintly *brāhmaṇas*; *ca*—also; *rāja-ṛṣīṇām*—of great saintly kings; *ca*—also; *sat-tama*—the greatest of devotees.
+*ekadā*—once upon a time; *āsīt*—took a vow; *mahā-satra*—great sacrifice; *dīkṣā*—initiation; *tatra*—in that function; *divaukasām*—of the demigods; *samājaḥ*—assembly; *brahma-ṛṣīṇām*—of great saintly *brāhmaṇas*; *ca*—also; *rāja-ṛṣīṇām*—of great saintly kings; *ca*—also; *sat-tama*—the greatest of devotees.
 
 **Once upon a time King Pṛthu initiated the performance of a very great sacrifice in which great saintly sages, brāhmaṇas, demigods from higher planetary systems and great saintly kings known as rājarṣis all assembled together.**
 

@@ -10,7 +10,7 @@
 > ātmeśvara upadraṣṭā\
 > svayan-dṛg aviśeṣaṇaḥ
 
-*śrī-bhagavān*—Lord Viṣṇu; *uvāca*—said; *aham*—I; *brahmā*—Brahmā; *ca*—and; *śarvaḥ*—Lord Śiva; *ca*—and; *jagataḥ*—of the material manifestation; *kāraṇam*—cause; *param*—supreme; *ātma-īśvaraḥ*—the Supersoul; *upadraṣṭā*—the witness; *svayam-dṛk*—self-sufficient; *aviśeṣaṇaḥ*—there is no difference.
+*bhagavān*—Lord Viṣṇu; *uvāca*—said; *aham*—I; *brahmā*—Brahmā; *ca*—and; *śarvaḥ*—Lord Śiva; *ca*—and; *jagataḥ*—of the material manifestation; *kāraṇam*—cause; *param*—supreme; *ātma-īśvaraḥ*—the Supersoul; *upadraṣṭā*—the witness; *svayam-dṛk*—self-sufficient; *aviśeṣaṇaḥ*—there is no difference.
 
 **Lord Viṣṇu replied: Brahmā, Lord Śiva and I are the supreme cause of the material manifestation. I am the Supersoul, the self sufficient witness. But impersonally there is no difference between Brahmā, Lord Śiva and Myself.**
 

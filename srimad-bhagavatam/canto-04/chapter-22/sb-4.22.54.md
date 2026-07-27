@@ -8,7 +8,7 @@
 > sarveṣāṁ loka-pālānāṁ\
 > dadhāraikaḥ pṛthur guṇān
 
-*vijitāśvam*—of the name Vijitāśva; *dhūmrakeśam*—of the name Dhūmrakeśa; *haryakṣam*—of the name Haryakṣa; *draviṇam*—of the name Draviṇa; *vṛkam*—of the name Vṛka; *sarveṣām*—of all; *loka-pālānām*—the governing heads of all planets; *dadhāra*—accepted; *ekaḥ*—one; *pṛthuḥ*—Pṛthu Mahārāja; *guṇān*—all qualities.
+*vijitāśvam*—of the name Vijitāśva; *dhūmrakeśam*—of the name Dhūmrakeśa; *haryakṣam*—of the name Haryakṣa; *draviṇam*—of the name Draviṇa; *vṛkam*—of the name Vṛka; *sarveṣām*—of all; *loka-pālānām*—the governing heads of all planets; *dadhāra*—accepted; *ekaḥ*—one; *pṛthuḥ*—King Pṛthu Mahārāja; *guṇān*—all qualities.
 
 **After begetting five sons named Vijitāśva, Dhūmrakeśa, Haryakṣa, Draviṇa and Vṛka, Pṛthu Mahārāja continued to rule the planet. He accepted all the qualities of the deities who governed all other planets.**
 

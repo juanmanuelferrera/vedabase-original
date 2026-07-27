@@ -8,7 +8,7 @@
 > prāṇāyāmaiḥ sanniruddha-\
 > ṣaḍ-vargaś chinna-bandhanaḥ
 
-*tena*—thus by practicing such austerities; *krama*—gradually; *anu*—constantly; *siddhena*—by perfection; *dhvasta*—smashed; *karma*—fruitive activities; *mala*—dirty things; *āśayaḥ*—desire; *prāṇa-āyāmaiḥ*—by practice of *prāṇāyāma-yoga,* breathing exercises; *san*—being; *niruddha*—stopped; *ṣaṭ-vargaḥ*—the mind and the senses; *chinna-bandhanaḥ*—completely cut off from all bondage.
+*tena*—thus by practicing such austerities; *krama*—gradually; *anu*—constantly; *siddhena*—by perfection; *dhvasta*—smashed; *karma*—fruitive activities; *mala*—dirty things; *āśayaḥ*—desire; *prāṇāyāmaiḥ*—by practice of *prāṇāyāma-yoga,* breathing exercises; *san*—being; *niruddha*—stopped; *ṣaṭ-vargaḥ*—the mind and the senses; *chinna-bandhanaḥ*—completely cut off from all bondage.
 
 **By thus practicing severe austerities, Mahārāja Pṛthu gradually became steadfast in spiritual life and completely free of all desires for fruitive activities. He also practiced breathing exercises to control his mind and senses, and by such control he became completely free from all desires for fruitive activity.**
 

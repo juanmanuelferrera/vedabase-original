@@ -8,7 +8,7 @@
 > vimṛśya loka-vyasanaṁ\
 > kṛpayocuḥ sma satriṇaḥ
 
-*venasya*—of King Vena; *āvekṣya*—after observing; *munayaḥ*—all the great sages; *durvṛttasya*—of the great rogue; *viceṣṭitam*—activities; *vimṛśya*—considering; *loka-vyasanam*—danger to the people in general; *kṛpayā*—out of compassion; *ūcuḥ*—talked; *sma*—in the past; *satriṇaḥ*—the performers of sacrifices.
+*venasya*—of King Vena; *āvekṣya*—after observing; *munayaḥ*—all great sages; *durvṛttasya*—of the great rogue; *viceṣṭitam*—activities; *vimṛśya*—considering; *loka-vyasanam*—danger to the people in general; *kṛpayā*—out of compassion; *ūcuḥ*—talked; *sma*—in the past; *satriṇaḥ*—the performers of sacrifices.
 
 **Therefore all the great sages assembled together, and, after observing cruel Vena's atrocities, concluded that a great danger and catastrophe was approaching the people of the world. Thus out of compassion they began to talk amongst themselves, for they themselves were the sacrificial performers.**
 

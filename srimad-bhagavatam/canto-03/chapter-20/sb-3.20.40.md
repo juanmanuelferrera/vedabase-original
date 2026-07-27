@@ -8,7 +8,7 @@
 > dig-vāsaso mukta-keśān\
 > vīkṣya cāmīlayad dṛśau
 
-*sṛṣṭvā*—having created; *bhūta*—ghosts; *piśācān*—fiends; *ca*—and; *bhagavān*—Lord Brahmā; *ātma*—his; *tandriṇā*—from laziness; *dik-vāsasaḥ*—naked; *mukta*—disheveled; *keśān*—hair; *vīkṣya*—seeing; *ca*—and; *amīlayat*—closed; *dṛśau*—two eyes.
+*sṛṣṭvā*—having created; *bhūta*—ghosts; *piśācān*—fiends; *ca*—and; *bhagavān*—Lord Brahmā; *ātma*—his; *tandriṇā*—from laziness; *diś-vāsasaḥ*—naked; *mukta*—disheveled; *keśān*—hair; *vīkṣya*—seeing; *ca*—and; *amīlayat*—closed; *dṛśau*—two eyes.
 
 **The glorious Brahmā next evolved from his sloth the ghosts and fiends, but he closed his eyes when he saw them stand naked with their hair scattered.**
 

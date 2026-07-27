@@ -8,7 +8,7 @@
 > yat tat samādhi-yogarddhi-\
 > tapo-vidyā-viraktimat
 
-*tebhyaḥ*—to them; *ca*—and; *ekaikaśaḥ*—each one; *svasya*—of his own; *dehasya*—body; *aṁśam*—part; *adāt*—gave; *ajaḥ*—the unborn Brahmā; *yat*—which; *tat*—that; *samādhi*—deep meditation; *yoga*—concentration of the mind; *ṛddhi*—supernatural power; *tapaḥ*—austerity; *vidyā*—knowledge; *virakti*—renunciation; *mat*—possessing.
+*tebhyaḥ*—to them; *ca*—and; *ekaikaśaḥ*—each one; *svasya*—of his own; *dehasya*—body; *aṁśam*—part; *adāt*—gave; *ajaḥ*—the unborn Brahmā; *yat*—which; *tat*—that; *samādhi*—deep meditation; *yoga*—concentration of the mind; *ṛddhi*—supernatural power; *tapas*—austerity; *vidyā*—knowledge; *virakti*—renunciation; *mat*—possessing.
 
 **To each one of these sons the unborn creator of the universe gave a part of his own body, which was characterized by deep meditation, mental concentration, supernatural power, austerity, adoration and renunciation.**
 

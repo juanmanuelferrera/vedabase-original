@@ -8,7 +8,7 @@
 > titikṣayā dharitrīva\
 > dyaur ivābhīṣṭa-do nṛṇām
 
-*durdharṣaḥ*—unconquerable; *tejasā*—by prowess; *iva*—like; *agniḥ*—fire; *mahā-indraḥ*—the King of heaven; *iva*—likened; *durjayaḥ*—insuperable; *titikṣayā*—by tolerance; *dharitrī*—the earth; *iva*—like; *dyauḥ*—the heavenly planets; *iva*—like; *abhīṣṭa-daḥ*—fulfilling desires; *nṛṇām*—of human society.
+*durdharṣaḥ*—unconquerable; *tejasā*—by prowess; *iva*—like; *agniḥ*—fire; *mahendraḥ*—the King of heaven; *iva*—likened; *durjayaḥ*—insuperable; *titikṣayā*—by tolerance; *dharitrī*—the earth; *iva*—like; *dyauḥ*—the heavenly planets; *iva*—like; *abhīṣṭa-daḥ*—fulfilling desires; *nṛṇām*—of human society.
 
 **Mahārāja Pṛthu was so strong and powerful that no one could disobey his orders any more than one could conquer fire itself. He was so strong that he was compared to Indra, the King of heaven, whose power is insuperable. On the other hand, Mahārāja Pṛthu was also as tolerant as the earth, and in fulfilling various desires of human society, he was like heaven itself.**
 

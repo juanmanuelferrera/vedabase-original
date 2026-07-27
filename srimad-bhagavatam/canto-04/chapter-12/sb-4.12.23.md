@@ -10,7 +10,7 @@
 > yaḥ pañca-varṣas tapasā\
 > bhavān devam atītṛpat
 
-*sunanda-nandau ūcatuḥ*—Sunanda and Nanda said; *bhoḥ bhoḥ rājan*—O dear King; *su-bhadram*—good fortune; *te*—unto you; *vācam*—words; *naḥ*—our; *avahitaḥ*—attentively; *śṛṇu*—hear; *yaḥ*—who; *pañca-varṣaḥ*—five years old; *tapasā*—by austerity; *bhavān*—you; *devam*—the Supreme Personality of Godhead; *atītṛpat*—greatly satisfied.
+*sunanda-nandau ūcatuḥ*—Sunanda and Nanda said; *bhoḥ bhoḥ rājan*—O dear King; *su-bhadram*—good fortune; *te*—unto you; *vācam*—words; *naḥ*—our; *avahitaḥ*—attentively; *śṛṇu*—hear; *yaḥ*—who; *pañca-varṣaḥ*—five years old; *tapasā*—by austerity; *bhavān*—yourself; *devam*—the Supreme Personality of Godhead; *atītṛpat*—greatly satisfied.
 
 **The two confidential associates of Lord Viṣṇu, Nanda and Sunanda, said: Dear King, let there be all good fortune unto you. Please attentively hear what we shall say. When you were only five years old, you underwent severe austerities, and you thereby greatly satisfied the Supreme Personality of Godhead.**
 

@@ -8,7 +8,7 @@
 > tathāpi sāntvayemāmuṁ\
 > nāsmāṁs tat-pātakaṁ spṛśet
 
-*nirūpitaḥ*—appointed; *prajā-pālaḥ*—the king; *saḥ*—he; *jighāṁsati*—desires to harm; *vai*—certainly; *prajāḥ*—the citizens; *tathā api*—nevertheless; *sāntvayema*—we should pacify; *amum*—him; *na*—not; *asmān*—us; *tat*—his; *pātakam*—sinful result; *spṛśet*—may touch.
+*nirūpitaḥ*—appointed; *prajā-pālaḥ*—the king; *saḥ*—he; *jighāṁsati*—desires to harm; *vai*—certainly; *prajāḥ*—the citizens; *tathāpi*—nevertheless; *sāntvayema*—we should pacify; *amum*—him; *na*—not; *asmān*—us; *tat*—his; *pātakam*—sinful result; *spṛśet*—may touch.
 
 **We appointed this Vena king of the state in order to give protection to the citizens, but now he has become the enemy of the citizens. Despite all these discrepancies, we should at once try to pacify him. By doing so, we may not be touched by the sinful results caused by him.**
 

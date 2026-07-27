@@ -8,7 +8,7 @@
 > yogeśvaropāsanayā ca nityaṁ\
 > puṇya-śravaḥ-kathayā puṇyayā ca
 
-*sā*—that devotional service; *śraddhayā*—with faith and conviction; *bhagavat-dharma*—devotional service; *caryayā*—by discussion; *jijñāsayā*—by inquiry; *adhyātmika*—spiritual; *yoga-niṣṭhayā*—by conviction in spiritual understanding; *yoga-īśvara*—the Supreme Personality of Godhead; *upāsanayā*—by worship of Him; *ca*—and; *nityam*—regularly; *puṇya-śravaḥ*—by hearing which; *kathayā*—by discussion; *puṇyayā*—by pious; *ca*—also.
+*sā*—that devotional service; *śraddhayā*—with faith and conviction; *bhagavat-dharma*—devotional service; *caryayā*—by discussion; *jijñāsayā*—by inquiry; *adhyātmika*—spiritual; *yoga-niṣṭhayā*—by conviction in spiritual understanding; *yogeśvara*—the Supreme Personality of Godhead; *upāsanayā*—by worship of Him; *ca*—and; *nityam*—regularly; *puṇya-śravaḥ*—by hearing which; *kathayā*—by discussion; *puṇyayā*—by pious; *ca*—also.
 
 **Attachment for the Supreme can be increased by practicing devotional service, inquiring about the Supreme Personality of God, applying bhakti-yoga in life, worshiping the Yogeśvara, the Supreme Personality of Godhead, and by hearing and chanting about the glories of the Supreme Personality of Godhead. These actions are pious in themselves.**
 

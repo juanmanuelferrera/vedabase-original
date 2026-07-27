@@ -8,7 +8,7 @@
 > sva-pāda-pallavaṁ rāma\
 > ātma-jyotir agāt tataḥ
 
-*smaratām*—of persons who always think of Him; *hṛdi*—in the core of the heart; *vinyasya*—placing; *viddham*—pierced; *daṇḍaka-kaṇṭakaiḥ*—by thorns in the forest of Daṇḍakāraṇya (while Lord Rāmacandra was living there); *sva-pāda-pallavam*—the petals of Mis lotus feet; *rāmaḥ*—Lord Rāmacandra; *ātma-jyotiḥ*—the rays of His bodily luster, known as the *brahmajyoti*; *agāt*—entered; *tataḥ*—beyond the *brahmajyoti,* or in His own Vaikuṇṭha planet.
+*smaratām*—of persons who always think of Him; *hṛdi*—in the core of the heart; *vinyasya*—placing; *viddham*—pierced; *daṇḍaka-kaṇṭakaiḥ*—by thorns in the forest of Daṇḍakāraṇya (while Lord Rāmacandra was living there); *sva-pāda-pallavam*—the petals of His lotus feet; *rāmaḥ*—Lord Rāmacandra; *ātma-jyotiḥ*—the rays of His bodily luster, known as the *brahmajyoti*; *agāt*—entered; *tataḥ*—beyond the *brahmajyoti,* or in His own Vaikuṇṭha planet.
 
 **After completing the sacrifice, Lord Rāmacandra, whose lotus feet were sometimes pierced by thorns when He lived in Daṇḍakāraṇya, placed those lotus feet in the hearts of those who always think of Him. Then He entered His own abode, the Vaikuṇṭha planet beyond the brahmajyoti.**
 

@@ -10,7 +10,7 @@
 > athāpi bhaktyeśa tayopadhāvatām\
 > ananya-vṛttyānugṛhāṇa vatsala
 
-*yoga-īśvarāḥ*—the great mystics; *ūcuḥ*—said; *preyān*—very dear; *na*—not; *te*—of You; *anyaḥ*—another; *asti*—there is; *amutaḥ*—from that; *tvayi*—in You; *prabho*—dear Lord; *viśva-ātmani*—in the Supersoul of all living entities; *īkṣet*—see; *na*—not; *pṛthak*—different; *yaḥ*—who; *ātmanaḥ*—the living entities; *atha api*—so much more; *bhaktyā*—with devotion; *īśa*—O Lord; *tayā*—with it; *upadhāvatām*—of those who worship; *ananya-vṛttyā*—unfailing; *anugṛhāṇa*—favor; *vatsala*—O favorable Lord.
+*yogeśvarāḥ*—the great mystics; *ūcuḥ*—said; *preyān*—very dear; *na*—not; *te*—of You; *anyaḥ*—another; *asti*—there is; *amutaḥ*—from that; *tvayi*—in You; *prabho*—dear Lord; *viśva-ātmani*—in the Supersoul of all living entities; *īkṣet*—see; *na*—not; *pṛthak*—different; *yaḥ*—who; *ātmanaḥ*—the living entities; *athāpi*—so much more; *bhaktyā*—with devotion; *īśa*—O Lord; *tayā*—with it; *upadhāvatām*—of those who worship; *ananya-vṛttyā*—unfailing; *anugṛhāṇa*—favor; *vatsala*—O favorable Lord.
 
 **The great mystics said: Dear Lord, persons who see You as nondifferent from themselves, knowing that You are the Supersoul of all living entities, are certainly very, very dear to You. You are very favorable toward those who engage in devotional service, accepting You as the Lord and themselves as the servants. By Your mercy, You are always inclined in their favor.**
 

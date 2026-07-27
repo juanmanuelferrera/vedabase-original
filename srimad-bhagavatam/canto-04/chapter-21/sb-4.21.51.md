@@ -8,7 +8,7 @@
 > bhrāmyatāṁ naṣṭa-dṛṣṭīnāṁ\
 > karmabhir daiva-saṁjñitaiḥ
 
-*adya*—today; *naḥ*—of us; *tamasaḥ*—of the darkness of material existence; *pāraḥ*—the other side; *tvayā*—by you; *upāsāditaḥ*—increased; *prabho*—O lord; *bhrāmyatām*—who are wandering; *naṣṭa-dṛṣṭīnām*—who have lost their goal of life; *karmabhiḥ*—on account of past deeds; *daiva-saṁjñitaiḥ*—arranged by superior authority.
+*adya*—today; *naḥ*—of us; *tamasaḥ*—of the darkness of material existence; *pāraḥ*—other side; *tvayā*—by you; *upāsāditaḥ*—increased; *prabho*—O lord; *bhrāmyatām*—who are wandering; *naṣṭa-dṛṣṭīnām*—who have lost their goal of life; *karmabhiḥ*—on account of past deeds; *daiva-saṁjñitaiḥ*—arranged by superior authority.
 
 **The citizens continued: Today you have opened our eyes and revealed how to cross to the other side of the ocean of darkness. By our past deeds and by the arrangement of superior authority, we are entangled in a network of fruitive activities and have lost sight of the destination of life; thus we have been wandering within the universe.**
 

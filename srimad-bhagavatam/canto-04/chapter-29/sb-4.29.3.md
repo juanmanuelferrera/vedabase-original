@@ -8,7 +8,7 @@
 > yan na vijñāyate pumbhir\
 > nāmabhir vā kriyā-guṇaiḥ
 
-*yaḥ*—he who; *avijñāta*—unknown; *āhṛtaḥ*—described; *tasya*—of him; *puruṣasya*—of the living entity; *sakhā*—the eternal friend; *īśvaraḥ*—the master; *yat*—because; *na*—never; *vijñāyate*—is understood; *pumbhiḥ*—by the living entities; *nāmabhiḥ*—by names; *vā*—or; *kriyā-guṇaiḥ*—by activities or qualities.
+*yaḥ*—he who; *avijñāta*—unknown; *āhṛtaḥ*—described; *tasya*—of him; *puruṣasya*—of the living entity; *sakhā*—eternal friend; *īśvaraḥ*—the master; *yat*—because; *na*—never; *vijñāyate*—is understood; *pumbhiḥ*—by the living entities; *nāmabhiḥ*—by names; *vā*—or; *kriyā-guṇaiḥ*—by activities or qualities.
 
 **The person I have described as unknown is the Supreme Personality of Godhead, the master and eternal friend of the living entity. Since the living entities cannot realize the Supreme Personality of Godhead by material names, activities or qualities, He remains everlastingly unknown to the conditioned soul.**
 

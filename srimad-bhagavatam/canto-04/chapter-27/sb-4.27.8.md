@@ -8,7 +8,7 @@
 > dāraiḥ saṁyojayām āsa\
 > duhitṝḥ sadṛśair varaiḥ
 
-*saḥ*—he; *pañcāla-patiḥ*—the King of Pañcāla; *putrān*—sons; *pitṛ-vaṁśa*—paternal family; *vivardhanān*—increasing; *dāraiḥ*—with wives; *saṁyojayām āsa*—married; *duhitṝḥ*—daughters; *sadṛśaiḥ*—qualified; *varaiḥ*—with husbands.
+*saḥ*—he; *pañcāla-patiḥ*—King of Pañcāla; *putrān*—sons; *pitṛ-vaṁśa*—paternal family; *vivardhanān*—increasing; *dāraiḥ*—with wives; *saṁyojayām āsa*—married; *duhitṝḥ*—daughters; *sadṛśaiḥ*—qualified; *varaiḥ*—with husbands.
 
 **After this, King Purañjana, King of the Pañcāla country, in order to increase the descendants of his paternal family, married his sons with qualified wives and married his daughters with qualified husbands.**
 

@@ -8,7 +8,7 @@
 > bhaktiṁ vidhāya paramāṁ śanakair avidyā-\
 > granthiṁ vibhetsyasi mamāham iti prarūḍham
 
-*tvam*—you; *pratyak-ātmani*—unto the Supersoul; *tadā*—at that time; *bhagavati*—unto the Supreme Personality of Godhead; *anante*—who is unlimited; *ānanda-mātre*—the reservoir of all pleasure; *upapanna*—possessed of; *samasta*—all; *śaktau*—potencies; *bhaktim*—devotional service; *vidhāya*—by rendering; *paramām*—supreme; *śanakaiḥ*—very soon; *avidyā*—of illusion; *granthim*—the knot; *vibhetsyasi*—you will undo; *mama*—my; *aham*—I; *iti*—thus; *prarūḍham*—firmly fixed.
+*tvam*—you; *pratyak-ātmani*—unto the Supersoul; *tadā*—at that time; *bhagavati*—unto the Supreme Personality of Godhead; *anante*—who is unlimited; *ānanda-mātre*—reservoir of all pleasure; *upapanna*—possessed of; *samasta*—all; *śaktau*—potencies; *bhaktim*—devotional service; *vidhāya*—by rendering; *paramām*—supreme; *śanakaiḥ*—very soon; *avidyā*—of illusion; *granthim*—the knot; *vibhetsyasi*—you will undo; *mama*—my; *aham*—I; *iti*—thus; *prarūḍham*—firmly fixed.
 
 **Thus regaining your natural position and rendering service unto the Supreme Lord, who is the all-powerful reservoir of all pleasure and who lives in all living entities as the Supersoul, you will very soon forget the illusory understanding of "I" and "my."**
 

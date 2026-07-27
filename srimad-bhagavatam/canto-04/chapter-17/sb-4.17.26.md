@@ -8,7 +8,7 @@
 > bhūteṣu niranukrośo\
 > nṛpāṇāṁ tad-vadho 'vadhaḥ
 
-*pumān*—a man; *yoṣit*—a woman; *uta*—also; *klībaḥ*—a eunuch; *ātma-sambhāvanaḥ*—interested in self -maintenance; *adhamaḥ*—lowest of humankind; *bhūteṣu*—to other living entities; *niranukrośaḥ*—without compassion; *nṛpāṇām*—for the kings; *tat*—of him; *vadhaḥ*—killing; *avadhaḥ*—not killing.
+*pumān*—a man; *yoṣit*—a woman; *uta*—also; *klībaḥ*—eunuch; *ātma-sambhāvanaḥ*—interested in self -maintenance; *adhamaḥ*—lowest of humankind; *bhūteṣu*—to other living entities; *niranukrośaḥ*—without compassion; *nṛpāṇām*—for the kings; *tat*—of him; *vadhaḥ*—killing; *avadhaḥ*—not killing.
 
 **Any cruel person—be he a man, woman or impotent eunuch—who is only interested in his personal maintenance and has no compassion for other living entities, may be killed by the king. Such killing can never be considered actual killing.**
 

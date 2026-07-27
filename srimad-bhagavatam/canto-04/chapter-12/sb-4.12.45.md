@@ -8,7 +8,7 @@
 > svargyaṁ dhrauvyaṁ saumanasyaṁ\
 > praśasyam agha-marṣaṇam
 
-*dhanyam*—bestowing wealth; *yaśasyam*—bestowing reputation; *āyuṣyam*—increasing the duration of life; *puṇyam*—sacred; *svasti-ayanam*—creating auspiciousness; *mahat*—great; *svargyam*—bestowing achievement of heavenly planets; *dhrauvyam*—or Dhruvaloka; *saumanasyam*—pleasing to the mind; *praśasyam*—glorious; *agha-marṣaṇam*—counteracting all kinds of sinful activities.
+*dhanyam*—bestowing wealth; *yaśasyam*—bestowing reputation; *āyuṣyam*—increasing duration of life; *puṇyam*—sacred; *svasti-ayanam*—creating auspiciousness; *mahat*—great; *svargyam*—bestowing achievement of heavenly planets; *dhrauvyam*—or Dhruvaloka; *saumanasyam*—pleasing to the mind; *praśasyam*—glorious; *agha-marṣaṇam*—counteracting all kinds of sinful activities.
 
 **By hearing the narration of Dhruva Mahārāja one can fulfill desires for wealth, reputation and increased duration of life. It is so auspicious that one can even go to a heavenly planet or attain Dhruvaloka, which was achieved by Dhruva Mahārāja, just by hearing about him. The demigods also become pleased because it is so glorious, and it is so powerful that it can counteract all the results of one's sinful actions.**
 

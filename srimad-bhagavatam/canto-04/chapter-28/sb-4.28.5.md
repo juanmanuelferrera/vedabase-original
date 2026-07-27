@@ -8,7 +8,7 @@
 > avāporu-vidhāṁs tāpān\
 > kuṭumbī mamatākulaḥ
 
-*tasyām*—when the city; *prapīḍyamānāyām*—was put into different difficulties; *abhimānī*—too much absorbed; *purañjanaḥ*—King Purañjana; *avāpa*—achieved; *uru*—many; *vidhān*—varieties; *tāpān*—pains; *kuṭumbī*—family man; *mamatā-ākulaḥ*—too much affected by attachment to family.
+*tasyām*—when the city; *prapīḍyamānāyām*—was put into different difficulties; *abhimānī*—too much absorbed; *purañjanaḥ*—King Purañjana; *avāpa*—achieved; *uru*—many; *vidhān*—varieties; *tāpān*—pains; *kuṭumbī*—family man; *mamatā-ākulaḥ*—too much affected with attachment to family.
 
 **When the city was thus endangered by the soldiers and Kālakanyā, King Purañjana, being overly absorbed in affection for his family, was placed in difficulty by the attack of Yavana-rāja and Kālakanyā.**
 

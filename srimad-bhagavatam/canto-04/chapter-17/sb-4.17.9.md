@@ -10,7 +10,7 @@
 > prajā niranne kṣiti-pṛṣṭha etya\
 > kṣut-kṣāma-dehāḥ patim abhyavocan
 
-*maitreyaḥ uvāca*—the great sage Maitreya said; *yadā*—when; *abhiṣiktaḥ*—was enthroned; *pṛthuḥ*—King Pṛthu; *aṅga*—my dear Vidura; *vipraiḥ*—by the *brāhmaṇas*; *āmantritaḥ*—was declared; *janatāyāḥ*—of the people; *ca*—also; *pālaḥ*—the protector; *prajāḥ*—the citizens; *niranne*—being without food grains; *kṣiti-pṛṣṭhe*—the surface of the globe; *etya*—coming near; *kṣut*—by hunger; *kṣāma*—skinny; *dehāḥ*—their bodies; *patim*—to the protector; *abhyavocan*—they said.
+*maitreyaḥ uvāca*—the great sage Maitreya said; *yadā*—when; *abhiṣiktaḥ*—was enthroned; *pṛthuḥ*—King Pṛthu; *aṅga*—my dear Vidura; *vipraiḥ*—by the *brāhmaṇas*; *āmantritaḥ*—was declared; *janatāyāḥ*—of the people; *ca*—also; *pālaḥ*—the protector; *prajāḥ*—the citizens; *niranne*—being without food grains; *kṣiti-pṛṣṭhe*—the surface of the globe; *etya*—coming near; *kṣudh*—by hunger; *kṣāma*—skinny; *dehāḥ*—their bodies; *patim*—to the protector; *abhyavocan*—they said.
 
 **The great sage Maitreya continued: My dear Vidura, at the time King Pṛthu was enthroned by the great sages and brāhmaṇas and declared to be the protector of the citizens, there was a scarcity of food grains. The citizens actually became skinny due to starvation. Therefore they came before the King and informed him of their real situation.**
 

@@ -8,7 +8,7 @@
 > cid-acic-chakti-yuktāya\
 > tasmai bhagavate namaḥ
 
-*ananta-avyakta-rūpeṇa*—by the unlimited, unmanifested form; *yena*—by which; *idam*—this; *akhilam*—total aggregate; *tatam*—expanded; *cit*—with spiritual; *acit*—and material; *śakti*—potency; *yuktāya*—unto him who is endowed; *tasmai*—unto him; *bhagavate*—unto the Supreme Personality of Godhead; *namaḥ*—I offer my respectful obeisances.
+*ananta-avyakta-rūpeṇa*—by the unlimited, unmanifested form; *yena*—by which; *idam*—this; *akhilam*—total aggregate; *tatam*—expanded; *cit*—with spiritual; *acit*—and material; *śakti*—potency; *yuktāya*—unto he who is endowed; *tasmai*—unto him; *bhagavate*—unto the Supreme Personality of Godhead; *namaḥ*—I offer my respectful obeisances.
 
 **Let me offer my respectful obeisances unto the Supreme, who in his unlimited, unmanifested form has expanded the cosmic manifestation, the form of the totality of the universe. He possesses external and internal energies and the mixed energy called the marginal potency, which consists of all the living entities.**
 

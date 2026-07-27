@@ -10,7 +10,7 @@
 > harau sa vavre 'calitāṁ smṛtiṁ yayā\
 > taraty ayatnena duratyayaṁ tamaḥ
 
-*maitreyaḥ uvāca*—the great sage Maitreya said; *saḥ*—he; *rāja-rājena*—by the king of kings (Kuvera); *varāya*—for a benediction; *coditaḥ*—being asked; *dhruvaḥ*—Dhruva Mahārāja; *mahā-bhāgavataḥ*—a first-class pure devotee; *mahā-matiḥ*—most intelligent or thoughtful; *harau*—unto the Supreme Personality of Godhead; *saḥ*—he; *vavre*—asked; *acalitām*—unflinching; *smṛtim*—remembrance; *yayā*—by which; *tarati*—crosses over; *ayatnena*—without difficulty; *duratyayam*—unsurpassable; *tamaḥ*—nescience.
+*maitreyaḥ uvāca*—the great sage Maitreya said; *saḥ*—he; *rāja-rājena*—by the king of kings (Kuvera); *varāya*—for benediction; *coditaḥ*—being asked; *dhruvaḥ*—Dhruva Mahārāja; *mahā-bhāgavataḥ*—a first-class pure devotee; *mahā-matiḥ*—most intelligent or thoughtful; *harau*—unto the Supreme Personality of Godhead; *saḥ*—he; *vavre*—asked; *acalitām*—unflinching; *smṛtim*—remembrance; *yayā*—by which; *tarati*—crosses over; *ayatnena*—without difficulty; *duratyayam*—unsurpassable; *tamaḥ*—nescience.
 
 **The great sage Maitreya continued: My dear Vidura, when thus asked to accept a benediction from Kuvera the Yakṣarāja [King of the Yakṣas], Dhruva Mahārāja, that most elevated pure devotee, who was an intelligent and thoughtful king, begged that he might have unflinching faith in and remembrance of the Supreme Personality of Godhead, for thus a person can cross over the ocean of nescience very easily, although it is very difficult for others to cross.**
 

@@ -8,7 +8,7 @@
 > āmuktam iva pākhaṇḍaṁ\
 > yo 'dharme dharma-vibhramaḥ
 
-*tam*—King Indra; *atriḥ*—the sage Atri; *bhagavān*—most powerful; *aikṣat*—could see; *tvaramāṇam*—moving very hastily; *vihāyasā*—in outer space; *āmuktam iva*—like a liberated person; *pākhaṇḍam*—imposter; *yaḥ*—one who; *adharme*—in irreligion; *dharma*—religion; *vibhramaḥ*—mistaking.
+*tam*—King Indra; *atriḥ*—the sage Atri; *bhagavān*—most powerful; *aikṣat*—could see; *tvaramāṇam*—moving very hastily; *vihāyasā*—in outer space; *āmuktam iva*—like a liberated person; *pākhaṇḍam*—imposter; *yaḥ*—one who; *adharme*—in irreligiosity; *dharma*—religiosity; *vibhramaḥ*—mistaking.
 
 **When King Indra was taking away the horse, he dressed himself to appear as a liberated person. Actually this dress is a form of cheating, for it falsely created an impression of religion. When Indra went into outer space in this way, the great sage Atri saw him and understood the whole situation.**
 

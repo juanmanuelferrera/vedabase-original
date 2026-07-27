@@ -8,7 +8,7 @@
 > daṇḍa-vrata-dhare rājñi\
 > munayo dharma-kovidāḥ
 
-*kim*—why; *vā*—also; *aṁhaḥ*—sinful activities; *vene*—unto Vena; *uddiśya*—seeing; *brahma-daṇḍam*—the curse of a *brāhmaṇa*; *ayūyujan*—they desired to award; *daṇḍa-vrata-dhare*—who carries the rod of punishment; *rājñi*—unto the king; *munayaḥ*—the great sages; *dharma-kovidāḥ*—completely conversant with religious principles.
+*kim*—why; *vā*—also; *aṁhaḥ*—sinful activities; *vene*—unto Vena; *uddiśya*—seeing; *brahma-daṇḍam*—curse of a *brāhmaṇa*; *ayūyujan*—they desired to award; *daṇḍa-vrata-dhare*—who carries the rod of punishment; *rājñi*—unto the king; *munayaḥ*—the great sages; *dharma-kovidāḥ*—completely conversant with religious principles.
 
 **Vidura also inquired: How is it that the great sages, who were completely conversant with religious principles, desired to curse King Vena, who himself carried the rod of punishment, and thus awarded him the greatest punishment [brahma-śāpa]?**
 

@@ -8,7 +8,7 @@
 > yogaṁ tenaiva puruṣam\
 > abhajat puruṣarṣabhaḥ
 
-*sanat-kumāraḥ*—Sanat-kumāra; *bhagavān*—most powerful; *yat*—that which; *āha*—said; *ādhyātmikam*—spiritual advancement of life; *param*—ultimate; *yogam*—mysticism; *tena*—by that; *eva*—certainly; *puruṣam*—the Supreme Person; *abhajat*—worshiped; *puruṣa-ṛṣabhaḥ*—the best of human beings.
+*sanat-kumāraḥ*—Sanat-kumāra; *bhagavān*—most powerful; *yat*—that which; *āha*—said; *ādhyātmikam*—spiritual advancement of life; *param*—ultimate; *yogam*—mysticism; *tena*—by that; *eva*—certainly; *puruṣam*—Supreme Person; *abhajat*—worshiped; *puruṣa-ṛṣabhaḥ*—the best of human beings.
 
 **Thus the best amongst human beings, Mahārāja Pṛthu, followed that path of spiritual advancement which was advised by Sanat-kumāra. That is to say, he worshiped the Supreme Personality of Godhead, Kṛṣṇa.**
 

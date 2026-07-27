@@ -8,7 +8,7 @@
 > lokasya yad varṣati cāśiṣo 'rthinas\
 > tasmai bhavān druhyati viśva-bandhave
 
-*yat-pāda-padmam*—the lotus feet of whom; *mahatām*—of the higher personalities; *manaḥ-alibhiḥ*—by the bees of the mind; *niṣevitam*—being engaged at; *brahma-rasa*—of transcendental bliss (*brahmānanda*); *āsava-arthibhiḥ*—seeking the nectar; *lokasya*—of the common man; *yat*—which; *varṣati*—he fulfills; *ca*—and; *āśiṣaḥ*—desires; *arthinaḥ*—seeking; *tasmai*—towards him (Lord Śiva); *bhavān*—you; *druhyati*—are envious; *viśva-bandhave*—unto the friend of all living entities within the three worlds.
+*yat-pāda-padmam*—the lotus feet of whom; *mahatām*—of the higher personalities; *manaḥ-alibhiḥ*—by the bees of the mind; *niṣevitam*—being engaged at; *brahma-rasa*—of transcendental bliss (*brahmānanda*); *āsava-arthibhiḥ*—seeking for the nectar; *lokasya*—of the common man; *yat*—which; *varṣati*—he fulfills; *ca*—and; *āśiṣaḥ*—desires; *arthinaḥ*—seeking; *tasmai*—towards him (Lord Śiva); *bhavān*—you; *druhyati*—are envious; *viśva-bandhave*—unto the friend of all living entities within the three worlds.
 
 **You are envious of Lord Śiva, who is the friend of all living entities within the three worlds. For the common man he fulfills all desires, and because of their engagement in thinking of his lotus feet, he also blesses higher personalities who are seeking after brahmānanda [transcendental bliss].**
 

@@ -8,7 +8,7 @@
 > śriyānapāyinyā kṣipta-\
 > nikaṣāśmorasollasat
 
-*siṁha*—a lion; *skandha*—shoulders; *tviṣaḥ*—the coils of hair; *bibhrat*—bearing; *saubhaga*—fortunate; *grīva*—neck; *kaustubham*—the pearl of the name; *śriyā*—beauty; *anapāyinyā*—never decreasing; *kṣipta*—defeating; *nikaṣa*—the stone for testing gold; *aśma*—stone; *urasā*—with the chest; *ullasat*—glittering.
+*siṁha*—the lion; *skandha*—shoulders; *tviṣaḥ*—the coils of hair; *bibhrat*—bearing; *saubhaga*—fortunate; *grīva*—neck; *kaustubham*—the pearl of the name; *śriyā*—beauty; *anapāyinyā*—never decreasing; *kṣipta*—defeating; *nikaṣa*—the stone for testing gold; *aśma*—stone; *urasā*—with the chest; *ullasat*—glittering.
 
 **The Lord has shoulders just like a lion's. Upon these shoulders are garlands, necklaces and epaulets, and all of these are always glittering. Besides these, there is the beauty of the Kaustubha maṇi pearl, and on the dark chest of the Lord there are streaks named Śrīvatsa, which are signs of the goddess of fortune. The glittering of these streaks excels the beauty of the golden streaks on a gold-testing stone. Indeed, such beauty defeats a gold-testing stone.**
 

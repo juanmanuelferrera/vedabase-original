@@ -8,7 +8,7 @@
 > tasmāl lokeṣu te mūḍha\
 > na bhaved bhramataḥ padam
 
-*tantu-kṛntana*—O mischief-monger who have mercilessly separated my sons from me; *yat*—which; *naḥ*—unto us; *tvam*—you; *abhadram*—an inauspicious thing; *acaraḥ*—have done; *punaḥ*—again; *tasmāt*—therefore; *lokeṣu*—in all the planetary systems within the universe; *te*—of you; *mūḍha*—O rascal not knowing how to act; *na*—not; *bhavet*—there may be; *bhramataḥ*—who are wandering; *padam*—an abode.
+*tantu-kṛntana*—O mischief-monger who has mercilessly separated my sons from me; *yat*—which; *naḥ*—unto us; *tvam*—you; *abhadram*—an inauspicious thing; *acaraḥ*—have done; *punaḥ*—again; *tasmāt*—therefore; *lokeṣu*—in all the planetary systems within the universe; *te*—of you; *mūḍha*—O rascal not knowing how to act; *na*—not; *bhavet*—there may be; *bhramataḥ*—who are wandering; *padam*—an abode.
 
 **You have made me lose my sons once, and now you have again done the same inauspicious thing. Therefore you are a rascal who does not know how to behave toward others. You may travel all over the universe, but I curse you to have no residence anywhere.**
 

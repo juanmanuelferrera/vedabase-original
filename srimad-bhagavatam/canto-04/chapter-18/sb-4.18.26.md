@@ -8,7 +8,7 @@
 > sarva-kāma-dughāṁ pṛthvīṁ\
 > duduhuḥ pṛthu-bhāvitām
 
-*sarve*—all; *sva-mukhya*—by their own chiefs; *vatsena*—as the calf; *sve sve*—in their own; *pātre*—pots; *pṛthak*—different; *payaḥ*—milk; *sarva-kāma*—all desirables; *dughām*—supplying as milk; *pṛthvīm*—the planet earth; *duduhuḥ*—milked out; *pṛthu-bhāvitām*—controlled by King Pṛthu.
+*sarve*—all; *sva-mukhya*—by their own chiefs; *vatsena*—as the calf; *sve sve*—in their own; *pātre*—pots; *pṛthak*—different; *payaḥ*—milk; *sarva-kāma*—all desirables; *dughām*—supplying as milk; *pṛthvīm*—the earthly planet; *duduhuḥ*—milked out; *pṛthu-bhāvitām*—controlled by King Pṛthu.
 
 **The planet earth supplied everyone his respective food. During the time of King Pṛthu, the earth was fully under the control of the King. Thus all the inhabitants of the earth could get their food supply by creating various types of calves and putting their particular types of milk in various pots.**
 

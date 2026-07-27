@@ -10,7 +10,7 @@
 > yad-darśanaṁ janmabhir īḍya sadbhir\
 > āśāsate yogino rūḍha-yogāḥ
 
-*ṛṣiḥ uvāca*—the great sage said; *juṣṭam*—is attained; *bata*—ah; *adya*—now; *akhila*—all; *sattva*—of goodness; *rāśeḥ*—who are the reservoir; *sāṁsiddhyam*—the complete success; *akṣṇoḥ*—of the two eyes; *tava*—of You; *darśanāt*—from the sight; *naḥ*—by us; *yat*—of whom; *darśanam*—sight; *janmabhiḥ*—through births; *īḍya*—O worshipable Lord; *sadbhiḥ*—gradually elevated in position; *āśāsate*—aspire; *yoginaḥ*—*yogīs*; *rūḍha-yogāḥ*—having obtained perfection in *yoga.*
+*ṛṣiḥ uvāca*—the great sage said; *juṣṭam*—is attained; *bata*—ah; *adya*—now; *akhila*—all; *sattva*—of goodness; *rāśeḥ*—who are the reservoir; *sāṁsiddhyam*—the complete success; *akṣṇoḥ*—of the two eyes; *tava*—of You; *darśanāt*—from the sight; *naḥ*—by us; *yat*—of whom; *darśanam*—sight; *janmabhiḥ*—through births; *īḍya*—O worshipable Lord; *sadbhiḥ*—gradually elevated in position; *āśāsate*—aspire; *yoginaḥ*—*yogīs*; *rūḍha-yogāḥ*—having attained perfection in *yoga.*
 
 **The great sage Kardama said: O supreme worshipful Lord, my power of sight is now fulfilled, having attained the greatest perfection of the sight of You, who are the reservoir of all existences. Through many successive births of deep meditation, advanced yogīs aspire to see Your transcendental form.**
 

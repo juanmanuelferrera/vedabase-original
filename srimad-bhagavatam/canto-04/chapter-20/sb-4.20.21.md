@@ -8,7 +8,7 @@
 > na kiñcanovāca sa bāṣpa-viklavo\
 > hṛdopaguhyāmum adhād avasthitaḥ
 
-*saḥ*—he; *ādi-rājaḥ*—the original king; *racita-añjaliḥ*—with folded hands; *harim*—the Supreme Personality of Godhead; *vilokitum*—to look upon; *na*—not; *aśakat*—was able; *aśru-locanaḥ*—his eyes full of tears; *na*—not; *kiñcana*—anything; *uvāca*—spoke; *saḥ*—he; *bāṣpa-viklavaḥ*—his voice being choked up; *hṛdā*—with his heart; *upaguhya*—embracing; *amum*—the Lord; *adhāt*—he remained; *avasthitaḥ*—standing.
+*saḥ*—he; *ādi-rājaḥ*—the original king; *racita-añjaliḥ*—with folded hands; *harim*—the Supreme Personality of Godhead; *vilokitum*—to look upon; *na*—not; *aśakat*—was able; *aśru-locanaḥ*—his eyes full of tears; *na*—nor; *kiñcana*—anything; *uvāca*—spoke; *saḥ*—he; *bāṣpa-viklavaḥ*—his voice being choked up; *hṛdā*—with his heart; *upaguhya*—embracing; *amum*—the Lord; *adhāt*—he remained; *avasthitaḥ*—standing.
 
 **The original king, Mahārāja Pṛthu, his eyes full of tears and his voice faltering and choked up, could neither see the Lord very distinctly nor speak to address the Lord in any way. He simply embraced the Lord within his heart and remained standing in that way with folded hands.**
 

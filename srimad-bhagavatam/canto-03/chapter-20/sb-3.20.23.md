@@ -8,7 +8,7 @@
 > ta enaṁ lolupatayā\
 > maithunāyābhipedire
 
-*devaḥ*—Lord Brahmā; *adevān*—demons; *jaghanataḥ*—from his buttocks; *sṛjati sma*—gave birth; *ati-lolupān*—excessively fond of sex; *te*—they; *enam*—Lord Brahmā; *lolupatayā*—with lust; *maithunāya*—for copulation; *abhipedire*—approached.
+*devaḥ*—Lord Brahmā; *adevān*—demons; *jaghanataḥ*—from his backside; *sṛjati sma*—gave birth; *ati-lolupān*—excessively fond of sex; *te*—they; *enam*—Lord Brahmā; *lolupatayā*—with lust; *maithunāya*—for copulation; *abhipedire*—approached.
 
 **Lord Brahmā then gave birth to the demons from his body, and they were very fond of sex. Because they were too lustful, they approached him for copulation.**
 

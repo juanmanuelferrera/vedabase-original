@@ -8,7 +8,7 @@
 > traivargyo 'rtho yato nityaṁ\
 > kṛtānta-bhaya-saṁyutaḥ
 
-*tatra*—there; *api*—also; *mokṣaḥ*—liberation; *eva*—certainly; *arthe*—for the matter of; *ātyantikatayā*—most important; *iṣyate*—taken in that way; *trai-vargyaḥ*—the three others, namely religion, economic development and sense gratification; *arthaḥ*—interest; *yataḥ*—wherefrom; *nityam*—regularly; *kṛta-anta*—death; *bhaya*—fear; *saṁyutaḥ*—attached.
+*tatra*—there; *api*—also; *mokṣaḥ*—liberation; *eva*—certainly; *arthe*—for the matter of; *ātyantikatayā*—most important; *iṣyate*—taken in that way; *trai-vargyaḥ*—the three others, namely religion, economic development and sense gratification; *arthaḥ*—interest; *yataḥ*—wherefrom; *nityam*—regularly; *kṛtānta*—death; *bhaya*—fear; *saṁyutaḥ*—attached.
 
 **Out of the four principles—namely, religion, economic development, sense gratification and liberation—liberation has to be taken very seriously. The other three are subject to destruction by the stringent law of nature—death.**
 

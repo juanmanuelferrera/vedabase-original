@@ -8,7 +8,7 @@
 > na vai tathā cetanayā bahiṣ-kṛte\
 > hutāśane pāramahaṁsya-paryaguḥ
 
-*aśnāti*—eats; *anantaḥ*—the Supreme Personality of Godhead; *khalu*—nevertheless; *tattva-kovidaiḥ*—persons in knowledge of the Absolute Truth; *śraddhā*—faith; *hutam*—offering fire sacrifices; *yat-mukhe*—whose mouth; *ijya-nāmabhiḥ*—by different names of demigods; *na*—never; *vai*—certainly; *tathā*—as much; *cetanayā*—by living force; *bahiḥ-kṛte*—being bereft of; *huta-aśane*—in the fire sacrifice; *pāramahaṁsya*—regarding devotees; *paryaguḥ*—never goes away.
+*aśnāti*—eats; *anantaḥ*—the Supreme Personality of Godhead; *khalu*—nevertheless; *tattva-kovidaiḥ*—persons who are in knowledge of the Absolute Truth; *śraddhā*—faith; *hutam*—offering fire sacrifices; *yat-mukhe*—whose mouth; *ijya-nāmabhiḥ*—by different names of demigods; *na*—never; *vai*—certainly; *tathā*—as much; *cetanayā*—by living force; *bahiḥ-kṛte*—being bereft of; *huta-aśane*—in the fire sacrifice; *pāramahaṁsya*—regarding devotees; *paryaguḥ*—never goes away.
 
 **Although the Supreme Personality of Godhead, Ananta, eats through the fire sacrifices offered in the names of the different demigods, He does not take as much pleasure in eating through fire as He does in accepting offerings through the mouths of learned sages and devotees, for then He does not leave the association of devotees.**
 

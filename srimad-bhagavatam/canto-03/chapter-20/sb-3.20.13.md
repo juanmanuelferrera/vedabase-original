@@ -8,7 +8,7 @@
 > jātaḥ sasarja bhūtādir\
 > viyad-ādīni pañcaśaḥ
 
-*rajaḥ-pradhānāt*—in which the element of *rajas,* or passion, predominates; *mahataḥ*—from the *mahat-tattva*; *tri-liṅgaḥ*—of three kinds; *daiva-coditāt*—impelled by superior authority; *jātaḥ*—was born; *sasarja*—evolved; *bhūta-ādiḥ*—the false ego (origin of the material elements); *viyat*—the ether; *ādīni*—beginning with; *pañcaśaḥ*—in groups of five.
+*rajas-pradhānāt*—in which the element of *rajas,* or passion, predominates; *mahataḥ*—from the *mahat-tattva*; *tri-liṅgaḥ*—of three kinds; *daiva-coditāt*—impelled by superior authority; *jātaḥ*—was born; *sasarja*—evolved; *bhūta-ādiḥ*—the false ego (origin of the material elements); *viyat*—the ether; *ādīni*—beginning with; *pañcaśaḥ*—in groups of five.
 
 **As impelled by the destiny of the jīva, the false ego, which is of three kinds, evolved from the mahat-tattva, in which the element of rajas predominates. From the ego, in turn, evolved many groups of five principles.**
 

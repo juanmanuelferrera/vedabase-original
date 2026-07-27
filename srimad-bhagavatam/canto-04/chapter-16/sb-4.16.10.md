@@ -8,7 +8,7 @@
 > ananta-māhātmya-guṇaika-dhāmā\
 > pṛthuḥ pracetā iva saṁvṛtātmā
 
-*avyakta*—unmanifested; *vartmā*—his policies; *eṣaḥ*—this King; *nigūḍha*—confidential; *kāryaḥ*—his activities; *gambhīra*—grave, secret; *vedhāḥ*—his accomplishing; *upagupta*—secretly kept; *vittaḥ*—his treasury; *ananta*—unlimited; *māhātmya*—of glories; *guṇa*—of good qualities; *eka-dhāmā*—the only reservoir; *pṛthuḥ*—King Pṛthu; *pracetāḥ*—Varuṇa, the King of the seas; *iva*—like; *saṁvṛta*—covered; *ātmā*—self.
+*avyakta*—nonmanifested; *vartmā*—his policies; *eṣaḥ*—this King; *nigūḍha*—confidential; *kāryaḥ*—his activities; *gambhīra*—grave, secret; *vedhāḥ*—his accomplishing; *upagupta*—secretly kept; *vittaḥ*—his treasury; *ananta*—unlimited; *māhātmya*—of glories; *guṇa*—of good qualities; *eka-dhāmā*—the only reservoir; *pṛthuḥ*—King Pṛthu; *pracetāḥ*—Varuṇa, the King of the seas; *iva*—like; *saṁvṛta*—covered; *ātmā*—self.
 
 **The reciters continued: No one will be able to understand the policies the King will follow. His activities will also be very confidential, and it will not be possible for anyone to know how he will make every activity successful. His treasury will always remain unknown to everyone. He will be the reservoir of unlimited glories and good qualities, and his position will be maintained and covered just as Varuṇa, the deity of the seas, is covered all around by water.**
 

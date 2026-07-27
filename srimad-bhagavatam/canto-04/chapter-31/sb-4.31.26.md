@@ -10,7 +10,7 @@
 > vaṁśaḥ priyavratasyāpi\
 > nibodha nṛpa-sattama
 
-*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *yaḥ*—which; *eṣaḥ*—this dynasty; *uttānapadaḥ*—of King Uttānapāda; *mānavasya*—the son of Svāyambhuva Manu; *anuvarṇitaḥ*—described, following in the footprints of previous *ācāryas*; *vaṁśaḥ*—dynasty; *priyavratasya*—of King Priyavrata; *api*—also; *nibodha*—try to understand; *nṛpa-sattama*—O best of kings.
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *yaḥ*—which; *eṣaḥ*—this dynasty; *uttānapadaḥ*—of King Uttānapāda; *mānavasya*—the son of Svāyambhuva Manu; *anuvarṇitaḥ*—described, following the footprints of previous *ācāryas*; *vaṁśaḥ*—dynasty; *priyavratasya*—of King Priyavrata; *api*—also; *nibodha*—try to understand; *nṛpa-sattama*—O best of kings.
 
 **Śukadeva Gosvāmī continued: O best of kings [King Parīkṣit], I have now finished telling about the descendants of the first son of Svāyambhuva Manu, Uttānapāda. I shall now try to relate the activities of the descendants of Priyavrata, the second son of Svāyambhuva Manu. Please hear them attentively.**
 

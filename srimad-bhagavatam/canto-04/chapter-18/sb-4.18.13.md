@@ -8,7 +8,7 @@
 > tato 'nye ca yathā-kāmaṁ\
 > duduhuḥ pṛthu-bhāvitām
 
-*tathā*—so; *apare*—others; *ca*—also; *sarvatra*—everywhere; *sāram*—the essence; *ādadate*—took; *budhāḥ*—the intelligent class of men; *tataḥ*—thereafter; *anye*—others; *ca*—also; *yathā-kāmam*—as much as they desired; *duduhuḥ*—milked; *pṛthu-bhāvitām*—the planet earth, controlled by Pṛthu Mahārāja.
+*tathā*—so; *apare*—others; *ca*—also; *sarvatra*—everywhere; *sāram*—the essence; *ādadate*—took; *budhāḥ*—the intelligent class of men; *tataḥ*—thereafter; *anye*—others; *ca*—also; *yathā-kāmam*—as much as they desired; *duduhuḥ*—milked; *pṛthu-bhāvitām*—the earth planet, controlled by Pṛthu Mahārāja.
 
 **Others, who were as intelligent as King Pṛthu, also took the essence out of the earthly planet. Indeed, everyone took this opportunity to follow in the footsteps of King Pṛthu and get whatever he desired from the planet earth.**
 

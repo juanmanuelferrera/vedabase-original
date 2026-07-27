@@ -8,7 +8,7 @@
 > kiṁ vā śreyobhir anyaiś ca\
 > na yatrātma-prado hariḥ
 
-*kim*—what is the use; *vā*—or; *yogena*—by mystic *yoga* practice; *sāṅkhyena*—by the study of Sāṅkhya philosophy; *nyāsa*—by accepting *sannyāsa*; *svādhyāyayoḥ*—and by study of Vedic literature; *api*—even; *kim*—what is the use; *vā*—or; *śreyobhiḥ*—by auspicious activities; *anyaiḥ*—other; *ca*—and; *na*—never; *yatra*—where; *ātma-pradaḥ*—full satisfaction of self; *hariḥ*—the Supreme Personality of Godhead.
+*kim*—what is the use; *vā*—or; *yogena*—by mystic *yoga* practice; *sāṅkhyena*—by study of Sāṅkhya philosophy; *nyāsa*—by accepting *sannyāsa*; *svādhyāyayoḥ*—and by study of Vedic literature; *api*—even; *kim*—what is the use; *vā*—or; *śreyobhiḥ*—by auspicious activities; *anyaiḥ*—other; *ca*—and; *na*—never; *yatra*—where; *ātma-pradaḥ*—full satisfaction of self; *hariḥ*—the Supreme Personality of Godhead.
 
 **Transcendental practices that do not ultimately help one realize the Supreme Personality of Godhead are useless, be they mystic yoga practices, the analytical study of matter, severe austerity, the acceptance of sannyāsa, or the study of Vedic literature. All these may be very important aspects of spiritual advancement, but unless one understands the Supreme Personality of Godhead, Hari, all these processes are useless.**
 

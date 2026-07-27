@@ -8,7 +8,7 @@
 > yan-nitya-sambandha-niṣevayā tataḥ\
 > paraṁ kim atrāsti mukhaṁ havir-bhujām
 
-*pumān*—a person; *labheta*—can achieve; *anati-velam*—without delay; *ātmanaḥ*—of his soul; *prasīdataḥ*—being satisfied; *atyanta*—the greatest; *śamam*—peace; *svataḥ*—automatically; *svayam*—personally; *yat*—whose; *nitya*—regular; *sambandha*—relationship; *niṣevayā*—by dint of service; *tataḥ*—after that; *param*—superior; *kim*—what; *atra*—here; *asti*—there is; *mukham*—happiness; *haviḥ*—clarified butter; *bhujām*—those who drink.
+*pumān*—a person; *labheta*—can achieve; *anati-velam*—without delay; *ātmanaḥ*—of his soul; *prasīdataḥ*—being satisfied; *atyanta*—the greatest; *śamam*—peacefulness; *svataḥ*—automatically; *svayam*—personally; *yat*—whose; *nitya*—regular; *sambandha*—relationship; *niṣevayā*—by dint of service; *tataḥ*—after that; *param*—superior; *kim*—what; *atra*—here; *asti*—there is; *mukham*—happiness; *haviḥ*—clarified butter; *bhujām*—those who drink.
 
 **By regular service to the brāhmaṇas and Vaiṣṇavas, one can clear the dirt from his heart and thus enjoy supreme peace and liberation from material attachment and be satisfied. In this world there is no fruitive activity superior to serving the brāhmaṇa class, for this can bring pleasure to the demigods for whom the many sacrifices are recommended.**
 

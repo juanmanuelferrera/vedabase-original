@@ -8,7 +8,7 @@
 > mā rakṣatainaṁ jakṣadhvam\
 > ity ūcuḥ kṣut-tṛḍ-arditāḥ
 
-*kṣut-tṛḍbhyām*—by hunger and thirst; *upasṛṣṭāḥ*—were overcome; *te*—the demons (Yakṣas and Rākṣasas); *tam*—Lord Brahmā; *jagdhum*—to eat; *abhidudruvuḥ*—ran toward; *mā*—do not; *rakṣata*—spare; *enam*—him; *jakṣadhvam*—eat; *iti*—thus; *ūcuḥ*—said; *kṣut-tṛṭ-arditāḥ*—afflicted by hunger and thirst.
+*kṣudh-tṛḍbhyām*—by hunger and thirst; *upasṛṣṭāḥ*—were overcome; *te*—the demons (Yakṣas and Rākṣasas); *tam*—Lord Brahmā; *jagdhum*—to eat; *abhidudruvuḥ*—ran toward; *mā*—do not; *rakṣata*—spare; *enam*—him; *jakṣadhvam*—eat; *iti*—thus; *ūcuḥ*—said; *kṣut-tṛṭ-arditāḥ*—afflicted by hunger and thirst.
 
 **Overpowered by hunger and thirst, they ran to devour Brahmā from all sides and cried, "Spare him not! Eat him up!"**
 

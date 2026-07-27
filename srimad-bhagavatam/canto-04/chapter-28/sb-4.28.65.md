@@ -8,7 +8,7 @@
 > yat parokṣa-priyo devo\
 > bhagavān viśva-bhāvanaḥ
 
-*barhiṣman*—O King Prācīnabarhi; *etat*—this; *adhyātmam*—narration of self-realization; *pārokṣyeṇa*—indirectly; *pradarśitam*—instructed; *yat*—because; *parokṣa-priyaḥ*—interesting by indirect description; *devaḥ*—the Supreme Lord; *bhagavān*—the Personality of Godhead; *viśva-bhāvanaḥ*—the cause of all causes.
+*barhiṣman*—O King Prācīnabarhi; *etat*—this; *adhyātmam*—narration of self-realization; *pārokṣyeṇa*—indirectly; *pradarśitam*—instructed; *yat*—because; *parokṣa-priyaḥ*—interesting by indirect description; *devaḥ*—the Supreme Lord; *bhagavān*—Personality of Godhead; *viśva-bhāvanaḥ*—the cause of all causes.
 
 **My dear King Prācīnabarhi, the Supreme Personality of Godhead, the cause of all causes, is celebrated to be known indirectly. Thus I have described the story of Purañjana to you. Actually it is an instruction for self-realization.**
 

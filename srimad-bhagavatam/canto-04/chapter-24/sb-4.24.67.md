@@ -8,7 +8,7 @@
 > viśaṅkayāsmad-gurur arcati sma yad\
 > vinopapattiṁ manavaś caturdaśa
 
-*kaḥ*—who; *tvat*—Your; *pada-abjam*—lotus feet; *vijahāti*—avoids; *paṇḍitaḥ*—learned; *yaḥ*—who; *te*—unto You; *avamāna*—deriding; *vyayamāna*—decreasing; *ketanaḥ*—this body; *viśaṅkayā*—without any doubt; *asmat*—our; *guruḥ*—spiritual master, father; *arcati*—worships; *sma*—in the past; *yat*—that; *vinā*—without; *upapattim*—agitation; *manavaḥ*—the Manus; *catuḥ-daśa*—fourteen.
+*kaḥ*—who; *tvat*—Your; *pada-abjam*—lotus feet; *vijahāti*—avoids; *paṇḍitaḥ*—learned; *yaḥ*—who; *te*—unto You; *avamāna*—deriding; *vyayamāna*—decreasing; *ketanaḥ*—this body; *viśaṅkayā*—without any doubt; *asmat*—our; *guruḥ*—spiritual master, father; *arcati*—worships; *sma*—in the past; *yat*—that; *vinā*—without; *upapattim*—agitation; *manavaḥ*—the Manus; *catuḥ-daśa*—fourteen in number.
 
 **My dear Lord, any learned person knows that unless he worships You, his entire life is spoiled. Knowing this, how could he give up worshiping Your lotus feet? Even our father and spiritual master, Lord Brahmā, unhesitatingly worshiped You, and the fourteen Manus followed in his footsteps.**
 

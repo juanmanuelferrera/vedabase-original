@@ -8,7 +8,7 @@
 > varān dadus te varadā\
 > ye tad-barhiṣi tarpitāḥ
 
-*kṛta*—having performed; *avabhṛtha-snānāya*—taking a bath after the sacrifice; *pṛthave*—unto King Pṛthu; *bhūri-karmaṇe*—famous for performing many virtuous acts; *varān*—benedictions; *daduḥ*—gave; *te*—all of them; *vara-dāḥ*—the demigods, bestowers of benedictions; *ye*—who; *tat-barhiṣi*—in the performance of such a *yajña*; *tarpitāḥ*—became pleased.
+*kṛta*—having performed; *avabhṛtha-snānāya*—taking bath after the sacrifice; *pṛthave*—unto King Pṛthu; *bhūri-karmaṇe*—famous for performing many virtuous acts; *varān*—benedictions; *daduḥ*—gave; *te*—all of them; *vara-dāḥ*—the demigods, bestowers of benedictions; *ye*—who; *tat-barhiṣi*—in the performance of such a *yajña*; *tarpitāḥ*—became pleased.
 
 **After this, Pṛthu Mahārāja took his bath, which is customarily taken after the performance of a yajña, and received the benedictions and due blessings of the demigods, who were very pleased by his glorious activities.**
 

@@ -11,7 +11,7 @@
 > parikramantīm udvāhe\
 > cakame 'gniḥ śukīm iva
 
-*sāmudrīm*—unto the daughter of the ocean; *deva-deva-uktām*—being advised by the supreme demigod, Lord Brahmā; *upayeme*—married; *śatadrutim*—of the name Śatadruti; *yām*—whom; *vīkṣya*—seeing; *cāru*—very attractive; *sarva-aṅgīm*—all the features of the body; *kiśorīm*—youthful; *suṣṭhu*—sufficiently; *alaṅkṛtām*—decorated with ornaments; *parikramantīm*—circumambulating; *udvāhe*—in the marriage ceremony; *cakame*—being attracted; *agniḥ*—the fire-god; *śukīm*—unto Śukī; *iva*—like.
+*sāmudrīm*—unto the daughter of the ocean; *deva-deva-uktām*—being advised by the supreme demigod, Lord Brahmā; *upayeme*—married; *śatadrutim*—of the name Śatadruti; *yām*—whom; *vīkṣya*—seeing; *cāru*—very attractive; *sarva-aṅgīm*—all the features of the body; *kiśorīm*—youthful; *suṣṭhu*—sufficiently; *alaṅkṛtām*—decorated with ornaments; *parikramantīm*—circumambulating; *udvāhe*—in the marriage ceremony; *cakame*—became attracted; *agniḥ*—the fire-god; *śukīm*—unto Śukī; *iva*—like.
 
 **Mahārāja Barhiṣat—henceforward known as Prācīnabarhi—was ordered by the supreme demigod Lord Brahmā to marry the daughter of the ocean named Śatadruti. Her bodily features were completely beautiful, and she was very young. She was decorated with the proper garments, and when she came into the marriage arena and began circumambulating it, the fire-god Agni became so attracted to her that he desired her company, exactly as he had formerly desired to enjoy Śukī.**
 

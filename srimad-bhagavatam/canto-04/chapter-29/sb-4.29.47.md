@@ -8,7 +8,7 @@
 > mārtha-dṛṣṭiṁ kṛthāḥ śrotra-\
 > sparśiṣv aspṛṣṭa-vastuṣu
 
-*tasmāt*—therefore; *karmasu*—in fruitive activities; *barhiṣman*—O King Prācīnabarhiṣat; *ajñānāt*—out of ignorance; *artha-kāśiṣu*—in the glittering fruitive result; *mā*—never; *artha-dṛṣṭim*—considering to be the aim of life; *kṛthāḥ*—do; *śrotra-sparśiṣu*—pleasing to the ear; *aspṛṣṭa*—without touching; *vastuṣu*—real interest.
+*tasmāt*—therefore; *karmasu*—in fruitive activities; *barhiṣman*—O King Prācīnabarhiṣat; *ajñānāt*—out of ignorance; *artha-kāśiṣu*—in the matter of glittering fruitive result; *mā*—never; *artha-dṛṣṭim*—considering as the aim of life; *kṛthāḥ*—do; *śrotra-sparśiṣu*—pleasing to the ear; *aspṛṣṭa*—without touching; *vastuṣu*—real interest.
 
 **My dear King Barhiṣmān, you should never out of ignorance take to the Vedic rituals or to fruitive activity, which may be pleasing to hear about or which may appear to be the goal of self-interest. You should never take these to be the ultimate goal of life.**
 

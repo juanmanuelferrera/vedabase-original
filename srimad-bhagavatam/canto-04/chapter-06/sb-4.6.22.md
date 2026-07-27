@@ -8,7 +8,7 @@
 > vilokya bhūteśa-giriṁ\
 > vibudhā vismayaṁ yayuḥ
 
-*paryastam*—surrounded; *nandayā*—by the Nandā; *satyāḥ*—of Satī; *snāna*—by the bathing; *puṇya-tara*—especially flavored; *udayā*—with water; *vilokya*—after seeing; *bhūta-īśa*—of Bhūteśa (the lord of the ghosts, Lord Śiva); *girim*—the mountain; *vibudhāḥ*—the demigods; *vismayam*—wonder; *yayuḥ*—obtained.
+*paryastam*—surrounded; *nandayā*—by the Nandā; *satyāḥ*—of Satī; *snāna*—by the bathing; *puṇya-tara*—especially flavored; *udayā*—with water; *vilokya*—after seeing; *bhūteśa*—of Bhūteśa (the lord of the ghosts, Lord Śiva); *girim*—the mountain; *vibudhāḥ*—the demigods; *vismayam*—wonder; *yayuḥ*—obtained.
 
 **There is a small lake named Alakanandā in which Satī used to take her bath, and that lake is especially auspicious. All the demigods, after seeing the specific beauty of Kailāsa Hill, were struck with wonder at the great opulence to be found there.**
 

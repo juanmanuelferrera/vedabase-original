@@ -10,7 +10,7 @@
 > kasyānvavāye prakhyātāḥ\
 > kutra vā satram āsata
 
-*viduraḥ uvāca*—Vidura inquired; *ke*—who were; *te*—they; *pracetasaḥ*—the Pracetās; *nāma*—of the name; *kasya*—whose; *apatyāni*—sons; *su-vrata*—O Maitreya, who have taken an auspicious vow; *kasya*—whose; *anvavāye*—in the family; *prakhyātāḥ*—famous; *kutra*—where; *vā*—also; *satram*—the sacrifice; *āsata*—was performed.
+*viduraḥ uvāca*—Vidura inquired; *ke*—who were; *te*—they; *pracetasaḥ*—the Pracetās; *nāma*—of the name; *kasya*—whose; *apatyāni*—sons; *su-vrata*—O Maitreya, who has taken an auspicious vow; *kasya*—whose; *anvavāye*—in the family; *prakhyātāḥ*—famous; *kutra*—where; *vā*—also; *satram*—the sacrifice; *āsata*—was performed.
 
 **Vidura inquired from Maitreya: O greatly advanced devotee, who were the Pracetās? To which family do they belong? Whose sons were they, and where did they perform the great sacrifices?**
 

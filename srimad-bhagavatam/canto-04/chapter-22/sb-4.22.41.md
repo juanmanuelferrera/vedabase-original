@@ -10,7 +10,7 @@
 > darśitātma-gatiḥ samyak\
 > praśasyovāca taṁ nṛpaḥ
 
-*maitreyaḥ uvāca*—the great sage Maitreya said; *saḥ*—the King; *evam*—thus; *brahma-putreṇa*—by the son of Lord Brahmā; *kumāreṇa*—by one of the Kumāras; *ātma-medhasā*—well versed in spiritual knowledge; *darśita*—being shown; *ātma-gatiḥ*—spiritual advancement; *samyak*—completely; *praśasya*—worshiping; *uvāca*—said; *tam*—unto him; *nṛpaḥ*—the King.
+*maitreyaḥ uvāca*—the great sage Maitreya continued to say; *saḥ*—the King; *evam*—thus; *brahma-putreṇa*—by the son of Lord Brahmā; *kumāreṇa*—by one of the Kumāras; *ātma-medhasā*—well versed in spiritual knowledge; *darśita*—being shown; *ātma-gatiḥ*—spiritual advancement; *samyak*—completely; *praśasya*—worshiping; *uvāca*—said; *tam*—unto him; *nṛpaḥ*—the King.
 
 **Being thus enlightened in complete spiritual knowledge by the son of Brahmā—one of the Kumāras, who was complete in spiritual knowledge—the King worshiped them in the following words.**
 

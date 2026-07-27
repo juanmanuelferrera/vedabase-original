@@ -8,7 +8,7 @@
 > na vai cikīrṣitaṁ tāta\
 > ko vedātha sva-sambhavam
 
-*avyaktasya*—of the unmanifested; *aprameyasya*—of the Transcendence; *nānā*—various; *śakti*—energies; *udayasya*—of Him who gives rise to; *ca*—also; *na*—never; *vai*—certainly; *cikīrṣitam*—the plan; *tāta*—my dear boy; *kaḥ*—who; *veda*—can know; *atha*—therefore; *sva*—own; *sambhavam*—origin.
+*avyaktasya*—of the unmanifested; *aprameyasya*—of the Transcendence; *nānā*—various; *śakti*—energies; *udayasya*—of He who gives rise to; *ca*—also; *na*—never; *vai*—certainly; *cikīrṣitam*—the plan; *tāta*—my dear boy; *kaḥ*—who; *veda*—can know; *atha*—therefore; *sva*—own; *sambhavam*—origin.
 
 **The Absolute Truth, Transcendence, is never subjected to the understanding of imperfect sense endeavor, nor is He subject to direct experience. He is the master of varieties of energies, like the full material energy, and no one can understand His plans or actions; therefore it should be concluded that although He is the original cause of all causes, no one can know Him by mental speculation.**
 

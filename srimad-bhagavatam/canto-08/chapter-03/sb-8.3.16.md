@@ -8,7 +8,7 @@
 > naiṣkarmya-bhāvena vivarjitāgama-\
 > svayaṁ-prakāśāya namas karomi
 
-*guṇa*—by the three *guṇas,* the modes of material nature (*sattva, rajas* and *tamas*); *araṇi*—by *araṇi* wood; *channa*—covered; *cit*—of knowledge; *uṣmapāya*—unto Him whose fire; *tat-kṣobha*—of the agitation of the modes of material nature; *visphūrjita*—outside; *mānasāya*—unto Him whose mind; *naiṣkarmya-bhāvena*—because of the stage of spiritual understanding; *vivarjita*—in those who give up; *āgama*—Vedic principles; *svayam*—personally; *prakāśāya*—unto Him who is manifest; *namaḥ karomi*—I offer my respectful obeisances.
+*guṇa*—by the three *guṇas,* the modes of material nature (*sattva, rajas* and *tamas*); *araṇi*—by *araṇi* wood; *channa*—covered; *cit*—of knowledge; *uṣmapāya*—unto He whose fire; *tat-kṣobha*—of the agitation of the modes of material nature; *visphūrjita*—outside; *mānasāya*—unto He whose mind; *naiṣkarmya-bhāvena*—because of the stage of spiritual understanding; *vivarjita*—in those who give up; *āgama*—Vedic principles; *svayam*—personally; *prakāśāya*—unto He who is manifest; *namaḥ karomi*—I offer my respectful obeisances.
 
 **My Lord, as the fire in araṇi wood is covered, You and Your unlimited knowledge are covered by the material modes of nature. Your mind, however, is not attentive to the activities of the modes of nature. Those who are advanced in spiritual knowledge are not subject to the regulative principles directed in the Vedic literatures. Because such advanced souls are transcendental, You personally appear in their pure minds. Therefore I offer my respectful obeisances unto You.**
 

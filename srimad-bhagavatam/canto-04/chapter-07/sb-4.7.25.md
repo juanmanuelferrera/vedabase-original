@@ -10,6 +10,6 @@
 > sunanda-nandādy-anugair vṛtaṁ mudā\
 > gṛṇan prapede prayataḥ kṛtāñjaliḥ
 
-*dakṣaḥ*—Dakṣa; *gṛhīta*—accepted; *arhaṇa*—rightful; *sādana-uttamam*—sacrificial vessel; *yajña-īśvaram*—unto the master of all sacrifices; *viśva-sṛjām*—of all the Prajāpatis; *param*—the supreme; *gurum*—preceptor; *sunanda-nanda-ādi-anugaiḥ*—by associates like Sunanda and Nanda; *vṛtam*—surrounded; *mudā*—with great pleasure; *gṛṇan*—offering respectful prayers; *prapede*—took shelter; *prayataḥ*—having a subdued mind; *kṛta-añjaliḥ*—with folded hands.
+*dakṣaḥ*—Dakṣa; *gṛhīta*—accepted; *arhaṇa*—rightful; *sādana-uttamam*—sacrificial vessel; *yajña-īśvaram*—unto the master of all sacrifices; *viśva-sṛjām*—of all the Prajāpatis; *param*—the supreme; *gurum*—preceptor; *sunanda-nanda-ādi-anugaiḥ*—by associates like Sunanda, Nanda, etc.; *vṛtam*—surrounded; *mudā*—with great pleasure; *gṛṇan*—offering respectful prayers; *prapede*—took shelter; *prayataḥ*—having a subdued mind; *kṛta-añjaliḥ*—with folded hands.
 
 **When Lord Viṣṇu accepted the oblations offered in the sacrifice, Dakṣa, the Prajāpati, began with great pleasure to offer respectful prayers unto Him. The Supreme Personality of Godhead is actually the master of all sacrifices and preceptor of all the prajāpatis, and He is served even by such personalities as Nanda and Sunanda.**

@@ -8,7 +8,7 @@
 > api vaḥ kuśalaṁ rāmāḥ\
 > seśvarīṇāṁ yathā purā
 
-*antaḥ-pura*—household; *striyaḥ*—women; *apṛcchat*—he asked; *vimanāḥ*—being very much anxious; *iva*—like; *vediṣat*—O King Prācīnabarhi; *api*—whether; *vaḥ*—your; *kuśalam*—good fortune; *rāmāḥ*—O you beautiful women; *sa-īśvarīṇām*—with your mistress; *yathā*—as; *purā*—before.
+*antaḥ-pura*—household; *striyaḥ*—women; *apṛcchat*—he asked; *vimanāḥ*—being too much anxious; *iva*—like; *vediṣat*—O King Prācīnabarhi; *api*—whether; *vaḥ*—your; *kuśalam*—good fortune; *rāmāḥ*—O you beautiful women; *sa-īśvarīṇām*—with your mistress; *yathā*—as; *purā*—before.
 
 **At that time King Purañjana was a little anxious, and he inquired from the household women: My dear beautiful women, are you and your mistress all very happy like before, or not?**
 

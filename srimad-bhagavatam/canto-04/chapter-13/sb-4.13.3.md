@@ -8,7 +8,7 @@
 > yena proktaḥ kriyā-yogaḥ\
 > paricaryā-vidhir hareḥ
 
-*manye*—I think; *mahā-bhāgavatam*—the greatest of all devotees; *nāradam*—the sage Nārada; *deva*—the Supreme Personality of Godhead; *darśanam*—who met; *yena*—by whom; *proktaḥ*—spoken; *kriyā-yogaḥ*—devotional service; *paricaryā*—for rendering service; *vidhiḥ*—the procedure; *hareḥ*—to the Supreme Personality of Godhead.
+*manye*—I think; *mahā-bhāgavatam*—greatest of all devotees; *nāradam*—the sage Nārada; *deva*—the Supreme Personality of Godhead; *darśanam*—who met; *yena*—by whom; *proktaḥ*—spoken; *kriyā-yogaḥ*—devotional service; *paricaryā*—for rendering service; *vidhiḥ*—the procedure; *hareḥ*—to the Supreme Personality of Godhead.
 
 **Vidura continued: I know that the great sage Nārada is the greatest of all devotees. He has compiled the pāñcarātrika procedure of devotional service and has directly met the Supreme Personality of Godhead.**
 

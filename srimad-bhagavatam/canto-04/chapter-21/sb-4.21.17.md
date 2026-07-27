@@ -8,6 +8,6 @@
 > mahā-dhane dukūlāgrye\
 > paridhāyopavīya ca
 
-*sūkṣma*—very fine; *vakra*—curly; *asita*—black; *snigdha*—slick; *mūrdhajaḥ*—hair on the head; *kambu*—like a conch; *kandharaḥ*—neck; *mahā-dhane*—very valuable; *dukūla-agrye*—dressed with a *dhotī*; *paridhāya*—on the upper portion of the body; *upavīya*—placed like a sacred thread; *ca*—also.
+*sūkṣma*—very fine; *vakra*—curly; *asita*—black; *snigdha*—greasy; *mūrdhajaḥ*—hairs on the head; *kambu*—like a conch; *kandharaḥ*—neck; *mahā-dhane*—very valuable; *dukūla-agrye*—dressed with a *dhotī*; *paridhāya*—on the upper portion of the body; *upavīya*—placed like a sacred thread; *ca*—also.
 
 **The black, slick hair on his head was very fine and curly, and his neck, like a conchshell, was decorated with auspicious lines. He wore a very valuable dhoti, and there was a nice wrapper on the upper part of his body.**

@@ -8,7 +8,7 @@
 > karoty akartaiva nihanty ahantā\
 > ceṣṭā vibhūmnaḥ khalu durvibhāvyā
 
-*saḥ*—the; *khalu*—however; *idam*—this (universe); *bhagavān*—the Personality of Godhead; *kāla*—of time; *śaktyā*—by the force; *guṇa-pravāheṇa*—by the interaction of the modes of nature; *vibhakta*—divided; *vīryaḥ*—(whose) potencies; *karoti*—acts upon; *akartā*—the nondoer; *eva*—although; *nihanti*—kills; *ahantā*—nonkiller; *ceṣṭā*—the energy; *vibhūmnaḥ*—of the Lord; *khalu*—certainly; *durvibhāvyā*—inconceivable.
+*saḥ*—the; *khalu*—however; *idam*—this (universe); *bhagavān*—Personality of Godhead; *kāla*—of time; *śaktyā*—by the force; *guṇa-pravāheṇa*—by the interaction of the modes of nature; *vibhakta*—divided; *vīryaḥ*—(whose) potencies; *karoti*—acts upon; *akartā*—the nondoer; *eva*—although; *nihanti*—kills; *ahantā*—nonkiller; *ceṣṭā*—the energy; *vibhūmnaḥ*—of the Lord; *khalu*—certainly; *durvibhāvyā*—inconceivable.
 
 **The Supreme Personality of Godhead, by His inconceivable supreme energy, time, causes the interaction of the three modes of material nature, and thus varieties of energy become manifest. It appears that He is acting, but He is not the actor. He is killing, but He is not the killer. Thus it is understood that only by His inconceivable power is everything happening.**
 

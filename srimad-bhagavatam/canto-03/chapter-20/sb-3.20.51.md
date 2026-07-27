@@ -8,7 +8,7 @@
 > pratiṣṭhitāḥ kriyā yasmin\
 > sākam annam adāma he
 
-*aho*—oh; *etat*—this; *jagat-sraṣṭaḥ*—O creator of the universe; *sukṛtam*—well done; *bata*—indeed; *te*—by you; *kṛtam*—produced; *pratiṣṭhitāḥ*—established soundly; *kriyāḥ*—all ritualistic performances; *yasmin*—in which; *sākam*—along with this; *annam*—the sacrificial oblations; *adāma*—we shall share; *he*—O.
+*aho*—oh; *etat*—this; *jagat-sraṣṭaḥ*—O creator of the universe; *sukṛtam*—well done; *bata*—indeed; *te*—by you; *kṛtam*—produced; *pratiṣṭhitāḥ*—established soundly; *kriyāḥ*—all ritualistic performances; *yasmin*—in which; *sākam*—along with it; *annam*—the sacrificial oblations; *adāma*—we shall share; *he*—O.
 
 **They prayed: O creator of the universe, we are glad; what you have produced is well done. Since ritualistic acts have now been established soundly in this human form, we shall all share the sacrificial oblations.**
 

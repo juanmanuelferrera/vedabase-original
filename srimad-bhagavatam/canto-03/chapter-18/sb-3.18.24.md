@@ -8,7 +8,7 @@
 > ākrīḍa bālavad deva\
 > yathāśīviṣam utthitam
 
-*mā*—do not; *enam*—him; *māyā-vinam*—skilled in conjuring tricks; *dṛptam*—arrogant; *niraṅkuśam*—self-sufficient; *asat-tamam*—most wicked; *ākrīḍa*—play with; *bāla-vat*—like a child; *deva*—O Lord; *yathā*—as; *āśīviṣam*—a serpent; *utthitam*—aroused.
+*mā*—don't; *enam*—him; *māyā-vinam*—skilled in conjuring tricks; *dṛptam*—arrogant; *niraṅkuśam*—self-sufficient; *asat-tamam*—most wicked; *ākrīḍa*—play with; *bāla-vat*—like a child; *deva*—O Lord; *yathā*—as; *āśīviṣam*—a serpent; *utthitam*—aroused.
 
 **Lord Brahmā continued: My dear Lord, there is no need to play with this serpentine demon, who is always very skilled in conjuring tricks and is arrogant, self-sufficient and most wicked.**
 

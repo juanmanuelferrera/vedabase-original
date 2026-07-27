@@ -8,7 +8,7 @@
 > nākampata manāk kvāpi\
 > srajā hata iva dvipaḥ
 
-*tena*—by Hiraṇyākṣa; *ittham*—thus; *āhataḥ*—struck; *kṣattaḥ*—O Vidura; *bhagavān*—the Supreme Personality of Godhead; *ādi-sūkaraḥ*—the first boar; *na akampata*—did not feel quaking; *manāk*—even slightly; *kva api*—anywhere; *srajā*—by a garland of flowers; *hataḥ*—struck; *iva*—as; *dvipaḥ*—an elephant.
+*tena*—by Hiraṇyākṣa; *ittham*—thus; *āhataḥ*—struck; *kṣattaḥ*—O Vidura; *bhagavān*—the Supreme Personality of Godhead; *ādi-sūkaraḥ*—the first boar; *na akampata*—did not feel quaking; *manāk*—even slightly; *kvāpi*—anywhere; *srajā*—by a garland of flowers; *hataḥ*—struck; *iva*—as; *dvipaḥ*—an elephant.
 
 **Hit in this manner by the demon, O Vidura, the Lord, who had appeared as the first boar, did not feel the least quaking in any part of His body, any more than an elephant would when struck with a wreath of flowers.**
 

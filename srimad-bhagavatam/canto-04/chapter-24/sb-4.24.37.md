@@ -8,7 +8,7 @@
 > namo hiraṇya-vīryāya\
 > cātur-hotrāya tantave
 
-*svarga*—the heavenly planets; *apavarga*—the path of liberation; *dvārāya*—unto the door of; *nityam*—eternally; *śuci-sade*—unto the most purified; *namaḥ*—my obeisances unto You; *namaḥ*—my obeisances; *hiraṇya*—gold; *vīryāya*—semen; *cātuḥ-hotrāya*—the Vedic sacrifices of the name; *tantave*—unto one who expands.
+*svarga*—the heavenly planets; *apavarga*—the path of liberation; *dvārāya*—unto the door of; *nityam*—eternally; *śuci-sade*—unto the most purified; *namaḥ*—my obeisances unto You; *namaḥ*—my obeisances; *hiraṇya*—gold; *vīryāya*—semina; *cātuḥ-hotrāya*—the Vedic sacrifices of the name; *tantave*—unto one who expands.
 
 **My Lord, O Aniruddha, You are the authority by which the doors of the higher planetary systems and liberation are opened. You are always within the pure heart of the living entity. Therefore I offer my obeisances unto You. You are the possessor of semina which is like gold, and thus, in the form of fire, You help the Vedic sacrifices, beginning with cāturhotra. Therefore I offer my obeisances unto You.**
 

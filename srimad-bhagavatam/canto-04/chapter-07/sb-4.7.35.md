@@ -10,7 +10,7 @@
 > tṛṣārto 'vagāḍho na sasmāra dāvaṁ\
 > na niṣkrāmati brahma-sampannavan naḥ
 
-*siddhāḥ*—the Siddhas; *ūcuḥ*—prayed; *ayam*—this; *tvat-kathā*—Your pastimes; *mṛṣṭa*—pure; *pīyūṣa*—of nectar; *nadyām*—in the river; *manaḥ*—of the mind; *vāraṇaḥ*—the elephant; *kleśa*—sufferings; *dāva-agni*—by the forest fire; *dagdhaḥ*—burned; *tṛṣā*—thirst; *ārtaḥ*—afflicted; *avagāḍhaḥ*—being immersed; *na sasmāra*—does not remember; *dāvam*—the forest fire or the miseries; *na niṣkrāmati*—not come out; *brahma*—the Absolute; *sampanna-vat*—like having merged; *naḥ*—our.
+*siddhāḥ*—the Siddhas; *ūcuḥ*—prayed; *ayam*—this; *tvat-kathā*—Your pastimes; *mṛṣṭa*—pure; *pīyūṣa*—of nectar; *nadyām*—in the river; *manaḥ*—of the mind; *vāraṇaḥ*—the elephant; *kleśa*—sufferings; *dāva-agni*—by the forest fire; *dagdhaḥ*—burnt; *tṛṣā*—thirst; *ārtaḥ*—afflicted; *avagāḍhaḥ*—being immersed; *na sasmāra*—does not remember; *dāvam*—the forest fire or the miseries; *na niṣkrāmati*—not come out; *brahma*—the Absolute; *sampanna-vat*—like having merged; *naḥ*—our.
 
 **The Siddhas prayed: Like an elephant that has suffered in a forest fire but can forget all its troubles by entering a river, our minds, O Lord, always merge in the nectarean river of Your transcendental pastimes, and they desire never to leave such transcendental bliss, which is as good as the pleasure of merging in the Absolute.**
 

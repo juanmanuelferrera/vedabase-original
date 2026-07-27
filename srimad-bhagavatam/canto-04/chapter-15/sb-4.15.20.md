@@ -8,6 +8,6 @@
 > sūto 'tha māgadho vandī\
 > taṁ stotum upatasthire
 
-*sindhavaḥ*—the seas; *parvatāḥ*—the mountains; *nadyaḥ*—the rivers; *ratha-vīthīḥ*—the paths for the chariot to pass; *mahā-ātmanaḥ*—of the great soul; *sūtaḥ*—a professional who offers praises; *atha*—then; *māgadhaḥ*—a professional bard; *vandī*—a professional who offers prayers; *tam*—him; *stotum*—to praise; *upatasthire*—presented themselves.
+*sindhavaḥ*—the seas; *parvatāḥ*—the mountains; *nadyaḥ*—the rivers; *ratha-vīthīḥ*—the paths for the chariot to pass; *mahātmanaḥ*—of the great soul; *sūtaḥ*—a professional who offers praises; *atha*—then; *māgadhaḥ*—a professional bard; *vandī*—a professional who offers prayers; *tam*—him; *stotum*—to praise; *upatasthire*—presented themselves.
 
 **The seas, mountains and rivers gave him room to drive his chariot without impediments, and a sūta, a māgadha and a vandī offered prayers and praises. They all presented themselves before him to perform their respective duties.**

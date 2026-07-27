@@ -8,7 +8,7 @@
 > dadāha tāṁ purīṁ kṛtsnāṁ\
 > bhrātuḥ priya-cikīrṣayā
 
-*bhaya-nāmnaḥ*—of Bhaya (Fear); *agra-jaḥ*—elder; *bhrātā*—brother; *prajvāraḥ*—named Prajvāra; *pratyupasthitaḥ*—being present there; *dadāha*—set fire; *tām*—to that; *purīm*—city; *kṛtsnām*—wholesale; *bhrātuḥ*—his brother; *priya-cikīrṣayā*—in order to please.
+*bhaya-nāmnaḥ*—of Bhaya (fearfulness); *agra-jaḥ*—elder; *bhrātā*—brother; *prajvāraḥ*—named Prajvāra; *pratyupasthitaḥ*—being present there; *dadāha*—set fire; *tām*—to that; *purīm*—city; *kṛtsnām*—wholesale; *bhrātuḥ*—his brother; *priya-cikīrṣayā*—in order to please.
 
 **Under the circumstances the elder brother of Yavana-rāja, known as Prajvāra, set fire to the city to please his younger brother, whose other name is fear itself.**
 

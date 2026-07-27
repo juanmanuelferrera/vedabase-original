@@ -8,7 +8,7 @@
 > viśvaṁ vidhvaṁsayan vīrya-\
 > śaurya-visphūrjita-bhruvā
 
-*yatra*—wherein; *nirviṣṭam araṇam*—a completely surrendered soul; *kṛta-antaḥ*—invincible time; *na abhimanyate*—does not go to attack; *viśvam*—the entire universe; *vidhvaṁsayan*—by vanquishing; *vīrya*—prowess; *śaurya*—influence; *visphūrjita*—simply by expansion; *bhruvā*—of the eyebrows.
+*yatra*—wherein; *nirviṣṭam araṇam*—completely surrendered soul; *kṛta-antaḥ*—invincible time; *na abhimanyate*—does not go to attack; *viśvam*—the entire universe; *vidhvaṁsayan*—by vanquishing; *vīrya*—prowess; *śaurya*—influence; *visphūrjita*—simply by expansion; *bhruvā*—of the eyebrows.
 
 **Simply by expansion of His eyebrows, invincible Time personified can immediately vanquish the entire universe. However, formidable Time does not approach the devotee who has taken complete shelter at Your lotus feet.**
 

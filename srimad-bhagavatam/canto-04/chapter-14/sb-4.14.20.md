@@ -8,7 +8,7 @@
 > lokāḥ sapālā hy etasmai\
 > haranti balim ādṛtāḥ
 
-*tasmin*—when He; *tuṣṭe*—is satisfied; *kim*—what; *aprāpyam*—impossible to achieve; *jagatām*—of the universe; *īśvara-īśvare*—the controller of the controllers; *lokāḥ*—the inhabitants of the planets; *sapālāḥ*—with their presiding deities; *hi*—for this reason; *etasmai*—unto Him; *haranti*—offer; *balim*—paraphernalia for worship; *ādṛtāḥ*—with great pleasure.
+*tasmin*—when He; *tuṣṭe*—is satisfied; *kim*—what; *aprāpyam*—impossible to achieve; *jagatām*—of the universe; *īśvara-īśvare*—controller of the controllers; *lokāḥ*—the inhabitants of the planets; *sapālāḥ*—with their presiding deities; *hi*—for this reason; *etasmai*—unto Him; *haranti*—offer; *balim*—paraphernalia for worship; *ādṛtāḥ*—with great pleasure.
 
 **The Supreme Personality of Godhead is worshiped by the great demigods, controllers of universal affairs. When He is satisfied, nothing is impossible to achieve. For this reason all the demigods, presiding deities of different planets, as well as the inhabitants of their planets, take great pleasure in offering all kinds of paraphernalia for His worship.**
 

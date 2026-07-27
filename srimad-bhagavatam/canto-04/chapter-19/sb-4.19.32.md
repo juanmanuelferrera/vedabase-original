@@ -8,7 +8,7 @@
 > alaṁ te kratubhiḥ sviṣṭair\
 > yad bhavān mokṣa-dharma-vit
 
-*pṛthu-kīrteḥ*—of wide renown; *pṛthoḥ*—of King Pṛthu; *bhūyāt*—let it be; *tarhi*—therefore; *eka-ūna-śata-kratuḥ*—he who performed ninety-nine *yajñas*; *alam*—there is nothing to be gained; *te*—of you; *kratubhiḥ*—by performing sacrifices; *su-iṣṭaiḥ*—well performed; *yat*—because; *bhavān*—yourself; *mokṣa-dharma-vit*—the knower of the path of liberation.
+*pṛthu-kīrteḥ*—of wide renown; *pṛthoḥ*—of King Pṛthu; *bhūyāt*—let it be; *tarhi*—therefore; *ekona-śata-kratuḥ*—he who performed ninety-nine *yajñas*; *alam*—there is nothing to be gained; *te*—of you; *kratubhiḥ*—by performing sacrifices; *su-iṣṭaiḥ*—well performed; *yat*—because; *bhavān*—yourself; *mokṣa-dharma-vit*—the knower of the path of liberation.
 
 **"Let there be only ninety-nine sacrificial performances for Mahārāja Pṛthu," Lord Brahmā concluded. Lord Brahmā then turned towards Mahārāja Pṛthu and informed him that since he was thoroughly aware of the path of liberation, what was the use in performing more sacrifices?**
 

@@ -8,7 +8,7 @@
 > bhṛgv-ādīnām ātmajānāṁ\
 > sisṛkṣuḥ saṁsisṛkṣatām
 
-*idam*—this; *āha*—said; *purā*—formerly; *asmākam*—unto us; *bhagavān*—the lord; *viśva-sṛk*—the creators of the universe; *patiḥ*—master; *bhṛgu-ādīnām*—of the great sages headed by Bhṛgu; *ātmajānām*—of his sons; *sisṛkṣuḥ*—desirous of creating; *saṁsisṛkṣatām*—who are in charge of creation.
+*idam*—this; *āha*—said; *purā*—formerly; *asmākam*—unto us; *bhagavān*—the lord; *viśva-sṛk*—the creators of the universe; *patiḥ*—master; *bhṛgu-ādīnām*—of the great sages headed by Bhṛgu; *ātmajānām*—of his sons; *sisṛkṣuḥ*—desirous to create; *saṁsisṛkṣatām*—who are in charge of creation.
 
 **This prayer was first spoken to us by Lord Brahmā, the master of all creators. The creators, headed by Bhṛgu, were instructed in these prayers because they wanted to create.**
 

@@ -10,7 +10,7 @@
 > añjas tarema bhavatāpraja-dustaraṁ yad\
 > dhvāntaṁ na yāhy akaruṇena yamena dūram
 
-*tvam*—you; *tāta*—my dear son; *na*—not; *arhasi*—ought; *ca*—and; *mām*—me; *kṛpaṇām*—very poor; *anāthām*—without a protector; *tyaktum*—to give up; *vicakṣva*—look; *pitaram*—at the father; *tava*—your; *śoka-taptam*—affected by so much lamentation; *añjaḥ*—easily; *tarema*—we can cross; *bhavatā*—by you; *apraja-dustaram*—very difficult to cross for one without a son; *yat*—which; *dhvāntam*—the kingdom of darkness; *na yāhi*—do not go away; *akaruṇena*—merciless; *yamena*—with Yamarāja; *dūram*—any further.
+*tvam*—you; *tāta*—my dear son; *na*—not; *arhasi*—ought; *ca*—and; *mām*—me; *kṛpaṇām*—very poor; *anāthām*—without a protector; *tyaktum*—to give up; *vicakṣva*—look; *pitaram*—at the father; *tava*—your; *śoka-taptam*—affected by so much lamentation; *ajñaḥ*—easily; *tarema*—we can cross; *bhavatā*—by you; *apraja-dustaram*—very difficult to cross for one without a son; *yat*—which; *dhvāntam*—the kingdom of darkness; *na yāhi*—do not go away; *akaruṇena*—merciless; *yamena*—with Yamarāja; *dūram*—any further.
 
 **My dear son, I am helpless and very much aggrieved. You should not give up my company. Just look at your lamenting father. We are helpless because without a son we shall have to suffer the distress of going to the darkest hellish regions. You are the only hope by which we can get out of these dark regions. Therefore I request you not to go any further with the merciless Yama.**
 

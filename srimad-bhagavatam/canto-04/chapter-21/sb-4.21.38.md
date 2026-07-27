@@ -8,7 +8,7 @@
 > avāpa lakṣmīm anapāyinīṁ yaśo\
 > jagat-pavitraṁ ca mahattamāgraṇīḥ
 
-*brahmaṇya-devaḥ*—the Lord of the brahminical culture; *puruṣaḥ*—the Supreme Personality; *purātanaḥ*—the oldest; *nityam*—eternal; *hariḥ*—the Personality of Godhead; *yat*—whose; *caraṇa*—lotus feet; *abhivandanāt*—by means of worshiping; *avāpa*—obtained; *lakṣmīm*—opulences; *anapāyinīm*—perpetually; *yaśaḥ*—reputation; *jagat*—universal; *pavitram*—purified; *ca*—also; *mahat*—great; *tama*—supreme; *agraṇīḥ*—foremost.
+*brahmaṇya-devaḥ*—the Lord of the brahminical culture; *puruṣaḥ*—the Supreme Personality; *purātanaḥ*—the oldest; *nityam*—eternal; *hariḥ*—Personality of Godhead; *yat*—whose; *caraṇa*—lotus feet; *abhivandanāt*—by means of worshiping; *avāpa*—obtained; *lakṣmīm*—opulences; *anapāyinīm*—perpetually; *yaśaḥ*—reputation; *jagat*—universal; *pavitram*—purified; *ca*—also; *mahat*—great; *tama*—supreme; *agraṇīḥ*—foremost.
 
 **The Supreme Personality of Godhead, the ancient, eternal Godhead who is foremost amongst all great personalities, obtained the opulence of His staunch reputation, which purifies the entire universe, by worshiping the lotus feet of those brāhmaṇas and Vaiṣṇavas.**
 

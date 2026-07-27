@@ -8,7 +8,7 @@
 > bhūteśa-vatsā duduhuḥ\
 > kapāle kṣatajāsavam
 
-*yakṣa*—the Yakṣas (the descendants of Kuvera); *rakṣāṁsi*—the Rākṣasas (meat-eaters); *bhūtāni*—ghosts; *piśācāḥ*—witches; *piśita-aśanāḥ*—who are all habituated to eating flesh; *bhūteśa*—Lord Śiva's incarnation Rudra; *vatsāḥ*—whose calf; *duduhuḥ*—milked out; *kapāle*—in a pot of skulls; *kṣata-ja*—blood; *āsavam*—a fermented beverage.
+*yakṣa*—the Yakṣas (the descendants of Kuvera); *rakṣāṁsi*—the Rākṣasas (meat-eaters); *bhūtāni*—ghosts; *piśācāḥ*—witches; *piśita-aśanāḥ*—who are all habituated to eating flesh; *bhūteśa*—Lord Śiva's incarnation Rudra; *vatsāḥ*—whose calf; *duduhuḥ*—milked out; *kapāle*—in the pot of skulls; *kṣata-ja*—blood; *āsavam*—a fermented beverage.
 
 **Then the Yakṣas, the Rākṣasas, ghosts and witches, who are habituated to eating flesh, transformed Lord Śiva's incarnation Rudra [Bhūtanātha] into a calf and milked out beverages made of blood and put them in a pot made of skulls.**
 

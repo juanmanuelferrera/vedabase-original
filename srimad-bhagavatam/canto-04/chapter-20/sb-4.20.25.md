@@ -8,7 +8,7 @@
 > smṛtiṁ punar vismṛta-tattva-vartmanāṁ\
 > kuyogināṁ no vitaraty alaṁ varaiḥ
 
-*saḥ*—that; *uttama-śloka*—O Lord, who are praised by selected verses; *mahat*—of great devotees; *mukha-cyutaḥ*—delivered from the mouths; *bhavat*—Your; *pada-ambhoja*—from the lotus feet; *sudhā*—of nectar; *kaṇa*—particles; *anilaḥ*—soothing breeze; *smṛtim*—remembrance; *punaḥ*—again; *vismṛta*—forgotten; *tattva*—to the truth; *vartmanām*—of persons whose path; *ku-yoginām*—of persons not in the line of devotional service; *naḥ*—of us; *vitarati*—restores; *alam*—unnecessary; *varaiḥ*—other benedictions.
+*saḥ*—that; *uttama-śloka*—O Lord, who is praised by selected verses; *mahat*—of great devotees; *mukha-cyutaḥ*—delivered from the mouths; *bhavat*—Your; *pada-ambhoja*—from the lotus feet; *sudhā*—of nectar; *kaṇa*—particles; *anilaḥ*—soothing breeze; *smṛtim*—remembrance; *punaḥ*—again; *vismṛta*—forgotten; *tattva*—to the truth; *vartmanām*—of persons whose path; *ku-yoginām*—of persons not in the line of devotional service; *naḥ*—of us; *vitarati*—restores; *alam*—unnecessary; *varaiḥ*—other benedictions.
 
 **My dear Lord, You are glorified by the selected verses uttered by great personalities. Such glorification of Your lotus feet is just like saffron particles. When the transcendental vibration from the mouths of great devotees carries the aroma of the saffron dust of Your lotus feet, the forgetful living entity gradually remembers his eternal relationship with You. Devotees thus gradually come to the right conclusion about the value of life. My dear Lord, I therefore do not need any other benediction but the opportunity to hear from the mouth of Your pure devotee.**
 

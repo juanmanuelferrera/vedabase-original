@@ -8,7 +8,7 @@
 > tvam apramattaḥ sahasābhipadyase\
 > kṣul-lelihāno 'hir ivākhum antakaḥ
 
-*pramattam*—persons who are mad; *uccaiḥ*—loudly; *iti*—thus; *kṛtya*—to be done; *cintayā*—by such desire; *pravṛddha*—very much advanced; *lobham*—greed; *viṣayeṣu*—in material enjoyment; *lālasam*—so desiring; *tvam*—Your Lordship; *apramattaḥ*—completely in transcendence; *sahasā*—all of a sudden; *abhipadyase*—seizes them; *kṣut*—hungry; *lelihānaḥ*—by the greedy tongue; *ahiḥ*—snake; *iva*—like; *ākhum*—mouse; *antakaḥ*—destroyer.
+*pramattam*—persons who are mad; *uccaiḥ*—loudly; *iti*—thus; *kṛtya*—to be done; *cintayā*—by such desire; *pravṛddha*—very much advanced; *lobham*—greediness; *viṣayeṣu*—in the matter of material enjoyment; *lālasam*—so desiring; *tvam*—Your Lordship; *apramattaḥ*—completely in transcendence; *sahasā*—all of a sudden; *abhipadyase*—seizes them; *kṣut*—hungry; *lelihānaḥ*—by the greedy tongue; *ahiḥ*—snake; *iva*—like; *ākhum*—mouse; *antakaḥ*—destroyer.
 
 **My dear Lord, all living entities within this material world are mad after planning for things, and they are always busy with a desire to do this or that. This is due to uncontrollable greed. The greed for material enjoyment is always existing in the living entity, but Your Lordship is always alert, and in due course of time You strike him, just as a snake seizes a mouse and very easily swallows him.**
 

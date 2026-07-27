@@ -8,7 +8,7 @@
 > ye 'bhyāgatān vakra-dhiyābhicakṣate\
 > āropita-bhrūbhir amarṣaṇākṣibhiḥ
 
-*na*—not; *etādṛśānām*—like this; *sva-jana*—kinsmen; *vyapekṣayā*—depending on that; *gṛhān*—in the house of; *pratīyāt*—one should go; *anavasthita*—disturbed; *ātmanām*—mind; *ye*—those; *abhyāgatān*—guests; *vakra-dhiyā*—with a cold reception; *abhicakṣate*—looking at; *āropita-bhrūbhiḥ*—with raised eyebrows; *amarṣaṇa*—angry; *akṣibhiḥ*—with the eyes.
+*na*—not; *etādṛśānām*—like this; *sva-jana*—kinsmen; *vyapekṣayā*—depending on that; *gṛhān*—in the house of; *pratīyāt*—one should go; *anavasthita*—disturbed; *ātmanām*—mind; *ye*—those; *abhyāgatān*—guests; *vakra-dhiyā*—with cold reception; *abhicakṣate*—looking at; *āropita-bhrūbhiḥ*—with raised eyebrows; *amarṣaṇa*—angry; *akṣibhiḥ*—with the eyes.
 
 **One should not go to anyone's house, even on the consideration of his being a relative or a friend, when the man is disturbed in his mind and looks upon the guest with raised eyebrows and angry eyes.**
 

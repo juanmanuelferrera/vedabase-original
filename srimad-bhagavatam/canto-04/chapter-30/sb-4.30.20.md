@@ -8,7 +8,7 @@
 > na muhyanti na śocanti\
 > na hṛṣyanti yato gatāḥ
 
-*navya-vat*—ever-increasingly fresh; *hṛdaye*—in the heart; *yat*—as; *jñaḥ*—the supreme knower, Paramātmā; *brahma*—Brahman; *etat*—this; *brahma-vādibhiḥ*—by the advocates of the Absolute Truth; *na*—never; *muhyanti*—are bewildered; *na*—never; *śocanti*—lament; *na*—never; *hṛṣyanti*—are jubilant; *yataḥ*—when; *gatāḥ*—have attained.
+*navya-vat*—ever-increasingly fresh; *hṛdaye*—in the heart; *yat*—as; *jñaḥ*—the supreme knower, Paramātmā; *brahma*—Brahman; *etat*—this; *brahma-vādibhiḥ*—by the advocates of Absolute Truth; *na*—never; *muhyanti*—are bewildered; *na*—never; *śocanti*—lament; *na*—never; *hṛṣyanti*—are jubilant; *yataḥ*—when; *gatāḥ*—have attained.
 
 **Always engaging in the activities of devotional service, devotees feel ever-increasingly fresh and new in all their activities. The all-knower, the Supersoul within the heart of the devotee, makes everything increasingly fresh. This is known as the Brahman position by the advocates of the Absolute Truth. In such a liberated stage [brahma-bhūta], one is never bewildered. Nor does one lament or become unnecessarily jubilant. This is due to the brahma-bhūta situation.**
 

@@ -8,7 +8,7 @@
 > praṇemuḥ sahasotthāya\
 > brahmendra-tryakṣa-nāyakāḥ
 
-*tam*—Him; *upāgatam*—arrived; *ālakṣya*—after seeing; *sarve*—all; *sura-gaṇa-ādayaḥ*—the demigods and others; *praṇemuḥ*—obeisances; *sahasā*—immediately; *utthāya*—after standing up; *brahma*—Lord Brahmā; *indra*—Lord Indra; *tri-akṣa*—Lord Śiva (who has three eyes); *nāyakāḥ*—led by.
+*tam*—Him; *upāgatam*—arrived; *ālakṣya*—after seeing; *sarve*—all; *sura-gaṇa-ādayaḥ*—the demigods and others; *praṇemuḥ*—obeisances; *sahasā*—immediately; *utthāya*—after standing up; *brahma*—Lord Brahmā; *indra*—Lord Indra; *tryakṣa*—Lord Śiva (who has three eyes); *nāyakāḥ*—led by.
 
 **As soon as Lord Viṣṇu was visible, all the demigods—Lord Brahmā and Lord Śiva, the Gandharvas and all present there—immediately offered their respectful obeisances by falling down straight before Him.**
 

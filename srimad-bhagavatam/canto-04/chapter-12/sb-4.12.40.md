@@ -8,7 +8,7 @@
 > ātodyaṁ vitudañ ślokān\
 > satre 'gāyat pracetasām
 
-*mahimānam*—glories; *vilokya*—observing; *asya*—of Dhruva Mahārāja; *nāradaḥ*—the great sage Nārada; *bhagavān*—equally as exalted as the Supreme Personality of Godhead; *ṛṣiḥ*—the saint; *ātodyam*—the stringed instrument, *vīṇā*; *vitudan*—playing on; *ślokān*—verses; *satre*—in the sacrificial arena; *agāyat*—chanted; *pracetasām*—of the Pracetās.
+*mahimānam*—glories; *vilokya*—observing; *asya*—of Dhruva Mahārāja; *nāradaḥ*—the great sage Nārada; *bhagavān*—equally exalted like the Supreme Personality of Godhead; *ṛṣiḥ*—the saint; *ātodyam*—the string instrument, *vīṇā*; *vitudan*—playing on; *ślokān*—verses; *satre*—in the sacrificial arena; *agāyat*—chanted; *pracetasām*—of the Pracetās.
 
 **After observing the glories of Dhruva Mahārāja, the great sage Nārada, playing his vīṇā, went to the sacrificial arena of the Pracetās and very happily chanted the following three verses.**
 

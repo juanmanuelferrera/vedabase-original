@@ -8,7 +8,7 @@
 > varga-svargāpavargāṇāṁ\
 > prāyeṇaikātmya-hetunā
 
-*dauhitra-ādīn*—grandsons like my father, Vena; *ṛte*—except; *mṛtyoḥ*—of personified death; *śocyān*—abominable; *dharma-vimohitān*—bewildered on the path of religion; *varga*—religion, economic development, sense gratification and liberation; *svarga*—elevation to the heavenly planets; *apavargāṇām*—being freed from material contamination; *prāyeṇa*—almost always; *eka*—one; *ātmya*—the Supreme Personality of Godhead; *hetunā*—on account of.
+*dauhitra-ādīn*—grandsons like my father, Vena; *ṛte*—except; *mṛtyoḥ*—of personified death; *śocyān*—abominable; *dharma-vimohitān*—bewildered on the path of religiosity; *varga*—religion, economic development, sense gratification and liberation; *svarga*—elevation to the heavenly planets; *apavargāṇām*—being freed from material contamination; *prāyeṇa*—almost always; *eka*—one; *ātmya*—the Supreme Personality of Godhead; *hetunā*—on account of.
 
 **Although abominable persons like my father, Vena, the grandson of death personified, are bewildered on the path of religion, all the great personalities like those mentioned agree that in this world the only bestower of the benedictions of religion, economic development, sense gratification, liberation or elevation to the heavenly planets is the Supreme Personality of Godhead.**
 

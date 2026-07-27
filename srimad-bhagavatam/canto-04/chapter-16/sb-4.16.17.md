@@ -8,7 +8,7 @@
 > prajāsu pitṛvat snigdhaḥ\
 > kiṅkaro brahma-vādinām
 
-*mātṛ-bhaktiḥ*—as respectful as one is to his mother; *para-strīṣu*—to other women; *patnyām*—to his own wife; *ardhaḥ*—half; *iva*—like; *ātmanaḥ*—of his body; *prajāsu*—unto the citizens; *pitṛ-vat*—like a father; *snigdhaḥ*—affectionate; *kiṅkaraḥ*—servant; *brahma-vādinām*—of the devotees who preach the glories of the Lord.
+*mātṛ-bhaktiḥ*—respectful as one is to his mother; *para-strīṣu*—to other women; *patnyām*—to his own wife; *ardhaḥ*—half; *iva*—like; *ātmanaḥ*—of his body; *prajāsu*—unto the citizens; *pitṛ-vat*—like a father; *snigdhaḥ*—affectionate; *kiṅkaraḥ*—servant; *brahma-vādinām*—of the devotees who preach the glories of the Lord.
 
 **The King will respect all women as if they were his own mother, and he will treat his own wife as the other half of his body. He will be just like an affectionate father to his citizens, and he will treat himself as the most obedient servant of the devotees who always preach the glories of the Lord.**
 

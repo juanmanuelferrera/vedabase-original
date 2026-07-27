@@ -10,7 +10,7 @@
 > bhūtale niravastāre\
 > śayānāṁ paśya śatru-han
 
-*rāmāḥ ūcuḥ*—the women thus spoke; *nara-nātha*—O King; *na jānīmaḥ*—we do not know; *tvat-priyā*—your beloved; *yat vyavasyati*—why she has taken to this sort of life; *bhū-tale*—on the ground; *niravastāre*—without bedding; *śayānām*—lying down; *paśya*—look; *śatru-han*—O killer of enemies.
+*rāmāḥ ūcuḥ*—the women thus spoke; *nara-nātha*—O King; *na jānīmaḥ*—we do not know; *tvat-priyā*—your beloved; *yad vyavasyati*—why she has taken to this sort of life; *bhū-tale*—on the ground; *niravastāre*—without bedding; *śayānām*—lying down; *paśya*—look; *śatru-han*—O killer of enemies.
 
 **All the women addressed the King: O master of the citizens, we do not know why your dear wife has taken on this sort of existence. O killer of enemies, kindly look! She is lying on the ground without bedding. We cannot understand why she is acting this way.**
 
