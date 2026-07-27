@@ -11,7 +11,7 @@
 > haranty āyuḥ parikrāntyā\
 > ṣaṣṭy-uttara-śata-trayam
 
-*saṁvatsaraḥ*—year; *caṇḍa-vegaḥ*—called Caṇḍavega; *kālaḥ*—time; *yena*—by which; *upalakṣitaḥ*—symbolized; *tasya*—of the duration of life; *ahāni*—days; *iha*—in this life; *gandharvāḥ*—Gandharvas; *gandharvyaḥ*—Gandharvīs; *rātrayaḥ*—nights; *smṛtāḥ*—are understood; *haranti*—they take away; *āyuḥ*—duration of life; *parikrāntyā*—by traveling; *ṣaṣṭi*—sixty; *uttara*—above; *śata*—hundred; *trayam*—three.
+*saṁvatsaraḥ*—year; *caṇḍa-vegaḥ*—called Caṇḍavega; *kālaḥ*—time; *yena*—by which; *upalakṣitaḥ*—symbolized; *tasya*—of the duration of life; *ahāni*—days; *iha*—in this life; *gandharvāḥ*—Gandharvas; *gandharvyaḥ*—Gandharvīs; *rātrayaḥ*—nights; *smṛtāḥ*—are understood; *haranti*—they take away; *āyuḥ*—duration of life; *parikrāntyā*—by traveling; *ṣaṣṭhi*—sixty; *uttara*—above; *śata*—hundred; *trayam*—three.
 
 **What was previously explained as Caṇḍavega, powerful time, is covered by days and nights, named Gandharvas and Gandharvīs. The body's life-span is gradually reduced by the passage of days and nights, which number 360.**
 

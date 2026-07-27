@@ -8,7 +8,7 @@
 > kāmān siṣeve dvārvatyām\
 > asaktaḥ sāṅkhyam āsthitaḥ
 
-*bhagavān*—the Personality of Godhead; *api*—also; *viśva-ātmā*—the Supersoul of the universe; *loka*—customary; *veda*—Vedic principles; *patha-anugaḥ*—follower of the path; *kāmān*—the necessities of life; *siṣeve*—enjoyed; *dvārvatyām*—in the city of Dvārakā; *asaktaḥ*—without being attached; *sāṅkhyam*—knowledge in Sāṅkhya philosophy; *āsthitaḥ*—being situated.
+*bhagavān*—the Personality of Godhead; *api*—also; *viśva-ātmā*—the Supersoul of the universe; *loka*—custom; *veda*—the Vedic principles; *patha-anugaḥ*—follower of the path; *kāmān*—the necessities of life; *siṣeve*—enjoyed; *dvārvatyām*—in the city of Dvārakā; *asaktaḥ*—without being attached; *sāṅkhyam*—knowledge in Sāṅkhya philosophy; *āsthitaḥ*—being situated.
 
 **Simultaneously, the Personality of Godhead enjoyed life in the city of Dvārakā, strictly in conformity with the Vedic customs of society. He was situated in detachment and knowledge, as enunciated by the Sāṅkhya system of philosophy.**
 

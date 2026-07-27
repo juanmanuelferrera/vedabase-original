@@ -8,7 +8,7 @@
 > āmantritas tat-tanayāya śeṣaṁ\
 > dattvā tad-antaḥ-puram āviveśa
 
-*sutam*—son; *mṛdhe*—in the fight; *kham*—the sky; *vapuṣā*—by his body; *grasantam*—while devouring; *dṛṣṭvā*—seeing; *sunābha*—by the Sudarśana wheel; *unmathitam*—killed; *dharitryā*—by the earth; *āmantritaḥ*—being prayed for; *tat-tanayāya*—to the son of Narakāsura; *śeṣam*—that which was taken from; *dattvā*—returning it; *tat*—his; *antaḥ-puram*—inside the house; *āviveśa*—entered.
+*sutam*—son; *mṛdhe*—in the fight; *kham*—the sky; *vapuṣā*—by his body; *grasantam*—while devouring; *dṛṣṭvā*—seeing; *sunābhot*—by the Sudarśana wheel; *mathitam*—killed; *dharitryā*—by the earth; *āmantritaḥ*—being prayed for; *tat-tanayāya*—to the son of Narakāsura; *śeṣam*—that which was taken from; *dattvā*—returning it; *tat*—his; *antaḥ-puram*—inside the house; *āviveśa*—entered.
 
 **Narakāsura, the son of Dharitrī, the earth, tried to grasp the whole sky, and for this he was killed by the Lord in a fight. His mother then prayed to the Lord, which led to the return of the kingdom to the son of Narakāsura, and thus the Lord entered the house of the demon.**
 

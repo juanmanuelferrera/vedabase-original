@@ -8,7 +8,7 @@
 > ajādayo vīkṣya śaśaṁsur āgatā\
 > aho imaṁ ko nu labheta saṁsthitim
 
-*kṣitau*—on the ground; *śayānam*—lying; *tam*—Hiraṇyākṣa; *akuṇṭha*—unfaded; *varcasam*—glow; *karāla*—fearful; *daṁṣṭram*—teeth; *paridaṣṭa*—bitten; *dat-chadam*—lip; *aja-ādayaḥ*—Brahmā and others; *vīkṣya*—having seen; *śaśaṁsuḥ*—admiringly said; *āgatāḥ*—arrived; *aho*—oh; *imam*—this; *kaḥ*—who; *nu*—indeed; *labheta*—could meet; *saṁsthitim*—death.
+*kṣitau*—on the ground; *śayānam*—lying; *tam*—Hiraṇyākṣa; *akuṇṭha*—unfaded; *varcasam*—glow; *karāla*—fearful; *daṁṣṭram*—teeth; *paridaṣṭa*—bitten; *dat-chadam*—lip; *aja-ādayaḥ*—Brahmā and others; *vīkṣya*—having seen; *śaśaṁsuḥ*—admiringly said; *āgatāḥ*—arrived; *aho*—O; *imam*—this; *kaḥ*—who; *nu*—indeed; *labheta*—could meet; *saṁsthitim*—death.
 
 **Aja [Brahmā] and others arrived on the spot to see the fearfully tusked demon lying on the ground, biting his lip. The glow of his face was yet unfaded, and Brahmā admiringly said: Oh, who could meet such blessed death?**
 

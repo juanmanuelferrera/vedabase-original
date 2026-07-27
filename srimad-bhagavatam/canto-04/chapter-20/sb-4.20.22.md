@@ -8,7 +8,7 @@
 > padā spṛśantaṁ kṣitim aṁsa unnate\
 > vinyasta-hastāgram uraṅga-vidviṣaḥ
 
-*atha*—thereupon; *avamṛjya*—wiping; *aśru-kalāḥ*—the tears in his eyes; *vilokayan*—observing; *atṛpta*—not satisfied; *dṛk-gocaram*—visible to his naked eyes; *āha*—he said; *pūruṣam*—unto the Supreme Personality of Godhead; *padā*—with His lotus feet; *spṛśantam*—just touching; *kṣitim*—the ground; *aṁse*—on the shoulder; *unnate*—raised; *vinyasta*—rested; *hasta*—of His hand; *agram*—the front part; *uraṅga-vidviṣaḥ*—of Garuḍa, the enemy of the snakes.
+*atha*—thereupon; *avamṛjya*—wiping; *aśru-kalāḥ*—the tears in his eyes; *vilokayan*—observing; *atṛpta*—not satisfied; *dṛk-gocaram*—visible to his naked eyes; *āha*—he said; *pūruṣam*—unto the Supreme Personality of Godhead; *padā*—with His lotus feet; *spṛśantam*—just touching; *kṣitim*—the ground; *aṁse*—on the shoulder; *unnate*—raised; *vinyasta*—rested; *hasta*—of this hand; *agram*—the front part; *uraṅga-vidviṣaḥ*—of Garuḍa, the enemy of the snakes.
 
 **The Supreme Personality of Godhead stood with His lotus feet almost touching the ground while He rested the front of His hand on the raised shoulder of Garuḍa, the enemy of the snakes. Mahārāja Pṛthu, wiping the tears from his eyes, tried to look upon the Lord, but it appeared that he was not fully satisfied by looking at Him. Thus he offered the following prayers.**
 

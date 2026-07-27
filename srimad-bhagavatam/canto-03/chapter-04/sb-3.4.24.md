@@ -8,7 +8,7 @@
 > viśrambhād abhyadhattedaṁ\
 > mukhyaṁ kṛṣṇa-parigrahe
 
-*saḥ*—Vidura; *tam*—unto Uddhava; *mahā-bhāgavatam*—the great devotee of the Lord; *vrajantam*—while going; *kaurava-ṛṣabhaḥ*—the best amongst the Kauravas; *viśrambhāt*—out of confidence; *abhyadhatta*—submitted; *idam*—this; *mukhyam*—unto the chief; *kṛṣṇa*—Lord Kṛṣṇa; *parigrahe*—in devotional service to the Lord.
+*saḥ*—Vidura; *tam*—unto Uddhava; *mahā-bhāgavatam*—the great devotee of the Lord; *vrajantam*—while going; *kaurava-ṛṣabha*—the best amongst the Kauravas; *viśrambhāt*—out of confidence; *abhyadhatta*—submitted; *idam*—this; *mukyam*—unto the chief; *kṛṣṇa*—Lord Kṛṣṇa; *parigrahe*—in devotional service to the Lord.
 
 **While Uddhava, the chief and most confidential amongst the devotees of the Lord, was going away, Vidura, in affection and confidence, questioned him.**
 

@@ -8,7 +8,7 @@
 > nodhā vidhāya rūpaṁ svaṁ\
 > sarva-saṅkalpa-vid vibhuḥ
 
-*tasyām*—in her; *ādhatta*—he deposited; *retaḥ*—semen; *tām*—her; *bhāvayan*—regarding; *ātmanā*—as half of himself; *ātma-vit*—a knower of spirit soul; *nodhā*—into nine; *vidhāya*—having divided; *rūpam*—body; *svam*—his own; *sarva-saṅkalpa-vit*—the knower of all desires; *vibhuḥ*—the powerful Kardama.
+*tasyām*—in her; *ādhatta*—he deposited; *retaḥ*—semina; *tām*—her; *bhāvayan*—regarding; *ātmanā*—as half of himself; *ātma-vit*—a knower of spirit soul; *nodhā*—into nine; *vidhāya*—having divided; *rūpam*—body; *svam*—his own; *sarva-saṅkalpa-vit*—the knower of all desires; *vibhuḥ*—the powerful Kardama.
 
 **The powerful Kardama Muni was the knower of everyone's heart, and he could grant whatever one desired. Knowing the spiritual soul, he regarded her as half of his body. Dividing himself into nine forms, he impregnated Devahūti with nine discharges of semen.**
 

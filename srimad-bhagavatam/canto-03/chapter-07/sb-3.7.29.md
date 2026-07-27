@@ -8,7 +8,7 @@
 > ṛṣīṇāṁ janma-karmāṇi\
 > vedasya ca vikarṣaṇam
 
-*varṇa-āśrama*—the four divisions of social statuses and orders of spiritual culture; *vibhāgān*—respective divisions; *ca*—also; *rūpa*—personal feature s; *śīla-svabhāvataḥ*—personal character; *ṛṣīṇām*—of the sages; *janma*—birth; *karmāṇi*—activities; *vedasya*—of the *Vedas*; *ca*—and; *vikarṣaṇam*—categorical divisions.
+*varṇa-āśrama*—the four divisions of social statuses and orders of spiritual culture; *vibhāgān*—respective divisions; *ca*—also; *rūpa*—personal feature s; *śīla-svabhāvataḥ*—personal character; *ṛṣīṇām*—of the sages; *janma*—birth; *karmādi*—activities; *vedasya*—of the *Vedas*; *ca*—and; *vikarṣaṇam*—categorical divisions.
 
 **O great sage, kindly describe the divisions and orders of human society in terms of symptoms, behavior and the characteristics of mental equilibrium and sense control. Also please describe the births of the great sages and the categorical divisions of the Vedas.**
 

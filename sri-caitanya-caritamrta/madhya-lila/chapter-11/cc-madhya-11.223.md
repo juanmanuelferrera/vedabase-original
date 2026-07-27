@@ -4,7 +4,7 @@
 > চারিদিকের লোক সব করয়ে সিনানে ॥২২৩॥
 
 > pickāri-dhārā jini' aśru nayane\
-> cāri-dikera loka saba karaye siṅcāne
+> cāri-dikera loka saba karaye sināne
 
 *pickāri-dhārā*—like water coming in force from a syringe; *jini'*—conquering; *aśru*—tears; *nayane*—in the eyes; *cāri-dikera*—in all four directions; *loka*—people; *saba*—all; *karaye sināne*—moistened.
 

@@ -10,7 +10,7 @@
 > drakṣyanty agha-kṣata-dṛśo hy ahi-manyavas tān\
 > gṛdhrā ruṣā mama kuṣanty adhidaṇḍa-netuḥ
 
-*ye*—which persons; *me*—My; *tanūḥ*—body; *dvija-varān*—the best of the *brāhmaṇas*; *duhatīḥ*—cows; *madīyāḥ*—relating to Me; *bhūtāni*—living entities; *alabdha-śaraṇāni*—defenseless; *ca*—and; *bheda-buddhyā*—considering as different; *drakṣyanti*—see; *agha*—by sin; *kṣata*—is impaired; *dṛśaḥ*—whose faculty of judgment; *hi*—because; *ahi*—like a snake; *manyavaḥ*—angry; *tān*—those same persons; *gṛdhrāḥ*—the vulturelike messengers; *ruṣā*—angrily; *mama*—My; *kuṣanti*—tear; *adhidaṇḍa-netuḥ*—of the superintendent of punishment, Yamarāja.
+*ye*—which persons; *me*—My; *tanūḥ*—body; *dvija-varān*—the best of the *brāhmaṇas*; *duhatīḥ*—cows; *madīyāḥ*—relating to Me; *bhūtāni*—living entities; *alabdha-śaraṇāni*—defenseless; *ca*—and; *bheda-buddhyā*—considering as different; *drakṣyanti*—see; *agha*—by sin; *kṣata*—is impaired; *dṛśaḥ*—whose faculty of judgement; *hi*—because; *ahi*—like a snake; *manyavaḥ*—angry; *tān*—those same persons; *gṛdhrāḥ*—the vulturelike messengers; *ruṣā*—angrily; *mama*—My; *kuṣanti*—tear; *adhidaṇḍa-netuḥ*—of the superintendent of punishment, Yamarāja.
 
 **The brāhmaṇas, the cows and the defenseless creatures are My own body. Those whose faculty of judgment has been impaired by their own sin look upon these as distinct from Me. They are just like furious serpents, and they are angrily torn apart by the bills of the vulturelike messengers of Yamarāja, the superintendent of sinful persons.**
 

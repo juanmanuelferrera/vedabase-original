@@ -8,7 +8,7 @@
 > paryak-kṛtācala-cchāyo\
 > nirnīḍas tāpa-varjitaḥ
 
-*saḥ*—that banyan tree; *yojana-śata*—one hundred *yojanas* (eight hundred miles); *utsedhaḥ*—height; *pāda-ūna*—less by a quarter (six hundred miles); *viṭapa*—by the branches; *āyataḥ*—spread out; *paryak*—all around; *kṛta*—made; *acala*—unshaken; *chāyaḥ*—the shadow; *nirnīḍaḥ*—without bird nests; *tāpa-varjitaḥ*—without temperature.
+*saḥ*—that banyan tree; *yojana-śata*—one hundred *yojanas* (800 miles); *utsedhaḥ*—height; *pāda-ūna*—less by a quarter (600 miles); *viṭapa*—by the branches; *āyataḥ*—spread out; *paryak*—all around; *kṛta*—made; *acala*—unshaken; *chāyaḥ*—the shadow; *nirnīḍaḥ*—without bird nests; *tāpa-varjitaḥ*—without temperature.
 
 **That banyan tree was 800 miles high, and its branches spread over 600 miles around. The tree cast a fine shade which permanently cooled the temperature, yet there was no noise of birds.**
 

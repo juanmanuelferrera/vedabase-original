@@ -10,7 +10,7 @@
 > athāpi me prapannāyā\
 > abhayaṁ dātum arhasi
 
-*devahūtiḥ*—Devahūti; *uvāca*—said; *sarvam*—all; *tat*—that; *bhagavān*—Your Lordship; *mahyam*—for me; *upovāha*—has been fulfilled; *pratiśrutam*—promised; *athāpi*—yet; *me*—unto me; *prapannāyai*—unto one who has surrendered; *abhayam*—fearlessness; *dātum*—to give; *arhasi*—you deserve.
+*devahūtiḥ*—Devahūti; *uvāca*—said; *sarvam*—all; *tat*—that; *bhagavān*—Your Lordship; *mahyam*—for me; *upovāha*—has been fulfilled; *pratiśrutam*—promised; *athāpi*—yet; *me*—unto me; *prapannāyāḥ*—unto one who has surrendered; *abhayam*—fearlessness; *dātum*—to give; *arhasi*—you deserve.
 
 **Śrī Devahūti said: My lord, you have fulfilled all the promises you gave me, yet because I am your surrendered soul, you should give me fearlessness too.**
 

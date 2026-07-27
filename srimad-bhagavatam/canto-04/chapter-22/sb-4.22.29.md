@@ -8,7 +8,7 @@
 > ātmanaś ca parasyāpi\
 > bhidāṁ paśyati nānyadā
 
-*nimitte*—on account of causes; *sati*—being; *sarvatra*—everywhere; *jala-ādau api*—water and other reflecting media; *pūruṣaḥ*—the person; *ātmanaḥ*—oneself; *ca*—and; *parasya api*—another's self; *bhidām*—differentiation; *paśyati*—sees; *na anyadā*—there is no other reason.
+*nimitte*—on account of causes; *sati*—being; *sarvatra*—everywhere; *jala-ādau api*—water and other reflecting mediums; *pūruṣaḥ*—the person; *ātmanaḥ*—oneself; *ca*—and; *parasya api*—another's self; *bhidām*—differentiation; *paśyati*—sees; *na anyadā*—there is no other reason.
 
 **Only because of different causes does a person see a difference between himself and others. It is like the reflection of a body on water or oil or in a mirror appearing to be differently manifested.**
 

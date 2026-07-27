@@ -8,7 +8,7 @@
 > tvaṁ deva śaktyāṁ guṇa-karma-yonau\
 > retas tv ajāyāṁ kavim ādadhe 'jaḥ
 
-*tvam*—Your Lordship; *naḥ*—of us; *surāṇām*—of the demigods; *asi*—You are; *sa-anvayānām*—with different gradations; *kūṭa-sthaḥ*—one who is unchanged; *ādyaḥ*—without any superior; *puruṣaḥ*—the founder person; *purāṇaḥ*—the oldest, who has no other founder; *tvam*—You; *deva*—O Lord; *śaktyām*—unto the energy; *guṇa-karma-yonau*—unto the cause of the material modes and activities; *retaḥ*—semen of birth; *tu*—indeed; *ajāyām*—for begetting; *kavim*—the total living entities; *ādadhe*—initiated; *ajaḥ*—one who is unborn.
+*tvam*—Your Lordship; *naḥ*—of us; *surāṇām*—of the demigods; *asi*—You are; *sa-anvayānām*—with different gradations; *kūṭa-sthaḥ*—one who is unchanged; *ādyaḥ*—without any superior; *puruṣaḥ*—the founder person; *purāṇaḥ*—the oldest, who has no other founder; *tvam*—You; *deva*—O Lord; *śaktyām*—unto the energy; *guṇa-karma-yonau*—unto the cause of the material modes and activities; *retaḥ*—semina of birth; *tu*—indeed; *ajāyām*—for begetting; *kavim*—the total living entities; *ādadhe*—initiated; *ajaḥ*—one who is unborn.
 
 **You are the original personal founder of all the demigods and the orders of different gradations, yet You are the oldest and are unchanged. O Lord, You have no source or superior. You have impregnated the external energy with the semen of the total living entities, yet You are unborn.**
 

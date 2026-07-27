@@ -10,7 +10,7 @@
 > yad riṅgatāntara-gatena divi-spṛśor vā\
 > unmūlanaṁ tv itarathārjunayor na bhāvyam
 
-*tokena*—by a child; *jīva-haraṇam*—killing a living being; *yat*—one which; *ulūki-kāyāḥ*—assumed the giant body of a demon; *trai-māsikasya*—of one who is only three months old; *ca*—also; *padā*—by the leg; *śakaṭaḥ apavṛttaḥ*—turned over the cart; *yat*—one who; *riṅgatā*—while crawling; *antara-gatena*—being overtaken; *divi*—high in the sky; *spṛśoḥ*—touching; *vā*—either; *unmūlanam*—uprooting; *tu*—but; *itarathā*—anyone else than; *arjunayoḥ*—of the two *arjuna* trees; *na bhāvyam*—was not possible.
+*tokena*—by a child; *jīva-haraṇam*—killing a living being; *yat*—one which; *ulūki-kāyāḥ*—assumed the giant body of a demon; *trai-māsikasya*—of one who is only three months old; *ca*—also; *padā*—by the leg; *śakaṭaḥ upavṛttaḥ*—turned over the cart; *yat*—one who; *riṅgatā*—while crawling; *antara-gatena*—being overtaken; *divi*—high in the sky; *spṛśoḥ*—touching; *vā*—either; *unmūlanam*—uprooting; *tu*—but; *itarathā*—anyone else than; *arjunayoḥ*—of the two *arjuna* trees; *na bhāvyam*—was not possible.
 
 **There is no doubt about Lord Kṛṣṇa's being the Supreme Lord, otherwise how was it possible for Him to kill a giant demon like Pūtanā when He was just on the lap of His mother, to overturn a cart with His leg when He was only three months old, to uproot a pair of arjuna trees, so high that they touched the sky, when He was only crawling. All these activities are not possible for anyone other than the Lord Himself.**
 

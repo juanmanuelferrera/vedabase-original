@@ -8,7 +8,7 @@
 > paścime dve amūṣāṁ te\
 > nāmāni nṛpa varṇaye
 
-*pañca*—five; *dvāraḥ*—doors; *tu*—then; *paurastyāḥ*—facing the eastern side; *dakṣiṇā*—southern; *ekā*—one; *tathā*—also; *uttarā*—one toward the north; *paścime*—similarly, on the western side; *dve*—two; *amūṣām*—of them; *te*—unto you; *nāmāni*—names; *nṛpa*—O King; *varṇaye*—I shall describe.
+*pañca*—five; *dvāraḥ*—doors; *tu*—then; *paurastyāḥ*—facing the eastern side; *dakṣiṇā*—southern; *ekā*—one; *tathā*—also; *uttarā*—one towards the north; *paścime*—similarly, on the western side; *dve*—two; *amūṣām*—of them; *te*—unto you; *nāmāni*—names; *nṛpa*—O King; *varṇaye*—I shall describe.
 
 **My dear King, of the nine doors, five led toward the eastern side, one led toward the northern side, one led toward the southern side, and two led toward the western side. I shall try to give the names of these different doors.**
 

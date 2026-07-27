@@ -8,7 +8,7 @@
 > āpīya karṇāñjalibhir bhavāpahām\
 > aho virajyeta vinā naretaram
 
-*kaḥ*—who; *nāma*—indeed; *loke*—in the world; *puruṣa-artha*—goal of life; *sāra-vit*—one who knows the essence of; *purā-kathānām*—of all past histories; *bhagavat*—regarding the Personality of Godhead; *kathā-sudhām*—the nectar of the narrations about the Personality of Godhead; *āpīya*—by drinking; *karṇa-añjalibhiḥ*—by aural reception; *bhava-apahām*—that which kills all material pangs; *aho*—alas; *virajyeta*—could refuse; *vinā*—except; *nara-itaram*—other than the human being. being.
+*kaḥ*—who; *nāma*—indeed; *loke*—in the world; *puruṣa-artha*—goal of life; *sāra-vit*—one who knows the essence of; *purā-kathānām*—of all past histories; *bhagavat*—regarding the Personality of Godhead; *kathā-sudhām*—the nectar of the narrations about the Personality of Godhead; *āpīya*—by drinking; *karṇa-añjalibhiḥ*—by aural reception; *bhava-apahām*—that which kills all material pangs; *aho*—alas; *virajyeta*—could refuse; *vinā*—without; *nara-itaram*—other than the human being. being.
 
 **Who, other than one who is not a human being, can exist in this world and not be interested in the ultimate goal of life? Who can refuse the nectar of narrations about the Personality of Godhead's activities, which by itself can deliver one from all material pangs?**
 

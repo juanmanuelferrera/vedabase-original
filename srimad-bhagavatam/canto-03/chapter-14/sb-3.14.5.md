@@ -10,7 +10,7 @@
 > yat tvaṁ pṛcchasi martyānāṁ\
 > mṛtyu-pāśa-viśātanīm
 
-*maitreyaḥ uvāca*—Maitreya said; *sādhu*—devotee; *vīra*—O warrior; *tvayā*—by you; *pṛṣṭam*—inquired; *avatāra-kathām*—topics on the incarnation of the Lord; *hareḥ*—of the Personality of Godhead; *yat*—that which; *tvam*—your good self; *pṛcchasi*—asking me; *martyānām*—of those who are destined for death; *mṛtyu-pāśa*—the chain of birth and death; *viśātanīm*—source of liberation.
+*maitreyaḥ uvāca*—Maitreya said; *sādhu*—devotee; *vīra*—O warrior; *tvayā*—by you; *pṛṣṭam*—inquired; *avatāra-kathām*—topics on the incarnation of the Lord; *hareḥ*—of the Personality of Godhead; *yat*—that which; *tvam*—your good self; *pṛcchasi*—asking me; *martyānām*—of those who are destined to death; *mṛtyu-pāśa*—the chain of birth and death; *viśātanīm*—source of liberation.
 
 **The great sage Maitreya said: O warrior, the inquiry made by you is just befitting a devotee because it concerns the incarnation of the Personality of Godhead. He is the source of liberation from the chain of birth and death for all those who are otherwise destined to die.**
 

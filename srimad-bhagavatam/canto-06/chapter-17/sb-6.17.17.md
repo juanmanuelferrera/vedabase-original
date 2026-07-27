@@ -10,7 +10,7 @@
 > devair martyāya yat proktaṁ\
 > pūrva-diṣṭaṁ hi tasya tat
 
-*citraketuḥ uvāca*—King Citraketu said; *pratigṛhṇāmi*—I accept; *te*—your; *śāpam*—curse; *ātmanaḥ*—my own; *añjalinā*—with folded bands; *ambike*—O mother; *devaiḥ*—by the demigods; *martyāya*—unto a mortal; *yat*—which; *proktam*—prescribed; *pūrva-diṣṭam*—fixed previously according to one's past deeds; *hi*—indeed; *tasya*—of him; *tat*—that.
+*citraketuḥ uvāca*—King Citraketu said; *pratigṛhṇāmi*—I accept; *te*—your; *śāpam*—curse; *ātmanaḥ*—my own; *añjalinā*—with folded hands; *ambike*—O mother; *devaiḥ*—by the demigods; *martyāya*—unto a mortal; *yat*—which; *proktam*—prescribed; *pūrva-diṣṭam*—fixed previously according to one's past deeds; *hi*—indeed; *tasya*—of him; *tat*—that.
 
 **Citraketu said: My dear mother, with my own hands folded together I accept the curse upon me. I do not mind the curse, for happiness and distress are given by the demigods as a result of one's past deeds.**
 

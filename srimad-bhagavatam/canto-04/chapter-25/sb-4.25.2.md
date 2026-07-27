@@ -8,7 +8,7 @@
 > japantas te tapas tepur\
 > varṣāṇām ayutaṁ jale
 
-*rudra-gītam*—the song sung by Lord Śiva; *bhagavataḥ*—of the Lord; *stotram*—prayer; *sarve*—all; *pracetasaḥ*—the princes known as the Pracetās; *japantaḥ*—reciting; *te*—all of them; *tapaḥ*—austerity; *tepuḥ*—executed; *varṣāṇām*—of years; *ayutam*—ten thousand; *jale*—within the water.
+*rudra-gītam*—the song sung by Lord Śiva; *bhagavataḥ*—of the Lord; *stotram*—prayer; *sarve*—all; *pracetasaḥ*—the princes known as the Pracetās; *japantaḥ*—reciting; *te*—all of them; *tapaḥ*—austerity; *tepuḥ*—executed; *varṣāṇām*—of years; *ayutam*—10,000; *jale*—within the water.
 
 **All the Pracetā princes simply stood in the water for ten thousand years and recited the prayers given to them by Lord Śiva.**
 

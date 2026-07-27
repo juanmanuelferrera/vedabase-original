@@ -10,7 +10,7 @@
 > saṁsmārito marma-bhidaḥ kuvāg-iṣūn\
 > yān āha ko viśva-sṛjāṁ samakṣataḥ
 
-*ṛṣiḥ uvāca*—the great sage Maitreya said; *evam*—thus; *giritraḥ*—Lord Śiva; *priyayā*—by his dear wife; *abhibhāṣitaḥ*—being spoken to; *pratyabhyadhatta*—replied; *prahasan*—while smiling; *suhṛt-priyaḥ*—dear to the relatives; *saṁsmāritaḥ*—remembering; *marma-bhidaḥ*—heart piercing; *kuvāk-iṣūn*—malicious words; *yān*—which (words); *āha*—said; *kaḥ*—who (Dakṣa); *viśva-sṛjām*—of the creators of the universal manifestation; *samakṣataḥ*—in the presence.
+*ṛṣiḥ uvāca*—the great sage Maitreya said; *evam*—thus; *giritraḥ*—Lord Śiva; *priyayā*—by his dear wife; *abhibhāṣitaḥ*—being spoken to; *pratyabhyadhatta*—replied; *prahasan*—while smiling; *suhṛt-priyaḥ*—dear to the relatives; *saṁsmāritaḥ*—remembering; *marma-bhidaḥ*—heart piercing; *kuvāg-iṣūn*—malicious words; *yān*—which (words); *āha*—said; *kaḥ*—who (Dakṣa); *viśva-sṛjām*—of the creators of the universal manifestation; *samakṣataḥ*—in the presence.
 
 **The great sage Maitreya said: Lord Śiva, the deliverer of the hill Kailāsa, thus being addressed by his dear wife, replied smilingly, although at the same time he remembered the malicious, heart-piercing speeches delivered by Dakṣa before the guardians of the universal affairs.**
 

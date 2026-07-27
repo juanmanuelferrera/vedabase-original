@@ -15,7 +15,7 @@
 > āstṛtās tā raṇa-bhuvo\
 > rejur vīra-mano-harāḥ
 
-*bhallaiḥ*—by his arrows; *sañchidyamānānām*—of the Yakṣas who were cut to pieces; *śirobhiḥ*—with heads; *cāru*—beautiful; *kuṇḍalaiḥ*—with earrings; *ūrubhiḥ*—with thighs; *hema-tālābhaiḥ*—like golden palm trees; *dorbhiḥ*—with arms; *valaya-valgubhiḥ*—with beautiful bracelets; *hāra*—with garlands; *keyūra*—armlets; *mukuṭaiḥ*—and helmets; *uṣṇīṣaiḥ*—with turbans; *ca*—also; *mahā-dhanaiḥ*—very valuable; *āstṛtāḥ*—covered; *tāḥ*—those; *raṇa-bhuvaḥ*—battlefield; *rejuḥ*—began to glimmer; *vīra*—of the heroes; *manaḥ-harāḥ*—bewildering the minds.
+*bhallaiḥ*—by his arrows; *sañchidyamānānām*—of the Yakṣas who were cut to pieces; *śirobhiḥ*—with heads; *cāru*—beautiful; *kuṇḍalaiḥ*—with earrings; *ūrubhiḥ*—with thighs; *hema-tālābhaiḥ*—like golden palm trees; *dorbhiḥ*—with arms; *valaya-valgubhiḥ*—with beautiful bracelets; *hāra*—with garlands; *keyūra*—armlets; *mukuṭaiḥ*—and helmets; *uṣṇīṣaiḥ*—with turbans; *ca*—also; *mahā-dhanaiḥ*—very valuable; *āstṛtāḥ*—covered; *tāḥ*—those; *raṇa-bhuvaḥ*—battlefields; *rejuḥ*—began to glimmer; *vīra*—of the heroes; *manaḥ-harāḥ*—bewildering the minds.
 
 **The great sage Maitreya continued: My dear Vidura, the heads of those who were cut to pieces by the arrows of Dhruva Mahārāja were decorated very beautifully with earrings and turbans. The legs of their bodies were as beautiful as golden palm trees, their arms were decorated with golden bracelets and armlets, and on their heads there were very valuable helmets bedecked with gold. All these ornaments lying on that battlefield were very attractive and could bewilder the mind of a hero.**
 

@@ -8,7 +8,7 @@
 > gṛhe 'py asya gatiṁ yāyād\
 > rājaṁs tad-bhakti-bhāṅ naraḥ
 
-*etaiḥ*—by these ways; *anyaiḥ*—by other ways; *ca*—and; *veda-uktaiḥ*—as directed in the Vedic literatures; *vartamānaḥ*—abiding; *sva-karmabhiḥ*—by one's occupational duties; *gṛhe api*—even at home; *asya*—of Lord Kṛṣṇa; *gatim*—destination; *yāyāt*—can reach; *rājan*—O King; *tat-bhakti-bhāk*—who renders devotional service unto the Supreme Personality of Godhead; *naraḥ*—any person.
+*etaiḥ*—by these ways; *anayiḥ*—by other ways; *ca*—and; *veda-uktaiḥ*—as directed in the Vedic literatures; *vartamānaḥ*—abiding; *sva-karmabhiḥ*—by one's occupational duties; *gṛhe api*—even at home; *asya*—of Lord Kṛṣṇa; *gatim*—destination; *yāyāt*—can reach; *rājan*—O King; *tat-bhakti-bhāk*—who renders devotional service unto the Supreme Personality of Godhead; *naraḥ*—any person.
 
 **O King, one should perform his occupational duties according to these instructions, as well as other instructions given in the Vedic literature, just to remain a devotee of Lord Kṛṣṇa. Thus, even while at home, one will be able to reach the destination.**
 

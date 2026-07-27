@@ -8,7 +8,7 @@
 > karmabhir vā trayī-proktaiḥ\
 > puṁso 'pi vibudhāyuṣā
 
-*kim*—what is the use; *janmabhiḥ*—of births; *tribhiḥ*—three; *vā*—or; *iha*—in this world; *śaukra*—by semen; *sāvitra*—by initiation; *yājñikaiḥ*—by becoming a perfect *brāhmaṇa*; *karmabhiḥ*—by activities; *vā*—or; *trayī*—in the *Vedas*; *proktaiḥ*—instructed; *puṁsaḥ*—of a human being; *api*—even; *vibudha*—of the demigods; *āyuṣā*—with a duration of life.
+*kim*—what is the use; *janmabhiḥ*—of births; *tribhiḥ*—three; *vā*—or; *iha*—in this world; *śaukra*—by semina; *sāvitra*—by initiation; *yājñikaiḥ*—by becoming a perfect *brāhmaṇa*; *karmabhiḥ*—by activities; *vā*—or; *trayī*—in the *Vedas*; *proktaiḥ*—instructed; *puṁsaḥ*—of a human being; *api*—even; *vibudha*—of the demigods; *āyuṣā*—with a duration of life.
 
 **A civilized human being has three kinds of births. The first birth is by a pure father and mother, and this birth is called birth by semina. The next birth takes place when one is initiated by the spiritual master, and this birth is called sāvitra. The third birth, called yājñika, takes place when one is given the opportunity to worship Lord Viṣṇu. Despite the opportunities for attaining such births, even if one gets the lifespan of a demigod, if one does not actually engage in the service of the Lord, everything is useless. Similarly, one's activities may be mundane or spiritual, but they are useless if they are not meant for satisfying the Lord.**
 

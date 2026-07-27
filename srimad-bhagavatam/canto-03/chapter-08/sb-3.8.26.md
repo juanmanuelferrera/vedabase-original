@@ -8,7 +8,7 @@
 > pradarśayantaṁ kṛpayā nakhendu-\
 > mayūkha-bhinnāṅguli-cāru-patram
 
-*puṁsām*—of the human being; *sva-kāmāya*—according to the desire; *vivikta-mārgaiḥ*—by the path of devotional service; *abhyarcatām*—worshiped; *kāma-dugha-aṅghri-padmam*—the lotus feet of the Lord, which can award all desired fruits; *pradarśayantam*—while showing them; *kṛpayā*—by causeless mercy; *nakha*—nails; *indu*—moonlike; *mayūkha*—rays; *bhinna*—divided; *aṅguli*—figures; *cāru-patram*—very beautiful.
+*puṁsām*—of the human being; *sva-kāmāya*—according to his desire; *vivikta-mārgaiḥ*—by the path of devotional service; *abhyarcatām*—worshiped; *kāma-dugha-aṅghri-padmam*—the lotus feet of the Lord, which can award all desired fruits; *pradarśayantam*—while showing them; *kṛpayā*—by causeless mercy; *nakha*—nails; *indu*—moonlike; *mayūkha*—rays; *bhinna*—divided; *aṅguli*—figures; *cāru-patram*—very beautiful.
 
 **The Lord showed His lotus feet by raising them. His lotus feet are the source of all awards achieved by devotional service free from material contamination. Such awards are for those who worship Him in pure devotion. The splendor of the transcendental rays from His moonlike toenails and fingernails appeared like the petals of a flower.**
 

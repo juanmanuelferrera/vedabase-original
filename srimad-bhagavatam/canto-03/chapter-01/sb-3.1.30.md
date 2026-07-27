@@ -8,7 +8,7 @@
 > asūta yaṁ jāmbavatī vratāḍhyā\
 > devaṁ guhaṁ yo 'mbikayā dhṛto 'gre
 
-*kaccit*—whether; *hareḥ*—of the Personality of Godhead; *saumya*—O grave one; *sutaḥ*—son; *sadṛkṣaḥ*—similar; *āste*—fare well; *agraṇīḥ*—forward; *rathinām*—of the warriors; *sādhu*—well behaved; *sāmbaḥ*—Sāmba; *asūta*—gave birth; *yam*—whom; *jāmbavatī*—Jāmbavatī, a queen of Lord Kṛṣṇa's; *vratāḍhyā*—enriched by vows; *devam*—the demigod; *guham*—of the name Kārttikeya; *yaḥ*—whom; *ambikayā*—unto the wife of Śiva; *dhṛtaḥ*—born; *agre*—in the previous birth.
+*kaccit*—whether; *dhareḥ*—of the Personality of Godhead; *saumya*—O grave one; *sutaḥ*—son; *sadṛkṣaḥ*—similar; *āste*—fare well; *agraṇīḥ*—forward; *rathinām*—of the warriors; *sādhu*—well behaved; *sāmbaḥ*—Sāmba; *asūta*—gave birth; *yam*—whom; *jāmbavatī*—Jāmbavatī, a queen of Lord Kṛṣṇa's; *vratāḍhyā*—enriched by vows; *devam*—the demigod; *guham*—of the name Kārttikeya; *yaḥ*—whom; *ambikayā*—unto the wife of Śiva; *dhṛtaḥ*—born; *agre*—in the previous birth.
 
 **O gentle one, does Sāmba fare well? He exactly resembles the son of the Personality of Godhead. In a previous birth he was born as Kārttikeya in the womb of the wife of Lord Śiva, and now he has been born in the womb of Jāmbavatī, the most enriched wife of Kṛṣṇa.**
 

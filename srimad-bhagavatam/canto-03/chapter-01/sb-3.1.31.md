@@ -8,7 +8,7 @@
 > lebhe 'ñjasādhokṣaja-sevayaiva\
 > gatiṁ tadīyāṁ yatibhir durāpām
 
-*kṣemam*—all good; *saḥ*—he; *kaccit*—whether; *yuyudhānaḥ*—Sātyaki; *āste*—is there; *yaḥ*—one who; *phālgunāt*—from Arjuna; *labdha*—has achieved; *dhanuḥ-rahasyaḥ*—one who understands the intricacies of military art; *lebhe*—also achieved; *añjasā*—summarily; *adhokṣaja*—transcendence; *sevayā*—by service; *eva*—certainly; *gatim*—destination; *tadīyām*—transcendental; *yatibhiḥ*—by great renouncers; *durāpām*—very difficult to achieve.
+*kṣemam*—all good; *saḥ*—he; *kaccit*—whether; *yuyudhānaḥ*—Sātyaki; *āste*—is there; *yaḥ*—one who; *phālgunāt*—from Arjuna; *labdha*—achieved; *dhanuḥ-rahasyaḥ*—one who understands the intricacies of military art; *lebhe*—also achieved; *añjasā*—summarily; *adhokṣaja*—transcendence; *sevayā*—by service; *eva*—certainly; *gatim*—destination; *tadīyām*—transcendental; *yatibhiḥ*—by great renouncers; *durāpām*—very difficult to achieve.
 
 **O Uddhava, does Yuyudhāna fare well? He learned the intricacies of the military art from Arjuna and attained the transcendental destination which is very difficult to reach even for great renouncers.**
 

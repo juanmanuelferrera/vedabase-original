@@ -10,7 +10,7 @@
 > kim āśrayo me stava eṣa yojyatāṁ\
 > mā mayy abhūvan vitathā giro vaḥ
 
-*pṛthuḥ uvāca*—King Pṛthu said; *bhoḥ sūta*—O *sūta*; *he māgadha*—O *māgadha*; *saumya*—gentle; *vandin*—O devotee offering prayers; *loke*—in this world; *adhunā*—just now; *aspaṣṭa*—not distinct; *guṇasya*—whose qualities; *me*—of me; *syāt*—there may be; *kim*—why; *āśrayaḥ*—shelter; *me*—of me; *stavaḥ*—praise; *eṣaḥ*—this; *yojyatām*—may be applied; *mā*—never; *mayi*—unto me; *abhūvan*—were; *vitathāḥ*—in vain; *giraḥ*—words; *vaḥ*—your.
+*pṛthuḥ uvāca*—King Pṛthu said; *bhoḥ sūta*—O *sūta*; *he māgadha*—O *māgadha*; *saumya*—gentle; *vandin*—O devotee offering prayers; *loke*—in this world; *adhunā*—just now; *aspaṣṭa*—not distinct; *guṇasya*—whose qualities; *me*—of me; *syāt*—there may be; *kim*—why; *āśrayaḥ*—shelter; *me*—of me; *stavaḥ*—praise; *eṣaḥ*—this; *yojyatām*—may be applied; *mā*—never; *mayi*—unto me; *abhūvan*—were; *vitathā*—in vain; *giraḥ*—words; *vaḥ*—your.
 
 **King Pṛthu said: O gentle sūta, māgadha and other devotee offering prayers, the qualities of which you have spoken are not distinct in me. Why then should you praise me for all these qualities when I do not shelter these features? I do not wish for these words meant for me to go in vain, but it is better that they be offered to someone else.**
 

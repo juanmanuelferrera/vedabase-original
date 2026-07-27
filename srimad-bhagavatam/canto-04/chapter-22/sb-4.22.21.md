@@ -8,7 +8,7 @@
 > asaṅga ātma-vyatirikta ātmani\
 > dṛḍhā ratir brahmaṇi nirguṇe ca yā
 
-*śāstreṣu*—in the scriptures; *iyān eva*—this is only; *su-niścitaḥ*—positively concluded; *nṛṇām*—of human society; *kṣemasya*—of the ultimate welfare; *sadhryak*—perfectly; *vimṛśeṣu*—by full consideration; *hetuḥ*—cause; *asaṅgaḥ*—detachment; *ātma-vyatirikte*—the bodily concept of life; *ātmani*—unto the Supreme Soul; *dṛḍhā*—strong; *ratiḥ*—attachment; *brahmaṇi*—transcendence; *nirguṇe*—in the Supreme, who is beyond the material modes; *ca*—and; *yā*—which.
+*śāstreṣu*—in the scriptures; *iyān eva*—this is only; *su-niścitaḥ*—positively concluded; *nṛṇām*—of human society; *kṣemasya*—of the ultimate welfare; *sadhryak*—perfectly; *vimṛśeṣu*—by full consideration; *hetuḥ*—cause; *asaṅgaḥ*—unattachment; *ātma-vyatirikte*—the bodily concept of life; *ātmani*—unto the Supreme Soul; *dṛḍhā*—strong; *ratiḥ*—attachment; *brahmaṇi*—transcendence; *nirguṇe*—in the Supreme, who is beyond the material modes; *ca*—and; *yā*—which.
 
 **It has been conclusively decided in the scriptures, after due consideration, that the ultimate goal for the welfare of human society is detachment from the bodily concept of life and increased and steadfast attachment for the Supreme Lord, who is transcendental and beyond the modes of material nature.**
 

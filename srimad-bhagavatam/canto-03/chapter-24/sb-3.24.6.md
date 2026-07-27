@@ -8,7 +8,7 @@
 > kārdamaṁ vīryam āpanno\
 > jajñe 'gnir iva dāruṇi
 
-*tasyām*—in Devahūti; *bahu-tithe kāle*—after many years; *bhagavān*—the Supreme Personality of Godhead; *madhu-sūdanaḥ*—the killer of the demon Madhu; *kārdamam*—of Kardama; *vīryam*—the semen; *āpannaḥ*—entered; *jajñe*—He appeared; *agniḥ*—fire; *iva*—like; *dāruṇi*—in wood.
+*tasyām*—in Devahūti; *bahu-tithe kāle*—after many years; *bhagavān*—the Supreme Personality of Godhead; *madhu-sūdanaḥ*—the killer of the demon Madhu; *kārdamam*—of Kardama; *vīryam*—the semina; *āpannaḥ*—entered; *jajñe*—He appeared; *agniḥ*—fire; *iva*—like; *dāruṇi*—in wood.
 
 **After many, many years, the Supreme Personality of Godhead, Madhusūdana, the killer of the demon Madhu, having entered the semen of Kardama, appeared in Devahūti just as fire comes from wood in a sacrifice.**
 

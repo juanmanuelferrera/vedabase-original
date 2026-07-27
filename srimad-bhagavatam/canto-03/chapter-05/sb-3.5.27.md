@@ -8,7 +8,7 @@
 > vijñānātmātma-deha-sthaṁ\
 > viśvaṁ vyañjaṁs tamo-nudaḥ
 
-*tataḥ*—thereafter; *abhavat*—came into existence; *mahat*—supreme; *tattvam*—sum total; *avyaktāt*—from the unmanifested; *kāla-coditāt*—by the interaction of time; *vijñāna-ātmā*—unalloyed goodness; *ātma-deha-stham*—situated on the bodily self; *viśvam*—complete universes; *vyañjan*—manifesting; *tamaḥ-nudaḥ*—the supreme light.
+*tataḥ*—thereafter; *abhavat*—came into existence; *mahat*—supreme; *tattvam*—sum total; *avyaktāt*—from the unmanifested; *kāla-coditāt*—by the interaction of time; *vijñāna-ātmā*—unalloyed goodness; *ātma-deha-stham*—situated on the bodily self; *viśvam*—complete universes; *vyañjan*—manifested; *tamaḥ-nudaḥ*—the supreme light.
 
 **Thereafter, influenced by the interactions of eternal time, the supreme sum total of matter called the mahat-tattva became manifested, and in this mahat-tattva the unalloyed goodness, the Supreme Lord, sowed the seeds of universal manifestation out of His own body.**
 

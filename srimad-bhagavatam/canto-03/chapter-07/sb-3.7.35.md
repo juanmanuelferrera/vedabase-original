@@ -8,7 +8,7 @@
 > samprasīdati vā yeṣām\
 > etad ākhyāhi me 'nagha
 
-*yena*—by which; *vā*—either; *bhagavān*—the Personality of Godhead; *tuṣyet*—is satisfied; *dharma-yoniḥ*—the father of all religion; *janārdanaḥ*—the controller of all living being; *samprasīdati*—completely satisfied; *vā*—either, or; *yeṣām*—of those; *etat*—all these; *ākhyāhi*—kindly describe; *me*—unto me; *anagha*—O sinless one.
+*yena*—by which; *vā*—either; *bhagavān*—the Personality of Godhead; *tuṣyet*—is satisfied; *dharma-yoniḥ*—the father of all religion; *janārdanaḥ*—the controller of all living beings; *samprasīdati*—completely satisfied; *vā*—either, or; *yeṣām*—of those; *etat*—all these; *ākhyāhi*—kindly describe; *me*—unto me; *anagha*—O sinless one.
 
 **O sinless one, because the Personality of Godhead, the controller of all living entities, is the father of all religion and all those who are candidates for religious activities, kindly describe how He can be completely satisfied.**
 

@@ -10,7 +10,7 @@
 > līlayā cāpi yujyeran\
 > nirguṇasya guṇāḥ kriyāḥ
 
-*viduraḥ uvāca*—Vidura said; *brahman*—O *brāhmaṇa*; *katham*—how; *bhagavataḥ*—of the Personality of Godhead; *cit-mātrasya*—of the complete spiritual whole; *avikāriṇaḥ*—of the unchangeable; *līlayā*—by His pastime; *ca*—either; *api*—even though it is so; *yujyeran*—take place; *nirguṇasya*—who is without the modes of nature; *guṇāḥ*—modes of nature; *kriyāḥ*—activities.
+*viduraḥ uvāca*—Vidura said; *brahman*—O *brāhmaṇa*; *katham*—how; *bhagavataḥ*—of the Personality of Godhead; *cit-mātrasya*—of the complete spiritual whole; *avikāriṇaḥ*—of the unchangeable; *līlayā*—by His pastime; *ca*—either; *api*—even though it is so; *yujyeran*—takes place; *nirguṇasya*—without the modes of nature; *guṇāḥ*—modes of nature; *kriyāḥ*—activities.
 
 **Śrī Vidura said: O great brāhmaṇa, since the Supreme Personality of Godhead is the complete spiritual whole and is unchangeable, how is He connected with the material modes of nature and their activities? If this is His pastime, how do the activities of the unchangeable take place and exhibit qualities without the modes of nature?**
 

@@ -8,7 +8,7 @@
 > bhagavat-saṅgi-saṅgasya\
 > martyānāṁ kim utāśiṣaḥ
 
-*tulayāma*—we compare; *lavena*—with a moment; *api*—even; *na*—not; *svargam*—attainment of the heavenly planets; *na*—not; *apunaḥ-bhavam*—merging into the Brahman effulgence; *bhagavat*—of the Supreme Personality of Godhead; *saṅgi*—with associates; *saṅgasya*—of association; *martyānām*—of persons who are destined to die; *kim uta*—how much less; *āśiṣaḥ*—benedictions.
+*tulayāmaḥ*—we compare; *lavena*—with a moment; *api*—even; *na*—not; *svargam*—attainment of the heavenly planets; *na*—not; *apunaḥ-bhavam*—merging into the Brahman effulgence; *bhagavat*—of the Supreme Personality of Godhead; *saṅgi*—with associates; *saṅgasya*—of association; *martyānām*—of persons who are destined to die; *kim uta*—how much less; *āśiṣaḥ*—benedictions.
 
 **Even a moment's association with a pure devotee cannot be compared to being transferred to heavenly planets or even merging into the Brahman effulgence in complete liberation. For living entities who are destined to give up the body and die, association with pure devotees is the highest benediction.**
 

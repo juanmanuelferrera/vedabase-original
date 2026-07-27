@@ -8,7 +8,7 @@
 > yasyāṅghri-pātaṁ raṇa-bhūr na sehe\
 > mārgaṁ gadāyāś carato vicitram
 
-*kim*—whether; *vā*—either; *kṛta*—performed; *agheṣu*—unto the sinners; *agham*—anger; *ati-amarṣī*—unconquerable; *bhīmaḥ*—Bhīma; *ahi-vat*—like a cobra; *dīrgha-tamam*—long-cherished; *vyamuñcat*—has released; *yasya*—whose; *aṅghri-pātam*—putting on the steps; *raṇa-bhūḥ*—the field of battle; *na*—could not; *sehe*—tolerate; *mārgam*—the path; *gadāyāḥ*—by the clubs; *carataḥ*—playing; *vicitram*—wonderful.
+*kim*—whether; *vā*—either; *kṛta*—performed; *agheṣu*—unto the sinners; *agham*—anger; *ati-amarṣī*—unconquerable; *bhīmaḥ*—Bhīma; *ahi-vat*—like the cobra; *dīrgha-tamam*—long-cherished; *vyamuñcat*—has released; *yasya*—whose; *aṅghri-pātam*—putting on the steps; *raṇa-bhūḥ*—the field of battle; *na*—could not; *sehe*—tolerate; *mārgam*—the path; *gadāyāḥ*—by the clubs; *carataḥ*—playing; *vicitram*—wonderful.
 
 **[Please tell me] whether the unconquerable Bhīma, who is like a cobra, has released his long-cherished anger upon the sinners? The field of battle could not tolerate even the wonderful playing of his club when he stepped on the path.**
 

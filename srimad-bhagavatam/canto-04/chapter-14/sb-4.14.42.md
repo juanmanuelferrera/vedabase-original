@@ -8,7 +8,7 @@
 > amogha-vīryā hi nṛpā\
 > vaṁśe 'smin keśavāśrayāḥ
 
-*na*—not; *aṅgasya*—of King Aṅga; *vaṁśaḥ*—family line; *rāja-ṛṣeḥ*—of the saintly King; *eṣaḥ*—this; *saṁsthātum*—to be stopped; *arhati*—ought; *amogha*—without sin, powerful; *vīryāḥ*—their semen; *hi*—because; *nṛpāḥ*—kings; *vaṁśe*—in the family; *asmin*—this; *keśava*—of the Supreme Personality of Godhead; *āśrayāḥ*—under the shelter.
+*na*—not; *aṅgasya*—of King Aṅga; *vaṁśaḥ*—family line; *rāja-ṛṣeḥ*—of the saintly King; *eṣaḥ*—this; *saṁsthātum*—to be stopped; *arhati*—ought; *amogha*—without sin, powerful; *vīryāḥ*—their semina; *hi*—because; *nṛpāḥ*—kings; *vaṁśe*—in the family; *asmin*—this; *keśava*—of the Supreme Personality of Godhead; *āśrayāḥ*—under the shelter.
 
 **The sages decided that the descendants of the family of the saintly King Aṅga should not be stopped because in this family the semina was very powerful and the children were prone to become devotees of the Lord.**
 

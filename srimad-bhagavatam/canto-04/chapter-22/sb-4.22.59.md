@@ -8,7 +8,7 @@
 > kuvera iva kośāḍhyo\
 > guptārtho varuṇo yathā
 
-*dharma-rāṭ iva*—like King Yamarāja (the superintendent of death); *śikṣāyām*—in education; *āścarye*—in opulence; *himavān iva*—like the Himalaya Mountains; *kuveraḥ*—the treasurer of the heavenly planets; *iva*—like; *kośa-āḍhyaḥ*—in the matter of possessing wealth; *gupta-arthaḥ*—secrecy; *varuṇaḥ*—the demigod named Varuṇa; *yathā*—like.
+*dharma-rāṭ iva*—like King Yamarāja (the superintendent of death); *śikṣāyām*—in education; *āścarye*—in opulence; *himavān iva*—like the Himalayan Mountains; *kuveraḥ*—the treasurer of the heavenly planets; *iva*—like; *kośa-āḍhyaḥ*—in the matter of possessing wealth; *gupta-arthaḥ*—secrecy; *varuṇaḥ*—the demigod named Varuṇa; *yathā*—like.
 
 **Mahārāja Pṛthu's intelligence and education were exactly like that of Yamarāja, the superintendent of death. His opulence was comparable to the Himalaya Mountains, where all valuable jewels and metals are stocked. He possessed great riches like Kuvera, the treasurer of the heavenly planets, and no one could reveal his secrets, for they were like the demigod Varuṇa's.**
 

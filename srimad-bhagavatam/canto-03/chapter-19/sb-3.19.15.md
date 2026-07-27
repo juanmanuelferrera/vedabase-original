@@ -8,7 +8,7 @@
 > pravṛddha-roṣaḥ sa kaṭhora-muṣṭinā\
 > nadan prahṛtyāntaradhīyatāsuraḥ
 
-*vṛkṇe*—when cut; *sva-śūle*—his trident; *bahudhā*—to many pieces; *ariṇā*—by the Sudarśana *cakra*; *hareḥ*—of the Supreme Personality of Godhead; *pratyetya*—after advancing toward; *vistīrṇam*—broad; *uraḥ*—chest; *vibhūti-mat*—the abode of the goddess of fortune; *pravṛddha*—having been increased; *roṣaḥ*—anger; *saḥ*—Hiraṇyākṣa; *kaṭhora*—hard; *muṣṭinā*—with his fist; *nadan*—roaring; *prahṛtya*—after striking; *antaradhīyata*—disappeared; *asuraḥ*—the demon.
+*vṛkṇe*—when cut; *sva-śūle*—his trident; *bahudhā*—to many pieces; *ariṇā*—by the Sudarśana *cakra*; *hareḥ*—of the Supreme Personality of Godhead; *pratyetya*—after advancing towards; *vistīrṇam*—broad; *uraḥ*—chest; *vibhūti-mat*—the abode of the goddess of fortune; *pravṛddha*—having been increased; *roṣaḥ*—anger; *saḥ*—Hiraṇyākṣa; *kaṭhora*—hard; *muṣṭinā*—with his fist; *nadan*—roaring; *prahṛtya*—after striking; *antaradhīyata*—disappeared; *asuraḥ*—the demon.
 
 **The demon was enraged when his trident was cut to pieces by the discus of the Personality of Godhead. He therefore advanced toward the Lord and, roaring aloud, struck his hard fist against the Lord's broad chest, which bore the mark of Śrīvatsa. Then he went out of sight.**
 

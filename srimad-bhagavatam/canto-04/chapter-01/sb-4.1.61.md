@@ -8,7 +8,7 @@
 > ta evaikonapañcāśat\
 > sākaṁ pitṛ-pitāmahaiḥ
 
-*tebhyaḥ*—from them; *agnayaḥ*—fire-gods; *samabhavan*—were produced; *catvāriṁśat*—forty; *ca*—and; *pañca*—five; *ca*—and; *te*—they; *eva*—certainly; *ekona-pañcāśat*—forty-nine; *sākam*—along with; *pitṛ-pitāmahaiḥ*—with the fathers and grandfather.
+*tebhyaḥ*—from them; *agnayaḥ*—fire-gods; *samabhavan*—were produced; *catvāriṁśat*—forty; *ca*—and; *pañca*—five; *ca*—and; *te*—they; *eva*—certainly; *ekona-pañcāśat*—forty-nine; *sākam*—along with; *pitṛ-pitāmahaiḥ*—with the fathers and grandfathers.
 
 **From those three sons another forty-five descendants were generated, who are also fire-gods. The total number of fire-gods is therefore forty-nine, including the fathers and the grandfather.**
 

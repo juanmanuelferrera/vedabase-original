@@ -8,7 +8,7 @@
 > dadhyau pramadayā dīno\
 > viprayoga upasthite
 
-*aham*—I; *mama*—mine; *iti*—thus; *svī-kṛtya*—accepting; *gṛheṣu*—in the home; *ku-matiḥ*—whose mind is full of obnoxious thoughts; *gṛhī*—the householder; *dadhyau*—turns his attention to; *pramadayā*—with his wife; *dīnaḥ*—very poor; *viprayoge*—when separation; *upasthite*—occurred.
+*aham*—I; *mama*—mine; *iti*—thus; *svī-kṛtya*—accepting; *gṛheṣu*—in the home; *ku-matiḥ*—whose mind is full of obnoxious thoughts; *gṛhī*—the householder; *dadhyau*—turn his attention to; *pramadayā*—with his wife; *dīnaḥ*—very poor; *viprayoge*—when separation; *upasthite*—occurred.
 
 **King Purañjana was overly attached to his family and conceptions of "I" and "mine." Because he was overly attracted to his wife, he was already quite poverty-stricken. At the time of separation, he became very sorry.**
 

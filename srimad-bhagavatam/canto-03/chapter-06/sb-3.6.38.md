@@ -8,7 +8,7 @@
 > saṁvatsara-sahasrānte\
 > dhiyā yoga-vipakkayā
 
-*ātmanaḥ*—of the Supreme Soul; *avasitaḥ*—known; *vatsa*—O my dear son; *mahimā*—glories; *kavinā*—by the poet Brahmā; *ādinā*—original; *saṁvatsara*—celestial years; *sahasra-ante*—at the end of one thousand; *dhiyā*—by intelligence; *yoga-vipakkayā*—by matured meditation.
+*ātmanaḥ*—of the Supreme Soul; *avasitaḥ*—known; *vatsa*—O my dear sons; *mahimā*—glories; *kavinā*—by the poet Brahmā; *ādinā*—original; *saṁvatsara*—celestial year; *sahasra-ante*—at the end of one thousand; *dhiyā*—by intelligence; *yoga-vipakkayā*—by matured meditation.
 
 **The original poet, Brahmā, after mature meditation for one thousand celestial years, could know only that the glories of the Supreme Soul are inconceivable.**
 

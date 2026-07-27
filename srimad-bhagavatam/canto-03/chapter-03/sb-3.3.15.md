@@ -8,7 +8,7 @@
 > naiṣāṁ vadhopāya iyān ato 'nyo\
 > mayy udyate 'ntardadhate svayaṁ sma
 
-*mithaḥ*—one another; *yadā*—when; *eṣām*—of them; *bhavitā*—will take place; *vivādaḥ*—quarrel; *madhu-āmada*—intoxication by drinking; *ātāmra-vilocanānām*—of their eyes being copper-red; *na*—not; *eṣām*—of them; *vadha-upāyaḥ*—means of disappearance; *iyān*—like this; *ataḥ*—besides this; *anyaḥ*—alternative; *mayi*—on My; *udyate*—disappearance; *antaḥ-dadhate*—will disappear; *svayam*—themselves; *sma*—certainly.
+*mithaḥ*—one another; *yadā*—when; *eṣām*—of them; *bhavitā*—will take place; *vivādaḥ*—quarrel; *madhu-āmada*—intoxication by drinking; *tāmra-vilocanānām*—of their eyes being copper-red; *na*—not; *eṣām*—of them; *vadhopāyaḥ*—means of disappearance; *iyān*—like this; *ataḥ*—besides this; *anyaḥ*—alternative; *mayi*—on My; *udyate*—disappearance; *antardadhate*—will disappear; *svayam*—themselves; *sma*—certainly.
 
 **When they quarrel among themselves, influenced by intoxication, with their eyes red like copper because of drinking [madhu], then only will they disappear; otherwise, it will not be possible. On My disappearance, this incident will take place.**
 

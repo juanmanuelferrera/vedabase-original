@@ -8,7 +8,7 @@
 > yas tatyājāgrajaṁ kṛṣṇe\
 > sāpatyam aghavān iti
 
-*kṣattā*—Vidura; *mahā-bhāgavataḥ*—a great devotee of the Lord; *kṛṣṇasya*—of Lord Kṛṣṇa; *ekāntikaḥ*—unalloyed devotee; *suhṛt*—intimate friend; *yaḥ*—he who; *tatyāja*—abandoned; *agra-jam*—his elder brother (King Dhṛtarāṣṭra); *kṛṣṇe*—toward Kṛṣṇa; *sa-apatyam*—along with his one hundred sons; *agha-vān*—offender; *iti*—thus.
+*kṣattā*—Vidura; *mahā-bhāgavataḥ*—a great devotee of the Lord; *kṛṣṇasya*—of Lord Kṛṣṇa; *ekāntikaḥ*—unalloyed devotee; *suhṛt*—intimate friend; *yaḥ*—he who; *tatyāja*—abandoned; *agra-jam*—his elder brother (King Dhṛtarāṣṭra); *kṛṣṇe*—towards Kṛṣṇa; *sa-apatyam*—along with his one hundred sons; *agha-vān*—offender; *iti*—thus.
 
 **Śaunaka Ṛṣi inquired about Vidura, who was a great devotee and friend of Lord Kṛṣṇa and who gave up the company of his elder brother because the latter, along with his sons, played tricks against the desires of the Lord.**
 

@@ -8,7 +8,7 @@
 > brahma-daṇḍa-hataḥ pāpo\
 > yad veno 'tyatarat tamaḥ
 
-*putreṇa*—by the son; *jayate*—one becomes victorious; *lokān*—all the heavenly planets; *iti*—thus; *satya-vatī*—becomes true; *śrutiḥ*—the *Vedas*; *brahma-daṇḍa*—by the curse of *brāhmaṇas*; *hataḥ*—killed; *pāpaḥ*—the most sinful; *yat*—as; *venaḥ*—the father of Mahārāja Pṛthu; *ati*—great; *atarat*—became delivered; *tamaḥ*—from the darkness of hellish life.
+*putreṇa*—by the son; *jayate*—one becomes victorious; *lokān*—all the heavenly planets; *iti*—thus; *satya-vatī*—becomes true; *śrutiḥ*—the *Vedas*; *brahma-daṇḍa*—by the curse of *brāhmaṇas*; *hataḥ*—killed; *pāpaḥ*—the most sinful; *yat*—as; *venaḥ*—the father of Mahārāja Pṛthu; *ati*—great; *atarat*—become delivered; *tamaḥ*—from the darkness of hellish life.
 
 **They all declared that the Vedic conclusion that one can conquer the heavenly planets by the action of a putra, or son, was fulfilled, for the most sinful Vena, who had been killed by the curse of the brāhmaṇas, was now delivered from the darkest region of hellish life by his son, Mahārāja Pṛthu.**
 

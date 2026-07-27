@@ -8,7 +8,7 @@
 > ātmānam anviccha vimuktam ātma-dṛg\
 > yasminn idaṁ bhedam asat pratīyate
 
-*tam*—Him; *enam*—that; *aṅga*—my dear Dhruva; *ātmani*—in the mind; *mukta-vigrahe*—free from anger; *vyapāśritam*—situated; *nirguṇam*—transcendental; *ekam*—one; *akṣaram*—the infallible Brahman; *ātmānam*—the self; *anviccha*—try to find out; *vimuktam*—uncontaminated; *ātma-dṛk*—facing towards the Supersoul; *yasmin*—in which; *idam*—this; *bhedam*—differentiation; *asat*—unreal; *pratīyate*—appears to be.
+*tam*—Him; *enam*—that; *aṅga*—my dear Dhruva; *ātmani*—in the mind; *mukta-vigrahe*—free from anger; *vyapāśritam*—situated; *nirguṇam*—transcendental; *ekam*—one; *akṣaram*—the infallible Brahman; *ātmānam*—the self; *anviccha*—try to find out; *vimuktam*—uncontaminated; *ātma-dṛk*—facing toward the Supersoul; *yasmin*—in which; *idam*—this; *bhedam*—differentiation; *asat*—unreal; *pratīyate*—appears to be.
 
 **My dear Dhruva, please, therefore, turn your attention to the Supreme Person, who is the infallible Brahman. Face the Supreme Personality of Godhead in your original position, and thus, by self-realization, you will find this material differentiation to be merely flickering.**
 

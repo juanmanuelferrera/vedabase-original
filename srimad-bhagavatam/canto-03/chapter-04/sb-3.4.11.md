@@ -10,7 +10,7 @@
 > satre purā viśva-sṛjāṁ vasūnāṁ\
 > mat-siddhi-kāmena vaso tvayeṣṭaḥ
 
-*śrī-bhagavān uvāca*—the Personality of Godhead said; *veda*—know; *aham*—I; *antaḥ*—within; *manasi*—the mind; *īpsitam*—what you desired; *te*—your; *dadāmi*—I give you; *yat*—which is; *tat*—that; *duravāpam*—very difficult to achieve; *anyaiḥ*—by others; *satre*—in the sacrifice; *purā*—in the days of yore; *viśva-sṛjām*—of those who expanded this creation; *vasūnām*—of the Vasus; *mat-siddhi-kāmena*—with a desire to achieve My association; *vaso*—O Vasu; *tvayā*—by you; *iṣṭaḥ*—ultimate goal of life.
+*śrī-bhagavān uvāca*—the Personality of Godhead said; *veda*—known; *aham*—I; *antaḥ*—within; *manasi*—the mind; *īpsitam*—what you desired; *te*—your; *dadāmi*—I give you; *yat*—which is; *tat*—that; *duravāpam*—very difficult to achieve; *anyaiḥ*—by others; *satre*—in the sacrifice; *purā*—in the days of yore; *viśva-sṛjām*—of those who expanded this creation; *vasūnām*—of the Vasus; *mat-siddhi-kāmena*—with a desire to achieve My association; *vaso*—O Vasu; *tvayā*—by you; *iṣṭaḥ*—ultimate goal of life.
 
 **O Vasu, I know from within your mind what you desired in the days of yore when the Vasus and other demigods responsible for expanding the universal affairs performed sacrifices. You particularly desired to achieve My association. This is very difficult to obtain for others, but I award it unto you.**
 

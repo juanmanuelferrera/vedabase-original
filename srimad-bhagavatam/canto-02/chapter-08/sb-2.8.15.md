@@ -8,7 +8,7 @@
 > sarit-samudra-dvīpānāṁ\
 > sambhavaś caitad-okasām
 
-*bhū-pātāla*—underneath the land; *kakup*—the four sides of the heavens; *vyoma*—the sky; *graha*—the planets; *nakṣatra*—the stars; *bhūbhṛtām*—of the hills; *sarit*—the river; *samudra*—the sea; *dvīpānām*—of the islands; *sambhavaḥ*—appearance; *ca*—also; *etat*—their; *okasām*—of the inhabitants.
+*bhūḥ-pātāla*—underneath the land; *kakub*—four sides of the heavens; *vyoma*—the sky; *graha*—the planets; *nakṣatra*—the stars; *bhūbhṛtām*—of the hills; *sarit*—the river; *samudra*—the sea; *dvīpānām*—of the islands; *sambhavaḥ*—appearance; *ca*—also; *etat*—their; *okasām*—of the inhabitants.
 
 **O best of the brāhmaṇas, please also describe how the creation of the globes throughout the universe, the four directions of the heavens, the sky, the planets, the stars, the mountains, the rivers, the seas and the islands, as well as their different kinds of inhabitants, takes place.**
 

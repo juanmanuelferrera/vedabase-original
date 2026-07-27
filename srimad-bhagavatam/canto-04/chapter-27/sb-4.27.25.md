@@ -8,7 +8,7 @@
 > yal loka-śāstropanataṁ\
 > na rāti na tad icchati
 
-*dvau*—two kinds; *imau*—these; *anuśocanti*—they lament; *bālau*—ignorant; *asat*—the foolish; *avagrahau*—taking the path of; *yat*—that which; *loka*—by custom; *śāstra*—by scriptures; *upanatam*—presented; *na*—never; *rāti*—follows; *na*—neither; *tat*—that; *icchati*—desires.
+*dvau*—two kinds; *imau*—these; *anuśocanti*—they lament; *bālau*—ignorant; *asat*—the foolish; *avagrahau*—taking the path of; *yat*—that which; *loka*—by custom; *śāstra*—by scripture; *upanatam*—presented; *na*—never; *rāti*—follows; *na*—neither; *tat*—that; *icchati*—desires.
 
 **One who does not give charity according to the customs or injunctions of the scriptures and one who does not accept charity in that way are considered to be in the mode of ignorance. Such persons follow the path of the foolish. Surely they must lament at the end.**
 

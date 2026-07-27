@@ -8,7 +8,7 @@
 > diter jaṭhara-nirviṣṭaṁ\
 > kāśyapaṁ teja ulbaṇam
 
-*tau*—those two doorkeepers; *eva*—certainly; *hi*—addressed; *adhunā*—now; *prāptau*—having gotten; *pārṣada-pravarau*—important associates; *hareḥ*—of the Supreme Personality of Godhead; *diteḥ*—of Diti; *jaṭhara*—womb; *nirviṣṭam*—entering; *kāśyapam*—of Kaśyapa Muni; *tejaḥ*—semen; *ulbaṇam*—very strong.
+*tau*—those two doorkeepers; *eva*—certainly; *hi*—addressed; *adhunā*—now; *prāptau*—having gotten; *pārṣada-pravarau*—important associates; *hareḥ*—of the Supreme Personality of Godhead; *diteḥ*—of Diti; *jaṭhara*—womb; *nirviṣṭam*—entering; *kāśyapam*—of Kaśyapa Muni; *tejaḥ*—semina; *ulbaṇam*—very strong.
 
 **Lord Brahmā continued: Those two principal doorkeepers of the Personality of Godhead have now entered the womb of Diti, the powerful semen of Kaśyapa Muni having covered them.**
 

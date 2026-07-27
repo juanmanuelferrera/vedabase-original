@@ -8,7 +8,7 @@
 > prācīnāgraiḥ kuśair āsīd\
 > āstṛtaṁ vasudhā-talam
 
-*yasya*—whose; *idam*—this; *deva-yajanam*—satisfying the demigods by sacrifices; *anuyajñam*—continually sacrificing; *vitanvataḥ*—executing; *prācīna-agraiḥ*—keeping the *kuśa* grass facing toward the eastern side; *kuśaiḥ*—the *kuśa* grass; *āsīt*—remained; *āstṛtam*—scattered; *vasudhā-talam*—all over the surface of the globe.
+*yasya*—whose; *idam*—this; *deva-yajanam*—satisfying the demigods by sacrifices; *anuyajñam*—continually sacrificing; *vitanvataḥ*—executing; *prācīna-agraiḥ*—keeping the *kuśa* grass facing towards the eastern side; *kuśaiḥ*—the *kuśa* grass; *āsīt*—remained; *āstṛtam*—scattered; *vasudhā-talam*—all over the surface of the globe.
 
 **Mahārāja Barhiṣat executed many sacrifices all over the world. He scattered kuśa grasses and kept the tops of the grasses pointed eastward.**
 

@@ -8,7 +8,7 @@
 > viśīrṇa-bāhv-aṅghri-śiroruho 'patad\
 > yathā nagendro lulito nabhasvatā
 
-*saḥ*—he; *āhataḥ*—having been struck; *viśva-jitā*—by the Supreme Personality of Godhead; *hi*—though; *avajñayā*—indifferently; *paribhramat*—wheeling; *gātraḥ*—body; *udasta*—bulged out; *locanaḥ*—eyes; *viśīrṇa*—broken; *bāhu*—arms; *aṅghri*—legs; *śiraḥ-ruhaḥ*—hair; *apatat*—fell down; *yathā*—like; *naga-indraḥ*—a gigantic tree; *lulitaḥ*—uprooted; *nabhasvatā*—by the wind.
+*saḥ*—he; *āhataḥ*—having been struck; *viśva-jitā*—by the Supreme Personality of Godhead; *hi*—though; *avajñayā*—indifferently; *paribhramat*—wheeling; *gātraḥ*—body; *udasta*—bulged out; *locanaḥ*—eyes; *viśīrṇa*—broken; *bāhu*—arms; *aṅghri*—legs; *śiras-ruhaḥ*—hair; *apatat*—fell down; *yathā*—like; *naga-indraḥ*—a gigantic tree; *lulitaḥ*—uprooted; *nabhasvatā*—by the wind.
 
 **Though struck indifferently by the Lord, the conquerer of all, the demon's body began to wheel. His eyeballs bulged out of their sockets. His arms and legs broken and the hair on his head scattered, he fell down dead, like a gigantic tree uprooted by the wind.**
 

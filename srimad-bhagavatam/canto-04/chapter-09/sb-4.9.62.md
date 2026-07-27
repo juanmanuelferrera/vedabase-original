@@ -8,7 +8,7 @@
 > maṇi-pradīpā ābhānti\
 > lalanā-ratna-saṁyutāḥ
 
-*yatra*—where; *sphaṭika*—made of marble; *kuḍyeṣu*—on walls; *mahā-mārakateṣu*—bedecked with valuable jewels like sapphires; *ca*—also; *maṇi-pradīpāḥ*—lamps made of jewels; *ābhānti*—shone; *lalanā*—female figures; *ratna*—made of jewels; *saṁyutāḥ*—held by.
+*yatra*—where; *sphaṭika*—made of marble; *kuḍyeṣu*—on walls; *mahā-mārakateṣu*—bedecked with valuable jewels like sapphires; *ca*—also; *maṇi-pradīpāḥ*—lamps made of jewels; *ābhānti*—shined; *lalanā*—female figures; *ratna*—made of jewels; *saṁyutāḥ*—held by.
 
 **The palace of the King was surrounded by walls made of marble with many engravings made of valuable jewels like sapphires, which depicted beautiful women with shining jewel lamps in their hands.**
 

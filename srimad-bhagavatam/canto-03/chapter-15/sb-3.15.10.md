@@ -8,7 +8,7 @@
 > diśas timirayan sarvā\
 > vardhate 'gnir ivaidhasi
 
-*eṣaḥ*—this; *deva*—O lord; *diteḥ*—of Diti; *garbhaḥ*—womb; *ojaḥ*—semen; *kāśyapam*—of Kaśyapa; *arpitam*—deposited; *diśaḥ*—directions; *timirayan*—causing complete darkness; *sarvāḥ*—all; *vardhate*—overloads; *agniḥ*—fire; *iva*—as; *edhasi*—fuel.
+*eṣaḥ*—this; *deva*—O lord; *diteḥ*—of Diti; *garbhaḥ*—womb; *ojaḥ*—semina; *kāśyapam*—of Kaśyapa; *arpitam*—deposited; *diśaḥ*—directions; *timirayan*—causing complete darkness; *sarvāḥ*—all; *vardhate*—overloads; *agniḥ*—fire; *iva*—as; *edhasi*—fuel.
 
 **As fuel overloads a fire, so the embryo created by the semen of Kaśyapa in the womb of Diti has caused complete darkness throughout the universe.**
 

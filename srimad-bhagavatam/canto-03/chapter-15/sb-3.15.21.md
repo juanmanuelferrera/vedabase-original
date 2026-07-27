@@ -10,7 +10,7 @@
 > saṁlakṣyate sphaṭika-kuḍya upeta-hemni\
 > sammārjatīva yad-anugrahaṇe 'nya-yatnaḥ
 
-*śrī*—Lakṣmī, the goddess of fortune; *rūpiṇī*—assuming a beautiful form; *kvaṇayatī*—tinkling; *caraṇa-aravindam*—lotus feet; *līlā-ambujena*—playing with a lotus flower; *hari-sadmani*—the house of the Supreme Personality; *mukta-doṣā*—freed from all faults; *saṁlakṣyate*—becomes visible; *sphaṭika*—crystal; *kuḍye*—walls; *upeta*—mixed; *hemni*—gold; *sammārjatī iva*—appearing like a sweeper; *yat-anugrahaṇe*—to receive her favor; *anya*—others'; *yatnaḥ*—very much careful.
+*śrī*—Lakṣmī, the goddess of fortune; *rūpiṇī*—assuming a beautiful form; *kvaṇayatī*—tinkling; *caraṇa-aravindam*—lotus feet; *līlā-ambujena*—playing with a lotus flower; *hari-sadmani*—the house of the Supreme Personality; *mukta-doṣā*—freed from all fault; *saṁlakṣyate*—becomes visible; *sphaṭika*—crystal; *kuḍye*—walls; *upeta*—mixed; *hemni*—gold; *sammārjatī iva*—appearing like a sweeper; *yat-anugrahaṇe*—to receive her favor; *anya*—others'; *yatnaḥ*—very much careful.
 
 **The ladies in the Vaikuṇṭha planets are as beautiful as the goddess of fortune herself. Such transcendentally beautiful ladies, their hands playing with lotuses and their leg bangles tinkling, are sometimes seen sweeping the marble walls, which are bedecked at intervals with golden borders, in order to receive the grace of the Supreme Personality of Godhead.**
 

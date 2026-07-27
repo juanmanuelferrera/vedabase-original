@@ -8,7 +8,7 @@
 > paśyatāsmān atītyārcir\
 > durvibhāvyena karmaṇā
 
-*sā*—she; *eṣā*—this; *nūnam*—certainly; *vrajati*—going; *ūrdhvam*—upward; *anu*—following; *vainyam*—the son of Vena; *patim*—husband; *satī*—chaste; *paśyata*—just see; *asmān*—us; *atītya*—overpassing; *arciḥ*—of the name Arci; *durvibhāvyena*—by inconceivable; *karmaṇā*—activities.
+*sā*—she; *eṣā*—this; *nūnam*—certainly; *vrajati*—going; *ūrdhvam*—upwards; *anu*—following; *vainyam*—the son of Vena; *patim*—husband; *satī*—chaste; *paśyata*—just see; *asmān*—us; *atītya*—overpassing; *arciḥ*—of the name Arci; *durvibhāvyena*—by inconceivable; *karmaṇā*—activities.
 
 **The wives of the demigods continued: Just see how this chaste lady, Arci, by dint of her inconceivable pious activities, is still following her husband upward, as far as we can see.**
 

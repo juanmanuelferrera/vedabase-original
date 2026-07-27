@@ -10,7 +10,7 @@
 > avidvad-adhikāritvāt\
 > prāyaścittaṁ vimarśanam
 
-*śrī-bādarāyaṇiḥ uvāca*—Śukadeva Gosvāmī, the son of Vyāsadeva, replied; *karmaṇā*—by fruitive activities; *karma-nirhāraḥ*—counteraction of fruitive activities; *na*—not; *hi*—indeed; *ātyantikaḥ*—final; *iṣyate*—becomes possible; *avidvat-adhikāritvāt*—from being without knowledge; *prāyaścittam*—real atonement; *vimarśanam*—full knowledge of Vedānta.
+*śrī-bādarāyaṇiḥ uvāca*—Śukadeva Gosvāmī, the son of Vyāsadeva, replied; *karmaṇā*—by fruitive activities; *karma-nirhāraḥ*—counteraction of fruitive activities; *na*—not; *hi*—indeed; *ātyantikaḥ*—final; *iṣyate*—becomes possible; *avidvad-adhikāritvāt*—from being without knowledge; *prāyaścittam*—real atonement; *vimarśanam*—full knowledge of Vedānta.
 
 **Śukadeva Gosvāmī, the son of Vedavyāsa, answered: My dear King, since acts meant to neutralize impious actions are also fruitive, they will not release one from the tendency to act fruitively. Persons who subject themselves to the rules and regulations of atonement are not at all intelligent. Indeed, they are in the mode of darkness. Unless one is freed from the mode of ignorance, trying to counteract one action through another is useless because this will not uproot one's desires. Thus even though one may superficially seem pious, he will undoubtedly be prone to act impiously. Therefore real atonement is enlightenment in perfect knowledge, Vedānta, by which one understands the Supreme Absolute Truth.**
 

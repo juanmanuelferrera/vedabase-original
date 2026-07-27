@@ -8,7 +8,7 @@
 > vittasya coru-bhārasya\
 > cikīrṣan sad-vyayaṁ vibhuḥ
 
-*ayājayat*—made to perform; *go-savena*—by worship of the cows; *gopa-rājam*—the king of the cowherds; *dvija-uttamaiḥ*—by the learned *brāhmaṇas*; *vittasya*—of the wealth; *ca*—also; *uru-bhārasya*—great opulence; *cikīrṣan*—desiring to act; *sat-vyayam*—proper utilization; *vibhuḥ*—the great.
+*ayājayat*—made to perform; *go-savena*—by worship of the cows; *gopa-rājam*—the king of the cowherds; *dvija-uttamaiḥ*—by the learned *brāhmaṇas*; *vittasya*—of the wealth; *ca*—also; *uru-bhārasya*—great opulence; *cikīrṣan*—desiring to act; *sadvyayam*—proper utilization; *vibhuḥ*—the great.
 
 **The Supreme Lord, Kṛṣṇa, desired to utilize the opulent financial strength of Mahārāja Nanda for worship of the cows, and also He wanted to give a lesson to Indra, the King of heaven. Thus He advised His father to perform worship of go, or the pasturing land and the cows, with the help of learned brāhmaṇas.**
 

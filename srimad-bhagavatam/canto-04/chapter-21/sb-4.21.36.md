@@ -8,7 +8,7 @@
 > sva-dharma-yogena yajanti māmakā\
 > nirantaraṁ kṣoṇi-tale dṛḍha-vratāḥ
 
-*aho*—O all of you; *mama*—unto me; *amī*—all of them; *vitaranti*—distributing; *anugraham*—mercy; *harim*—the Supreme Personality of Godhead; *gurum*—the supreme spiritual master; *yajña-bhujām*—all the demigods eligible to accept *yajña* offerings; *adhīśvaram*—the supreme master; *sva-dharma*—occupational duties; *yogena*—by dint of; *yajanti*—worship; *māmakāḥ*—having a relationship with me; *nirantaram*—incessantly; *kṣoṇi-tale*—on the surface of the globe; *dṛḍha-vratāḥ*—with firm determination.
+*aho*—O all of you; *mama*—unto me; *amī*—all of them; *vitaranti*—distributing; *anugraham*—mercy; *harim*—the Supreme Personality of Godhead; *gurum*—the supreme spiritual master; *yajña-bhujām*—all the demigods eligible to accept *yajña* offering; *adhīśvaram*—the supreme master; *sva-dharma*—occupational duties; *yogena*—by dint of; *yajanti*—worship; *māmakāḥ*—having a relationship with me; *nirantaram*—incessantly; *kṣoṇi-tale*—on the surface of the globe; *dṛḍha-vratāḥ*—with firm determination.
 
 **The Supreme Personality of Godhead is the master and enjoyer of the results of all sacrifices, and He is the supreme spiritual master as well. All of you citizens on the surface of the globe who have a relationship with me and are worshiping Him by dint of your occupational duties are bestowing your mercy upon me. Therefore, O my citizens, I thank you.**
 

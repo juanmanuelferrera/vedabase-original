@@ -8,7 +8,7 @@
 > ahanyamānā api tasya varcasā\
 > pradharṣitā dūrataraṁ pradudruvuḥ
 
-*tasmin praviṣṭe*—when he entered the ocean; *varuṇasya*—of Varuṇa; *sainikāḥ*—the defenders; *yādaḥ-gaṇāḥ*—the aquatic animals; *sanna-dhiyaḥ*—depressed; *sa-sādhvasāḥ*—with fear; *ahanyamānāḥ*—not being hit; *api*—even; *tasya*—his; *varcasā*—by splendor; *pradharṣitāḥ*—stricken; *dūra-taram*—far away; *pradudruvuḥ*—they ran fast.
+*tasmin praviṣṭe*—when he entered the ocean; *varuṇasya*—of Varuṇa; *sainikāḥ*—the defenders; *yādas-gaṇāḥ*—the aquatic animals; *sanna-dhiyaḥ*—depressed; *sa-sādhvasāḥ*—with fear; *ahanyamānāḥ*—not being hit; *api*—even; *tasya*—his; *varcasā*—by splendor; *pradharṣitāḥ*—stricken; *dūra-taram*—far away; *pradudruvuḥ*—they ran fast.
 
 **On his entering the ocean, the aquatic animals who formed the host of Varuṇa were stricken with fear and ran far away. Thus Hiraṇyākṣa showed his splendor without dealing a blow.**
 

@@ -10,7 +10,7 @@
 > tadvan na rikta-matayo yatayo 'pi ruddha-\
 > sroto-gaṇās tam araṇaṁ bhaja vāsudevam
 
-*yat*—whose; *pāda*—feet; *paṅkaja*—lotus; *palāśa*—petals or toes; *vilāsa*—enjoyment; *bhaktyā*—by devotional service; *karma*—fruitive activities; *āśayam*—desire; *grathitam*—hard knot; *udgrathayanti*—root out; *santaḥ*—devotees; *tat*—that; *vat*—like; *na*—never; *rikta-matayaḥ*—persons devoid of devotional service; *yatayaḥ*—ever-increasingly trying; *api*—even though; *ruddha*—stopped; *srotaḥ-gaṇāḥ*—the waves of sense enjoyment; *tam*—unto Him; *araṇam*—worthy to take shelter; *bhaja*—engage in devotional service; *vāsudevam*—unto Kṛṣṇa, the son of Vasudeva.
+*yat*—whose; *pāda*—feet; *paṅkaja*—lotus; *palāśa*—petals or toes; *vilāsa*—enjoyment; *bhaktyā*—by devotional service; *karma*—fruitive activities; *āśayam*—desire; *grathitam*—hard knot; *udgrathayanti*—roots out; *santaḥ*—devotees; *tat*—that; *vat*—like; *na*—never; *rikta-matayaḥ*—person devoid of devotional service; *yatayaḥ*—ever-increasingly trying; *api*—even though; *ruddha*—stopped; *srotaḥ-gaṇāḥ*—the waves of sense enjoyment; *tam*—unto Him; *araṇam*—worthy to take shelter; *bhaja*—engage in devotional service; *vāsudevam*—unto Kṛṣṇa, the son of Vasudeva.
 
 **The devotees, who are always engaged in the service of the toes of the lotus feet of the Lord, can very easily overcome hard-knotted desires for fruitive activities. Because this is very difficult, the nondevotees—the jñānīs and yogīs—although trying to stop the waves of sense gratification, cannot do so. Therefore you are advised to engage in the devotional service of Kṛṣṇa, the son of Vasudeva.**
 

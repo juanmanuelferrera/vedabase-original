@@ -8,7 +8,7 @@
 > kṣipraṁ vineśur vidura\
 > kleśā jñānodaye yathā
 
-*sandhīyamāne*—while joining to his bow; *etasmin*—this *nārārayaṇāstra*; *māyāḥ*—the illusions; *guhyaka-nirmitāḥ*—created by the Yakṣas; *kṣipram*—very soon; *vineśuḥ*—were destroyed; *vidura*—O Vidura; *kleśāḥ*—illusory pains and pleasures; *jñāna-udaye*—upon the arising of knowledge; *yathā*—just as.
+*sandhīyamāne*—while joining to his bow; *etasmin*—this *nārāyaṇāstra*; *māyāḥ*—the illusions; *guhyaka-nirmitāḥ*—created by the Yakṣas; *kṣipram*—very soon; *vineśuḥ*—were destroyed; *vidura*—O Vidura; *kleśāḥ*—illusory pains and pleasures; *jñāna-udaye*—upon the arising of knowledge; *yathā*—just as.
 
 **As soon as Dhruva Mahārāja joined the Nārāyaṇāstra arrow to his bow, the illusion created by the Yakṣas was immediately vanquished, just as all material pains and pleasures are vanquished when one becomes fully cognizant of the self.**
 

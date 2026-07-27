@@ -8,7 +8,7 @@
 > uvāca vāmaṁ cakṣurbhyām\
 > abhivīkṣya dahann iva
 
-*prāk*—before; *niṣaṇṇam*—being seated; *mṛḍam*—Lord Śiva; *dṛṣṭvā*—seeing; *na amṛṣyat*—did not tolerate; *tat*—by him (Śiva); *anādṛtaḥ*—not being respected; *uvāca*—said; *vāmam*—dishonest; *cakṣurbhyām*—with both eyes; *abhivīkṣya*—looking at; *dahan*—burning; *iva*—as if.
+*prāṅ*—before; *niṣaṇṇam*—being seated; *mṛḍam*—Lord Śiva; *dṛṣṭvā*—seeing; *na amṛṣyat*—did not tolerate; *tat*—by him (Śiva); *anādṛtaḥ*—not being respected; *uvāca*—said; *vāmam*—dishonest; *cakṣurbhyām*—with both eyes; *abhivīkṣya*—looking at; *dahan*—burning; *iva*—as if.
 
 **Before taking his seat, however, Dakṣa was very much offended to see Lord Śiva sitting there and not showing any respect to him. At that time he became greatly angry, and, his eyes glowing, he began to speak very strongly against him.**
 

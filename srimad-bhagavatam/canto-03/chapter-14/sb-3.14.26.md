@@ -8,7 +8,7 @@
 > vayaṁ vratair yac-caraṇāpaviddhām\
 > āśāsmahe 'jāṁ bata bhukta-bhogām
 
-*na*—never; *yasya*—of whom; *loke*—in the world; *sva-janaḥ*—kinsman; *paraḥ*—unconnected; *vā*—nor; *na*—neither; *ati*—greater; *ādṛtaḥ*—favorable; *na*—not; *uta*—or; *kaścit*—anyone; *vigarhyaḥ*—criminal; *vayam*—we; *vrataiḥ*—by vows; *yat*—whose; *caraṇa*—feet; *apaviddhām*—rejected; *āśāsmahe*—respectfully worship; *ajām*—*mahā-prasāda*; *bata*—certainly; *bhukta-bhogām*—remnants of foodstuff.
+*na*—never; *yasya*—of whom; *loke*—in the world; *sva-janaḥ*—kinsman; *paraḥ*—unconnected; *vā*—nor; *na*—neither; *ati*—greater; *ādṛtaḥ*—favorable; *na*—not; *uta*—or; *kaścit*—anyone; *vigarhyaḥ*—criminal; *vayam*—we; *vrataiḥ*—by vows; *yat*—whose; *caraṇa*—feet; *apaviddhām*—rejected; *āśāsmahe*—respectfully worship; *ajām*—*mahā-prasādam*; *bata*—certainly; *bhukta-bhogām*—remnants of foodstuff.
 
 **Lord Śiva regards no one as his relative, yet there is no one who is not connected with him; he does not regard anyone as very favorable or abominable. We respectfully worship the remnants of his foodstuff, and we vow to accept what is rejected by him.**
 

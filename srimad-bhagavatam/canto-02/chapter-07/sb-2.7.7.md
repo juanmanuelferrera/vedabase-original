@@ -10,7 +10,7 @@
 > so 'yaṁ yad antaram alaṁ praviśan bibheti\
 > kāmaḥ kathaṁ nu punar asya manaḥ śrayeta
 
-*kāmam*—lust; *dahanti*—chastises; *kṛtinaḥ*—great stalwarts; *nanu*—but; *roṣa-dṛṣṭyā*—by wrathful glance; *roṣam*—wrath; *dahantam*—being overwhelmed; *uta*—although; *te*—they; *na*—cannot; *dahanti*—subjugate; *asahyam*—intolerable; *saḥ*—that; *ayam*—Him; *yat*—because; *antaram*—within; *alam*—however; *praviśan*—entering; *bibheti*—is afraid of; *kāmaḥ*—lust; *katham*—how; *nu*—as a matter of fact; *punaḥ*—again; *asya*—His; *manaḥ*—mind; *śrayeta*—take shelter of.
+*kāmam*—lust; *dahanti*—chastisess; *kṛtinaḥ*—great stalwarts; *nanu*—but; *roṣa-dṛṣṭyā*—by wrathful glance; *roṣam*—wrath; *dahantam*—being overwhelmed; *uta*—although; *te*—they; *na*—cannot; *dahanti*—subjugate; *asahyam*—intolerable; *saḥ*—that; *ayam*—Him; *yat*—because; *antaram*—within; *alam*—however; *praviśan*—entering; *bibheti*—is afraid of; *kāmaḥ*—lust; *katham*—how; *nu*—as a matter of fact; *punaḥ*—again; *asya*—His; *manaḥ*—mind; *śrayeta*—take shelter of.
 
 **Great stalwarts like Lord Śiva can, by their wrathful glance, overcome lust and vanquish him, yet they cannot be free from the overwhelming effects of their own wrath. Such wrath can never enter into the heart of Him [the Lord], who is above all this. So how can lust take shelter in His mind?**
 

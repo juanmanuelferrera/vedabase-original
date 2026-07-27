@@ -8,7 +8,7 @@
 > dṛśyate 'sann api draṣṭur\
 > ātmano 'nātmano guṇaḥ
 
-*yathā*—it is so; *jale*—in the water; *candramasaḥ*—of the moon; *kampa-ādiḥ*—quivering, etc.; *tat-kṛtaḥ*—done by the water; *guṇaḥ*—quality; *dṛśyate*—it is so seen; *asan api*—without existence; *draṣṭuḥ*—of the seer; *ātmanaḥ*—of the self; *anātmanaḥ*—of other than the self; *guṇaḥ*—quality.
+*yathā*—it is so; *jale*—in the water; *candramasaḥ*—of the moon; *kampa-ādiḥ*—quivering; *tat-kṛtaḥ*—done by the water; *guṇaḥ*—quality; *dṛśyate*—it is so seen; *asan api*—without existence; *draṣṭuḥ*—of the seer; *ātmanaḥ*—of the self; *anātmanaḥ*—of other than the self; *guṇaḥ*—quality.
 
 **As the moon reflected on water appears to the seer to tremble due to being associated with the quality of the water, so the self associated with matter appears to be qualified as matter.**
 

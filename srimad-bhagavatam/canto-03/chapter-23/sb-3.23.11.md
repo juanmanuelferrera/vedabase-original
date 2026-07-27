@@ -10,7 +10,7 @@
 > siddhyeta te kṛta-manobhava-dharṣitāyā\
 > dīnas tad īśa bhavanaṁ sadṛśaṁ vicakṣva
 
-*tatra*—in that; *iti-kṛtyam*—what is necessary to be done; *upaśikṣa*—perform; *yathā*—according to; *upadeśam*—instruction in scripture; *yena*—by which; *eṣaḥ*—this; *me*—my; *karśitaḥ*—emaciated; *atiriraṁ-sayā*—due to intense passion not being satisfied; *ātmā*—body; *siddhyeta*—it may he rendered fit; *te*—for you; *kṛta*—excited; *manaḥ-bhava*—by emotion; *dharṣitāyāḥ*—who am struck; *dīnaḥ*—poor; *tat*—therefore; *īśa*—O my dear lord; *bhavanam*—house; *sadṛśam*—suitable; *vicakṣva*—please think of.
+*tatra*—in that; *iti-kṛtyam*—what is necessary to be done; *upaśikṣa*—perform; *yathā*—according to; *upadeśam*—instruction in scripture; *yena*—by which; *eṣaḥ*—this; *me*—my; *karśitaḥ*—emaciated; *atiriraṁ-sayā*—due to intense passion not being satisfied; *ātmā*—body; *siddhyeta*—it may be rendered fit; *te*—for you; *kṛta*—excited; *manaḥ-bhava*—by emotion; *dharṣitāyāḥ*—who am struck; *dīnaḥ*—poor; *tat*—therefore; *īśa*—O my dear lord; *bhavanam*—house; *sadṛśam*—suitable; *vicakṣva*—please think of.
 
 **Devahūti continued: My dear lord, I am struck by excited emotion for you. Therefore kindly make what arrangements must be made according to the scriptures so that my skinny body, emaciated through unsatisfied passion, may be rendered fit for you. Also, my lord, please think of a suitable house for this purpose.**
 

@@ -8,6 +8,6 @@
 > tam abhyadhāvan kupitā udāyudhāḥ\
 > suparṇam unnaddha-phaṇā ivāhayaḥ
 
-*taiḥ*—by those; *tigma-dhāraiḥ*—which had a sharp point; *pradhane*—on the battlefield; *śilī-mukhaiḥ*—arrows; *itaḥ tataḥ*—here and there; *puṇya-janāḥ*—the Yakṣas; *upadrutāḥ*—being greatly agitated; *tam*—towards Dhruva Mahārāja; *abhyadhāvan*—rushed; *kupitāḥ*—being angry; *udāyudhāḥ*—with upraised weapons; *suparṇam*—towards Garuḍa; *unnaddha-phaṇāḥ*—with upraised hoods; *iva*—like; *ahayaḥ*—serpents.
+*taiḥ*—by those; *tigma-dhāraiḥ*—which had a sharp point; *pradhane*—on the battlefield; *śilī-mukhaiḥ*—arrows; *itas tataḥ*—here and there; *puṇya-janāḥ*—the Yakṣas; *upadrutāḥ*—being greatly agitated; *tam*—toward Dhruva Mahārāja; *abhyadhāvan*—rushed; *kupitāḥ*—being angry; *udāyudhāḥ*—with upraised weapons; *suparṇam*—toward Garuḍa; *unnaddha-phaṇāḥ*—with upraised hoods; *iva*—like; *ahayaḥ*—serpents.
 
 **Those sharp arrows dismayed the enemy soldiers, who became almost unconscious, but various Yakṣas on the battlefield, in a rage against Dhruva Mahārāja, somehow or other collected their weapons and attacked. Just as serpents agitated by Garuḍa rush towards him with upraised hoods, all the Yakṣa soldiers prepared to overcome Dhruva Mahārāja with their upraised weapons.**

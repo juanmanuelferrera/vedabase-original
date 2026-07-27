@@ -8,7 +8,7 @@
 > sa-vidhaṁ jagṛhe pāṇīn\
 > anurūpaḥ sva-māyayā
 
-*āsām*—all those; *muhūrte*—at one time; *ekasmin*—simultaneously; *nānā-āgāreṣu*—in different compartments; *yoṣitām*—of the women; *sa-vidham*—in perfect rituals; *jagṛhe*—accepted; *pāṇīn*—hands; *anurūpaḥ*—exactly to match; *sva-māyayā*—by His internal potency.
+*āsām*—all those; *muhūrta*—at one time; *ekasmin*—simultaneously; *nānā-gāreṣu*—in different compartments; *yoṣitām*—of the women; *sa-vidham*—in perfect rituals; *jagṛhe*—accepted; *pāṇīn*—hands; *anurūpaḥ*—exactly to match; *sva-māyayā*—by His internal potency.
 
 **All those princesses were lodged in different apartments, and the Lord simultaneously assumed different bodily expansions exactly matching each and every princess. He accepted their hands in perfect rituals by His internal potency.**
 

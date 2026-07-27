@@ -8,7 +8,7 @@
 > jīvābhaya-pradānasya\
 > na kurvīran kalām api
 
-*sarve*—all kinds of; *vedāḥ*—divisions of the *Vedas*; *ca*—also; *yajñāḥ*—sacrifices; *ca*—also; *tapaḥ*—penances; *dānāni*—charities; *ca*—and; *anagha*—O spotless one; *jīva*—the living entity; *abhaya*—immunity from material pangs; *pradānasya*—of one who gives such assurance; *na*—not; *kurvīran*—can he equalized; *kalām*—even partially; *api*—certainly.
+*sarve*—all kinds of; *vedāḥ*—divisions of the *Vedas*; *ca*—also; *yajñāḥ*—sacrifices; *ca*—also; *tapaḥ*—penances; *dānāni*—charities; *ca*—and; *anagha*—O spotless one; *jīva*—the living entity; *abhaya*—immunity from material pangs; *pradānasya*—of one who gives such assurance; *na*—not; *kurvīran*—can be equalized; *kalām*—even partially; *api*—certainly.
 
 **O spotless one, your answers to all these questions will grant immunity to all material miseries. Such charity is greater than all Vedic charities, sacrifices, penances, etc.**
 

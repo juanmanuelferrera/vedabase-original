@@ -8,7 +8,7 @@
 > muktvātma-māyāṁ māyeśaḥ\
 > śete sarva-guhāśayaḥ
 
-*saḥ*—He; *ca*—also; *api*—as He is; *yatra*—where; *puruṣaḥ*—the Personality of Godhead; *viśva*—the material worlds; *sthiti*—maintenance; *udbhava*—creation; *apyayaḥ*—annihilation; *muktvā*—without being touched; *ātma-māyām*—own energy; *māyā-īśaḥ*—the Lord of all energies; *śete*—does lie on; *sarva-guhā-śayaḥ*—one who lies in everyone s heart.
+*saḥ*—He; *ca*—also; *api*—as He is; *yatra*—where; *puruṣaḥ*—the Personality of Godhead; *viśva*—the material worlds; *sthiti*—maintenance; *udbhava*—creation; *apyayaḥ*—annihilation; *muktvā*—without being touched; *ātma-māyām*—own energy; *māyeśaḥ*—the Lord of all energies; *śete*—does lie on; *sarva-guhā-śayaḥ*—one who lies in everyone s heart.
 
 **Please also explain the Personality of Godhead, who lies in every heart as the Supersoul and as the Lord of all energies, but is untouched by His external energy.**
 

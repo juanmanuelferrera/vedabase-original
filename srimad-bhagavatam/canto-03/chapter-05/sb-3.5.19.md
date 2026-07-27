@@ -8,7 +8,7 @@
 > gṛhīto 'nanya-bhāvena\
 > yat tvayā harir īśvaraḥ
 
-*na*—never; *etat*—such inquiries; *citram*—very wonderful; *tvayi*—in you; *kṣattaḥ*—O Vidura; *bādarāyaṇa*—of Vyāsadeva; *vīrya-je*—born from the semen; *gṛhītaḥ*—accepted; *ananya-bhāvena*—without deviation from the thought; *yat*—because; *tvayā*—by you; *hariḥ*—the Personality of Godhead; *īśvaraḥ*—the Lord.
+*na*—never; *etat*—such inquiries; *citram*—very wonderful; *tvayi*—in you; *kṣattaḥ*—O Vidura; *bādarāyaṇa*—of Vyāsadeva; *vīrya-je*—born from the semina; *gṛhītaḥ*—accepted; *ananya-bhāvena*—without deviation from the thought; *yat*—because; *tvayā*—by you; *hariḥ*—the Personality of Godhead; *īśvaraḥ*—the Lord.
 
 **O Vidura, it is not at all wonderful that you have so accepted the Lord without deviation of thought, for you are born from the semen of Vyāsadeva.**
 

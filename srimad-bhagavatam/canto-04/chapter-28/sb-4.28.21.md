@@ -8,7 +8,7 @@
 > vartiṣyante mayi gate\
 > bhinna-nāva ivodadhau
 
-*katham*—how; *nu*—indeed; *dārakāḥ*—sons; *dīnāḥ*—poor; *dārakīḥ*—daughters; *vā*—or; *aparāyaṇāḥ*—having no one else to depend on; *vartiṣyante*—will live; *mayi*—when 1; *gate*—gone from this world; *bhinna*—broken; *nāvaḥ*—boat; *iva*—like; *udadhau*—in the ocean.
+*katham*—how; *nu*—indeed; *dārakāḥ*—sons; *dīnāḥ*—poor; *dārakīḥ*—daughters; *vā*—or; *aparāyaṇāḥ*—having no one else to depend on; *vartiṣyante*—will live; *mayi*—when I; *gate*—gone from this world; *bhinna*—broken; *nāvaḥ*—boat; *iva*—like; *udadhau*—in the ocean.
 
 **King Purañjana continued worrying: "After I pass from this world, how will my sons and daughters, who are now fully dependent on me, live and continue their lives? Their position will be similar to that of passengers aboard a ship wrecked in the midst of the ocean."**
 

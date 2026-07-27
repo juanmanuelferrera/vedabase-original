@@ -8,7 +8,7 @@
 > sarasvatīm upaspṛśya\
 > vṛkṣa-mūlam upāviśat
 
-*bhagavān*—the Personality of Godhead; *sva-ātma-māyāyāḥ*—by His internal potency; *gatim*—the end; *tām*—that; *avalokya*—foreseeing; *saḥ*—He (Kṛṣṇa); *sarasvatīm*—the River Sarasvatī; *upaspṛśya*—after sipping water; *vṛkṣa-mūlam*—at the foot of a tree; *upāviśat*—sat down.
+*bhagavān*—the Personality of Godhead; *sva-ātma-māyayā*—by His internal potency; *gatim*—the end; *tām*—that; *avalokya*—foreseeing; *saḥ*—He (Kṛṣṇa); *sarasvatīm*—the River Sarasvatī; *upaspṛśya*—after sipping water; *vṛkṣa-mūlam*—at the foot of a tree; *upāviśat*—sat down.
 
 **The Personality of Godhead, Lord Śrī Kṛṣṇa, after foreseeing the end [of His family] by His internal potency, went to the bank of the River Sarasvatī and sat down there underneath a tree.**
 

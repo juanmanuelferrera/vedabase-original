@@ -10,7 +10,7 @@
 > vindeta bhūyas tata eva duḥkhaṁ\
 > yad atra yuktaṁ bhagavān vaden naḥ
 
-*viduraḥ uvāca*—Vidura said; *sukhāya*—for attaining happiness; *karmāṇi*—fruitive activities; *karoti*—everyone does so; *lokaḥ*—in this world; *na*—never; *taiḥ*—by those activities; *sukham*—any happiness; *vā*—or; *anyat*—differently; *upāramam*—satiation; *vā*—either; *vindeta*—achieves; *bhūyaḥ*—on the contrary; *tataḥ*—by such activities; *eva*—certainly; *duḥkham*—miseries; *yat*—that which; *atra*—under the circumstances; *yuktam*—right course; *bhagavān*—O great one; *vadet*—may kindly enlighten; *naḥ*—us.
+*viduraḥ uvāca*—Vidura said; *sukhāya*—for attaining happiness; *karmāṇi*—fruitive activities; *karoti*—everyone does so; *lokaḥ*—in this world; *na*—never; *taiḥ*—by those activities; *sukham*—any happiness; *vā*—or; *anyat*—differently; *upāramam*—satiation; *vā*—either; *vindeta*—achieve; *bhūyaḥ*—on the contrary; *tataḥ*—by such activities; *eva*—certainly; *duḥkham*—miseries; *yat*—that which; *atra*—under the circumstances; *yuktam*—right course; *bhagavān*—O great one; *vadet*—may kindly enlighten; *naḥ*—us.
 
 **Vidura said: O great sage, in this world everyone engages in fruitive activities to attain happiness, but they find neither satiation nor the mitigation of distress. On the contrary, they are only aggravated by such activities. Please, therefore, give us directions on how one should live for real happiness.**
 

@@ -8,7 +8,7 @@
 > daṇḍayaty ātmajam api\
 > daṇḍyaṁ dharma-pathe sthitaḥ
 
-*na*—not; *adaṇḍyam*—not punishable; *daṇḍayati*—punishes; *eṣaḥ*—this King; *sutam*—the son; *ātma-dviṣām*—of his enemies; *api*—even; *daṇḍayati*—he punishes; *ātma-jam*—his own son; *api*—even; *daṇḍyam*—punishable; *dharma-pathe*—on the path of piety; *sthitaḥ*—being situated.
+*na*—not; *adaṇḍyam*—not punishable; *daṇḍayati*—punishes; *eṣaḥ*—this King; *sutam*—the son; *ātma-dviṣām*—of his enemies; *api*—even; *daṇḍayati*—he punishes; *ātma-jam*—his own son; *api*—even; *daṇḍyan*—punishable; *dharma-pathe*—on the path of piety; *sthitaḥ*—being situated.
 
 **Since this King will always remain on the path of piety, he will be neutral to both his son and the son of his enemy. If the son of his enemy is not punishable, he will not punish him, but if his own son is punishable, he will immediately punish him.**
 

@@ -8,7 +8,7 @@
 > smarantyā bhartur ādeśaṁ\
 > stanāc cāsṛk prasusruve
 
-*tadā*—at that moment; *diteḥ*—of Diti; *samabhavat*—occurred; *sahasā*—suddenly; *hṛdi*—in the heart; *vepathuḥ*—a shudder; *smarantyāḥ*—recalling; *bhartuḥ*—of her husband, Kaśyapa; *ādeśam*—the words; *stanāt*—from her breast; *ca*—and; *asṛk*—blood; *prasusruve*—flowed.
+*tadā*—at that moment; *diteḥ*—of Diti; *samabhavat*—occurred; *sahasā*—suddenly; *hṛdi*—in the heart; *vepathuḥ*—a shudder; *smarantyāḥ*—recalling; *bhartuḥ*—of her husband, Kaśyapa; *ādeśam*—the words; *stanāt*—from her breast; *ca*—and; *asṛj*—blood; *prasusruve*—flowed.
 
 **At that very moment, a shudder suddenly ran through the heart of Diti, the mother of Hiraṇyākṣa. She recalled the words of her husband, Kaśyapa, and blood flowed from her breasts.**
 

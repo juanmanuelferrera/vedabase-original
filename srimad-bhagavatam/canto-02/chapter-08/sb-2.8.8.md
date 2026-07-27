@@ -11,7 +11,7 @@
 > tāvān asāv iti proktaḥ\
 > saṁsthāvayavavān iva
 
-*āsīt*—as it grew; *yat-udarāt*—from whose abdomen; *padmam*—lotus flower; *loka*—world; *saṁsthāna*—situation; *lakṣaṇam*—possessed of; *yāvān*—as it were; *ayam*—this; *vai*—certainly; *puruṣaḥ*—the Supreme Personality of Godhead; *iyattā*—measurement; *avayavaiḥ*—by embodiments; *pṛthak*—different; *tāvān*—so; *asau*—that; *iti proktaḥ*—it is so said; *saṁsthā*—situation; *avayavavān*—embodiment; *iva*—like.
+*āsīt*—as it grew; *yat-udarāt*—from whose abdomen; *padmam*—lotus flower; *loka*—world; *saṁsthāna*—situation; *lakṣaṇam*—possessed of; *yāvān*—as it were; *ayam*—this; *vai*—certainly; *puruṣaḥ*—the Supreme Personality of Godhead; *iyattā*—measurement; *avayavaiḥ*—by embodiment; *pṛthak*—different; *tāvān*—so; *asau*—that; *iti proktaḥ*—it is so said; *saṁsthā*—situation; *avayavavān*—embodiment; *iva*—like.
 
 **If the Supreme Personality of Godhead, from whose abdomen the lotus stem sprouted, is possessed of a gigantic body according to His own caliber and measurement, then what is the specific difference between the body of the Lord and those of other common living entities?**
 

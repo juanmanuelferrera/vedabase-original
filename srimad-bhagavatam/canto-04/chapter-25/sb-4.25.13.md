@@ -8,7 +8,7 @@
 > dadarśa navabhir dvārbhiḥ\
 > puraṁ lakṣita-lakṣaṇām
 
-*saḥ*—that King Purañjana; *ekadā*—once upon a time; *himavataḥ*—of the Himalaya Mountains; *dakṣiṇeṣu*—southern; *atha*—after this; *sānuṣu*—on the ridges; *dadarśa*—found; *navabhiḥ*—with nine; *dvārbhiḥ*—gates; *puram*—a city; *lakṣita*—visible; *lakṣaṇām*—having all auspicious facilities.
+*saḥ*—that King Purañjana; *ekadā*—once upon a time; *himavataḥ*—of the Himalayan Mountains; *dakṣiṇeṣu*—southern; *atha*—after this; *sānuṣu*—on the ridges; *dadarśa*—found; *navabhiḥ*—with nine; *dvārbhiḥ*—gates; *puram*—a city; *lakṣita*—visible; *lakṣaṇām*—having all auspicious facilities.
 
 **Once while wandering in this way, he saw on the southern side of the Himalayas, in a place named Bhārata-varṣa [India], a city that had nine gates all about and was characterized by all auspicious facilities.**
 

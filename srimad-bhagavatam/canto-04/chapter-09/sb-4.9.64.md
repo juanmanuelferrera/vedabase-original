@@ -8,7 +8,7 @@
 > haṁsa-kāraṇḍava-kulair\
 > juṣṭāś cakrāhva-sārasaiḥ
 
-*vāpyaḥ*—lakes; *vaidūrya*—emerald; *sopānāḥ*—with staircases; *padma*—lotuses; *utpala*—blue lotuses; *kumut-vatīḥ*—full of lilies; *haṁsa*—swans; *kāraṇḍava*—and ducks; *kulaiḥ*—by flocks of; *juṣṭāḥ*—inhabited; *cakrāhva*—by *cakravākas* (geese); *sārasaiḥ*—and by cranes.
+*vāpyaḥ*—lakes; *vaidūrya*—emerald; *sopānāḥ*—with staircases; *padma*—lotuses; *utpala*—blue lotuses; *kumud-vatīḥ*—full of lilies; *haṁsa*—swans; *kāraṇḍava*—and ducks; *kulaiḥ*—by flocks of; *juṣṭāḥ*—inhabited; *cakrāhva*—by *cakravākas* (geese); *sārasaiḥ*—and by cranes.
 
 **There were emerald staircases which led to lakes full of variously colored lotus flowers and lilies, and swans, kāraṇḍavas, cakravākas, cranes and similar other valuable birds were visible in those lakes.**
 

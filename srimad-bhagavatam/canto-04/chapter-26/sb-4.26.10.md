@@ -8,7 +8,7 @@
 > medhyān anyāṁś ca vividhān\
 > vinighnan śramam adhyagāt
 
-*śaśān*—rabbits; *varāhān*—boars; *mahiṣān*—buffalo; *gavayān*—bison; *ruru*—black deer; *śalyakān*—porcupines; *medhyān*—game animals; *anyān*—others; *ca*—and; *vividhān*—various; *vinighnan*—by killing; *śramam adhyagāt*—became very tired.
+*śaśān*—rabbits; *varāhān*—boars; *mahiṣān*—buffaloes; *gavayān*—bisons; *ruru*—black deer; *śalyakān*—porcupines; *medhyān*—game animals; *anyān*—others; *ca*—and; *vividhān*—various; *vinighnan*—by killing; *śramam adhyagāt*—became very tired.
 
 **In this way King Purañjana killed many animals, including rabbits, boars, buffaloes, bison, black deer, porcupines and other game animals. After killing and killing, the King became very tired.**
 

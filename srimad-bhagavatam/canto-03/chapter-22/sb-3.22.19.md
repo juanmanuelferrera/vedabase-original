@@ -8,7 +8,7 @@
 > ato dharmān pāramahaṁsya-mukhyān\
 > śukla-proktān bahu manye 'vihiṁsrān
 
-*ataḥ*—therefore; *bhajiṣye*—I shall accept; *samayena*—on the conditions; *sādhvīm*—the chaste girl; *yāvat*—until; *tejaḥ*—semen; *bibhṛyāt*—may bear; *ātmanaḥ*—from my body; *me*—my; *ataḥ*—thereafter; *dharmān*—the duties; *pāramahaṁsya-mukhyān*—of the best of the *paramahaṁsas*; *śukla-proktān*—spoken by Lord Viṣṇu; *bahu*—much; *manye*—I shall consider; *avihiṁsrān*—free from envy.
+*ataḥ*—therefore; *bhajiṣye*—I shall accept; *samayena*—on the conditions; *sādhvīm*—the chaste girl; *yāvat*—until; *tejaḥ*—semina; *bibhṛyāt*—may bear; *ātmanaḥ*—from my body; *me*—my; *ataḥ*—thereafter; *dharmān*—the duties; *pāramahaṁsya-mukhyān*—of the best of the *paramahaṁsas*; *śukla-proktān*—spoken by Lord Viṣṇu; *bahu*—much; *manye*—I shall consider; *avihiṁsrān*—free from envy.
 
 **Therefore I shall accept this chaste girl as my wife, on the condition that after she bears semen from my body, I shall accept the life of devotional service accepted by the most perfect human beings. That process was described by Lord Viṣṇu. It is free from envy.**
 

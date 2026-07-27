@@ -8,7 +8,7 @@
 > sargāṁś caivānusargāṁś ca\
 > manūn manvantarādhipān
 
-*prajā-patīnām*—of the demigods like Brahmā and others; *saḥ*—he; *patiḥ*—leader; *cakḷpe*—decided; *kān*—whomsoever; *prajāpatīn*—fathers of the living entities; *sargān*—generations; *ca*—also; *eva*—certainly; *anusargān*—later generations; *ca*—and; *manūn*—the Manus; *manvantara-adhipān*—and the changes of such.
+*prajā-patīnām*—of the demigods like Brahmā and others; *saḥ*—he; *patiḥ*—leader; *cakḷpe*—decided; *kān*—whomsoever; *prajāpatīn*—father of the living entities; *sargān*—generations; *ca*—also; *eva*—certainly; *anusargān*—later generations; *ca*—and; *manūn*—the Manus; *manvantara-adhipān*—and the changes of such.
 
 **O learned brāhmaṇa, please describe how the leader of all the demigods, namely Prajāpati, Brahmā, decided to establish the various Manus, the heads of the ages. Please describe the Manus also, and please describe the descendants of those Manus.**
 

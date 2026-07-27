@@ -8,7 +8,7 @@
 > puryāṁ prajvāra-saṁsṛṣṭaḥ\
 > pura-pālo 'nvatapyata
 
-*yavana*—by the Yavanas; *uparuddha*—attacked; *āyatanaḥ*—his abode; *grastāyām*—when seized; *kāla-kanyayā*—by the daughter of Time; *puryām*—the city; *prajvāra-saṁsṛṣṭaḥ*—being approached by Prajvāra; *pura-pālaḥ*—the city superintendent; *anvatapyata*—became also very much aggrieved.
+*yavana*—by the Yavanas; *uparuddha*—attacked; *āyatanaḥ*—his abode; *grastāyām*—when seized; *kāla-kanyayā*—by the daughter of Time; *puryām*—the city; *prajvāra-saṁsṛṣṭaḥ*—being approached by Prajvāra; *pura-pālaḥ*—the city superintendent; *anvatapyata*—become also very much aggrieved.
 
 **The city's superintendent of police, the serpent, saw that the citizens were being attacked by Kālakanyā, and he became very aggrieved to see his own residence set ablaze after being attacked by the Yavanas.**
 

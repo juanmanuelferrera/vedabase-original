@@ -8,7 +8,7 @@
 > bhokṣyate yad-vaṁśa-dharair\
 > mahī manvantaraṁ param
 
-*eka-ekasya*—of each one; *abhavat*—there became; *teṣām*—of them; *rājan*—O King; *arbudam*—ten million; *arbudam*—ten million; *bhokṣyate*—is ruled; *yat*—whose; *vaṁśa-dharaiḥ*—by descendants; *mahī*—the whole world; *manu-antaram*—up to the end of one Manu; *param*—and afterward.
+*eka-ekasya*—of each one; *abhavat*—there became; *teṣām*—of them; *rājan*—O King; *arbudam*—ten million; *arbudam*—ten million; *bhokṣyate*—is ruled; *yat*—whose; *vaṁśa-dharaiḥ*—by descendants; *mahī*—the whole world; *manu-antaram*—up to the end of one Manu; *param*—and afterwards.
 
 **My dear King Prācīnabarhiṣat, the sons of Malayadhvaja gave birth to many thousands and thousands of sons, and all of these have been protecting the entire world up to the end of one Manu's life-span and even afterward.**
 

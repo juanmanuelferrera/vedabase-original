@@ -8,7 +8,7 @@
 > muṣṇantam akṣṇā sva-ruco 'ruṇa-śriyā\
 > jahāsa cāho vana-gocaro mṛgaḥ
 
-*dadarśa*—he saw; *tatra*—there; *abhijitam*—the victorious; *dharā*—the earth; *dharam*—bearing; *pronnīyamāna*—being raised upward; *avanim*—the earth; *agra-daṁṣṭrayā*—by the tip of His tusk; *muṣṇantam*—who was diminishing; *akṣṇā*—with His eyes; *sva-rucaḥ*—Hiraṇyākṣa's own splendor; *aruṇa*—reddish; *śriyā*—radiant; *jahāsa*—he laughed; *ca*—and; *aho*—oh; *vana-gocaraḥ*—amphibious; *mṛgaḥ*—beast.
+*dadarśa*—he saw; *tatra*—there; *abhijitam*—the victorious; *dharā*—the earth; *dharam*—bearing; *pronnīyamāna*—being raised upwards; *avanim*—the earth; *agra-daṁṣṭrayā*—by the tip of His tusk; *muṣṇantam*—who was diminishing; *akṣṇā*—with His eyes; *sva-rucaḥ*—Hiraṇyākṣa's own splendor; *aruṇa*—reddish; *śriyā*—radiant; *jahāsa*—he laughed; *ca*—and; *aho*—O; *vana-gocaraḥ*—amphibious; *mṛgaḥ*—beast.
 
 **He saw there the all-powerful Personality of Godhead in His boar incarnation, bearing the earth upward on the ends of His tusks and robbing him of his splendor with His reddish eyes. The demon laughed: Oh, an amphibious beast!**
 

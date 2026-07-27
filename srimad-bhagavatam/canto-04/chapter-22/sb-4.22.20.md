@@ -8,7 +8,7 @@
 > ratir durāpā vidhunoti naiṣṭhikī\
 > kāmaṁ kaṣāyaṁ malam antar-ātmanaḥ
 
-*asti*—there is; *eva*—certainly; *rājan*—O King; *bhavataḥ*—your; *madhu-dviṣaḥ*—of the Lord; *pāda-aravindasya*—of the lotus feet; *guṇa-anuvādane*—in glorifying; *ratiḥ*—attachment; *durāpā*—very difficult; *vidhunoti*—washes; *naiṣṭhikī*—unflinching; *kāmam*—lusty; *kaṣāyam*—the embellishment of lusty desire; *malam*—dirty; *antaḥ-ātmanaḥ*—from the core of the heart.
+*asti*—there is; *eva*—certainly; *rājan*—O King; *bhavataḥ*—your; *madhu-dviṣaḥ*—of the Lord; *pāda-aravindasya*—of the lotus feet; *guṇa-anuvādane*—in glorifying; *ratiḥ*—attachment; *durāpā*—very difficult; *vidhunoti*—washes; *naiṣṭhikī*—unflinching; *kāmam*—lusty; *kaṣāyam*—embellishment; *malam*—dirty; *antaḥ-ātmanaḥ*—from the core of the heart.
 
 **Sanat-kumāra continued: My dear King, you already have an inclination to glorify the lotus feet of the Supreme Personality of Godhead. Such attachment is very difficult to achieve, but when one has attained such unflinching faith in the Lord, it automatically cleanses lusty desires from the core of the heart.**
 

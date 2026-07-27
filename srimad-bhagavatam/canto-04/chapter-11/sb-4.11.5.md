@@ -8,7 +8,7 @@
 > nināya lokaṁ param arka-maṇḍalaṁ\
 > vrajanti nirbhidya yam ūrdhva-retasaḥ
 
-*saḥ*—he (Dhruva Mahārāja); *tān*—all the Yakṣas; *pṛṣatkaiḥ*—by his arrows; *abhidhāvataḥ*—coming forward; *mṛdhe*—in the battlefield; *nikṛtta*—being separated; *bāhu*—arms; *ūru*—thighs; *śiraḥ-dhara*—necks; *udarān*—and bellies; *nināya*—delivered; *lokam*—to the planet; *param*—supreme; *arka-maṇḍalam*—the sun globe; *vrajanti*—go; *nirbhidya*—piercing; *yam*—to which; *ūrdhva-retasaḥ*—those who do not discharge semen at any time.
+*saḥ*—he (Dhruva Mahārāja); *tān*—all the Yakṣas; *pṛṣatkaiḥ*—by his arrows; *abhidhāvataḥ*—coming forward; *mṛdhe*—in the battlefield; *nikṛtta*—being separated; *bāhu*—arms; *ūru*—thighs; *śiraḥ-dhara*—necks; *udarān*—and bellies; *nināya*—delivered; *lokam*—to the planet; *param*—supreme; *arka-maṇḍalam*—the sun globe; *vrajanti*—go; *nirbhidya*—piercing; *yam*—to which; *ūrdhva-retasaḥ*—those who do not discharge semina at any time.
 
 **When Dhruva Mahārāja saw the Yakṣas coming forward, he immediately took his arrows and cut the enemies to pieces. Separating their arms, legs, heads and bellies from their bodies, he delivered the Yakṣas to the planetary system which is situated above the sun-globe and which is attainable only by first-class brahmacārīs who have never discharged their semina.**
 

@@ -8,7 +8,7 @@
 > anvasmarad agaṁ hitvā\
 > dīnāṁ yāsye tri-viṣṭapam
 
-*saḥ*—he; *ca*—also; *svaḥ-lokam*—to the celestial planet; *ārokṣyan*—about to ascend; *sunītim*—Sunīti; *jananīm*—mother; *dhruvaḥ*—Dhruva Mahārāja; *anvasmarat*—immediately remembered; *agam*—difficult to attain; *hitvā*—leaving behind; *dīnām*—poor; *yāsye*—I shall go; *tri-viṣṭapam*—to the Vaikuṇṭha planet.
+*saḥ*—he; *ca*—also; *svar-lokam*—to the celestial planet; *ārokṣyan*—about to ascend; *sunītim*—Sunīti; *jananīm*—mother; *dhruvaḥ*—Dhruva Mahārāja; *anvasmarat*—immediately remembered; *agam*—difficult to attain; *hitvā*—leaving behind; *dīnām*—poor; *yāsye*—I shall go; *tri-viṣṭapam*—to the Vaikuṇṭha planet.
 
 **Dhruva was seated in the transcendental airplane, which was just about to start, when he remembered his poor mother, Sunīti. He thought to himself, "How shall I go alone to the Vaikuṇṭha planet and leave behind my poor mother?"**
 

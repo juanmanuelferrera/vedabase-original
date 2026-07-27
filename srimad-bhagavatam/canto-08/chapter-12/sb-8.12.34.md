@@ -8,7 +8,7 @@
 > yatra kva cāsann ṛṣayas\
 > tatra sannihito haraḥ
 
-*sarit*—near the shores of the rivers; *saraḥsu*—and near the lakes; *śaileṣu*—near the mountains; *vaneṣu*—in the forests; *upavaneṣu*—in the gardens or small forests; *ca*—also; *yatra*—wherever; *kva*—anywhere; *ca*—also; *āsan*—were exiting; *ṛṣayaḥ*—great sages; *tatra*—there; *sannihitaḥ*—was present; *haraḥ*—Lord Śiva.
+*sarit*—near the shores of the rivers; *saraḥsu*—and near the lakes; *śaileṣu*—near the mountains; *vaneṣu*—in the forests; *upavaneṣu*—in the gardens or small forests; *ca*—also; *yatra*—wherever; *kva*—anywhere; *ca*—also; *āsan*—were existing; *ṛṣayaḥ*—great sages; *tatra*—there; *sannihitaḥ*—was present; *haraḥ*—Lord Śiva.
 
 **Following Mohinī, Lord Śiva went everywhere—near the shores of the rivers and lakes, near the mountains, near the forests, near the gardens, and wherever there lived great sages.**
 

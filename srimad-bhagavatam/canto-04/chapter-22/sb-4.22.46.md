@@ -8,7 +8,7 @@
 > tasyaivānugraheṇānnaṁ\
 > bhuñjate kṣatriyādayaḥ
 
-*svam*—own; *eva*—certainly; *brāhmaṇaḥ*—the *brāhmaṇa*; *bhuṅkte*—enjoy; *svam*—own; *vaste*—clothing; *svam*—own; *dadāti*—gives in charity; *ca*—and; *tasya*—his; *eva*—certainly; *anugraheṇa*—by the mercy of; *annam*—food grains; *bhuñjate*—eats; *kṣatriya-ādayaḥ*—other divisions of society, headed by the *kṣatriyas.*
+*svam*—own; *eva*—certainly; *brāhmaṇaḥ*—the *brāhmaṇas*; *bhuṅkte*—enjoy; *svam*—own; *vaste*—clothing; *svam*—own; *dadāti*—gives in charity; *ca*—and; *tasya*—his; *eva*—certainly; *anugraheṇa*—by the mercy of; *annam*—food grains; *bhuñjate*—eats; *kṣatriya-ādayaḥ*—other divisions of society, headed by the *kṣatriyas.*
 
 **The kṣatriyas, vaiśyas and śūdras eat their food by virtue of the brāhmaṇas' mercy. It is the brāhmaṇas who enjoy their own property, clothe themselves with their own property and give charity with their own property.**
 

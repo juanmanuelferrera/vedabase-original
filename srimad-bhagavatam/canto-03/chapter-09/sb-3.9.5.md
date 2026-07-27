@@ -10,7 +10,7 @@
 > bhaktyā gṛhīta-caraṇaḥ parayā ca teṣāṁ\
 > nāpaiṣi nātha hṛdayāmburuhāt sva-puṁsām
 
-*ye*—those who; *tu*—but; *tvadīya*—Your; *caraṇa-ambuja*—lotus feet; *kośa*—inside; *gandham*—flavor; *jighranti*—smell; *karṇa-vivaraiḥ*—through the channel of the ears; *śruti-vāta-nītam*—carried by the air of Vedic sound; *bhaktyā*—by devotional service; *gṛhīta-caraṇaḥ*—accepting the lotus feet; *parayā*—transcendental; *ca*—also; *teṣām*—for them; *na*—never; *apaiṣi*—separate; *nātha*—O my Lord; *hṛdaya*—heart; *ambu-ruhāt*—from the lotus of; *sva-puṁsām*—of Your own devotees.
+*ye*—those who; *tu*—but; *tvadīya*—Your; *caraṇa-ambuja*—lotus feet; *kośa*—inside; *gandham*—flavor; *jighranti*—smells; *karṇa-vivaraiḥ*—through the channel of the ears; *śruti-vāta-nītam*—carried by the air of Vedic sound; *bhaktyā*—by devotional service; *gṛhīta-caraṇaḥ*—accepting the lotus feet; *parayā*—transcendental; *ca*—also; *teṣām*—for them; *na*—never; *apaiṣi*—separate; *nātha*—O my Lord; *hṛdaya*—heart; *ambu-ruhāt*—from the lotus of; *sva-puṁsām*—of Your own devotees.
 
 **O my Lord, persons who smell the aroma of Your lotus feet, carried by the air of Vedic sound through the holes of the ears, accept Your devotional service. For them You are never separated from the lotus of their hearts.**
 

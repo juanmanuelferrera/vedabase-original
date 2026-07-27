@@ -8,7 +8,7 @@
 > mayy ātmānaṁ saha jagad\
 > drakṣyasy ātmani cāpi mām
 
-*kṛtvā*—having shown; *dayām*—compassion; *ca*—and; *jīveṣu*—toward living beings; *dattvā*—having given; *ca*—and; *abhayam*—assurance of safety; *ātma-vān*—self-realized; *mayi*—in Me; *ātmānam*—yourself; *saha jagat*—along with the universe; *drakṣyasi*—you will perceive; *ātmani*—in yourself; *ca*—and; *api*—also; *mām*—Me.
+*kṛtvā*—having shown; *dayām*—compassion; *ca*—and; *jīveṣu*—towards living beings; *dattvā*—having given; *ca*—and; *abhayam*—assurance of safety; *ātma-vān*—self-realized; *mayi*—in Me; *ātmānam*—yourself; *saha jagat*—along with the universe; *drakṣyasi*—you will perceive; *ātmani*—in yourself; *ca*—and; *api*—also; *mām*—Me.
 
 **Showing compassion to all living entities, you will attain self-realization. Giving assurance of safety to all, you will perceive your own self as well as all the universes in Me, and Myself in you.**
 

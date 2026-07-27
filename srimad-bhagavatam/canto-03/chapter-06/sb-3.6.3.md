@@ -8,7 +8,7 @@
 > bhinnaṁ saṁyojayām āsa\
 > suptaṁ karma prabodhayan
 
-*saḥ*—that; *anupraviṣṭaḥ*—thus entering later on; *bhagavān*—the Personality of Godhead; *ceṣṭā-rūpeṇa*—by His representation of attempt, Kālī; *tam*—them; *gaṇam*—all the living entities, including the demigods; *bhinnam*—separately; *saṁyojayām āsa*—engaged to work; *suptam*—sleeping; *karma*—work; *prabodhayan*—enlightenment.
+*saḥ*—that; *anupraviṣṭaḥ*—thus entering later on; *bhagavān*—the Personality of Godhead; *ceṣṭā-rūpeṇa*—by His representation of attempt, Kālī; *tam*—them; *gaṇam*—all the living entities, including the demigods; *bhinnam*—separately; *saṁyojayām āsa*—engaged them to work; *suptam*—sleeping; *karma*—work; *prabodhayan*—enlightenment.
 
 **Thus when the Personality of Godhead enters into the elements by His energy, all the living entities are enlivened into different activities, just as one engages in his work after awakening from sleep.**
 

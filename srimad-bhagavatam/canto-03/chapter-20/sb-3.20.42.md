@@ -8,7 +8,7 @@
 > sādhyān gaṇān pitṛ-gaṇān\
 > parokṣeṇāsṛjat prabhuḥ
 
-*ūrjaḥ-vantam*—full of energy; *manyamānaḥ*—recognizing; *ātmānam*—himself; *bhagavān*—the most worshipful; *ajaḥ*—Brahmā; *sādhyān*—the demigods; *pitṛ-gaṇān*—and the Pitās; *parokṣeṇa*—from his invisible form; *asṛjat*—created; *prabhuḥ*—the lord of beings.
+*ūrjasvantam*—full of energy; *manyamānaḥ*—recognizing; *ātmānam*—himself; *bhagavān*—the most worshipful; *ajaḥ*—Brahmā; *sādhyān*—the demigods; *pitṛ-gaṇān*—and the Pitās; *parokṣeṇa*—from his invisible form; *asṛjat*—created; *prabhuḥ*—the lord of beings.
 
 **Recognizing himself to be full of desire and energy, the worshipful Brahmā, the creator of the living entities, evolved from his own invisible form, from his navel, the hosts of Sādhyas and Pitās.**
 
