@@ -8,7 +8,7 @@
 > kāryate hy avaśaḥ karma\
 > sarvaḥ prakṛti-jair guṇaiḥ
 
-*na*—nor; *hi*—certainly; *kaścit*—anyone; *kṣaṇam*—even a moment; *api*—also; *jātu*—even; *tiṣṭhati*—stands; *akarma-kṛt*—without doing something; *kāryate*—is forced to do; *hi*—certainly; *avaśaḥ*—helplessly; *karma*—work; *sarvaḥ*—everything; *prakṛti-jaiḥ*—out of the modes of material nature; *guṇaiḥ*—by the qualities.
+*na*—nor; *hi*—certainly; *kaścit*—anyone; *kṣaṇam*—even a moment; *api*—also; *jātu*—even; *tiṣṭhati*—stands; *akarma-kṛt*—without doing something; *kāryate*—forced to work; *hi*—certainly; *avaśaḥ*—helplessly; *karma*—work; *sarvaḥ*—everything; *prakṛti-jaiḥ*—out of the modes of material nature; *guṇaiḥ*—by the qualities.
 
 **All men are forced to act helplessly according to the impulses born of the modes of material nature; therefore no one can refrain from doing something, not even for a moment.**
 

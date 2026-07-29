@@ -10,7 +10,7 @@
 > gatāsūn agatāsūṁś ca\
 > nānuśocanti paṇḍitāḥ
 
-*śrī bhagavān uvāca*—the Supreme Personality of Godhead said; *aśocyān*—that which is not worthy of lamentation; *anvaśocaḥ*—you are lamenting; *tvam*—you; *prajñā-vādāḥ*—learned talks; *ca*—also; *bhāṣase*—speaking; *gata*—lost; *asūn*—life; *agata*—not past; *asūn*—life; *ca*—also; *na*—never; *anuśocanti*—lament; *paṇḍitāḥ*—the learned.
+*śrī bhagavān uvāca*—the Supreme Personality of Godhead said; *aśocyān*—that which is not worthy of lamentation; *anvaśocaḥ*—you are lamenting; *tvam*—you; *prajñā-vādān*—learned talks; *ca*—also; *bhāṣase*—speaking; *gata*—lost; *asūn*—life; *agata*—not past; *asūn*—life; *ca*—also; *na*—never; *anuśocanti*—lament; *paṇḍitāḥ*—the learned.
 
 **The Blessed Lord said: While speaking learned words, you are mourning for what is not worthy of grief. Those who are wise lament neither for the living nor the dead.**
 
