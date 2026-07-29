@@ -314,7 +314,7 @@ That is real life. "I don't like this" means this is not real life. The real lif
 
 **Prabhupāda:** Yes. But why instead of Kṛṣṇa? If one Kṛṣṇa is the same, why not Kṛṣṇa? Why stick to *oṁ*?* Oṁ.... Oṁ* is formless, but Kṛṣṇa has got beautiful form, enjoying. And we are addicted to beautiful form. Why something [chuckling] which is not beautiful? Kṛṣṇa... Kṛṣṇa says in the *Bhagavad-gītā, akṣarāṇām akāro 'smi* *Bg.* 10.33*:*
 
-**[Of letters I am the letter A, and among compounds I am the dual word. I am also inexhaustable time, and of creators I am Brahmā, whose manifold faces turn everywhere.]**
+**[Of letters I am the letter A, and among compounds I am the dual word. I am also inexhaustible time, and of creators I am Brahmā, whose manifold faces turn everywhere.]**
 
 "Amongst the alphabets I am *oṁkāra.*"
 
