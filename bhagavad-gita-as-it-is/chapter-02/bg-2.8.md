@@ -12,7 +12,7 @@
 
 *na*—do not; *hi*—certainly; *prapaśyāmi*—I see; *mama*—my; *apanudyāt*—they can drive away; *yat*—that; *śokam*—lamentation; *ucchoṣaṇam*—drying up; *indriyāṇām*—of the senses; *avāpya*—achieving; *bhūmau*—on the earth; *asapatnam*—without rival; *ṛddham*—prosperous; *rājyam*—kingdom; *surāṇām*—of the demigods; *api*—even; *ca*—also; *ādhipatyam*—supremacy.
 
-**I can find no means to drive away this grief which is drying up my senses. I will not be able to destroy it even if I win an unrivalled kingdom on the earth with sovereignty like that of the demigods in heaven.**
+**I can find no means to drive away this grief which is drying up my senses. I will not be able to destroy it even if I win an unrivalled kingdom on the earth with sovereignty like the demigods in heaven.**
 
 Although Arjuna was putting forward so many arguments based on knowledge of the principles of religion and moral codes, it appears that he was unable to solve his real problem without the help of the spiritual master, Lord Śrī Kṛṣṇa. He could understand that his so-called knowledge was useless in driving away his problems, which were drying up his whole existence; and it was impossible for him to solve such perplexities without the help of a spiritual master like Lord Kṛṣṇa. Academic knowledge, scholarship, high position, etc., are all useless in solving the problems of life; help can only be given by a spiritual master like Kṛṣṇa. Therefore, the conclusion is that a spiritual master who is one hundred percent Kṛṣṇa conscious is the bona fide spiritual master, for he can solve the problems of life. Lord Caitanya said that one who is master in the science of Kṛṣṇa consciousness, regardless of his social position, is the real spiritual master.
 
