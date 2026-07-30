@@ -68,7 +68,7 @@ Trembling of the body was also exhibited by Rādhārāṇī out of tribulation. 
 
 Sometimes, due to great aggrievement caused by the dealings of Kṛṣṇa, the body changes color. The *gopīs* therefore addressed the Lord thusly: "My dear Kṛṣṇa, due to separation from You, all of the denizens of Vṛndāvana have changed their color. And because of this change of color even the great sage Nārada was thinking of Vṛndāvana as a white island in the ocean of milk."
 
-When Kṛṣṇa and Balarāma were present in the arena of Kaṁsa, Kaṁsa's body changed color. Similarly, Indra's face changed color when he saw that Kṛṣṇa was protecting all the denizens of Braja by lifting Govardhan Hill. If the color change takes place due to excessive jubilation, the hue turns red. Because such a change of color is so rare, Śrīla Rūpa Gosvāmī does not further discuss this point.
+When Kṛṣṇa and Balarāma were present in the arena of Kaṁsa, Kaṁsa's body changed color. Similarly, Indra's face changed color when he saw that Kṛṣṇa was protecting all the denizens of Braja by lifting Govardhan Hill. If the color change takes place due to excessive jubilation, the hue turns red. Because such change of color is so rare, Śrīla Rūpa Gosvāmī does not further discuss this point.
 
 ## Tears
 
@@ -78,7 +78,7 @@ When the lotus-eyed Rukmiṇī, the first queen of Kṛṣṇa in Dvārakā, was
 
 An example of shedding tears because of anger was exhibited by Bhīma when he saw that Śiśupāla was insulting Kṛṣṇa in the rāja-sūya arena of sacrifice. Bhīma wanted to kill Śiśupāla immediately, but because Kṛṣṇa did not order him to do so, he became morose with anger. It is described that there were hot tears covering his eyes, as a thin cloud sometimes covers the evening moon. In the evening, when the moon is slightly covered by a thin cloud, it looks very nice, and when Bhīma was shedding tears on account of his anger, he also looked very nice.
 
-In the Tenth Canto of *Śrīmad-Bhāgavatam,* Chapter 68, verse 23, there is a nice example of Rukmiṇī's shedding tears of lamentation. When Kṛṣṇa and Rukmiṇī were talking, Rukmiṇī became frightened of separation from Kṛṣṇa, and therefore she began scratching the earth with her red, lotus-like nails. Because she was shedding tears, the black ointment from her eyes was dripping, along with the tears, onto her breasts, which were covered with *kuṅkum* powder. Rukmiṇī was so aggrieved that her voice was choked up.
+In the Tenth Canto of *Śrīmad-Bhāgavatam,* Chapter 68, verse 23, there is a nice example of Rukmiṇī shedding tears of lamentation. When Kṛṣṇa and Rukmiṇī were talking, Rukmiṇī became frightened of separation from Kṛṣṇa, and therefore she began scratching the earth with her red, lotus-like nails. Because she was shedding tears, the black ointment from her eyes was dripping, along with the tears, onto her breasts, which were covered with *kuṅkum* powder. Rukmiṇī was so aggrieved that her voice was choked up.
 
 ## Devastation
 

@@ -38,13 +38,13 @@ A devotee once said, "My dear Lord Kṛṣṇa, may Your challenger, Śrīdāmā
 
 Once Śrīdāmā challenged Bhadrasena and said to him, "My dear friend, you needn't be afraid of me yet. I shall first of all defeat our brother Balarāma, then I shall beat Kṛṣṇa, and then I shall come to you." Bhadrasena therefore left the party of Balarāma and joined Kṛṣṇa, and he agitated his friends as much as the Mandara Hill had agitated the whole ocean. By his roaring sounds he deafened all his friends, and he enthused Kṛṣṇa with his chivalrous activities.
 
-Once Kṛṣṇa challenged all His friends and said, "My dear friends, just see-I am jumping with great chivalrous prowess. Please do not flee away." Upon hearing these challenging words, a friend named Varūthapa counter-challenged the Lord and struggled against Him.
+Once Kṛṣṇa challenged all His friends and said, "My dear friends, just see-I am jumping with great chivalrous prowess. Please do not flee away." Upon hearing these challenging words, another friend named Varūthapa counter-challenged the Lord and struggled against Him.
 
 One of the friends once remarked, "Sudāmā is trying his best to see Dāmodara defeated, and I think that if our powerful Subala joins him, they will be a very beautiful combination, like a valuable jewel bedecked with gold."
 
 In these chivalrous activities, only Kṛṣṇa's friends can be the opponents. Kṛṣṇa's enemies can never actually be His opponents. Therefore, this challenging by Kṛṣṇa's friends is called devotional service in chivalrous activities.
 
-*Dāna-vīra,* or chivalry in giving charity, may be divided into two parts: munificence and renunciation. A person who can sacrifice everything for the satisfaction of Kṛṣṇa is called munificent. When a person desires to make a sacrifice because of his seeing Kṛṣṇa, Kṛṣṇa is called the impetus of the munificent activity. When Kṛṣṇa appeared as the son of Nanda Mahārāj, in clear consciousness Nanda Mahārāj desired all auspiciousness for his son and thus began to give in charity valuable cows to all the *brāhmaṇas.* The *brāhmaṇas* were so satisfied by this charitable action that they were obliged to say that the charity of Nanda Mahārāj had excelled the charity of such past kings as Mahārāj Pṛthu and Nṛga.
+*Dāna-vīra,* or chivalry in the giving in charity, can be divided into two parts: munificence and renunciation. A person who can sacrifice everything for the satisfaction of Kṛṣṇa is called munificent. When a person desires to make a sacrifice because of his seeing Kṛṣṇa, Kṛṣṇa is called the impetus of the munificent activity. When Kṛṣṇa appeared as the son of Nanda Mahārāj, in clear consciousness Nanda Mahārāj desired all auspiciousness for his son and thus began to give in charity valuable cows to all the *brāhmaṇas.* The *brāhmaṇas* were so satisfied by this charitable action that they were obliged to say that the charity of Nanda Mahārāj had excelled the charity of such past kings as Mahārāj Pṛthu and Nṛga.
 
 When a person knows the glories of the Lord completely and is prepared to sacrifice everything for the Lord, he is called *sampradānaka,* or one who gives everything in charity for the sake of Kṛṣṇa.
 

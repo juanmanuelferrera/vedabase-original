@@ -4,11 +4,11 @@
 
 ## Fraternal Devotion
 
-When a devotee is permanently situated in devotional service, and by different symptoms of ecstasy he has developed and matured a fraternal mellow or flavor in relationship with the Personality of Godhead, his feeling is called fraternal love of Godhead.
+When a devotee is permanently situated in devotional service, and by different symptoms of ecstasy he has developed and matured a fraternal mellow or flavor in relationship with the Personality of Godhead, at that time his feeling is called fraternal love of Godhead.
 
 The impetus for such fraternal love of God is God Himself. When one is liberated and discovers his eternal relationship with the Supreme Lord, the Lord Himself becomes the impetus for increasing fraternal love. The eternal associates of the Lord in Vṛndāvana have described this as follows: "The Lord, Hari, whose bodily hue is like the *indranīla* jewel, whose smiling is as beautiful as the *kunda* flower, whose silk dress is as yellow as golden autumn foliage, whose chest is beautified with garlands of flowers and who is always playing upon His flute-this enemy of the Agha demon is always attracting our hearts by wandering about Vṛndāvana."
 
-There are similar statements of fraternal love expressed outside the jurisdiction of Vṛndāvana. When the sons of Pāṇḍu, headed by Mahārāj Yudhiṣṭhira, saw Kṛṣṇa in His fourhanded form on the battlefield of Kurukṣetra, holding His conchshell, disc, club and lotus flower, they completely forgot themselves and became merged in the ocean of nectarean happiness. This shows how the sons of Pāṇḍu-King Yudhiṣṭhira, Bhīma, Arjuna, Nakula and Sahadeva-were all caught up in fraternal love for Kṛṣṇa.
+There are similar statements of fraternal love expressed outside the jurisdiction of Vṛndāvana. When the sons of Pāṇḍu, headed by Mahārāj Yudhiṣṭhira, saw Kṛṣṇa in His fourhanded form on the battlefield of Kurukṣetra, holding His conchshell, disk, club and lotus flower, they completely forgot themselves and became merged in the ocean of nectarean happiness. This shows how the sons of Pāṇḍu-King Yudhiṣṭhira, Bhīma, Arjuna, Nakula and Sahadeva-were all caught up in fraternal love for Kṛṣṇa.
 
 Sometimes the different names, forms, paraphernalia and transcendental qualities provoke fraternal love: For instance, Kṛṣṇa's nice dress, the all-auspicious symptoms on His body, His strongly-built body, His knowledge of different languages, His learned teachings in the *Bhagavad-gītā,* His uncommon genius in all fields of endeavor, His exhibition of expert knowledge, His mercy, His chivalry, His behavior as a conjugal lover, His intelligence, His forgiveness, His attraction for all kinds of men, His opulence and His happiness-all provoke fraternal love.
 

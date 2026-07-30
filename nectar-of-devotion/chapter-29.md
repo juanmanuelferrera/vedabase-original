@@ -76,11 +76,11 @@ There is another description of the symptoms of intoxication in the person of Ś
 
 ## Pride
 
-Expressions of ecstatic love in pride may be the result of excessive wealth, exquisite beauty, a first-class residence, or the attainment of one's ideal goal. One is also considered to be proud when he does not care about the neglect of others.
+Expressions of ecstatic love in pride may be the result of excessive wealth, exquisite beauty, first-class residence, or the attainment of one's ideal goal. One is also considered to be proud when he does not care about the neglect of others.
 
 Bilvamaṅgala Thākur said, "My dear Kṛṣṇa, You are leaving me, forcibly getting out of my clutches. But I shall be impressed by Your strength only when You can go forcibly from the core of my heart." This is an instance of feeling pride in ecstatic love for Kṛṣṇa.
 
-Once during the *rāsa* dance, when Rādhārāṇī left the arena, and Kṛṣṇa went to seek Her out, one of the dear friends of Rādhārāṇī addressed Kṛṣṇa thusly: "My dear Kṛṣṇa, You have been very much obliging in serving the form of our Śrī Rādhārāṇī, and now You have left all the other *gopīs* to search for Her. Please allow me to inquire how You want Her to treat You." This is an instance of feeling pride on account of exquisite beauty.
+Once during the *rāsa* dance, when Rādhārāṇī left the arena, and Kṛṣṇa went to seek Her out, one of the dear friends of Rādhārāṇī began to address Kṛṣṇa thusly: "My dear Kṛṣṇa, You have been very much obliging in serving the form of our Śrī Rādhārāṇī, and now You have left all the other *gopīs* to search for Her. Please allow me to inquire how You want Her to treat You." This is an instance of feeling pride on account of exquisite beauty.
 
 Sometimes Rādhārāṇī felt pride within Herself and said, "Although the cowherd boys prepare nice flower garlands for Kṛṣṇa, when I present My garland to Him, He becomes struck with wonder and immediately accepts it and puts it on His heart."
 
