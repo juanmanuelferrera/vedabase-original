@@ -203,14 +203,14 @@ In this world, everyone is serving the senses, but people are not satisfied. No 
 
 "O son of Mahārāja Nanda [Kṛṣṇa], I am Your eternal servitor, yet somehow or other I have fallen into the ocean of birth and death. Please pick me up from this ocean of death and place me as one of the atoms at Your lotus feet." (*Śikṣāṣṭaka* 5) This is another way of asking Kṛṣṇa to engage us in His service.
 
-Loving devotional service can only be rendered to the personal form of Kṛṣṇa, Śyāmasundara. The impersonalists emphasize the *virāṭ-rūpa,* the universal form exhibited in the Eleventh Chapter of *Bhagavad-gītā,* but it is stated therein (11.21) that the demigods are very much afraid of this form, and Arjuna says,
+Loving devotional service can only be rendered to the personal form of Kṛṣṇa, Śyāmasundara. The impersonalists emphasize the *viśva-rūpa,* the universal form exhibited in the Eleventh Chapter of *Bhagavad-gītā,* but it is stated therein (11.21) that the demigods are very much afraid of this form, and Arjuna says,
 
 > adṛṣṭa-pūrvaṁ hṛṣito 'smi dṛṣṭvā
 > bhayena ca pravyathitaṁ mano me
 > tad eva me darśaya deva rūpaṁ
 > prasīda deveśa jagan-nivāsa
 
-"After seeing this universal form, which I have never seen before, I am gladdened, but at the same time my mind is disturbed with fear. Therefore please bestow Your grace upon me and reveal again Your form as the Personality of Godhead [Kṛṣṇa, or Śyāmasundara], O Lord of lords, O abode of the universe." [[bg/11/45|(Bg. 11.45)]] There is no question of loving the *virāṭ-rūpa.* If Kṛṣṇa comes before you in the *virāṭ-rūpa* form, you will be so filled with fear that you will forget your love. So don't be eager like the impersonalists to see the *virāṭ-rūpa* form; just render loving service to Śyāmasundara, Kṛṣṇa.
+"After seeing this universal form, which I have never seen before, I am gladdened, but at the same time my mind is disturbed with fear. Therefore please bestow Your grace upon me and reveal again Your form as the Personality of Godhead [Kṛṣṇa, or Śyāmasundara], O Lord of lords, O abode of the universe." [[bg/11/45|(Bg. 11.45)]] There is no question of loving the *viśva-rūpa.* If Kṛṣṇa comes before you in the *viśva-rūpa* form, you will be so filled with fear that you will forget your love. So don't be eager like the impersonalists to see the *viśva-rūpa* form; just render loving service to Śyāmasundara, Kṛṣṇa.
 
 We have more or less seen Kṛṣṇa as the *viśva-rūpa* during wartime in Calcutta in 1942. There was a siren, and we ran into a shelter, and the bombing began. In this way, we were seeing that *viśva-rūpa,* and I was thinking, "Of course, this is also just another form of Kṛṣṇa. But this is not a very lovable form." A devotee wants to love Kṛṣṇa in His original form, and this *viśva-rūpa* is not His original form. Being omnipotent, Kṛṣṇa can appear in any form, but His lovable form is that of Kṛṣṇa, Śyāmasundara. Although a man may be a police officer, when he is at home he is a beloved father to his son. But if he comes home firing his revolver, the son will be so frightened that he will forget that he is his beloved father. Naturally, the child loves his father when he's at home like a father, and similarly we love Kṛṣṇa as He is in His eternal abode, in the form of Śyāmasundara.
 

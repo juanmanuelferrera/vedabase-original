@@ -20,7 +20,7 @@ In the *Śrīmad-Bhāgavatam,* Seventh Canto, 4th Chapter, 30th verse, Prahlāda
 
 In the *Hari-bhakti-sudhodaya* it is stated that when Prahlāda Mahārāj was thinking himself unfit to approach the Supreme Personality of Godhead, he immersed himself in great distress, in an ocean of unhappiness. As such, he used to shed tears and lie down on the floor as though unconscious.
 
-The students of a great devotee once talked amongst themselves in this way: "My dear Godbrothers, our spiritual master, after seeing the lotus feet of the Lord, has thrown himself into the fire of lamentation, and because of this fire the water of his life has almost dried away. Let us now pour the nectar of the holy name through his ears, and by our doing so the swan of his life may again show signs of life."
+The students of a great devotee once talked amongst themselves in this way: "My dear Godbrothers, our spiritual master, after seeing the lotus feet of the Lord, has thrown himself into the fire of lamentation, and because of this fire the water of his life has almost dried away. Let us now pour the nectar of the holy name through his ears, and by doing so the swan of his life may again show signs of life."
 
 When Lord Kṛṣṇa went to the city of Śoṇitapura to fight with Bali's son Bāṇa and to cut off all his hands, Uddhava, being separated from Kṛṣṇa and thinking of His fight, was almost completely stunned into unconsciousness.
 
@@ -28,7 +28,7 @@ When a devotee is fully in love with the Supreme Personality of Godhead, there m
 
 As far as the feverish condition of the body is concerned, Uddhava once told Nārada, "My dear great sage, the lotus flower that is a friend of the sun may be a cause of distress for us; and the fire in the ocean may cause us some burning sensation; and Indīvara, the friend of a demon, may distress us in various ways-we do not mind. But the most regrettable factor is that all of them remind us of Kṛṣṇa, and this is giving us too much distress!" This is an instance of the feverish condition which is due to being separated from Kṛṣṇa.
 
-Some of the devotees who went to see Kṛṣṇa at Dvārakā and were detained at the door said: "My dear Kṛṣṇa, O friend of the Pāṇḍus, as the swan loves to dive into the water amongst the lily flowers and would die if taken from the water, so we only wish to be with You. Our limbs are being shrunken and faded because You have been taken away from us."
+Some of the devotees who went to see Kṛṣṇa at Dvārakā and were detained at the door said: "My dear Kṛṣṇa, O friend of the Pāṇḍus, as the swan loves to dive into the water amongst the lily flowers and would die if he were taken from the water, so we only wish to be with You. Our limbs are being shrunken and faded because You have been taken away from us."
 
 The King of Bahulā, although very comfortably situated in his palace, began to think the nights very long and distressing because of his separation from Kṛṣṇa.
 
