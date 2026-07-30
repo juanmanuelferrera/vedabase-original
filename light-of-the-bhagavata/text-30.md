@@ -2,7 +2,7 @@
 
 Light of the Bhāgavata 30
 
-**In autumn all the reservoirs of water become enriched with growing lotuses. The muddy water again becomes normally clear and decorated, just as fallen, conditioned souls once more become spiritually enriched in devotional service.**
+**In autumn all the reservoirs of water become enriched with growing lotuses. The muddy water again becomes normally clear and decorated, as fallen, conditioned souls once more become spiritually enriched in devotional service.**
 
 We should not be disappointed in our muddy life of material existence, for as soon as we voluntarily take to the devotional service of the Lord our whole life becomes clear, like water in autumn. Devoid of our relationship with God our life is barren, but as soon as the muddy mind is cleared by spiritual association or cultivation of the human spirit the threefold miseries of material life are at once cleared off. Thus the lotus of knowledge gradually fructifies, and this gradual process of development ushers in transcendental bliss.
 
