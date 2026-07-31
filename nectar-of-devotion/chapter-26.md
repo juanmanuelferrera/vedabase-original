@@ -2,7 +2,7 @@
 
 26. Stimulation for Ecstatic Love
 
-Some things which give impetus or stimulation to ecstatic love of Kṛṣṇa are His transcendental qualities, His uncommon activities, His smiling features, His apparel, His garlands, His flute, His buffalo horn, His leg bells, His conchshell, His footprints, His places of pastimes (such as Vṛndāvana), His favorite plant (*tulasī*), His devotee and the periodical occasions for remembering Him. One such occasion for remembrance is Ekādaśī, which comes twice a month on the eleventh day of the moon, both waning and waxing. On that day all the devotees remain fasting throughout the night and continually chant the glories of the Lord.
+Some things which give stimulation to ecstatic love of Kṛṣṇa are His transcendental qualities, His uncommon activities, His smiling features, His apparel, His garlands, His flute, His buffalo horn, His leg bells, His conchshell, His footprints, His places of pastimes (such as Vṛndāvana), His favorite plant (*tulasī*), His devotee and the periodical occasions for remembering Him. One such occasion for remembrance is Ekādaśī, which comes twice a month on the eleventh day of the moon, both waning and waxing. On that day all the devotees remain fasting throughout the night and continually chant the glories of the Lord.
 
 ## Kṛṣṇa’s Transcendental Qualities, His Uncommon Activities and His Smile
 
@@ -100,7 +100,7 @@ Lord Kṛṣṇa is very fond of *tulasī* leaves and buds. Because *tulasī* bu
 
 One may sometimes become overwhelmed with joy by seeing a devotee of the Lord. When Dhruva Mahārāj saw two associates of Nārāyaṇa approaching him, he immediately stood up out of sincere respect and devotion and remained before them with folded hands; but because of his ecstatic love he could hardly offer them a proper reception.
 
-There is a statement by a *gopī* who addressed Subala, a friend of Kṛṣṇa: "My dear Subala, I know that Kṛṣṇa is your friend and that you always enjoy smiling and joking with Him. The other day I saw you both standing together, and you were keeping your hand upon Kṛṣṇa's shoulder, and both of you were joyfully smiling. When I saw the two of you standing like that in the distance, my eyes at once became overflooded with tears."
+There is a statement by a *gopī* who addressed Subala, a friend of Kṛṣṇa: "My dear Subala, I know that Kṛṣṇa is your friend and you always enjoy smiling and joking with Him. The other day I saw you both standing together, and you were keeping your hand upon Kṛṣṇa's shoulder, and both of you were joyfully smiling. When I saw the two of you standing like that in the distance, my eyes at once became overflooded with tears."
 
 ## Special Days for Remembering Kṛṣṇa
 

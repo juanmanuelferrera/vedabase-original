@@ -16,7 +16,7 @@ A person's achieving perfection in devotional service simply by the causeless me
 
 There is a similar statement by Nārada, addressed to Śukadeva Gosvāmī: "My dear Śukadeva Gosvāmī, you never took the trouble to reside under the care of a spiritual master, and yet you have attained such a great status of transcendental knowledge. You never took the trouble to undergo severe austerities, and still, how wonderful it is that you have been situated in the most perfect stage of love of Godhead."
 
-Śukadeva Gosvāmī and the wives of the *brāhmaṇas* performing *yajña* are vivid examples of devotees who achieved the perfectional stage of devotional service by the grace of the Supreme Personality of Godhead.
+Śukadeva Gosvāmī and the wives of the *brāhmaṇas* who were performing *yajña* are vivid examples of devotees who achieved the perfectional stage of devotional service by the grace of the Supreme Personality of Godhead.
 
 ## Eternal Perfection
 

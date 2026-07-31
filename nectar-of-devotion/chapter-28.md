@@ -14,7 +14,7 @@ When there are manifestations of ecstatic symptoms in the body of a nondevotee, 
 
 There are eight symptoms of existential ecstatic love: becoming stunned, perspiring, standing of the hairs on the body, faltering of the voice, trembling of the body, changing bodily colors, shedding tears, and devastation.
 
-The scientific explanation of these eight symptoms is given by Rūpa Gosvāmī as follows. When the vital force of life is in contact with the earth, it is called stunning. When the same force comes into contact with water, there is the shedding of tears. When the same force comes into contact with fire, there is perspiration. When the force comes into contact with the sky, there is complete devastation. And when that force comes into contact with the air, there is trembling, failing of the voice and standing of the hairs on the body.
+The scientific explanation of these eight symptoms is given by Rūpa Gosvāmī as follows. When the vital force of life is in contact with the earth, it is called stunning. When the same force comes into contact with water, there is the shedding of tears. When the same force comes into contact with fire, there is perspiration. When the same force comes into contact with the sky, there is complete devastation. And when that force comes into contact with the air, there is trembling, failing of the voice and standing of the hairs on the body.
 
 These symptoms are sometimes manifested internally and sometimes externally. The pure devotee always feels such symptomatic expressions within himself, but being afraid of outsiders he does not generally manifest them externally.
 
@@ -102,7 +102,7 @@ When the ecstatic symptoms cannot be checked, and they simultaneously appear in 
 
 When similar symptoms were manifest in the body of Śrīmatī Rādhārāṇī, some of Her friends criticized Her: "Dear friend, You are blaming the flavor of the flowers for the tears in Your eyes. You are rebuking the air for the standing of the hairs on Your body. And You are cursing Your walking in the forest for Your thighs being stunned. But Your faltering voice reveals the cause to be different: it is just Your attachment for Kṛṣṇa!"
 
-Śrīla Rūpa Gosvāmī remarks that when various symptoms become manifest very prominently, the devotee's condition may be called the brightest. For example, a friend of Kṛṣṇa addressed Him as follows: "My dear Pītāmbara, because of separation from You all the residents of Goloka Vṛndāvana are perspiring. They are lamenting with different words, and their eyes have become moistened with tears. Actually, all of them are in great confusion."
+Śrīla Rūpa Gosvāmī remarks that when various symptoms become manifest very prominently, the devotee's condition can be called the brightest. For example, a friend of Kṛṣṇa addressed Him as follows: "My dear Pītāmbara, because of separation from You all the residents of Goloka Vṛndāvana are perspiring. They are lamenting with different words, and their eyes have become moistened with tears. Actually, all of them are in great confusion."
 
 There is a supreme symptom of ecstatic love which is called *mahābhāva.* This *mahābhāva* expression was possible only in Rādhārāṇī, but later on when Śrī Kṛṣṇa Caitanya appeared to feel the mode of love of Rādhārāṇī, He also expressed all of the symptoms of *mahābhāva.* Śrī Rūpa Gosvāmī says in this connection that when the symptoms of ecstatic love become the most bright, that stage is accepted as *mahābhāva.*
 
