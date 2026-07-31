@@ -78,7 +78,7 @@ The offenses against the chanting of the holy name are as follows:
 **2**) To consider the names of demigods like Lord Śiva or Lord Brahmā to be equal to, or independent of, the name of Lord Viṣṇu. (Sometimes the atheistic class of men take it that any demigod is as good as the Supreme Personality of Godhead, Viṣṇu. But one who is a devotee knows that no demigod, however great he may be, is independently as good as the Supreme Personality of Godhead. Therefore, if someone thinks that he can chant Kālī, Kālī! or Durgā, Durgā! and it is the same as Hare Kṛṣṇa, that is the greatest offense.)
 **3**) To disobey the orders of the spiritual master.
 **4**) To blaspheme the Vedic literature or literature in pursuance of the Vedic version.
-**5**) To consider the glories of chanting Hare Kṛṣṇa to be imagination.
+**5**) To consider the glories of chanting Hare Kṛṣṇa as imagination.
 **6**) To give some interpretation on the holy name of the Lord.
 **7**) To commit sinful activities on the strength of the holy name of the Lord. (Because by chanting the holy name of the Lord one can be freed from all kinds of sinful reactions, it should not be taken that one may continue to act sinfully and after that chant Hare Kṛṣṇa to neutralize his sins. Such a dangerous mentality is very offensive and should be avoided.)
 **8**) To consider the chanting of Hare Kṛṣṇa as one of the auspicious ritualistic activities which are offered in the *Vedas* as fruitive activities (*karma-kāṇḍa*).
