@@ -2,7 +2,7 @@
 
 29. Expressions of Love for Kṛṣṇa
 
-There are some bodily symptoms which express overwhelming ecstatic love. They are counted at thirty-one as follows: disappointment, lamentation, humility, guilt, fatigue, intoxication, pride, doubt, apprehension, intense emotion, madness, forgetfulness, disease, confusion, death, laziness, inertness, bashfulness, concealment, remembrance, argumentativeness, anxiety, thoughtfulness, endurance, happiness, eagerness, haughtiness, envy, impudence, dizziness and alertness.
+There are some bodily symptoms which express overwhelming ecstatic love. They are counted at thirty-one as follows: disappointment, lamentation, humility, guilt, fatigue, intoxication, pride, doubt, apprehension, intense emotion, madness, forgetfulness, disease, confusion, death, laziness, inertness, bashfulness, concealment, remembering, argumentativeness, anxiety, thoughtfulness, endurance, happiness, eagerness, haughtiness, envy, impudence, dizziness and alertness.
 
 ## Disappointment
 
@@ -36,7 +36,7 @@ In the Tenth Canto, 14th Chapter, 9th verse of *Śrīmad-Bhāgavatam* there is a
 
 ## Humility
 
-A sense of weakness caused by distress, fearfulness or offensiveness is called humility. In such a humble condition one becomes talkative, small in heart, dirty in mind, full of anxiety and inactive.
+A sense of weakness caused by distress, fearfulness or offensiveness is called humility. In this condition one becomes talkative, small in heart, dirty in mind, full of anxiety and inactive.
 
 In the Tenth Canto, 51st Chapter, 39th verse of *Śrīmad-Bhāgavatam* there is the following statement by King Mucukunda: "My dear Lord, because of my bad deeds in the past I am everlastingly aggrieved. I am always suffering from my desires, but still my senses are never satisfied with material enjoyments. Somehow or other I am, by Your grace, now in a peaceful condition because I have taken shelter of Your lotus feet, which are always free from all lamentation, fear and death. O supreme protector, O supreme soul! O supreme controller! Kindly give me Your protection. I am so much embarrassed." This statement by Mucukunda is an instance of humility resulting from a severely miserable condition of material existence.
 

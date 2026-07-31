@@ -2,7 +2,7 @@
 
 34. The Nectar of Devotion
 
-The particular type of ecstatic loving sentiment that develops within the heart of a particular devotee is considered to be *vibhāva.* And the resultant manifestations such as moving of the eyebrows, fear, astonishment and smiling, which have been explained hereinbefore, are called *anubhāva.* The different causes for developing *anubhāva* and *vibhāva* are called steady ecstasy, or *sañcāri-bhāva.*
+The particular type of ecstatic loving sentiment that develops within the heart of a particular devotee is considered to be *vibhāva.* And the resultant manifestations such as moving the eyebrows, fear, astonishment and smiling, which have been explained hereinbefore, are called *anubhāva.* The different causes for developing *anubhāva* and *vibhāva* are called steady ecstasy, or *sañcāri-bhāva.*
 
 Whenever there is a recitation of poetry or a dramatic play on the different pastimes of Kṛṣṇa, the audience develops different kinds of transcendental loving service for the Lord. They enjoy different types of *vibhāva, anubhāva* and *sañcāri-bhāva.*
 

@@ -36,7 +36,7 @@ King Yudhiṣṭhira once said, "Kṛṣṇa, the chariot driver of Arjuna, is t
 
 Some of the cowherd friends of Kṛṣṇa said, "My dear Kṛṣṇa, O enemy of the Mura demon, just think of Your personal servant Raktaka. Simply because he saw a peacock feather he is now closing his eyes and is no longer attentive to pasturing the cows. Rather, he has left them in a faraway pasture and has not even bothered to use his stick to control them." This is an instance of mental imbalance due to separation from Kṛṣṇa.
 
-When Lord Kṛṣṇa went to the capital of King Yudhiṣṭhira, Uddhava was so afflicted by the fire of separation from Śrī Kṛṣṇa that the perspiration from his enflamed body and the tears from his eyes poured from him, and in this way he became completely stunned.
+When Lord Kṛṣṇa went to the capital of King Yudhiṣṭhira, Uddhava was so afflicted by the fire of separation from Śrī Kṛṣṇa that the perspiring water from his enflamed body and the tears from his eyes poured from him, and in this way he became completely stunned.
 
 When Śrī Kṛṣṇa left the city of Dvārakā to seek out the Syamantaka jewel, He was late returning home. Uddhava became so afflicted that the symptoms of disease became manifest on his body. Actually, due to his excessive ecstatic love for Kṛṣṇa, Uddhava became known in Dvārakā as crazy. To his great fortune, on that day Uddhava's reputation as a crazy fellow was firmly established. Uddhava's craziness was practically proved when he went to Raivataka Hill to minutely observe the congested black clouds. In his disturbed condition, he began to pray to these clouds, and he expressed his jubilation by bowing down before them.
 

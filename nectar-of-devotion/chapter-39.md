@@ -6,7 +6,7 @@
 
 When Kṛṣṇa and His devotees meet, it is technically called *yoga,* or linking up with the Lord. Such meetings between Kṛṣṇa and His devotees can be divided into three classes-namely, perfection, satisfaction, and steadiness. When the devotee meets with Kṛṣṇa in great eagerness, that state of meeting is called perfection.
 
-In the *Kṛṣṇa-karṇāmṛta,* Bilvamaṅgala Thākur describes how Kṛṣṇa meets His devotee-with peacock feather on His head, with *marakata* jewels on His chest, and with His ever enchanting smile, His restless eyes and His very delicate body.
+In the *Kṛṣṇa-karṇāmṛta,* Bilvamaṅgala Thākur describes how Kṛṣṇa meets His devotee-with peacock feather on His head, with *marakata* jewels on His chest, with His ever enchanting smile, His restless eyes and His very delicate body.
 
 In the Tenth Canto of *Śrīmad-Bhāgavatam,* 38th Chapter, 31st verse, Śukadeva Gosvāmī tells King Parīkṣit: "My dear King, as soon as Akrūra the chariot driver saw Lord Kṛṣṇa and His elder brother Balarāma in Vṛndāvana, he immediately got down from the chariot and, being greatly afflicted by affection for the transcendental Lord, fell down upon His lotus feet to offer respectful obeisances." These are some of the instances of perfectional meetings with Kṛṣṇa.
 

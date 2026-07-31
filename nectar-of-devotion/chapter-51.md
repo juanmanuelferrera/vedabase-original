@@ -28,7 +28,7 @@ One devotee said, "My dear Govinda, here is a nice flowery bush in Kailāsa. I a
 
 When Nārada Muni was passing through Vṛndāvana, he came to the Bhāṇḍīravana Forest and saw in one of the trees the famous parrot couple that always accompanies Lord Kṛṣṇa. The couple was imitating some discussion they heard upon the *Vedānta* philosophy, and thus were seemingly arguing upon various philosophical points. Upon seeing this, Nārada Muni was struck with wonder, and he began to stare without moving his eyelids. This is an example of *anurasa,* or imitation.
 
-When Kṛṣṇa was fleeing from the battlefield, from a distant place Jarāsandha was watching Him with restless eyes and was feeling very proud. Being thus puffed up with his conquest, he was repeatedly laughing. This is an example of *aparasa.*
+When Kṛṣṇa was fleeing away from the battlefield, from a distant place Jarāsandha was watching Him with restless eyes and was feeling very proud. Being thus puffed up with his conquest, he was repeatedly laughing. This is an example of *aparasa.*
 
 Everything in connection with Kṛṣṇa is called ecstatic devotional love, although it may be exhibited in different ways: sometimes in right order and sometimes as a perverted reflection. According to the opinion of all expert devotees, anything that will arouse ecstatic love for Kṛṣṇa is to be taken as an impetus for transcendental mellow.
 

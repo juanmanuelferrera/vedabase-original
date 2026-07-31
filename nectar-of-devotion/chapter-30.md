@@ -16,7 +16,7 @@ In this connection there is a statement about persons who died at Mathurā: "The
 
 ## Laziness
 
-When, because of self-satisfaction or dislike of excessive labor, a person does not perform his duty in spite of having the energy, he is called lazy. This laziness also is manifested in ecstatic love of Kṛṣṇa. For example, when some *brāhmaṇas* were requested by Nanda Mahārāj to circumambulate Govardhan Hill, they told him that they were more interested in offering benedictions than in circumambulating Govardhan Hill. This is an instance of laziness caused by self-satisfaction.
+When, because of self-satisfaction or dislike of excessive labor, a person does not perform his duty in spite of having the energy, he is called lazy. This laziness also is manifest in ecstatic love of Kṛṣṇa. For example, when some *brāhmaṇas* were requested by Nanda Mahārāj to circumambulate Govardhan Hill, they told him that they were more interested in offering benedictions than in circumambulating Govardhan Hill. This is an instance of laziness caused by self-satisfaction.
 
 Once when Kṛṣṇa, along with His cowherd boyfriends, was having a mock battle, Subala showed the symptoms of fatigue. Kṛṣṇa immediately told His other friends, "Subala is feeling too fatigued from mock-fighting with Me. So please do not disturb him any more by inviting him to fight." This is an instance of laziness caused by dislike of excessive labor.
 
@@ -118,7 +118,7 @@ There is another statement in the Tenth Canto, 31st Chapter, 16th verse of *Śr�
 
 In the *Padyāvalī,* one of the friends of Rādhārāṇī once addressed Her thusly: "My dear friend, please do not be too puffed up because Kṛṣṇa has decorated Your forehead with His own hand. It may be that Kṛṣṇa is yet attracted by some other beautiful girl. I see that the decoration on Your forehead is very nicely made, and so it appears that Kṛṣṇa was not too disturbed in painting it. Otherwise, He could not have painted such exact lines!" This is an instance of indirect dishonor caused by Rādhā's good fortune.
 
-In the Tenth Canto, 30th Chapter, 26th verse of *Śrīmad-Bhāgavatam* there is the following statement: "When the *gopīs* were searching for Kṛṣṇa and Rādhā after the *rāsa* dance, they thus began to speak amongst themselves: 'We have seen the footprints of Kṛṣṇa and Rādhā on the ground of Vṛndāvana, and they are giving us great pain, because Kṛṣṇa is everything to us. But that girl is so cunning that She has taken Him away alone and is enjoying His kissing without sharing Him with us!' " This is another instance of casting dishonoable words against Kṛṣṇa and Rādhā, pouting over the good fortune of Śrīmatī Rādhārāṇī.
+In the Tenth Canto, 30th Chapter, 26th verse of *Śrīmad-Bhāgavatam* there is the following statement: "When the *gopīs* were searching after Kṛṣṇa and Rādhā after the *rāsa* dance, they thus began to speak amongst themselves: 'We have seen the footprints of Kṛṣṇa and Rādhā on the ground of Vṛndāvana, and they are giving us great pain, because Kṛṣṇa is everything to us. But that girl is so cunning that She has taken Him away alone and is enjoying His kissing without sharing Him with us!' " This is another instance of casting dishonoable words against Kṛṣṇa and Rādhā, pouting over the good fortune of Śrīmatī Rādhārāṇī.
 
 ## Envy
 
