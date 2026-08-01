@@ -8,7 +8,7 @@
 > na gṛhīto mayā yat tvaṁ\
 > kukṣāv api nṛpātmajaḥ
 
-*na*—not; *vatsa*—my dear child; *nṛpateḥ*—of the King; *dhiṣṇyam*—seat; *bhavān*—yourself; *āroḍhum*—to get on; *arhati*—deserve; *na*—not; *gṛhītaḥ*—taken; *mayā*—by me; *yat*—because; *tvam*—yourselfrself; *kukṣau*—in the womb; *api*—although; *nṛpa-ātmajaḥ*—son of the King.
+*na*—not; *vatsa*—my dear child; *nṛpateḥ*—of the King; *dhiṣṇyam*—seat; *bhavān*—yourself; *āroḍhum*—to get on; *arhati*—deserve; *na*—not; *gṛhītaḥ*—taken; *mayā*—by me; *yat*—because; *tvam*—yourself; *kukṣau*—in the womb; *api*—although; *nṛpa-ātmajaḥ*—son of the King.
 
 **Queen Suruci told Dhruva Mahārāja: My dear child, you do not deserve to sit on the throne or on the lap of the King. Surely you are also the son of the King, but because you did not take your birth in my womb, you are not qualified to sit on your father's lap.**
 
