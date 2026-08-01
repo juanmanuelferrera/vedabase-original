@@ -32,6 +32,8 @@ When Kṛṣṇa was fleeing away from the battlefield, from a distant place Jar
 
 Everything in connection with Kṛṣṇa is called ecstatic devotional love, although it may be exhibited in different ways: sometimes in right order and sometimes as a perverted reflection. According to the opinion of all expert devotees, anything that will arouse ecstatic love for Kṛṣṇa is to be taken as an impetus for transcendental mellow.
 
+*Thus ends the Bhaktivedanta summary study of* Śrī Bhakti-rasāmṛta-sindhu *by Śrīla Rūpa Gosvāmī.*
+
 ## Concluding Words
 
 Śrīla Rūpa Gosvāmī concludes by saying that Bhakti-rasāmṛta-sindhu is very difficult for ordinary men to understand, yet he hopes that Lord Kṛṣṇa, the eternal Supreme Personality of Godhead, will be pleased with his presentation of this book.

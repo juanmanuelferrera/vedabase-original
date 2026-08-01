@@ -31,3 +31,5 @@ Only the most fortunate persons can achieve such success in life. Those who are 
 Affection and the dealings of love are different branches of the original tree of love preceding the many varieties of affectionate manifestations, which will not be discussed here. These different manifestations have been described by Sanātana Gosvāmī in his *Bhāgavatāmṛta.* Although the subject of such affections and dealings of love are very confidential, Sanātana Gosvāmī has described them very explicitly.
 
 Śrī Rūpa Gosvāmī thus concludes the first division of the *Bhakti-rasāmṛta-sindhu,* offering up his treatise for the transcendental pleasure of Sanātana Gosvāmī, who has established the transcendental beauty, and of Gopāla Bhaṭṭa Gosvāmī, Śrī Raghunātha Bhaṭṭa Gosvāmī and Raghunāthadās Gosvāmī. It appears from this statement that the great Śrīla Jīva Gosvāmī was not yet active when *Bhakti-rasāmṛta-sindhu* was written.
+
+*Thus ends the Bhaktivedanta summary study of the first division of* Bhakti-rasāmṛta-sindhu, *up to the descriptions of ecstatic love of Godhead, which are to follow next.*
