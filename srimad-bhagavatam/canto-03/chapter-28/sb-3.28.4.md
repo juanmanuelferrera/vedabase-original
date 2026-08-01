@@ -8,7 +8,7 @@
 > brahmacaryaṁ tapaḥ śaucaṁ\
 > svādhyāyaḥ puruṣārcanam
 
-*ahiṁsā*—nonviolence; *satyam*—truthfulness; *asteyam*—refraining from theft; *yāvat-artha*—as much as necessary; *parigrahaḥ*—possessing; *brahmacaryam*—celibacy; *tapaḥ*—austerity; *śaucam*—cleanliness; *sva-adhyāyaḥ*—study of the *Vedas*; *puruṣa-arcanam*—worship of the Supreme Personality of Godhead.
+*ahiṁsā*—nonviolence; *satyam*—truthfulness; *asteyam*—refraining from theft; *yāvat-artha*—as much as necessary; *parigrahaḥ*—possessing; *brahmacaryam*—celibacy; *tapaḥ*—austerity; *śaucam*—cleanliness; *svādhyāyaḥ*—study of the *Vedas*; *puruṣa-arcanam*—worship of the Supreme Personality of Godhead.
 
 **One should practice nonviolence and truthfulness, should avoid thieving and be satisfied with possessing as much as he needs for his maintenance. He should abstain from sex life, perform austerity, be clean, study the Vedas and worship the supreme form of the Supreme Personality of Godhead.**
 

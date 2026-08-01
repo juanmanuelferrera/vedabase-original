@@ -8,7 +8,7 @@
 > svanuṣṭhitasya dharmasya\
 > saṁsiddhir hari-toṣaṇam
 
-*ataḥ*—so; *pumbhiḥ*—by the human being; *dvija-śreṣṭhāḥ*—O best among the twice-born; *varṇa-āśrama*—institution of four castes and orders of life; *vibhāgaśaḥ*—by the division of; *svanuṣṭhitasya*—of one's own prescribed duties; *dharmasya*—occupational; *saṁsiddhiḥ*—highest perfection; *hari*—the Personality of Godhead; *toṣaṇam*—pleasing.
+*ataḥ*—so; *pumbhiḥ*—by the human being; *dvija-śreṣṭhāḥ*—O best among the twice-born; *varṇāśrama*—institution of four castes and orders of life; *vibhāgaśaḥ*—by the division of; *svanuṣṭhitasya*—of one's own prescribed duties; *dharmasya*—occupational; *saṁsiddhiḥ*—highest perfection; *hari*—the Personality of Godhead; *toṣaṇam*—pleasing.
 
 **O best among the twiceborn, it is therefore concluded that the highest perfection one can achieve, by discharging his prescribed duties [dharma] according to caste divisions and order of life, is to please the Lord Hari.**
 

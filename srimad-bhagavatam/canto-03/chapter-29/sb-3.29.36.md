@@ -8,7 +8,7 @@
 > paraṁ pradhānaṁ puruṣaṁ\
 > daivaṁ karma-viceṣṭitam
 
-*etat*—this; *bhagavataḥ*—of the Supreme Personality of Godhead; *rūpam*—form; *brahmaṇaḥ*—of Brahman; *parama-ātmanaḥ*—of Paramātmā; *param*—transcendental; *pradhānam*—chief; *puruṣam*—personality; *daivam*—spiritual; *karma-viceṣṭitam*—whose activities.
+*etat*—this; *bhagavataḥ*—of the Supreme Personality of Godhead; *rūpam*—form; *brahmaṇaḥ*—of Brahman; *paramātmanaḥ*—of Paramātmā; *param*—transcendental; *pradhānam*—chief; *puruṣam*—personality; *daivam*—spiritual; *karma-viceṣṭitam*—whose activities.
 
 **This puruṣa whom the individual soul must approach is the eternal form of the Supreme Personality of Godhead, who is known as Brahman and Paramātmā. He is the transcendental chief personality, and His activities are all spiritual.**
 

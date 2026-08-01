@@ -8,7 +8,7 @@
 > nāntaṁ guṇānām aguṇasya jagmur\
 > yogeśvarā ye bhava-pādma-mukhyāḥ
 
-*kaḥ*—who is he; *nāma*—specifically; *tṛpyet*—get full satisfaction; *rasa-vit*—expert in relishing mellow nectar; *kathāyām*—in the topics of; *mahat-tama*—the greatest amongst the living beings; *ekānta*—exclusively; *parāyaṇasya*—of one who is the shelter of; *na*—never; *antam*—end; *guṇānām*—of attributes; *aguṇasya*—of the Transcendence; *jagmuḥ*—could ascertain; *yoga-īśvarāḥ*—the lords of mystic power; *ye*—all they; *bhava*—Lord Śiva; *pādma*—Lord Brahmā; *mukhyāḥ*—heads.
+*kaḥ*—who is he; *nāma*—specifically; *tṛpyet*—get full satisfaction; *rasa-vit*—expert in relishing mellow nectar; *kathāyām*—in the topics of; *mahat-tama*—the greatest amongst the living beings; *ekānta*—exclusively; *parāyaṇasya*—of one who is the shelter of; *na*—never; *antam*—end; *guṇānām*—of attributes; *aguṇasya*—of the Transcendence; *jagmuḥ*—could ascertain; *yogeśvarāḥ*—the lords of mystic power; *ye*—all they; *bhava*—Lord Śiva; *pādma*—Lord Brahmā; *mukhyāḥ*—heads.
 
 **The Personality of Godhead Lord Kṛṣṇa [Govinda] is the exclusive shelter for all great living beings, and His transcendental attributes cannot even be measured by such masters of mystic powers as Lord Śiva and Lord Brahmā. Can anyone who is expert in relishing nectar [rasa] ever be fully satiated by hearing topics about Him?**
 

@@ -8,7 +8,7 @@
 > ādyo 'vatāro yatrāsau\
 > bhūta-grāmo vibhāvyate
 
-*eṣaḥ*—this; *hi*—certainly; *aśeṣa*—unlimited; *sattvānām*—living entities; *ātmā*—Self; *aṁśaḥ*—part; *parama-ātmanaḥ*—of the Supersoul; *ādyaḥ*—the first; *avatāraḥ*—incarnation; *yatra*—whereupon; *asau*—all those; *bhūta-grāmaḥ*—the aggregate creations; *vibhāvyate*—flourish.
+*eṣaḥ*—this; *hi*—certainly; *aśeṣa*—unlimited; *sattvānām*—living entities; *ātmā*—Self; *aṁśaḥ*—part; *paramātmanaḥ*—of the Supersoul; *ādyaḥ*—the first; *avatāraḥ*—incarnation; *yatra*—whereupon; *asau*—all those; *bhūta-grāmaḥ*—the aggregate creations; *vibhāvyate*—flourish.
 
 **The gigantic universal form of the Supreme Lord is the first incarnation and plenary portion of the Supersoul. He is the Self of an unlimited number of living entities, and in Him rests the aggregate creation, which thus flourishes.**
 

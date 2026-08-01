@@ -8,7 +8,7 @@
 > brahmāvarte yatra yajanti yajñair\
 > yajñeśvaraṁ yajña-vitāna-vijñāḥ
 
-*na*—not; *vartitavyam*—deserve to remain; *tat*—therefore; *adharma*—irreligiosity; *bandho*—friend; *dharmeṇa*—with religion; *satyena*—with truth; *ca*—also; *vartitavye*—being situated in; *brahma-āvarte*—place where sacrifice is performed; *yatra*—where; *yajanti*—duly perform; *yajñaiḥ*—by sacrifices or devotional services; *yajña-īśvaram*—unto the Supreme Lord, the Personality of Godhead; *yajña*—sacrifice; *vitāna*—spreading; *vijñāḥ*—experts.
+*na*—not; *vartitavyam*—deserve to remain; *tat*—therefore; *adharma*—irreligiosity; *bandho*—friend; *dharmeṇa*—with religion; *satyena*—with truth; *ca*—also; *vartitavye*—being situated in; *brahmāvarte*—place where sacrifice is performed; *yatra*—where; *yajanti*—duly perform; *yajñaiḥ*—by sacrifices or devotional services; *yajña-īśvaram*—unto the Supreme Lord, the Personality of Godhead; *yajña*—sacrifice; *vitāna*—spreading; *vijñāḥ*—experts.
 
 **Therefore, O friend of irreligion, you do not deserve to remain in a place where experts perform sacrifices according to truth and religious principles for the satisfaction of the Supreme Personality of Godhead.**
 

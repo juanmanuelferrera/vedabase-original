@@ -8,7 +8,7 @@
 > sarvato goptṛ santrāsān\
 > mṛtyor api jighāṁsataḥ
 
-*etat*—this; *vapuḥ*—body; *te*—Your; *bhagavan*—O Supreme Personality of Godhead; *dhyāyataḥ*—those who meditate upon; *parama-ātmanaḥ*—of the Supreme Person; *sarvataḥ*—from everywhere; *goptṛ*—the protector; *santrāsāt*—from all kinds of fear; *mṛtyoḥ api*—even from fear of death; *jighāṁsataḥ*—if one is envied by an enemy.
+*etat*—this; *vapuḥ*—body; *te*—Your; *bhagavan*—O Supreme Personality of Godhead; *dhyāyataḥ*—those who meditate upon; *paramātmanaḥ*—of the Supreme Person; *sarvataḥ*—from everywhere; *goptṛ*—the protector; *santrāsāt*—from all kinds of fear; *mṛtyoḥ api*—even from fear of death; *jighāṁsataḥ*—if one is envied by an enemy.
 
 **My dear Lord, O Supreme Personality of Godhead, You are the Supreme Soul. If one meditates upon Your transcendental body, You naturally protect him from all sources of fear, even the imminent danger of death.**
 

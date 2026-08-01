@@ -8,7 +8,7 @@
 > yatropagīyate nityaṁ\
 > deva-devo janārdanaḥ
 
-*durāpā*—rarely obtainable; *hi*—certainly; *alpa-tapasaḥ*—of one whose austerity is meager; *sevā*—service; *vaikuṇṭha*—the transcendental kingdom of God; *vartmasu*—on the path of; *yatra*—wherein; *upagīyate*—is glorified; *nityam*—always; *deva*—Lord; *devaḥ*—of the demigods; *jana-ardanaḥ*—the controller of the living entities.
+*durāpā*—rarely obtainable; *hi*—certainly; *alpa-tapasaḥ*—of one whose austerity is meager; *sevā*—service; *vaikuṇṭha*—the transcendental kingdom of God; *vartmasu*—on the path of; *yatra*—wherein; *upagīyate*—is glorified; *nityam*—always; *deva*—Lord; *devaḥ*—of the demigods; *janārdanaḥ*—the controller of the living entities.
 
 **Persons whose austerity is meager can hardly obtain the service of the pure devotees who are progressing on the path back to the kingdom of Godhead, the Vaikuṇṭhas. Pure devotees engage one hundred percent in glorifying the Supreme Lord, who is the Lord of the demigods and the controller of all living entities.**
 

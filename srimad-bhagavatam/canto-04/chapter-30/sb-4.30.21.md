@@ -10,7 +10,7 @@
 > tad-darśana-dhvasta-tamo-rajo-malā\
 > girāgṛṇan gadgadayā suhṛttamam
 
-*maitreyaḥ uvāca*—Maitreya said; *evam*—thus; *bruvāṇam*—speaking; *puruṣa-artha*—of the ultimate goal of life; *bhājanam*—the bestower; *jana-ardanam*—who takes away all the disadvantages of the devotee; *prāñjalayaḥ*—with folded hands; *pracetasaḥ*—the Pracetā brothers; *tat*—Him; *darśana*—by seeing; *dhvasta*—dissipated; *tamaḥ*—of darkness; *rajaḥ*—of passion; *malāḥ*—whose contamination; *girā*—with a voice; *agṛṇan*—offered prayers; *gadgadayā*—faltering; *suhṛt-tamam*—unto the greatest of all friends.
+*maitreyaḥ uvāca*—Maitreya said; *evam*—thus; *bruvāṇam*—speaking; *puruṣa-artha*—of the ultimate goal of life; *bhājanam*—the bestower; *janārdanam*—who takes away all the disadvantages of the devotee; *prāñjalayaḥ*—with folded hands; *pracetasaḥ*—the Pracetā brothers; *tat*—Him; *darśana*—by seeing; *dhvasta*—dissipated; *tamaḥ*—of darkness; *rajaḥ*—of passion; *malāḥ*—whose contamination; *girā*—with a voice; *agṛṇan*—offered prayers; *gadgadayā*—faltering; *suhṛt-tamam*—unto the greatest of all friends.
 
 **The great sage Maitreya said: After the Personality of Godhead spoke thus, the Pracetās began to offer Him prayers. The Lord is the bestower of all success in life and is the supreme benefactor. He is also the supreme friend who takes away all miserable conditions experienced by a devotee. In a faltering voice, due to ecstasy, the Pracetās began to offer prayers. They were purified by the presence of the Lord, who was before them face to face.**
 

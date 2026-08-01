@@ -8,7 +8,7 @@
 > śaktyā yukto vicarati\
 > ghorayā bhagavān bhavaḥ
 
-*ātma-ārāmaḥ*—self-satisfied; *api*—although he is; *yaḥ*—one who is; *tu*—but; *asya*—this; *loka*—material world; *kalpasya*—when manifested; *rādhase*—for the matter of helping its existence; *śaktyā*—potencies; *yuktaḥ*—being engaged; *vicarati*—he acts; *ghorayā*—very dangerous; *bhagavān*—His Lordship; *bhavaḥ*—Śiva.
+*ātmārāmaḥ*—self-satisfied; *api*—although he is; *yaḥ*—one who is; *tu*—but; *asya*—this; *loka*—material world; *kalpasya*—when manifested; *rādhase*—for the matter of helping its existence; *śaktyā*—potencies; *yuktaḥ*—being engaged; *vicarati*—he acts; *ghorayā*—very dangerous; *bhagavān*—His Lordship; *bhavaḥ*—Śiva.
 
 **Lord Śiva, the most powerful demigod, second only to Lord Viṣṇu, is self-sufficient. Although he has nothing to aspire for in the material world, for the benefit of those in the material world he is always busily engaged everywhere and is accompanied by his dangerous energies like Goddess Kālī and Goddess Durgā.**
 

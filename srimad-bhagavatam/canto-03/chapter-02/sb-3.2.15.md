@@ -8,7 +8,7 @@
 > parāvareśo mahad-aṁśa-yukto\
 > hy ajo 'pi jāto bhagavān yathāgniḥ
 
-*sva-śānta-rūpeṣu*—unto the peaceful devotees of the Lord; *itaraiḥ*—others, nondevotees; *sva-rūpaiḥ*—according to their own modes of nature; *abhyardyamāneṣu*—being harrassed by; *anukampita-ātmā*—the all-compassionate Lord; *para-avara*—spiritual and material; *īśaḥ*—controller; *mahat-aṁśa-yuktaḥ*—accompanied by the plenary portion of *mahat-tattva*; *hi*—certainly; *ajaḥ*—the unborn; *api*—although; *jātaḥ*—be born; *bhagavān*—the Personality of Godhead; *yathā*—as if; *agniḥ*—the fire.
+*sva-śānta-rūpeṣu*—unto the peaceful devotees of the Lord; *itaraiḥ*—others, nondevotees; *sva-rūpaiḥ*—according to their own modes of nature; *abhyardyamāneṣu*—being harrassed by; *anukampita-ātmā*—the all-compassionate Lord; *parāvara*—spiritual and material; *īśaḥ*—controller; *mahat-aṁśa-yuktaḥ*—accompanied by the plenary portion of *mahat-tattva*; *hi*—certainly; *ajaḥ*—the unborn; *api*—although; *jātaḥ*—be born; *bhagavān*—the Personality of Godhead; *yathā*—as if; *agniḥ*—the fire.
 
 **The Personality of Godhead, the all-compassionate controller of both the spiritual and material creations, is unborn, but when there is friction between His peaceful devotees and persons who are in the material modes of nature, He takes birth just like fire, accompanied by the mahat-tattva.**
 

@@ -8,7 +8,7 @@
 > śiśayiṣor anuprāṇaṁ\
 > viviśe 'ntar ahaṁ vibhoḥ
 
-*kalpa-ante*—at the end of Brahmā's day; *idam*—this; *ādāya*—taking together; *śayāne*—having gone to lie down; *ambhasi*—in the causal water; *udanvataḥ*—devastation; *śiśayiṣoḥ*—lying of the Personality of Godhead (Nārāyaṇa); *anuprāṇam*—breathing; *viviśe*—entered into; *antaḥ*—within; *aham*—I; *vibhoḥ*—of Lord Brahmā.
+*kalpānte*—at the end of Brahmā's day; *idam*—this; *ādāya*—taking together; *śayāne*—having gone to lie down; *ambhasi*—in the causal water; *udanvataḥ*—devastation; *śiśayiṣoḥ*—lying of the Personality of Godhead (Nārāyaṇa); *anuprāṇam*—breathing; *viviśe*—entered into; *antaḥ*—within; *aham*—I; *vibhoḥ*—of Lord Brahmā.
 
 **At the end of the millennium, when the Personality of Godhead Lord Nārāyaṇa lies down within the water of devastation, Brahmā begins to enter into Him along with all creative elements, and I also enter through His breathing.**
 

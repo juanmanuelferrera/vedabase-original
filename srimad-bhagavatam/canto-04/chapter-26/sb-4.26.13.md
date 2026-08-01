@@ -8,7 +8,7 @@
 > na vyacaṣṭa varārohāṁ\
 > gṛhiṇīṁ gṛha-medhinīm
 
-*tṛptaḥ*—satisfied; *hṛṣṭaḥ*—joyful; *su-dṛptaḥ*—being very proud; *ca*—also; *kandarpa*—by Cupid; *ākṛṣṭa*—attracted; *mānasaḥ*—his mind; *na*—did not; *vyacaṣṭa*—try; *vara-ārohām*—higher consciousness; *gṛhiṇīm*—wife; *gṛha-medhinīm*—one who keeps her husband in material life.
+*tṛptaḥ*—satisfied; *hṛṣṭaḥ*—joyful; *su-dṛptaḥ*—being very proud; *ca*—also; *kandarpa*—by Cupid; *ākṛṣṭa*—attracted; *mānasaḥ*—his mind; *na*—did not; *vyacaṣṭa*—try; *varārohām*—higher consciousness; *gṛhiṇīm*—wife; *gṛha-medhinīm*—one who keeps her husband in material life.
 
 **After taking his dinner and having his thirst and hunger satisfied, King Purañjana felt some joy within his heart. Instead of being elevated to a higher consciousness, he became captivated by Cupid, and was moved by a desire to find his wife, who kept him satisfied in his household life.**
 

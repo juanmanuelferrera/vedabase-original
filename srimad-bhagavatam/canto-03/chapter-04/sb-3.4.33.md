@@ -8,7 +8,7 @@
 > krīḍayopātta-dehasya\
 > karmāṇi ślāghitāni ca
 
-*viduraḥ*—Vidura; *api*—also; *uddhavāt*—from the source of Uddhava; *śrutvā*—having heard; *kṛṣṇasya*—of Lord Kṛṣṇa; *parama-ātmanaḥ*—of the Supersoul; *krīḍayā*—for the sake of pastimes in the mortal world; *upātta*—extraordinarily accepted; *dehasya*—of the body; *karmāṇi*—transcendental activities; *ślāghitāni*—most glorious; *ca*—also.
+*viduraḥ*—Vidura; *api*—also; *uddhavāt*—from the source of Uddhava; *śrutvā*—having heard; *kṛṣṇasya*—of Lord Kṛṣṇa; *paramātmanaḥ*—of the Supersoul; *krīḍayā*—for the sake of pastimes in the mortal world; *upātta*—extraordinarily accepted; *dehasya*—of the body; *karmāṇi*—transcendental activities; *ślāghitāni*—most glorious; *ca*—also.
 
 **Vidura also heard from Uddhava about the appearance and disappearance of Lord Kṛṣṇa, the Supersoul, in the mortal world, which is a subject matter sought after with great perseverance by the great sages.**
 

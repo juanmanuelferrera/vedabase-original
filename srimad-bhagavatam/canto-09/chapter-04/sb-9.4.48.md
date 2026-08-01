@@ -8,7 +8,7 @@
 > dadāha kṛtyāṁ tāṁ cakraṁ\
 > kruddhāhim iva pāvakaḥ
 
-*prāk diṣṭam*—as previously arranged; *bhṛtya-rakṣāyām*—for the protection of his servants; *puruṣeṇa*—by the Supreme Person; *mahā-ātmanā*—by the Supersoul; *dadāha*—burnt to ashes; *kṛtyām*—that created demon; *tām*—him; *cakram*—the disc; *kruddha*—angry; *ahim*—a serpent; *iva*—like; *pāvakaḥ*—fire.
+*prāk diṣṭam*—as previously arranged; *bhṛtya-rakṣāyām*—for the protection of his servants; *puruṣeṇa*—by the Supreme Person; *mahātmanā*—by the Supersoul; *dadāha*—burnt to ashes; *kṛtyām*—that created demon; *tām*—him; *cakram*—the disc; *kruddha*—angry; *ahim*—a serpent; *iva*—like; *pāvakaḥ*—fire.
 
 **As fire in the forest immediately burns to ashes an angry snake, so, by the previous order of the Supreme Personality of Godhead, His disc, the Sudarśana cakra, immediately burnt to ashes the created demon to protect the Lord's devotee.**
 

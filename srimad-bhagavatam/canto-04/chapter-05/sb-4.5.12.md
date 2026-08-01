@@ -8,7 +8,7 @@
 > utpetur utpātatamāḥ sahasraśo\
 > bhayāvahā divi bhūmau ca paryak
 
-*bahu*—much; *evam*—in this manner; *udvigna-dṛśā*—with nervous glances; *ucyamāne*—while this was being said; *janena*—by the persons (assembled at the sacrifice); *dakṣasya*—of Dakṣa; *muhuḥ*—again and again; *mahā-ātmanaḥ*—stronghearted; *utpetuḥ*—appeared; *utpāta-tamāḥ*—very powerful symptoms; *sahasraśaḥ*—by the thousands; *bhaya-āvahāḥ*—producing fear; *divi*—in the sky; *bhūmau*—on the earth; *ca*—and; *paryak*—from all sides.
+*bahu*—much; *evam*—in this manner; *udvigna-dṛśā*—with nervous glances; *ucyamāne*—while this was being said; *janena*—by the persons (assembled at the sacrifice); *dakṣasya*—of Dakṣa; *muhuḥ*—again and again; *mahātmanaḥ*—stronghearted; *utpetuḥ*—appeared; *utpāta-tamāḥ*—very powerful symptoms; *sahasraśaḥ*—by the thousands; *bhaya-āvahāḥ*—producing fear; *divi*—in the sky; *bhūmau*—on the earth; *ca*—and; *paryak*—from all sides.
 
 **While everyone was talking amongst themselves, Dakṣa saw dangerous omens from all sides, from the earth and from the sky.**
 

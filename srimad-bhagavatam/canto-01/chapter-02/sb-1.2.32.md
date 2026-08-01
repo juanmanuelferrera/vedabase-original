@@ -8,7 +8,7 @@
 > nāneva bhāti viśvātmā\
 > bhūteṣu ca tathā pumān
 
-*yathā*—as much as; *hi*—exactly like; *avahitaḥ*—surcharged with; *vahniḥ*—fire; *dāruṣu*—in wood; *ekaḥ*—one; *sva-yoniṣu*—the source of manifestation; *nānā iva*—like different entities; *bhāti*—illuminates; *viśva-ātmā*—the Lord as Paramātmā; *bhūteṣu*—in the living entities; *ca*—and; *tathā*—in the same way; *pumān*—the Absolute Person.
+*yathā*—as much as; *hi*—exactly like; *avahitaḥ*—surcharged with; *vahniḥ*—fire; *dāruṣu*—in wood; *ekaḥ*—one; *sva-yoniṣu*—the source of manifestation; *nānā iva*—like different entities; *bhāti*—illuminates; *viśvātmā*—the Lord as Paramātmā; *bhūteṣu*—in the living entities; *ca*—and; *tathā*—in the same way; *pumān*—the Absolute Person.
 
 **The Lord, as Supersoul, pervades all things, just as fire permeates wood, and so He appears to be of many varieties, though He is the absolute one without a second.**
 

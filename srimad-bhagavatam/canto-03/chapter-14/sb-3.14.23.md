@@ -8,7 +8,7 @@
 > caranti yasyāṁ bhūtāni\
 > bhūteśānucarāṇi ha
 
-*eṣā*—this time; *ghora-tamā*—most horrible; *velā*—period; *ghorāṇām*—of the horrible; *ghora-darśanā*—horrible looking; *caranti*—move; *yasyām*—in which; *bhūtāni*—ghosts; *bhūta-īśa*—the lord of the ghosts; *anucarāṇi*—constant companions; *ha*—indeed.
+*eṣā*—this time; *ghora-tamā*—most horrible; *velā*—period; *ghorāṇām*—of the horrible; *ghora-darśanā*—horrible looking; *caranti*—move; *yasyām*—in which; *bhūtāni*—ghosts; *bhūteśa*—the lord of the ghosts; *anucarāṇi*—constant companions; *ha*—indeed.
 
 **This particular time is most inauspicious because at this time the horrible-looking ghosts and constant companions of the lord of the ghosts are visible.**
 

@@ -8,7 +8,7 @@
 > calat-pravāla-viṭapa-\
 > nalinī-taṭa-sampadi
 
-*hima-nirjhara*—from the icy mountain waterfall; *vipruṣ-mat*—carrying particles of water; *kusuma-ākara*—springtime; *vāyunā*—by the air; *calat*—moving; *pravāla*—branches; *viṭapa*—trees; *nalinī-taṭa*—on the bank of the lake with lotus flowers; *sampadi*—opulent.
+*hima-nirjhara*—from the icy mountain waterfall; *vipruṣ-mat*—carrying particles of water; *kusumākara*—springtime; *vāyunā*—by the air; *calat*—moving; *pravāla*—branches; *viṭapa*—trees; *nalinī-taṭa*—on the bank of the lake with lotus flowers; *sampadi*—opulent.
 
 **The branches of the trees standing on the bank of the lake received particles of water carried by the spring air from the falls coming down from the icy mountain.**
 

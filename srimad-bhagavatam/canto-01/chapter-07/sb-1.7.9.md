@@ -10,7 +10,7 @@
 > kasya vā bṛhatīm etām\
 > ātmārāmaḥ samabhyasat
 
-*śaunakaḥ uvāca*—Śrī Śaunaka asked; *saḥ*—he; *vai*—of course; *nivṛtti*—on the path of self-realization; *nirataḥ*—always engaged; *sarvatra*—in every respect; *upekṣakaḥ*—indifferent; *muniḥ*—sage; *kasya*—for what reason; *vā*—or; *bṛhatīm*—vast; *etām*—this; *ātma-ārāmaḥ*—one who is pleased in himself; *samabhyasat*—undergo the studies.
+*śaunakaḥ uvāca*—Śrī Śaunaka asked; *saḥ*—he; *vai*—of course; *nivṛtti*—on the path of self-realization; *nirataḥ*—always engaged; *sarvatra*—in every respect; *upekṣakaḥ*—indifferent; *muniḥ*—sage; *kasya*—for what reason; *vā*—or; *bṛhatīm*—vast; *etām*—this; *ātmārāmaḥ*—one who is pleased in himself; *samabhyasat*—undergo the studies.
 
 **Śrī Śaunaka asked Sūta Gosvāmī: Śrī Śukadeva Gosvāmī was already on the path of self-realization, and thus he was pleased with his own self. So why did he take the trouble to undergo the study of such a vast literature?**
 

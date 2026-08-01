@@ -8,7 +8,7 @@
 > tri-vargaupayikaṁ nītvā\
 > putrāyādān nṛpāsanam
 
-*evam*—thus; *bahu*—many; *savam*—years; *kālam*—time; *mahā-ātmā*—great soul; *avicala-indriyaḥ*—without being disturbed by sense agitation; *tri-varga*—three kinds of worldly activities; *aupayikam*—favorable for executing; *nītvā*—having passed; *putrāya*—to his son; *adāt*—he handed over; *nṛpa-āsanam*—the royal throne.
+*evam*—thus; *bahu*—many; *savam*—years; *kālam*—time; *mahātmā*—great soul; *avicala-indriyaḥ*—without being disturbed by sense agitation; *tri-varga*—three kinds of worldly activities; *aupayikam*—favorable for executing; *nītvā*—having passed; *putrāya*—to his son; *adāt*—he handed over; *nṛpa-āsanam*—the royal throne.
 
 **The self-controlled great soul Dhruva Mahārāja thus passed many, many years favorably executing three kinds of worldly activities, namely religiosity, economic development and satisfaction of all material desires. Thereafter he handed over the charge of the royal throne to his son.**
 

@@ -8,7 +8,7 @@
 > kim anyaiḥ kāla-nirdhūtaiḥ\
 > kalpānte vaiṣṇavādibhiḥ
 
-*anyathā*—just the opposite; *idam*—this universe; *vidhāsye*—shall make; *aham*—I; *ayathā*—inappropriate; *pūrvam*—as it was before; *ojasā*—by dint of the power of my austerity; *kim*—what use; *anyaiḥ*—with other; *kāla-nirdhūtaiḥ*—vanquished in due course of time; *kalpa-ante*—at the end of the millennium; *vaiṣṇava-ādibhiḥ*—with planets like Dhruvaloka or Vaikuṇṭhaloka.
+*anyathā*—just the opposite; *idam*—this universe; *vidhāsye*—shall make; *aham*—I; *ayathā*—inappropriate; *pūrvam*—as it was before; *ojasā*—by dint of the power of my austerity; *kim*—what use; *anyaiḥ*—with other; *kāla-nirdhūtaiḥ*—vanquished in due course of time; *kalpānte*—at the end of the millennium; *vaiṣṇava-ādibhiḥ*—with planets like Dhruvaloka or Vaikuṇṭhaloka.
 
 **"By dint of my severe austerities, I shall reverse the results of pious and impious activities. I shall overturn all the established practices within this world. Even Dhruvaloka will be vanquished at the end of the millennium. Therefore, what is the use of it? I shall prefer to remain in the position of Brahmā."**
 

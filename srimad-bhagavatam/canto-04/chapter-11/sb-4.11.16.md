@@ -8,7 +8,7 @@
 > guṇa-vyatikarād rājan\
 > māyayā paramātmanaḥ
 
-*evam*—thus; *pravartate*—occurs; *sargaḥ*—creation; *sthitiḥ*—maintenance; *saṁyamaḥ*—annihilation; *eva*—certainly; *ca*—and; *guṇa*—of the modes; *vyatikarāt*—by interaction; *rājan*—O King; *māyayā*—by the illusory energy; *parama-ātmanaḥ*—of the Supreme Personality of Godhead.
+*evam*—thus; *pravartate*—occurs; *sargaḥ*—creation; *sthitiḥ*—maintenance; *saṁyamaḥ*—annihilation; *eva*—certainly; *ca*—and; *guṇa*—of the modes; *vyatikarāt*—by interaction; *rājan*—O King; *māyayā*—by the illusory energy; *paramātmanaḥ*—of the Supreme Personality of Godhead.
 
 **Manu continued: My dear King Dhruva, it is simply by the illusory material energy of the Supreme Personality of Godhead and by the interaction of the three modes of material nature that creation, maintenance and annihilation take place.**
 
