@@ -8,4 +8,4 @@
 
 *vṛkṣera*—of the tree; *dvitīya skandha*—the second big branch; *ācārya-gosāñi*—Śrī Advaita Ācārya Gosvāmī; *tāṅra*—His; *yata*—all; *śākhā*—branches; *ha-ila*—became; *tāra*—of that; *lekhā*—description; *nāñi*—there is not.
 
-**Śrī Advaita Prabhu was the second big branch of the tree. There are many subbranches, but it is impossible to mention them all.**
+**Śrī Advaita Prabhu was the second big branch of the tree. There are many sub-branches, but it is impossible to mention them all.**

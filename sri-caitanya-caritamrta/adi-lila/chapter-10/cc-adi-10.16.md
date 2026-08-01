@@ -6,6 +6,6 @@
 > tāṅra śiṣya-upaśiṣya,—tāṅra upaśākhā\
 > eimata saba śākhā-upaśākhāra lekhā
 
-*tāṅra*—his; *śiṣya*—disciples; *upaśiṣya*—granddisciples and admirers; *tāṅra*—his; *upaśākhā*—subbranches; *eimata*—in this way; *saba*—all; *śākhā*—branches; *upaśākhāra*—subbranches; *lekhā*—to describe by writing.
+*tāṅra*—his; *śiṣya*—disciples; *upaśiṣya*—granddisciples and admirers; *tāṅra*—his; *upaśākhā*—sub-branches; *eimata*—in this way; *saba*—all; *śākhā*—branches; *upaśākhāra*—sub-branches; *lekhā*—to describe by writing.
 
-**His disciples and granddisciples are his subbranches. To describe them all would be difficult.**
+**His disciples and granddisciples are his sub-branches. To describe them all would be difficult.**

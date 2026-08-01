@@ -6,7 +6,7 @@
 > śaṅkarāraṇya—ācārya-vṛkṣera eka śākhā\
 > mukunda, kāśīnātha, rudra—upaśākhā lekhā
 
-*śaṅkarāraṇya*—of the name Śaṅkarāraṇya; *ācārya-vṛkṣera*—of the tree of *ācāryas*; *eka*—one; *śākhā*—branch; *mukunda*—of the name Mukunda; *kāśīnātha*—of the name Kāśīnātha; *rudra*—of the name Rudra; *upaśākhā lekhā*—they are known as subbranches.
+*śaṅkarāraṇya*—of the name Śaṅkarāraṇya; *ācārya-vṛkṣera*—of the tree of *ācāryas*; *eka*—one; *śākhā*—branch; *mukunda*—of the name Mukunda; *kāśīnātha*—of the name Kāśīnātha; *rudra*—of the name Rudra; *upaśākhā lekhā*—they are known as sub-branches.
 
 **The ācārya Śaṅkarāraṇya was considered the forty-eighth branch of the original tree. From him proceeded sub-branches known as Mukunda, Kāśīnātha and Rudra.**
 
