@@ -6,7 +6,7 @@
 > se-saba sāmagrī āge kariba vistāra\
 > yāhāra śravaṇe bhaktera vahe aśrudhāra
 
-*se-saba*—all these things; *sāmagrī*—ingredients of the foodstuffstuffstuffstuffs; *āge*—further on; *kariba*—I shall describe; *vistāra*—vividly; *yāhāra*—of which; *śravaṇe*—by the hearing; *bhaktera*—of a devotee; *vahe*—flowing; *aśru-dhāra*—tears.
+*se-saba*—all these things; *sāmagrī*—ingredients of the foodstuffs; *āge*—further on; *kariba*—I shall describe; *vistāra*—vividly; *yāhāra*—of which; *śravaṇe*—by the hearing; *bhaktera*—of a devotee; *vahe*—flowing; *aśru-dhāra*—tears.
 
 **I shall describe the contents of the bags of Rāghava Paṇḍita later in this book. Hearing this narration, devotees generally cry, and tears glide down from their eyes.**
 
