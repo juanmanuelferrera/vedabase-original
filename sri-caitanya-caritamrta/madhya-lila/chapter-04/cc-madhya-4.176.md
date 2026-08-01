@@ -7,4 +7,4 @@
 
 *mleccha-deśe*—through the countries where Mohammedans ruled; *karpūra-candana*—camphor and sandalwood; *ānite*—to bring; *jañjāla*—inconvenience; *purī*—Mādhavendra Purī; *duḥkha*—unhappiness; *pābe*—will get; *ihā*—this; *jāniyā*—knowing; *gopāla*—Gopāla.
 
-**"In the provinces of India governed by the Muslims, there was much inconvenience in traveling with sandalwood and camphor. Because of this, Mādhavendra Purī might have gotten into trouble. This became known to the Gopāla Deity.**
+**"In the provinces of India governed by the Mohammedans, there was much inconvenience in traveling with sandalwood and camphor. Because of this, Mādhavendra Purī might have gotten into trouble. This became known to the Gopāla Deity.**
