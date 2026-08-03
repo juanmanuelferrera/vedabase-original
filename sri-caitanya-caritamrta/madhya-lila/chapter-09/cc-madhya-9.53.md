@@ -19,4 +19,4 @@ The word *apavitra anna* refers to food that is unacceptable for a Vaiṣṇava.
 
 "If one offers Me with love and devotion a leaf, a flower, a fruit or water, I will accept it."
 
-Kṛṣṇa can accept anything offered by His devotee with devotion. An *avaiṣṇava* may be a vegetarian and a very clean cook, but because he cannot offer the food he cooks to Viṣṇu, it cannot be accepted as *mahā-prasāda.* It is better that a Vaiṣṇava abandon such food as untouchable.
+Kṛṣṇa can accept anything offered by His devotee with devotion. An *avaiṣṇava* may be a vegetarian and a very clean cook, but because he cannot offer the foodstuff to Viṣṇu, the food he cooks cannot be accepted as *mahā-prasāda.* It is better that a Vaiṣṇava abandon such food as untouchable.

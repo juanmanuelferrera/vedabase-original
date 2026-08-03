@@ -11,7 +11,7 @@
 > tāṅra upadeśa-mantre piśācī palāya\
 > kṛṣṇa-bhakti pāya, tabe kṛṣṇa-nikaṭa yāya
 
-*kāma*—of lusty desires; *krodhera*—and of anger; *dāsa*—the servant; *hañā*—becoming; *tāra*—by them; *lāthi khāya*—is kicked; *bhramitebhramite*—wandering and wandering; *yadi*—if; *sādhu*—a devotee; *vaidya*—physician; *pāya*—he gets; *tāṅra*—his; *upadeśa-mantre*—by instruction and hymns; *piśācī*—the witch (the external energy); *palāya*—flees; *kṛṣṇa-bhakti*—devotional service to Kṛṣṇa; *pāya*—obtains; *tabe*—in this way; *kṛṣṇa-nikaṭa yāya*—he goes to Kṛṣṇa.
+*kāma*—of lusty desires; *krodhera*—and of anger; *dāsa*—the servant; *hañā*—becoming; *tāra*—by them; *lāthi khāya*—is kicked; *bhramite bhramite*—wandering and wandering; *yadi*—if; *sādhu*—a devotee; *vaidya*—physician; *pāya*—he gets; *tāṅra*—his; *upadeśa-mantre*—by instruction and hymns; *piśācī*—the witch (the external energy); *palāya*—flees; *kṛṣṇa-bhakti*—devotional service to Kṛṣṇa; *pāya*—obtains; *tabe*—in this way; *kṛṣṇa-nikaṭa yāya*—he goes to Kṛṣṇa.
 
 **"In this way the conditioned soul becomes the servant of lusty desires, and when these are not fulfilled, he becomes a servant of anger and continues to be kicked by the external energy, māyā. Wandering and wandering throughout the universe, he may by chance get the association of a devotee physician, whose instructions and hymns make the witch of external energy flee. The conditioned soul thus gets into touch with the devotional service of Lord Kṛṣṇa, and in this way he can approach nearer and nearer to the Lord.**
 

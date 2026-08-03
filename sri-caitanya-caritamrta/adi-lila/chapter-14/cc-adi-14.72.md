@@ -8,4 +8,4 @@
 
 *eka-dina*—one day; *śacī-devī*—mother Śacī; *putrere*—unto the son; *bhartsiyā*—rebuking; *dharibāre*—to catch Him; *gelā*—went; *putra*—the son; *gelā*—went; *palāiyā*—running away.
 
-**One day mother Śacī went to catch her son, wanting to rebuke Him, but He fled from the spot.**
+**One day mother Śacī, wanting to rebuke her son, went to catch Him, but He fled from the spot.**

@@ -10,6 +10,8 @@
 
 **A characteristic of a pure devotee is that he excuses any offense by an ignorant rascal. The characteristic of Kṛṣṇa, however, is that He cannot tolerate blasphemy of His devotees.**
 
+Śrī Caitanya Mahāprabhu taught:
+
 *tṛṇād api sunīcena \\
 taror api sahiṣṇunā \\
 amāninā mānadena \\

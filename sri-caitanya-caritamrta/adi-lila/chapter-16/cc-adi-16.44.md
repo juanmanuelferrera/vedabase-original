@@ -19,6 +19,6 @@ To become a *śruti-dhara,* one who can remember simply by hearing, is a great a
 > tat tad evāvagaccha tvaṁ
 > mama tejo-'ṁśa-sambhavam
 
-"Know that all beautiful, glorious creations spring from but a spark of My splendor." [[bg/10/41|(Bg. 10.41)]]
+"Know that all beautiful, glorious and mighty creations spring from but a spark of My splendor." [[bg/10/41|(Bg. 10.41)]]
 
 As soon as we find anything extraordinary, we should understand that such an extraordinary manifestation is the special grace of the Supreme Personality of Godhead. Therefore Lord Caitanya Mahāprabhu replied to the champion, Keśava Kāśmīrī, that just as he was greatly proud of being a favorite devotee of mother Sarasvatī, so someone else, like He Himself, being favored by the Supreme Personality of Godhead, could become a *śruti-dhara* and thus memorize anything immediately simply by hearing it.

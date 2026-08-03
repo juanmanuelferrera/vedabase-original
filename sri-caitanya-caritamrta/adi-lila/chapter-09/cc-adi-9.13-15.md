@@ -20,7 +20,7 @@
 
 **Paramānanda Purī, Keśava Bhāratī, Brahmānanda Purī and Brahmānanda Bhāratī, Śrī Viṣṇu Purī, Keśava Purī, Kṛṣṇānanda Purī, Śrī Nṛsiṁha Tīrtha and Sukhānanda Purī—these nine sannyāsī roots all sprouted from the trunk of the tree. Thus the tree stood steadfastly on the strength of these nine roots.**
 
-*Paramānanda Purī:* Paramānanda Purī belonged to a *brāhmaṇa* family of the Trihut district in Uttara Pradesh. Mādhavendra Purī was his spiritual master. In relationship with Mādhavendra Purī, Paramānanda Purī was very dear to Śrī Caitanya Mahāprabhu. In the *Caitanya-bhāgavata, Antya-līlā,* there is the following statement:
+*Paramānanda Purī:* Paramānanda Purī belonged to a *brāhmaṇa* family of the Trihut district in Uttara Pradesh. Mādhavendra Purī was his spiritual master. In relationship with Mādhavendra Purī, Paramānanda Purī was very dear to Śrī Caitanya Mahāprabhu. In the *Caitanya-bhāgavata, Antya-līlā,* Chapter Eleven, there is the following statement:
 
 > sannyāsīra madhye īśvarera priya-pātra
 > āra nāhi eka purī gosāñi se mātra

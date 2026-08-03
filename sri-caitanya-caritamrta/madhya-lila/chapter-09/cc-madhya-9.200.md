@@ -10,4 +10,4 @@
 
 **There, among the brāhmaṇas, Śrī Caitanya Mahāprabhu heard the Kūrma Purāṇa, wherein was mentioned the chaste woman's narration.**
 
-Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura remarks that only two *khaṇḍas* of the *Kūrma Purāṇa* are now available, namely the *Pūrva-khaṇḍa* and *Uttara-khaṇḍa.* Sometimes it is said that the *Kūrma Purāṇa* contains six thousand verses, but originally the *Kūrma Purāṇa* contained seventeen thousand verses. According to *Śrīmad-Bhāgavatam,* there are seventeen thousand verses in the *Kūrma Purāṇa,* which is one of the eighteen *Mahā-purāṇas.* The *Kūrma Purāṇa* is considered the fifteenth of these *Mahā-purāṇas.*
+Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura remarks that in the *Kūrma Purāṇa* there are only two *khaṇḍas,* namely the *Pūrva-khaṇḍa* and *Uttara-khaṇḍa.* Sometimes it is said that the *Kūrma Purāṇa* contains six thousand verses, but originally the *Kūrma Purāṇa* contains seventeen thousand verses. According to *Śrīmad-Bhāgavatam,* there are seventeen thousand verses in the *Kūrma Purāṇa,* which is one of the eighteen *Mahā-purāṇas.* The *Kūrma Purāṇa* is considered the fifteenth of these *Mahā-purāṇas.*

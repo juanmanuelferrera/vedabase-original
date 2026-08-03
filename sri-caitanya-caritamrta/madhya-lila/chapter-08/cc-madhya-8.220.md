@@ -8,4 +8,4 @@
 
 *sei*—that; *gopī*—of the *gopīs*; *bhāva-amṛte*—in the nectar of the ecstasy; *yāṅra*—whose; *lobha*—attachment; *haya*—is; *veda-dharma*—religious principles of the Vedas; *loka*—popular opinion; *tyaji'*—giving up; *se*—he; *kṛṣṇe*—unto Kṛṣṇa; *bhajaya*—renders loving service.
 
-**"One who is attracted by that ecstatic love of the gopīs does not care about popular opinion or the regulative principles of Vedic life. Rather, he completely surrenders unto Kṛṣṇa and renders service unto Him.**
+**"One who is attracted by that ecstatic love of the gopīs does not care about the regulative principles of Vedic life or popular opinion. Rather, he completely surrenders unto Kṛṣṇa and renders service unto Him.**

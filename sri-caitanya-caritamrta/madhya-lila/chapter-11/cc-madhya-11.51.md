@@ -10,7 +10,7 @@
 
 **Finally Sārvabhauma Bhaṭṭācārya said, "My dear King, do not worry. Because of your firm determination, I am sure that Śrī Caitanya Mahāprabhu's mercy will definitely be bestowed upon you."**
 
-Due to King Pratāparudra's firm determination, Bhaṭṭācārya predicted that the King would receive Śrī Caitanya Mahāprabhu's mercy without fail. As confirmed elsewhere in *Caitanya-caritāmṛta* [[cc/madhya/19/151|(Madhya 19.151)]], *guru-kṛṣṇa-prasāde pāya bhakti-latā-bīja:* "By the mercy of the spiritual master and Kṛṣṇa, one gets the seed of devotional service." Bhaṭṭācārya was supposed to be the spiritual master of King Pratāparudra, and he gave his blessings to the effect that the Lord would be merciful upon the King. The mercy of the spiritual master and Kṛṣṇa combine to grant success to a devotee engaged in Kṛṣṇa consciousness. This is confirmed by the *Vedas:*
+Due to King Pratāparudra's firm determination, Bhaṭṭācārya predicted that Śrī Caitanya Mahāprabhu's mercy would be there without fail. As confirmed elsewhere in *Caitanya-caritāmṛta* [[cc/madhya/19/151|(Madhya 19.151)]], *guru-kṛṣṇa-prasāde pāya bhakti-latā-bīja:* "By the mercy of the spiritual master and Kṛṣṇa, one gets the seed of devotional service." Bhaṭṭācārya was supposed to be the spiritual master of King Pratāparudra, and he gave his blessings to the effect that the Lord would be merciful upon the King. The mercy of the spiritual master and Kṛṣṇa combine to grant success to a devotee engaged in Kṛṣṇa consciousness. This is confirmed by the *Vedas:*
 
 > yasya deve parā bhaktir
 > yathā deve tathā gurau
