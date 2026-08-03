@@ -586,7 +586,7 @@ When a satellite is thrown into outer space, a child may not understand that the
 
 
 
-If living energy can be generated in the scientist's laboratory by "the interaction of certain physical and chemical combinations," then why haven't the boastful material scientists been able to manufacture life? They should know definitely that spiritual force is distinct from matter and that such energy is not possible to produce such energy by any amount of material adjustment. At present Russians and Americans are undoubtedly very much advanced in many departments of technological science, but they are still ignorant of the spiritual science. They will have to learn from superior intelligence in order to make a perfect and progressive human society.
+If living energy can be generated in the scientist's laboratory by "the interaction of certain physical and chemical combinations," then why haven't the boastful material scientists been able to manufacture life? They should know definitely that spiritual force is distinguished from matter and that it is not possible to produce such energy by any amount of material adjustment. At present Russians and Americans are undoubtedly very much advanced in many departments of technological science, but they are still ignorant of the spiritual science. They will have to learn from superior intelligence in order to make a perfect and progressive human society.
 
 
 
