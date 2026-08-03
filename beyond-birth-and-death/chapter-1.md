@@ -50,7 +50,7 @@ mātrā-sparśās tu kaunteya
 
 āgamāpāyino 'nityās
 
-tāṁs titikṣofva bhārata
+tāṁs titikṣasva bhārata
 
 
 
@@ -164,7 +164,7 @@ mātrā-sparśās tu kaunteya
 
 āgamāpāyino 'nityās
 
-tāṁs titikṣofva bhārata
+tāṁs titikṣasva bhārata
 
 
 
