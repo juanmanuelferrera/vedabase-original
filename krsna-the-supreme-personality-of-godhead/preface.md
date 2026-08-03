@@ -40,7 +40,7 @@ It is said in the *Bhagavad-gītā* that even a little effort expended on the pa
 
 My grateful acknowledgment is due to Sriman George Harrison, now chanting Hare Kṛṣṇa, for his liberal contribution of $19,000 to meet the entire cost of printing this volume. May Kṛṣṇa bestow upon this nice boy further advancement in Kṛṣṇa consciousness.
 
-And at last my ever-willing blessings are bestowed upon Śrīmān Śyāmasundaradāsa Adhikārī, Śrīmān Brahmānandadāsa Brahmacārī, Śrīmān Hayagrīvadāsa Adhikārī, Śrīmān Satsvarūpadāsa Adhikārī, Śrīmatī Devahūti Devī, Śrīmatī Jadurāṇī Devī, Śrīmān Muralīdharadāsa Brahmacārī, Śrīmān Bhāradvājadāsa Adhikārī, and Śrīmān Pradyumnadāsa Adhikārī, etc., for their hard labor in different ways to make this publication a great success.
+And at last my ever-willing blessings are bestowed upon Śrīmān Śyāmasundaradāsa Adhikārī, Śrīmān Brahmānandadāsa Brahmacārī, Śrīmān Hayagrīvadāsa Adhikārī, Śrīmān Satsvarūpadāsa Adhikārī, Śrīmatī Devahūti Devī, Śrīmatī Jadurāṇī Dāsī, Śrīmān Muralīdharadāsa Brahmacārī, Śrīmān Bhāradvājadāsa Adhikārī, and Śrīmān Pradyumnadāsa Adhikārī, etc., for their hard labor in different ways to make this publication a great success.
 
 Hare Kṛṣṇa.
 
