@@ -1,14 +1,14 @@
 Words from Apple
 
-Words from Apple Everybody is looking for Kṛṣṇa.
+Everybody is looking for KṚṢṆA.
 Some don't realize that they are, but they are.
-KṚṢṆA is GOD, the source of all that exists, the Cause of all that is, was, or ever will be.
+KṚṢṆA is GOD, the Source of all that exists, the Cause of all that is, was, or ever will be.
 As GOD is unlimited, HE has many Names.
-Allah-Buddha-Jehova-Rama: ALL are KṚṢṆA, all are ONE.
+Allah-Buddha-Jehova-Rama: All are KṚṢṆA, all are ONE.
 
-God is not abstract; He has both the impersonal and the personal aspects to His personality, which is SUPREME, ETERNAL, BLISSFUL, and full of KNOWLEDGE. As a single drop of water has the same qualities as an ocean of water, so has our consciousness the qualities of GOD'S consciousness ... but through our identification and attachment with material energy (physical body, sense pleasures, material possessions, ego, etc.) our true TRANSCENDENTAL CONSCIOUSNESS has been polluted, and like a dirty mirror it is unable to reflect a pure image.
+God is not abstract; He has both the impersonal and the personal aspects to His personality which is SUPREME, ETERNAL, BLISSFUL, and full of KNOWLEDGE. As a single drop of water has the same qualities as an ocean of water, so has our consciousness the qualities of GOD'S consciousness ... but through our identification and attachment with material energy (physical body, sense pleasures, material possessions, ego, etc.) our true TRANSCENDENTAL CONSCIOUSNESS has been polluted, and like a dirty mirror it is unable to reflect a pure image.
 
-With many lives our association with the TEMPORARY has grown. This impermanent body, a bag of bones and flesh, is mistaken for our true self, and we have accepted this temporay condition to be final.
+With many lives our association with the TEMPORARY has grown. This impermanent body, a bag of bones and flesh, is mistaken for our true self, and we have accepted this temporary condition to be final.
 
 Through all ages, great SAINTS have remained as living proof that this non-temporary, permanent state of GOD CONSCIOUSNESS can be revived in all living Souls. Each soul is potentially divine.
 
@@ -16,31 +16,24 @@ Kṛṣṇa says in Bhagavad Gita: "Steady in the Self, being freed from all mat
 
 YOGA (a scientific method for GOD (SELF) realization) is the process by which we purify our consciousness, stop further pollution, and arrive at the state of Perfection, full KNOWLEDGE, full BLISS.
 
-If there's a God, I want to see Him. It's pointless to believe in something without proof, and Kṛṣṇa Consciousness and meditation are methods where you can actually obtain GOD perception. You can actually see God, and hear Him, play with Him. It might sound crazy, but He is actually  there, actually with you.
+If there's a God, I want to see Him. It's pointless to believe in something without proof, and Kṛṣṇa Consciousness and meditation are methods where you can actually obtain GOD perception. You can actually see God, and hear Him, play with Him. It might sound crazy, but He is actually there, actually with you.
 
 There are many yogic Paths—Raja, Jnana, Hatha, Kriya, Karma, Bhakti—which are all acclaimed by the MASTERS of each method.
 
-SWAMI BHAKTIVEDANTA is as his title says, a BHAKTI Yogi following the path of DEVOTION. By serving GOD through each thought, word and DEED, and by chanting HIS Holy Names, the devotee quickly develops God-consciousness. By chanting
+SWAMI BHAKTIVEDANTA is as his title says, a BHAKTI Yogi following the path of DEVOTION. By serving GOD through each thought, word, and DEED, and by chanting of HIS Holy Names, the devotee quickly develops God-consciousness. By chanting
 
-One inevitable arrives at KṚṢṆA Consciousness. (The proof of the pudding is in the eating!)
+> Hare Kṛṣṇa, Hare Kṛṣṇa
+> Kṛṣṇa Kṛṣṇa, Hare Hare
+> Hare Rāma, Hare Rāma
+> Rāma Rāma, Hare Hare
+
+one inevitably arrives at KṚṢṆA Consciousness. (The proof of the pudding is in the eating!)
 
 I request that you take advantage of this book KṚṢṆA, and enter into its understanding. I also request that you make an appointment to meet your God now, through the self liberating process of YOGA (UNION) and GIVE PEACE A CHANCE.
 
 (hand written)
 
 All you need is Love (Krishna) Hari Bol.
-George Harrison 31/3/70Apple Corps Ltd 3 Savile Row London W1 Gerrard 2771/3993 Telex Apcore London
+George Harrison 31/3/70
 
-Copyright 1970 A.C. Bhaktivedanta Swami
-
-ISKCON Press
-
-38 North Beacon Street
-
-Boston, Massachusetts 02134
-
-Need to My Father, Gour Mohan De
-
-Need Words from Apple
-
-Need Preface!
+Apple Corps Ltd 3 Savile Row London W1 Gerrard 2772/3993 Telex Apcore London
