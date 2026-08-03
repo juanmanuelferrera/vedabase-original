@@ -19,7 +19,3 @@ The word īśvarāṇām refers to all the Personalities of Godhead. As stated i
 For our understanding it is sometimes said that the Lord is situated in the heart of the thief as well as in the heart of the householder, but the Supersoul in the heart of the thief dictates, "Go and steal things from that particular house," and at the same time the Lord tells the householder, "Now be careful of thieves and burglars." These instructions to different persons appear contradictory, yet we should know that the Supersoul, the Supreme Personality of Godhead, has some plan, and we should not consider such activities contradictory. The best course is to surrender unto the Supreme Personality of Godhead wholeheartedly, and, being protected by Him, remain peaceful.
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Seventeenth Chapter, of the Śrīmad-Bhāgavatam, entitled "Mahārāja Pṛthu Becomes Angry at the Earth."
-
-SB 4.18: Pṛthu Mahārāja Milks the Earth Planet
-
-18. Pṛthu Mahārāja Milks the Earth Planet

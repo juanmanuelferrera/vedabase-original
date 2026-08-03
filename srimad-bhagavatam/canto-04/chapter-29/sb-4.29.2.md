@@ -19,7 +19,3 @@ How the spirit soul transmigrates from one type of body to another is nicely des
 Factually all of material existence is only a dream. Thus there is no question of past, present or future. Persons who are addicted to karma-kāṇḍa-vicāra, which means "working for future happiness through fruitive activities," are also dreaming. Similarly, past happiness and present happiness are merely dreams. The actual reality is Kṛṣṇa and service to Kṛṣṇa, which can save us from the clutches of māyā, for the Lord says in Bhagavad-gītā (Bg. 7.14), mām eva ye prapadyante māyām etāṁ taranti te: "Those who surrender unto Me can easily cross beyond My illusory energy."
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Twenty-ninth Chapter, of the Śrīmad-Bhāgavatam, entitled "Talks Between Nārada and King Prācīnabarhi."
-
-SB 4.30: The Activities of the Pracetās
-
-30. The Activities of the Pracetās

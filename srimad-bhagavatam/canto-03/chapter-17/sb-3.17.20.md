@@ -10,6 +10,6 @@
 
 *hiraṇyākṣaḥ*—Hiraṇyākṣa; *anujaḥ*—younger brother; *tasya*—his; *priyaḥ*—beloved; *prīti-kṛt*—ready to please; *anvaham*—every day; *gadā-pāṇiḥ*—with a club in hand; *divam*—to the higher planets; *yātaḥ*—traveled; *yuyutsuḥ*—desirous to fight; *mṛgayan*—seeking; *raṇam*—combat.
 
-**His younger brother, Hiraṇyākṣa, was always ready to satisfy his elder brother by his activities. Hiraṇyākṣa took a club on his shoulder and traveled all over the universe with a fighting spirit just to satisfy Hiraṇyakaśipu.**
+**His younger brother, Hiraṇyākṣa, was always ready to satisfy his elder brother by his activities; he took a club on his shoulder and traveled all over the universe with a fighting spirit just to satisfy him.**
 
 The demoniac spirit is to train all family members to exploit the resources of this universe for personal sense gratification, whereas the godly spirit is to engage everything in the service of the Lord. Hiraṇyakaśipu was himself very powerful, and he made his younger brother, Hiraṇyākṣa, powerful to assist him in fighting with everyone and lording it over material nature as long as possible. If possible, he wanted to rule the universe eternally. These are demonstrations of the spirit of the demoniac living entity.

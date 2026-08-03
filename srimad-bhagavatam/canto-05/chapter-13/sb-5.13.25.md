@@ -6,7 +6,7 @@
 
 *sauvīra-patiḥ*—the King of the state of Sauvīra; *api*—certainly; *su-jana*—from an elevated person; *samavagata*—having completely understood; *paramātma-sa-tattvaḥ*—the truth of the constitutional position of the spirit soul and the Supersoul; *ātmani*—in himself; *avidyā*—by nescience; *adhyāropitām*—erroneously attributed; *ca*—and; *deha*—in the body; *ātma-matim*—the concept of the self; *visasarja*—completely gave up; *evam*—thus; *hi*—certainly; *nṛpa*—O King; *bhagavat-āśrita-āśrita-anubhāvaḥ*—the consequence of taking shelter of a devotee who has similarly taken shelter of a spiritual master in the *paramparā* system (one is sure to get out of the great nescience of the bodily concept of life).
 
-**After receiving lessons from the great devotee Jaḍa Bharata, King Rahūgaṇa of the state of Sauvīra became completely aware of the constitutional position of the soul. He thus gave up the bodily conception completely. My dear King, whoever takes shelter of the servant of the servant of the Lord is certainly glorified because he can without difficulty give up the bodily conception. PURPORT**
+**After receiving lessons from the great devotee Jaḍa Bharata, King Rahūgaṇa of the state of Sauvīra became completely aware of the constitutional position of the soul. He thus gave up the bodily conception completely. My dear King, whoever takes shelter of the servant of the servant of the Lord is certainly glorified because he can without difficulty give up the bodily conception.**
 
 As stated in *Caitanya-caritāmṛta* [[cc/madhya/22/54|(Madhya 22.54)]]:
 

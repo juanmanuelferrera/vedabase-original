@@ -19,5 +19,3 @@ Here one word, saṅgatātmā, is misinterpreted by the Māyāvādī philosopher
 By pleasing the Supreme Personality of Godhead, one pleases everyone, just as by watering the root of a tree one satisfies every branch, twig and leaf of the tree. If one can attract the Supreme Personality of Godhead, naturally he attracts the whole universe because Kṛṣṇa is the supreme cause of the universe. All the demigods were afraid of being totally vanquished by suffocation, but the Personality of Godhead assured them that Dhruva Mahārāja was a great devotee of the Lord and was not about to annihilate everyone in the universe. A devotee is never envious of other living entities.
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Eighth Chapter, of the Śrīmad-Bhāgavatam, entitled "Dhruva Mahārāja Leaves Home for the Forest."
-
-SB 4.8: Dhruva Mahārāja Leaves Home for the Forest

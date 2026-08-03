@@ -10,7 +10,7 @@
 
 *vīkṣya*—after seeing; *ūḍha-vayasam*—mature in age; *tam*—Dhruva; *ca*—and; *prakṛtīnām*—by the ministers; *ca*—also; *sammatam*—approved of; *anurakta*—beloved; *prajam*—by his subjects; *rājā*—the King; *dhruvam*—Dhruva Mahārāja; *cakre*—made; *bhuvaḥ*—of the earth; *patim*—master.
 
-**When, after concentration, King Uttānapāda saw that Dhruva Mahārāja was suitably mature to take charge of the kingdom and that his ministers were agreeable and the citizens were also very fond of him, he enthroned Dhruva as Emperor of this planet.**
+**When, after concentration, King Uttānapāda saw that Dhruva Mahārāja was suitably mature to take charge of the kingdom and that his ministers were agreeable and the citizens were also very fond of him, he enthroned him as Emperor of this planet.**
 
 Although it is misconceived that formerly the monarchial government was autocratic, from the description of this verse it appears that not only was King Uttānapāda a rājarṣi, but before installing his beloved son Dhruva on the throne of the empire of the world, he consulted his ministerial officers, considered the opinion of the public, and also personally examined Dhruva's character. Then he installed him on the throne to take charge of the affairs of the world.
 

@@ -17,7 +17,3 @@ After Lord Śiva and, previously, Dakṣa, left the arena of sacrifice, the sacr
 In this age of Kali it is practically impossible to perform the deva-yajña or sacrifices to the demigods. As such, in this age Śrīmad-Bhāgavatam recommends saṅkīrtana-yajña. Yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ. "In this age the intelligent person completes the performances of all kinds of yajñas simply by chanting Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare." Tasmin tuṣṭe jagat-tuṣṭaḥ: "When Lord Viṣṇu is satisfied, all the demigods who are parts and parcels of the Supreme Lord, are satisfied."
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Second Chapter, of the Śrīmad-Bhāgavatam, entitled "Dakṣa Curses Lord Śiva."
-
-SB 4.3: Talks Between Lord Śiva and Satī
-
-3. Talks Between Lord Śiva and Satī

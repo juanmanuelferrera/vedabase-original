@@ -15,7 +15,3 @@
 If we persistently engage in devotional service, certainly all our desires will be fulfilled in due course of time.
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Twenty-fourth Chapter, of the Śrīmad-Bhāgavatam, entitled "Chanting the Song Sung by Lord Śiva."
-
-SB 4.25: The Descriptions of the Characteristics of King Purañjana
-
-25. The Descriptions of the Characteristics of King Purañjana

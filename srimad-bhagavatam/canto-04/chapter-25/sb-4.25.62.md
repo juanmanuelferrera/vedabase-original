@@ -25,7 +25,3 @@ brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati samaḥ sarveṣu bh�
 The platform of knowledge is advantageous because it is a means by which one may come to the stage of devotional service. However, if one takes to devotional service directly, knowledge is revealed without separate endeavor. This is confirmed in Śrīmad-Bhāgavatam: vāsudeve bhagavati bhakti-yogaḥ prayojitaḥ/ janayaty āśu vairāgyaṁ jñānaṁ ca yad ahaitukam (1.2.7). Devotional service automatically reveals actual knowledge of our material existence. One who is sufficiently intelligent immediately attains the stage of renunciation of so-called society, family and love as well as other things. As long as we are attached to society, family and love of the material world, there is no question of knowledge. Nor is there a question of devotional service. By directly taking to devotional service, however, one becomes filled with knowledge and renunciation. In this way one's life becomes successful.
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Twenty-fifth Chapter, of the Śrīmad-Bhāgavatam, entitled "The Descriptions of the Characteristics of King Purañjana."
-
-SB 4.26: King Purañjana Goes to the Forest to Hunt, and His Queen Becomes Angry
-
-26. King Purañjana Goes to the Forest to Hunt, and His Queen Becomes Angry

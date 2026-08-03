@@ -15,7 +15,3 @@
 It is said by Cāṇakya Paṇḍita that life is certainly short for everyone, but if one acts properly, his reputation will remain for a generation. As the Supreme Personality of Godhead, Kṛṣṇa, is everlastingly famous, so the reputation of Lord Kṛṣṇa's devotee is also everlasting. Therefore in describing Dhruva Mahārāja's activities two specific words have been used—vikhyāta, very famous, and viśuddha, transcendental. Dhruva Mahārāja's leaving home at a tender age and taking shelter of the Supreme Personality of Godhead in the forest is a unique example in this world.
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Twelfth Chapter, of the Śrīmad-Bhāgavatam, entitled "Dhruva Mahārāja Goes Back to Godhead."
-
-SB 4.13: Description of the Descendants of Dhruva Mahārāja
-
-13. Description of the Descendants of Dhruva Mahārāja

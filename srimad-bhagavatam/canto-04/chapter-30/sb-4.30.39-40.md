@@ -36,7 +36,3 @@ patraṁ puṣpaṁ phalaṁ toyaṁ yo me bhaktyā prayacchati tad ahaṁ bhakt
 Dakṣa became almost as powerful as Lord Brahmā. Consequently Lord Brahmā engaged him in generating population. Dakṣa was very influential and opulent. In his own turn, Dakṣa engaged other prajāpatis, headed by Marīci. In this way the population of the universe increased.
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Thirtieth Chapter, of the Śrīmad-Bhāgavatam, entitled "The Activities of the Pracetās."
-
-SB 4.31: Nārada Instructs the Pracetās
-
-31. Nārada Instructs the Pracetās

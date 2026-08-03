@@ -15,7 +15,3 @@
 The word bhava-sindhu-pota-pāde is significant in this verse. The lotus feet of the Lord are known as mahat-padam; this means that the total source of material existence rests on the lotus feet of the Lord. As stated in Bhagavad-gītā (Bg. 10.8), ahaṁ sarvasya prabhavaḥ: everything is emanating from Him. This cosmic manifestation, which is compared to an ocean of nescience, is also resting on the lotus feet of the Lord. As such, this great ocean of nescience is minimized by a person who is a pure devotee. One who has taken shelter of the lotus feet of the Lord need not cross over the ocean because he has already crossed it by virtue of his position at the Lord's lotus feet. By hearing and chanting of the glories of the Lord or the Lord's devotee, one can become firmly fixed in the service of the lotus feet of the Lord. This position can also be achieved very easily by narrating the history of the life of Pṛthu Mahārāja regularly every day. The word vimukta-saṅgaḥ is also significant in this connection. Because we associate with the three qualities of material nature, our position in this material world is full of dangers, but when we engage in the devotional service of the Lord by the process of śravaṇam and kīrtanam, we immediately become vimukta-saṅga, or liberated.
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Twenty-third Chapter, of the Śrīmad-Bhāgavatam, entitled "Mahārāja Pṛthu's Going Back Home."
-
-SB 4.24: Chanting the Song Sung by Lord Śiva
-
-24. Chanting the Song Sung by Lord Śiva

@@ -19,7 +19,3 @@
 The great ṛṣis approached Dhruva Mahārāja at a time when his mind was very perplexed due to the magical feats exhibited by the Yakṣas. A devotee is always protected by the Supreme Personality of Godhead. By His inspiration only the sages came to encourage Dhruva Mahārāja and assure him that there was no danger because he was a soul fully surrendered to the Supreme Lord. By the grace of the Lord, if a devotee can simply chant His holy name—Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare—at the time of death, then he immediately surpasses the great ocean of the material sky and enters the spiritual sky. He never has to come back for repetition of birth and death. Simply by chanting the holy name of the Lord, one can surpass the ocean of death, so Dhruva Mahārāja was certainly able to surpass the illusory magical feats of the Yakṣas, which for the time being disturbed his mind.
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Tenth Chapter, of the Śrīmad-Bhāgavatam, entitled "Dhruva Mahārāja's Fight With the Yakṣas."
-
-SB 4.11: Svāyambhuva Manu Advises Dhruva Mahārāja to Stop Fighting
-
-11. Svāyambhuva Manu Advises Dhruva Mahārāja to Stop Fighting

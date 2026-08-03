@@ -12,4 +12,4 @@
 
 **After observing the glories of Dhruva Mahārāja, the great sage Nārada, playing his vīṇā, went to the sacrificial arena of the Pracetās and very happily chanted the following three verses.**
 
-The great sage Nārada was the spiritual master of Dhruva Mahārāja. Certainly he was very glad to see Dhruva's glories. As a father is very happy to see the son's advancement in every respect, so the spiritual master is very happy to observe the ascendancy of his disciple.
+The great sage Nārada was the spiritual master of Dhruva Mahārāja. Certainly he was very glad to see his glories. As a father is very happy to see the son's advancement in every respect, so the spiritual master is very happy to observe the ascendancy of his disciple.

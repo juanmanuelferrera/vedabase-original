@@ -14,8 +14,6 @@
 
 **If a brāhmaṇa has all twelve of the brahminical qualifications [as they are stated in the book called Sanat-sujāta] but is not a devotee and is averse to the lotus feet of the Lord, he is certainly lower than a devotee who is a dog-eater but who has dedicated everything—mind, words, activities, wealth and life—to the Supreme Lord. Such a devotee is better than such a brāhmaṇa because the devotee can purify his whole family, whereas the so-called brāhmaṇa in a position of false prestige cannot purify even himself.**
 
-**PURPORT**
-
 Here is a statement by Prahlāda Mahārāja, one of the twelve authorities, regarding the distinction between a devotee and a *brāhmaṇa* expert in *karma-kāṇḍa,* or Vedic ritualistic ceremonies. There are four *varṇas* and four *āśramas,* which divide human society, but the central principle is to become a first-class pure devotee. It is said in the *Hari-bhakti-sudhodaya:*
 
 > bhagavad-bhakti-hīnasya

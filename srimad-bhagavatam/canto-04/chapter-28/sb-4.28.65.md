@@ -97,7 +97,3 @@ Vīrya. One who has mercy.
 Yavana. The servant of Yamarāja.
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Twenty-eighth Chapter, of the Śrīmad-Bhāgavatam, entitled "Purañjana Becomes a Woman in the Next Life."
-
-SB 4.29: Talks Between Nārada and King Prācīnabarhi
-
-29. Talks Between Nārada and King Prācīnabarhi
