@@ -10,4 +10,4 @@
 
 **The whole world was pleased. While the Hindus chanted the holy name of the Lord, the non-Hindus, especially the Mohammedans, jokingly imitated the words.**
 
-Although the Muslims, or non-Hindus, have no interest in chanting the holy name of the Lord, the Hare Kṛṣṇa *mahā-mantra,* while the Hindus in Navadvīpa chanted during the lunar eclipse the Muslims imitated them. Thus the Hindus and Muslims joined together in chanting the holy name of the Lord when Śrī Caitanya Mahāprabhu advented Himself.
+Although the Mohammedans, or non-Hindus, have no interest in chanting the holy name of the Lord, the Hare Kṛṣṇa *mahā-mantra,* while the Hindus in Navadvīpa chanted during the lunar eclipse the Mohammedans imitated them. Thus the Hindus and Mohammedans joined together in chanting the holy name of the Lord when Śrī Caitanya Mahāprabhu advented Himself.

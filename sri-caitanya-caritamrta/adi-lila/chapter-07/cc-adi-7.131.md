@@ -8,7 +8,7 @@
 
 *sarva-veda-sūtre*—in all the codes of *Vedānta-sūtra*; *kare*—establishes; *kṛṣṇera*—of Lord Kṛṣṇa; *abhidhāna*—explanation; *mukhya-vṛtti*—direct interpretation; *chāḍi'*—giving up; *kaila*—made; *lakṣaṇā*—indirect; *vyākhyāna*—explanation.
 
-**"In all the Vedic sūtras and scriptures, it is Lord Kṛṣṇa who is to be understood, but the followers of Śaṅkarācārya have covered the real meaning of the Vedas with indirect explanations.**
+**"In all the Vedic sūtras and literatures, it is Lord Kṛṣṇa who is to be understood, but the followers of Śaṅkarācārya have covered the real meaning of the Vedas with indirect explanations.**
 
 It is said:
 

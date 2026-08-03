@@ -8,7 +8,7 @@
 
 *nārāyaṇī*—of the name Nārāyaṇī; *caitanyera*—of Lord Caitanya Mahāprabhu; *ucchiṣṭa-bhājana*—eater of the remnants of foodstuff; *tāṅra*—of her; *garbhe*—in the womb; *janmilā*—took birth; *śrī-dāsa-vṛndāvana*—Śrīla Vṛndāvana dāsa Thākura.
 
-**Nārāyaṇī eternally eats the remnants of the food of Caitanya Mahāprabhu. Śrīla Vṛndāvana dāsa Ṭhākura was born of her womb.**
+**Nārāyaṇī eternally eats the remnants of the foodstuffs of Caitanya Mahāprabhu. Śrīla Vṛndāvana dāsa Ṭhākura was born of her womb.**
 
 In *Gaura-gaṇoddeśa-dīpikā,* a book written by Kavi-karṇapūra that describes all the associates of Śrī Caitanya Mahāprabhu and who they previously were, there is the following statement regarding Nārāyaṇī:
 
@@ -17,4 +17,4 @@ In *Gaura-gaṇoddeśa-dīpikā,* a book written by Kavi-karṇapūra that descr
 > kṛṣṇocchiṣṭaṁ prabhuñjānā
 > seyaṁ nārāyaṇī matā
 
-When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who had a younger sister named Kilimbikā. During the time of Lord Caitanya's incarnation, the same Kilimbikā used to eat the remnants of food left by Lord Śrī Caitanya Mahāprabhu. That Kilimbikā was Nārāyaṇī, who was a niece of Śrīvāsa Ṭhākura's. Later on, when she grew up and married, Śrīla Vṛndāvana dāsa Ṭhākura was born from her womb. A devotee of Lord Śrī Kṛṣṇa is celebrated in terms of devotional service rendered to the Lord; thus we know Śrīla Vṛndāvana dāsa Ṭhākura as the son of Nārāyaṇī. Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura notes in this connection that there is no reference to his paternal ancestry because there is no need to understand it.
+When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who had a younger sister named Kilimbikā. During the time of Lord Caitanya's incarnation, the same Kilimbikā used to eat the remnants of foodstuffs left by Lord Śrī Caitanya Mahāprabhu. That Kilimbikā was Nārāyaṇī, who was a niece of Śrīvāsa Ṭhākura's. Later on, when she grew up and married, Śrīla Vṛndāvana dāsa Ṭhākura was born from her womb. A devotee of Lord Śrī Kṛṣṇa is celebrated in terms of devotional service rendered to the Lord; thus we know Śrīla Vṛndāvana dāsa Ṭhākura as the son of Nārāyaṇī. Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura notes in this connection that there is no reference to his paternal ancestry because there is no need to understand it.

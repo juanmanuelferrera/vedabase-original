@@ -10,4 +10,4 @@
 
 **Finally the Lord showed Nityānanda Prabhu His two-armed form of Kṛṣṇa, the son of Mahārāja Nanda, simply playing on His flute, His bluish body dressed in yellow garments.**
 
-Śrī Caitanya-maṅgala vividly elaborates upon this description.
+Caitanya-maṅgala vividly elaborates upon this description.

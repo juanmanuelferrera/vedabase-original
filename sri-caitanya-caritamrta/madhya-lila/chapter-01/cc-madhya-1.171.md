@@ -10,4 +10,4 @@
 
 **When the Mohammedan King asked his assistant, Keśava Chatrī, for news of the influence of Śrī Caitanya Mahāprabhu, Keśava Chatrī, although knowing everything about Caitanya Mahāprabhu, tried to avoid the conversation by not giving any importance to Caitanya Mahāprabhu's activities.**
 
-Keśava Chatrī became a diplomat when questioned about Śrī Caitanya Mahāprabhu. Although he knew everything about Him, he was afraid that the Mohammedan King might become His enemy. He gave no importance to the Lord's activities so that the Muslim King would take Him to be an ordinary man and would not give Him any trouble.
+Keśava Chatrī became a diplomat when questioned about Śrī Caitanya Mahāprabhu. Although he knew everything about Him, he was afraid that the Mohammedan King might become His enemy. He gave no importance to the Lord's activities so that the Mohammedan King would take Him to be an ordinary man and would not give Him any trouble.

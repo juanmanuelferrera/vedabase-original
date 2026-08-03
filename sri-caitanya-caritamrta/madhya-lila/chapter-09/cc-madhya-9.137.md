@@ -8,7 +8,7 @@
 
 *anya dehe*—in a body other than those of the *gopīs*; *nā*—not; *pāiye*—one gets; *rāsa-vilāsa*—the pastimes of the *rāsa* dance; *ataeva*—therefore; *nāyam*—beginning with the word *nāyam*; *śloka*—the Sanskrit verse; *kahe*—says; *veda-vyāsa*—Dvaipāyana Vedavyāsa.
 
-**"Vyāsadeva, the supreme authority on Vedic literature, composed the verse beginning 'nāyaṁ sukhāpo bhagavān' because no one can enter into the rāsa-līlā dance in any body other than the bodies of the gopīs."**
+**"Vyāsadeva, the supreme authority on Vedic literature, composed a verse beginning 'nāyaṁ sukhāpo bhagavān' because no one can enter into the rāsa-līlā dance in any body other than the bodies of the gopīs."**
 
 This verse confirms a verse of the *Bhagavad-gītā* [[bg/9/25|(Bg. 9.25)]]:
 

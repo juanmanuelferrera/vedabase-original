@@ -8,7 +8,7 @@
 
 *praṇava*—the *oṁkāra*; *se*—that; *mahā-vākya*—transcendental sound vibration; *vedera*—of the *Vedas*; *nidāna*—basic principle; *īśvara-svarūpa*—direct representation of the Supreme Personality of Godhead; *praṇava*—*oṁkāra*; *sarva-viśva*—of all universes; *dhāma*—is the reservoir.
 
-**"The Vedic sound vibration oṁkāra, the principle word in the Vedic scriptures, is the basis of all Vedic vibrations. Therefore one should accept oṁkāra as the sound representation of the Supreme Personality of Godhead and the reservoir of the cosmic manifestation.**
+**"The Vedic sound vibration oṁkāra, the principle word in the Vedic literatures, is the basis of all Vedic vibrations. Therefore one should accept oṁkāra as the sound representation of the Supreme Personality of Godhead and the reservoir of the cosmic manifestation.**
 
 In *Bhagavad-gītā* (8.13) the glories of *oṁkāra* are described as follows:
 
@@ -48,7 +48,7 @@ yajñas ca vihitāḥ purā
 
 "From the beginning of creation, the three syllables *oṁ tat sat* have been used to indicate the Supreme Absolute Truth [Brahman]. They were uttered by *brāhmaṇas* while chanting Vedic hymns and during sacrifices for the satisfaction of the Supreme."
 
-Throughout all the Vedic scriptures the glories of *oṁkāra* are specifically mentioned. Śrīla Jīva Gosvāmī, in his thesis *Bhagavat-sandarbha,* says that in the Vedic literature *oṁkāra* is considered to be the sound vibration of the holy name of the Supreme Personality of Godhead. Only this vibration of transcendental sound can deliver a conditioned soul from the clutches of *māyā.* Sometimes *oṁkāra* is also called the deliverer (*tāra*). *Śrīmad-Bhāgavatam* begins with the *oṁkāra* vibration: *oṁ namo bhagavate vāsudevāya.* Therefore *oṁkāra* has been described by the great commentator Śrīdhara Svāmī as *tārāṅkura,* the seed of deliverance from the material world. Since the Supreme Godhead is absolute, His holy name and His sound vibration *oṁkāra* are as good as He Himself. Caitanya Mahāprabhu says that the holy name, or *oṁkāra,* the transcendental representation of the Supreme Personality of Godhead, has all the potencies of the Personality of Godhead.
+Throughout all the Vedic literatures the glories of *oṁkāra* are specifically mentioned. Śrīla Jīva Gosvāmī, in his thesis *Bhagavat-sandarbha,* says that in the Vedic literature *oṁkāra* is considered to be the sound vibration of the holy name of the Supreme Personality of Godhead. Only this vibration of transcendental sound can deliver a conditioned soul from the clutches of *māyā.* Sometimes *oṁkāra* is also called the deliverer (*tāra*). *Śrīmad-Bhāgavatam* begins with the *oṁkāra* vibration: *oṁ namo bhagavate vāsudevāya.* Therefore *oṁkāra* has been described by the great commentator Śrīdhara Svāmī as *tārāṅkura,* the seed of deliverance from the material world. Since the Supreme Godhead is absolute, His holy name and His sound vibration *oṁkāra* are as good as He Himself. Caitanya Mahāprabhu says that the holy name, or *oṁkāra,* the transcendental representation of the Supreme Personality of Godhead, has all the potencies of the Personality of Godhead.
 
 nāmnāṁ akāri bahudhā nija-sarva-śaktis
 tatrārpitā niyamitaḥ smaraṇe na kālaḥ

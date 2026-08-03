@@ -10,4 +10,4 @@
 
 **Sārvabhauma Bhaṭṭācārya continued, "This is Kṛṣṇadāsa, who carries a golden cane, and here is Śikhi Māhiti, who is in charge of writing.**
 
-The person in charge of writing is also called *deula-karaṇa-pada-prāpta karmacārī.* He is employed especially to write the calendar called *Mātalā-pāṅji.*
+The person in charge of writing is also called *deula-karaṇa-pada-prāpta karmacārī.* He is employed especially to write a calendar called *Mātalā-pāṅji.*

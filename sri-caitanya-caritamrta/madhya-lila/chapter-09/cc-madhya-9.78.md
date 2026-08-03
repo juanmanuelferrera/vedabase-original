@@ -10,4 +10,4 @@
 
 **At Kumbhakarṇa-kapāla, Śrī Caitanya Mahāprabhu saw a great lake and then the holy place named Śiva-kṣetra, where a temple of Lord Śiva is located.**
 
-Kumbhakarṇa is the name of the brother of Rāvaṇa. At the present moment the city of Kumbhakarṇa-kapāla is known as Kumbhakonṇam; it is situated twenty miles northeast of the city of Tanjoreāñ. There are twelve temples of Lord Śiva located at Kumbhakonṇam, as well as four Viṣṇu temples and one temple to Lord Brahmā. Śiva-kṣetra, within the city of Tanjoreāñ, is situated near a big lake known as Śiva-gaṅgā. There is a large temple to Lord Śiva there known as Bṛhatīśvara-śiva-mandira.
+Kumbhakarṇa is the name of the brother of Rāvaṇa. At the present moment the city of Kumbhakarṇa-kapāla is known as Kumbhakonṇam; it is situated twenty miles northeast of the city of Tāñjor. There are twelve temples of Lord Śiva located at Kumbhakonṇam, as well as four Viṣṇu temples and one temple to Lord Brahmā. Śiva-kṣetra, within the city of Tāñjor, is situated near a big lake known as Śiva-gaṅgā. There is a large temple to Lord Śiva there known as Bṛhatīśvara-śiva-mandira.

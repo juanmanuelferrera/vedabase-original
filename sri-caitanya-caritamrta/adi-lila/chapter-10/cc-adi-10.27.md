@@ -8,4 +8,4 @@
 
 *vāra-māsa*—the whole year; *tāhā*—all those foodstuffs; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *karena*—did; *aṅgīkāra*—accept; *rāghavera jhāli*—the bag of Rāghava Paṇḍita; *bali'*—so called; *prasiddhi*—celebrated; *yāhāra*—of which.
 
-**The Lord accepted these foods throughout the entire year. That bag is still celebrated as rāghavera jhāli ["the bags of Rāghava Paṇḍita"].**
+**The Lord accepted these foodstuffs throughout the entire year. That bag is still celebrated as rāghavera jhāli ["the bags of Rāghava Paṇḍita"].**

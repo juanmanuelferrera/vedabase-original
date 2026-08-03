@@ -8,4 +8,4 @@
 
 *bhāgavate*—in *Śrīmad-Bhāgavatam*; *yata*—all; *bhakti-siddhāntera*—in understanding devotional service; *sāra*—essence; *likhiyāchena*—has written; *iṅhā*—this; *jāni'*—I know; *kariyā*—making; *uddhāra*—quotation.
 
-**In Śrī Caitanya-maṅgala [later known as Śrī Caitanya-bhāgavata] Śrīla Vṛndāvana dāsa Ṭhākura has given the conclusion and essence of devotional service by quoting the authoritative statements of Śrīmad-Bhāgavatam.**
+**In Caitanya-maṅgala [later known as Śrī Caitanya-bhāgavata] Śrīla Vṛndāvana dāsa Ṭhākura has given the conclusion and essence of devotional service by quoting the authoritative statements of Śrīmad-Bhāgavatam.**

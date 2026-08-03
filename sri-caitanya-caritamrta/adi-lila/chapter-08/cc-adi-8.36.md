@@ -8,7 +8,7 @@
 
 *caitanya-nitāira*—of Lord Śrī Caitanya Mahāprabhu and Nityānanda Prabhu; *yāte*—in which; *jāniye*—one can know; *mahimā*—all glories; *yāte*—in which; *jāni*—I can understand; *kṛṣṇa-bhakti*—of devotion to Lord Kṛṣṇa; *siddhāntera*—of the conclusion; *sīmā*—limit.
 
-**By reading Śrī Caitanya-maṅgala one can understand all the glories or truths of Lord Caitanya and Nityānanda and come to the ultimate conclusion of devotional service to Lord Kṛṣṇa.**
+**By reading Caitanya-maṅgala one can understand all the glories or truths of Lord Caitanya and Nityānanda and come to the ultimate conclusion of devotional service to Lord Kṛṣṇa.**
 
 *Śrīmad-Bhagavatam* is the authoritative reference book from which to understand devotional service, but because it is very elaborate, few men can understand its purpose. *Śrīmad-Bhāgavatam* is the original commentary on *Vedānta-sūtra,* which is called *nyāya-prasthāna.* It was written to enable one to understand the Absolute Truth through infallible logic and argument, and therefore its natural commentary, *Śrīmad-Bhāgavatam,* is extremely elaborate. Professional reciters have created the impression that *Śrīmad-Bhāgavatam* deals only with Kṛṣṇa's *rāsa-līlā,* although Kṛṣṇa's *rāsa-līlā* is only described in the Tenth Canto (chapters 29-35). They have in this way presented Kṛṣṇa to the Western world as a great woman-hunter, and therefore we sometimes have to deal with such misconceptions in preaching. Another difficulty in understanding *Śrīmad-Bhāgavatam* is that the professional reciters have introduced *bhāgavata-saptāha,* or seven-day readings of the *Bhāgavatam.* They want to finish *Śrīmad-Bhagavatam* in a week, although it is so sublime that even one verse of *Śrīmad-Bhāgavatam,* if properly explained, cannot be completed in three months. Under these circumstances, it is a great aid for the common man to read Śrīla Vṛndāvana dāsa Ṭhākura's *Caitanya-bhāgavata,* for thus he can actually understand devotional service, Kṛṣṇa, Lord Caitanya and Nityānanda. Śrīla Rūpa Gosvāmī has said:
 
@@ -17,4 +17,4 @@
 > aikāntikī harer bhaktir
 > utpātāyaiva kalpate
 
-"Devotional service of the Lord that ignores the authorized Vedic scriptures like the *Upaniṣads, Purāṇas, Nārada-pañcarātra,* etc., is simply an unnecessary disturbance in society." Due to misunderstanding *Śrīmad-Bhāgavatam,* people are misled regarding the science of Kṛṣṇa. However, by reading Śrīla Vṛndāvana dāsa Ṭhākura's book one can very easily understand this science.
+"Devotional service of the Lord that ignores the authorized Vedic literatures like the *Upaniṣads, Purāṇas, Nārada-pañcarātra,* etc., is simply an unnecessary disturbance in society." Due to misunderstanding *Śrīmad-Bhāgavatam,* people are misled regarding the science of Kṛṣṇa. However, by reading Śrīla Vṛndāvana dāsa Ṭhākura's book one can very easily understand this science.

@@ -8,4 +8,4 @@
 
 *caitanya-maṅgala*—the book named *Caitanya-maṅgala*; *śune*—anyone hears; *yadi*—if; *pāṣaṇḍī*—great atheist; *yavana*—a disbeliever in the Vedic culture; *seha*—he also; *mahā-vaiṣṇava*—great devotee; *haya*—becomes; *tatakṣaṇa*—immediately.
 
-**If even a great atheist hears Śrī Caitanya-maṅgala, he immediately becomes a great devotee.**
+**If even a great atheist hears Caitanya-maṅgala, he immediately becomes a great devotee.**
