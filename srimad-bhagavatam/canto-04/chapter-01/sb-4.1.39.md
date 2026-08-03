@@ -12,4 +12,4 @@
 
 **Kratu's wife, Kriyā, gave birth to 60,000 great sages, named the Vālakhilyas. All these sages were greatly advanced in spiritual knowledge, and their bodies were illuminated by such knowledge.**
 
-Kriyā was the sixth daughter of Kardama Muni, and she produced 60,000 sages, who were known as the Vālakhilyas because they all retired from family life as vānaprasthas.
+Kriyā is the sixth daughter of Kardama Muni, and she produced 60,000 sages, who were known as the Vālakhilyas because they all retired from family life as vānaprasthas.
