@@ -31,8 +31,6 @@ one inevitably arrives at KṚṢṆA Consciousness. (The proof of the pudding i
 
 I request that you take advantage of this book KṚṢṆA, and enter into its understanding. I also request that you make an appointment to meet your God now, through the self liberating process of YOGA (UNION) and GIVE PEACE A CHANCE.
 
-(hand written)
-
 All you need is Love (Krishna) Hari Bol.
 George Harrison 31/3/70
 
