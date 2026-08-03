@@ -1,6 +1,6 @@
 ### 5
 
-V. Practicing Yoga in the Modern Age
+V. Practicing Yoga in the Age of Quarrel
 
 ## Superconsciousness
 
@@ -63,7 +63,7 @@ Those who have taken to this most sublime *bhakti-yoga* system, this practice of
 
 Kṛṣṇa consciousness is not manufactured by us through mental speculation. It is prescribed in the *Bhagavad-gītā,* which says that when we think in Kṛṣṇa, chant in Kṛṣṇa, live in Kṛṣṇa, eat in Kṛṣṇa, talk in Kṛṣṇa, hope in Kṛṣṇa, and sustain in Kṛṣṇa, we return to Kṛṣṇa, without any doubt. And this is the substance of Kṛṣṇa consciousness.
 
-## The Appearance of Lord Caitanya
+## The Incarnation of Love of God
 
 "Caitanya Mahāprabhu is Kṛṣṇa Himself, and He is teaching how to develop love of God by a very simple method. . . . People are embarrassed by so many methods of realization. They cannot take to the actual ritualistic processes of meditation or yoga; it is not possible. Therefore Lord Caitanya says that if one takes up this process of chanting, then immediately he can reach the platform of realization."
 
@@ -160,7 +160,7 @@ Therefore those who are Kṛṣṇa conscious devotees have taken shelter of K�
 
 Don't think that this Kṛṣṇa consciousness movement is a new type of religion. Where is the religion which does not recognize God? One may call God "Allah" or "Kṛṣṇa" or something else, but where is that religion which does not recognize God? We are teaching that one should simply try to love God. We are attracted by so many things, but if our love is reposed in God, then we will be happy. We don't have to learn to love anything else; everything else is automatically included. Just try to love God. Don't try to love just trees or plants or insects. This will never satisfy. Learn to love God. That is Caitanya Mahāprabhu's mission; that is our mission.
 
-## Chanting the Hare Kṛṣṇa Mantra
+## Chanting the Hare Kṛṣṇa *Mahā-mantra*
 
 *". . . This simplest method of meditation is recommended for this age. By practical experience also, one can perceive that by chanting this mahā-mantra, or the Great Chanting for Deliverance, one can feel a transcendental ecstasy coming through from the spiritual stratum. . . ."*
 
@@ -180,7 +180,7 @@ These three words, namely *Hare, Kṛṣṇa,* and *Rāma,* are the transcendent
 
 No other means of spiritual realization is as effective in this age of quarrel and hypocrisy as the chanting of the *mahā-mantra:* Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
 
-## Kṛṣṇa Consciousness—the Yoga for the Modern Age
+## Kṛṣṇa Consciousness—The Yoga for the Modern Age
 
 "It is not that this movement is simply a sentimental movement. Don't think that these boys are dancing out of some religious sentiment or fanaticism. No. We have the highest philosophical and theosophical background. . . . But it is all simplified. That is the beauty of this movement. Whether one is a great scholar or a child, he can take part without any difficulty."
 

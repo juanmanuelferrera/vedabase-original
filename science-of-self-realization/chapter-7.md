@@ -1,6 +1,6 @@
 ### 7
 
-7. Exploring the Spiritual Frontier
+VII. Returning to the Eternal Religion
 
 ## Śrīla Prabhupāda Arrives in America
 
@@ -44,7 +44,7 @@ on board the ship *Jaladuta,* Commonwealth Pier,
 Boston, Massachusetts, U.S.A. 
 dated 18th of September, 1965
 
-## Build Your Nation on the Spiritual Platform
+## “Build Your Nations on the Spiritual Platform”
 
 Śrīla Prabhupāda gives an address at the University of Nairobi: "You are trying to develop yourselves, so please develop spiritually, for spiritual development is sound development. Don't imitate the Americans and Europeans, who are living like cats and dogs. . . . The atomic bomb is already there, and as soon as the next war breaks out, all their skyscrapers and everything else will be finished. Try to understand this from the real viewpoint of human life, the spiritual viewpoint. . . ."
 
@@ -153,7 +153,7 @@ God is the supreme proprietor, and we are all His sons, or servitors. Therefore 
 
 We therefore invite the most intelligent men in the world to understand this Kṛṣṇa conscious philosophy and try to distribute it all over the world. We have now come to these African countries, and I invite all intelligent Africans to come and understand this philosophy and distribute it. You are trying to develop yourselves, so please develop spiritually, for spiritual development is sound development. Don't imitate the Americans and Europeans, who are living like cats and dogs. Such civilizations built on the consciousness of sense gratification cannot stand. The atomic bomb is already there, and as soon as the next war breaks out, all their skyscrapers and everything else will be finished. Try to understand this from the real viewpoint of human life, the spiritual viewpoint. This is what this Kṛṣṇa consciousness movement is about. We therefore request you to try to understand this philosophy. Thank you very much.
 
-## Saintly Compassion
+## “A Devotee Always Feels Compassion for Others’ Distress”
 
 "When Lord Jesus Christ presented himself, for instance, he was greatly afflicted by the miserable conditions of the people. Regardless of which country or sect they belong to, all Vaiṣṇavas, or devotees—any people who are God conscious, or Kṛṣṇa conscious—are thus compassionate. . . ."
 
@@ -305,7 +305,7 @@ Every one of us is giving up our body at every moment. The last phase of giving 
 
 What happens to such a person? *Mām eti*—he returns to Kṛṣṇa. If you are to go to Kṛṣṇa, then you have to prepare your spiritual body. That is Kṛṣṇa consciousness. If you keep yourself in Kṛṣṇa consciousness, then gradually you prepare your next body, a spiritual body, which will carry you immediately to Kṛṣṇaloka, the abode of Kṛṣṇa, and you will become happy. You will live there perpetually and blissfully.
 
-## Protecting Oneself from Illusion
+## “They Have Given Everything to Kṛṣṇa—And That Is Never a Mistake”
 
 In his letter to Lynne Ludwig, Śrīla Prabhupāda asks, "kindly forgive my beloved disciples for any unkindness or indiscretion on their part. After all, to give up one's life completely for serving the Lord is not an easy thing, and māyā, or the illusory material energy, tries especially hard to again entrap those who have left her service to become devotees. . . . They have become a little detached from māyā's love, or lust, and they want Kṛṣṇa's love, or endless, fully rewarding love, but they have not yet developed to that point, that's all."
 

@@ -1,8 +1,8 @@
 ### 8
 
-8. Attaining Perfection
+VIII. Reaching Life's Perfection
 
-## Knowing the Purpose of Life
+## “The Human Form of Life Is Meant for God Realization”
 
 Śrīla Prabhupāda gives an address at London's Conway Hall, in 1969: ". . . . If one thinks like that—'I am no one else's servant; my business is to serve God'—then he is liberated. His heart is immediately cleansed, and he is liberated. And after one has reached that, then all one's cares and anxieties in this world are over, because one knows, 'I am a servant of God. God will give me protection. Why should I worry about anything?'"
 
@@ -122,7 +122,7 @@ Then Sanātana said, "This nice girl is Rādhārāṇī. You have taken service 
 
 This is the transcendental world. On the absolute plane, there is no exploitation. Everyone wants to serve; no one wants to take service. In the transcendental world, everyone wants to give service. You want to give service to me, and I want to give service to you. This is such a nice attitude. This material world means that I want to pickpocket you, and you want to pickpocket me. That's all. This is the material world. We should try to understand it. In the material world, everyone wants to exploit his friend, his father, his mother, everyone. But in the transcendental world, everyone wants to serve. Everyone has Kṛṣṇa as the central point of serving, and all the devotees, either as friends or servants or parents or lovers of Kṛṣṇa, all want to serve Him. And at the same time, Kṛṣṇa also wants to serve them. This is a transcendental relationship; the main function is service, although there is no necessity of service, for everyone is full. There is no hunger, there is no necessity of eating, but still everyone offers nice things to eat. This is the transcendental world. Unless we attain the stage of simply serving Kṛṣṇa or His devotee, we cannot relish the transcendental pleasure of service. If we have any motive, then that sense will never be awakened. Without a motive, without desire for personal sense gratification, service should be rendered to the Supreme Lord and His devotees.
 
-## The Perfection of Self-realization
+## Approaching Kṛṣṇa With Love
 
 "This is the formula—we should not try to satisfy our senses separately but should try to satisfy Kṛṣṇa's senses. Then naturally we will become satisfied. A Kṛṣṇa conscious person is always trying to give satisfaction to Kṛṣṇa. . . ."
 

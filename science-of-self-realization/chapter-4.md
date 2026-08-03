@@ -1,8 +1,8 @@
 ### 4
 
-4. Understanding Kṛṣṇa and Christ
+IV. Understanding Kṛṣṇa and Christ
 
-## Kṛṣṇa, Christos, Christ
+## Kṛṣṇa or Christ—The Name Is the Same
 
 It is 1974. Near ISKCON's center in Frankfurt am Main, West Germany, Śrīla Prabhupāda and several of his disciples take a morning walk with Father Emmanuel Jungclaussen, a Benedictine monk from Niederalteich Monastery. Noticing that Śrīla Prabhupāda is carrying meditation beads similar to the rosary, Father Emmanuel explains that he also chants a constant prayer: "Lord Jesus Christ, be merciful unto us." The following conversation ensues:
 
@@ -183,7 +183,7 @@ I thank you very much.
 **Śrīla Prabhupāda:**
 Hare Kṛṣṇa.
 
-## Jesus Christ Was a Guru
+## Christ, Christians, and Kṛṣṇa
 
 "A Vaiṣṇava [a pure devotee of the Lord] is unhappy to see the suffering of others. Therefore, Lord Jesus Christ agreed to be crucified—to free others from their suffering. But his followers are so unfaithful that they have decided, 'Let Christ suffer for us, and we'll go on committing sin.' They love Christ so much that they think, 'My dear Christ, we are very weak. We cannot give up our sinful activities. So you please suffer for us. . . .'"
 
@@ -207,7 +207,7 @@ Once, in Melbourne, a group of Christian ministers came to visit me. They asked,
 
 Actually, anyone who is preaching God's glories must be accepted as a *guru.* Jesus Christ is one such great personality. We should not think of him as an ordinary human being. The scriptures say that anyone who considers the spiritual master to be an ordinary man has a hellish mentality. If Jesus Christ were an ordinary man, then he could not have delivered God consciousness.
 
-## “Thou Shalt Not Kill” or “Thou Shalt Not Murder”?
+## Thou Shalt Not Kill
 
 At a monastic retreat near Paris, in July of 1973, Śrīla Prabhupāda talked with Cardinal Jean Danielou: "... the Bible does not simply say, 'Do not kill the human being.' It says broadly, 'Thou shalt not kill.'... why do you interpret this to suit your own convenience?"
 

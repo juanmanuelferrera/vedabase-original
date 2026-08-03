@@ -1,8 +1,8 @@
 ### 1
 
-1. Learning the Science of the Self
+I. Learning the Science of the Soul
 
-## Discovering the Self
+## Seeing the Aim of Human Life
 
 "At present, human society is being misled by leaders who are blind, for they do not know the aim and objective of human life, which is self-realization and the reestablishment of our lost relationship with the Supreme Personality of Godhead. . . . The Kṛṣṇa consciousness movement is trying to enlighten human society in this important matter."
 
@@ -44,7 +44,7 @@ Although every place in the creation is within the kingdom of God because the Lo
 
 The Kṛṣṇa consciousness movement is trying to bring that spiritual existence to humanity at large. In our present material consciousness, we are attached to the sensual material conception of life, but this conception can be removed at once by devotional service to Kṛṣṇa, or Kṛṣṇa consciousness. If we adopt the principles of devotional service, we can become transcendental to the material conceptions of life and be liberated from the modes of goodness, passion, and ignorance, even in the midst of various material engagements. Everyone who is engaged in material affairs can derive the highest benefit from the pages of *Back to Godhead* and the other literatures of this Kṛṣṇa consciousness movement. These literatures help all people sever the roots of the indefatigable banyan tree of material existence. These literatures are authorized to train us to renounce everything related to the material conception of life and to relish spiritual nectar in every object. This stage is obtainable only by devotional service and nothing else. By rendering such service, one can at once get liberation (*mukti*) even during this present life. Most spiritual endeavors are tinged with the colors of materialism, but pure devotional service is transcendental to all material pollution. Those who desire to go back to Godhead need only adopt the principles of this Kṛṣṇa consciousness movement and simply aim their consciousness at the lotus feet of the Supreme Lord, the Personality of Godhead, Kṛṣṇa.
 
-## What Is Kṛṣṇa Consciousness?
+## “Your Original Consciousness is Kṛṣṇa Consciousness”
 
 "Your original consciousness is Kṛṣṇa consciousness," Śrīla Prabhupāda tells freelance reporter Sandy Nixon. "Now your consciousness is covered with so much rubbish. You have to cleanse it, and then—Kṛṣṇa consciousness. Our consciousness is like water. Water is by nature clear and transparent, but sometimes it becomes muddy. If you filter all the mud out of the water, it again comes to its original clear, transparent state."
 
@@ -199,7 +199,7 @@ Thank you very much.
 **Śrīla Prabhupāda:**
 Hare Kṛṣṇa!
 
-## A Definition of God
+## “Real Advancement Means Knowing God”
 
 "The purpose of this Kṛṣṇa consciousness movement is to propagate God's name, God's glories, God's activities, God's beauty, and God's love. . . . This Kṛṣṇa consciousness movement is meant to give perfect knowledge to human society."
 
@@ -614,7 +614,7 @@ Mundaners do not know that the whole spiritual entity is the beautiful person wh
 
 Although written by the greatest mundane poet or intellectual, any literature which does not describe the ultimate truth and beauty is but a store of loose stool and vomit of the relative truth. Real literature is that which describes the ultimate truth and beauty of the Absolute.
 
-## The Art of Dying
+## Relevant Inquiries
 
 *Again in the old tabloid* Back to Godhead, *this time dated April 20, 1960, Śrīla Prabhupāda talks about the science of the soul: ". . . since a human being is a rational animal, he is born to make inquiries and questions. The greater the number of questions, the greater the advancement of knowledge and science. . . . The most intelligent man, however, inquires about what happens after death. . . ."*
 

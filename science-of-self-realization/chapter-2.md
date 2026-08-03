@@ -1,6 +1,6 @@
 ### 2
 
-2. Choosing a Spiritual Master
+II. Choosing a Spiritual Master
 
 ## What Is a Guru?
 
@@ -99,7 +99,7 @@ Whatever position we have in this material world must be given up. We may have a
 
 Is there any science that gives us the knowledge by which we may become immortal? Yes, we may become immortal, but not in the material sense. We cannot receive this knowledge in so-called universities. However, there is knowledge contained in the Vedic scriptures by which we may become immortal. That immortality is our better position. No more birth, no more death, no more old age, no more disease. Thus the *guru* takes on a very great responsibility. He must guide his disciple and enable him to become an eligible candidate for the perfect position—immortality. The *guru* must be competent to lead his disciple back home, back to Godhead.
 
-## Saints and Swindlers
+## Separating the Saints From the Swindlers
 
 *Śrīla Prabhupāda speaks out in an interview with the London* Times: *"If you want to be cheated, you will find many cheating gurus. But if you are sincere, you will find a sincere guru. . . . The genuine guru is God's representative, and he speaks about God and nothing else. . . . A genuine guru is not a businessman. He is a representative of God. Whatever God says, the guru repeats. He does not speak otherwise."*
 
@@ -343,7 +343,7 @@ Thank you very much.
 **Śrīla Prabhupāda:**
 Hare Kṛṣṇa.
 
-## The Absolute Necessity of a Spiritual Master
+## “With All the Humility at My Command”
 
 It is February 1936, in Bombay. The pure devotee who three decades later will become the world-renowned spiritual master of the Kṛṣṇa consciousness movement glorifies his own spiritual master. Here we learn the time-honored meaning of the spiritual master, the disciple, and their relationship. . . .
 

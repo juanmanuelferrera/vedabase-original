@@ -1,6 +1,6 @@
 ### 6
 
-6. Finding Spiritual Solutions to Material Problems
+VI. Finding the Cure for Today's Social Ills
 
 ## Crime: Why and What to Do?
 
@@ -129,7 +129,7 @@ Sir, let me thank you for your time. I will deliver this tape recording to my su
 **Śrīla Prabhupāda:**
 Thank you very much.
 
-## Human Society or Animal Society?
+## Can We Keep Society From Going to the Dogs?
 
 *Śrīla Prabhupāda speaks out to India's* Bhavan's Journal: *"A dog comes when there are some eatables; I say 'Hut!' and he goes away. But again he comes—he has no memory. So when our memory of God is reducing, that means that our human qualities are reducing. . . . There is no religion, simply a dog's race. The dog is running on four legs, and you are running on four wheels—that's all. And you think that the four-wheel race is advancement of civilization!"*
 
@@ -341,7 +341,7 @@ How can we cure the situation?
 **Śrīla Prabhupāda:**
 Kṛṣṇa is the Supreme Personality of Godhead. If you do not accept that Kṛṣṇa is the supreme entity, then try to understand. That is education: there is someone supreme; Kṛṣṇa is not Indian; He is God. The sun rises first in India, but that does not mean that the sun is Indian; similarly, although Kṛṣṇa appeared in India, now He has come to the Western countries, through this Kṛṣṇa consciousness movement.
 
-## Altruism: Temporary and Eternal
+## The Supreme Welfare Work
 
 Śrīla Prabhupāda exchanges letters with the Secretary of the Andhra Pradesh Relief Fund Committee of Hyderabad, India: "... if you want to perform relief work simply by collecting funds, I think that will not be successful. You have to please the supreme authority, and that is the way to success. For example, due to the performance of saṅkīrtana [congregational chanting of Hare Kṛṣṇa] here, the rain has begun to fall after a drought of two years. . . ."
 
