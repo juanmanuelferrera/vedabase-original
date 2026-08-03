@@ -113,11 +113,11 @@ Regarding the *Bhagavad-gītā,* verse 9.14, *kīrtayantaḥ* certainly means gl
 > muhur aho rasikā bhuvi bhāvukāḥ
 > [[sb/1/1/3|[SB 1.1.3] ]]
 
-**"O expert and thoughtful men, relish *Śrīmad-Bhāgavatam,* the mature fruit of the desire tree of Vedic literatures. It emanated from the lips of Śrī Śukadeva Gosvāmī. Therefore this fruit has become even more tasteful, although its nectarean juice was already relishable for all, including liberated souls."** (Śrīmad-Bhāgavatam 1.1.3)
+**"O expert and thoughtful men, relish *Śrīmad-Bhāgavatam,* the mature fruit of the desire tree of Vedic literatures. It emanated from the lips of Śrī Śukadeva Goswami. Therefore this fruit has become even more tasteful, although its nectarean juice was already relishable for all, including liberated souls."** (Śrīmad-Bhāgavatam 1.1.3)
 
-It is said that Mahārāja Parīkṣit attained salvation simply by hearing, and similarly Śukadeva Gosvāmī attained salvation simply by chanting. In our devotional service there are nine different methods for achieving the same goal, love of Godhead, and the first process is hearing. This hearing process is called *śruti.* The next process is chanting. The chanting process is *smṛti.* We accept both *śruti* and *smṛti* simultaneously. We consider *śruti* the mother and *smṛti* the sister, because a child hears from the mother and then again learns from the sister by description.
+It is said that Mahārāja Parīkṣit attained salvation simply by hearing, and similarly Śukadeva Goswami attained salvation simply by chanting. In our devotional service there are nine different methods for achieving the same goal, love of Godhead, and the first process is hearing. This hearing process is called *śruti.* The next process is chanting. The chanting process is *smṛti.* We accept both *śruti* and *smṛti* simultaneously. We consider *śruti* the mother and *smṛti* the sister, because a child hears from the mother and then again learns from the sister by description.
 
-*Śruti* and *smṛti* are two parallel lines. Śrīla Rūpa Gosvāmī therefore says:
+*Śruti* and *smṛti* are two parallel lines. Śrīla Rūpa Goswami therefore says:
 
 > śruti-smṛti-purāṇādi-
 > pañcarātra-vidhiṁ vinā

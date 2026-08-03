@@ -218,7 +218,7 @@ Prahlāda Mahārāja regrets that these great saintly persons do not come to the
 
 Even if there were some point in working that hard, such people do not know what it is. All they know is sex. Either they go to a naked dance or to a naked club or to this or that. Prahlāda Mahārāja says, *naitān vihāya kṛpaṇān vimumukṣa eko:* "My Lord, I do not need salvation alone. Unless I take all these fools with me, I shall not go." He refuses to go to the kingdom of God without taking all these fallen souls with him. This is a Vaiṣṇava. *Nānyaṁ tvad asya śaraṇaṁ bhramato 'nupaśye:* "I simply want to teach them how to surrender unto You. That's all. That is my goal."
 
-The Vaiṣṇava knows that as soon as one surrenders, one's path is clear. *Naivodvije para duratyaya-vaitaraṇyās tvad-vīrya-gāyana-mahāmṛta-magna-cittaḥ:* ''Somehow or other, let them bow down before Kṛṣṇa." This is a simple method. All you have to do is bow down before Kṛṣṇa with faith and say, "My Lord Kṛṣṇa, I was forgetful of You for so long, for so many lives. Now I have come to consciousness; please accept me." That's all. If one simply learns this technique and sincerely surrenders himself to the Lord, his path is immediately open. These are the philosophical thoughts of a Vaiṣṇava. A Vaiṣṇava is always thinking about how the fallen conditioned souls can be delivered. He is always involved in making plans in that way, just like the Gosvāmīs. What was the business of the six Gosvāmīs of Vṛndāvana, Lord Caitanya's direct disciples? That is stated by Śrīnivāsa Ācārya:
+The Vaiṣṇava knows that as soon as one surrenders, one's path is clear. *Naivodvije para duratyaya-vaitaraṇyās tvad-vīrya-gāyana-mahāmṛta-magna-cittaḥ:* ''Somehow or other, let them bow down before Kṛṣṇa." This is a simple method. All you have to do is bow down before Kṛṣṇa with faith and say, "My Lord Kṛṣṇa, I was forgetful of You for so long, for so many lives. Now I have come to consciousness; please accept me." That's all. If one simply learns this technique and sincerely surrenders himself to the Lord, his path is immediately open. These are the philosophical thoughts of a Vaiṣṇava. A Vaiṣṇava is always thinking about how the fallen conditioned souls can be delivered. He is always involved in making plans in that way, just like the Goswamis. What was the business of the six Goswamis of Vṛndāvana, Lord Caitanya's direct disciples? That is stated by Śrīnivāsa Ācārya:
 
 > nānā-śāstra-vicāraṇaika-nipuṇau sad-dharma-saṁsthāpakau
 > lokānāṁ hita-kārinau tribhuvane mānyau śaraṇyākarau
@@ -236,7 +236,7 @@ With similar Vaiṣṇava compassion, Parīkṣit Mahārāja says to Śukadeva G
 
 *Nara* means human beings, those who are fallen. *Narakān naraḥ/ nānogra-yātanān neyāt tan me:* "How can they be delivered from their fierce miseries and horrible pains?" That is a Vaiṣṇava heart. Mahārāja Parīkṣit says, "Somehow or other they have fallen down to this hellish life. But that does not mean that they should remain in that condition. There must be some means by which they can be delivered, so kindly explain that."
 
-Śukadeva Gosvāmī replied:
+Śukadeva Goswami replied:
 
 > na ced ihaivāpacitiṁ yathāṁhasaḥ
 > kṛtasya kuryān mana-ukta-pāṇibhiḥ
@@ -265,7 +265,7 @@ Parīkṣit Mahārāja says here, "It is not that if I say there is no God then 
 
 When rabbits are being attacked by bigger animals, they close their eyes and think, "I am not going to be killed." But they are killed anyway. Similarly, we may deny the existence of God and the law of God, but still God and His law are there. In the high-court you may say, "I don't care for the law of the government," but you will be forced to accept the government law. If you deny the state law, then you will be put into prison and be caused to suffer. Similarly, you may foolishly decry the existence of God—"There is no God" or "I am God"—but nevertheless you are responsible for all your actions, both good and bad.
 
-There are two kinds of activities—good and bad. If you act nicely and perform pious activities, then you get good fortune, and if you act sinfully, then you have to suffer. Therefore Śukadeva Gosvāmī says:
+There are two kinds of activities—good and bad. If you act nicely and perform pious activities, then you get good fortune, and if you act sinfully, then you have to suffer. Therefore Śukadeva Goswami says:
 
 > tasmāt puraivāśv iha pāpa-niṣkṛtau
 > yateta mṛtyor avipadyatātmanā
