@@ -15,7 +15,3 @@
 Si nos ocupamos persistentemente en el servicio devocional, sin duda todos nuestros deseos se verán satisfechos a su debido tiempo.
 
 Así terminan los significados de Bhaktivedanta correspondientes al capítulo vigesimocuarto del Canto Cuarto del Śrīmad-Bhāgavatam, titulado «El canto de la canción entonada por el Señor Śiva».
-
-SB 4.25: Las descripciones de las características del rey Purañjana
-
-25. Las descripciones de las características del rey Purañjana

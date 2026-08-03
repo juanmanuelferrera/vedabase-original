@@ -19,5 +19,3 @@ māṁ hi pārtha vyapāśritya ye 'pi syuḥ pāpa-yonayaḥ striyo vaiśyās t
 "O son of Pṛthā, those who take shelter of Me, though they be of lower birth—women, vaiśyas [merchants], as well as śūdras [workers]—can approach the supreme destination." (Bg. 9.32)
 
 Thus end the Bhaktivedanta purports of the Fourth Canto, Fourteenth Chapter, of the Śrīmad-Bhāgavatam, entitled "The Story of King Vena."
-
-15. King Pṛthu's Appearance and Coronation

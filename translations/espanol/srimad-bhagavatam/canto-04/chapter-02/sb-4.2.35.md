@@ -17,7 +17,3 @@ Después de que el Señor Śiva y, antes que él, Dakṣa, abandonaran el recint
 En esta era de Kali resulta prácticamente imposible ejecutar el deva-yajña, o sacrificios a los semidioses. Por ello, en esta era el Śrīmad-Bhāgavatam recomienda el saṅkīrtana-yajña. Yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ. «En esta era, la persona inteligente completa la ejecución de toda clase de yajñas con tan solo cantar Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare». Tasmin tuṣṭe jagat-tuṣṭaḥ: «Cuando el Señor Viṣṇu está satisfecho, todos los semidioses, que son partes integrales del Señor Supremo, quedan satisfechos».
 
 Así terminan los significados de Bhaktivedanta correspondientes al Capítulo Segundo del Canto Cuarto del Śrīmad-Bhāgavatam, titulado «Dakṣa maldice al Señor Śiva».
-
-SB 4.3: Conversaciones entre el Señor Śiva y Satī
-
-3. Conversaciones entre el Señor Śiva y Satī

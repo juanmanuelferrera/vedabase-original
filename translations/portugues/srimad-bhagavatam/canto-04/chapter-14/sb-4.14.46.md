@@ -22,5 +22,3 @@ māṁ hi pārtha vyapāśritya ye 'pi syuḥ pāpa-yonayaḥ striyo vaiśyās t
 "Ó filho de Pṛthā, aqueles que se abrigam em Mim, embora sejam de nascimento inferior — mulheres, vaiśyas [comerciantes], bem como śūdras [trabalhadores] —, podem aproximar-se do destino supremo." (Bg. 9.32)
 
 Neste ponto, encerram-se os significados Bhaktivedanta do décimo quarto capítulo do Quarto Canto do Śrīmad-Bhāgavatam, intitulado "A História do Rei Vena".
-
-15. O Aparecimento e a Coroação do Rei Pṛthu

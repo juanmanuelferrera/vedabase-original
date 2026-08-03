@@ -17,7 +17,3 @@ Nārada Muni envió a Kālakanyā a Yavana-rāja para que ella se convirtiera en
 La palabra prajvāraḥ es muy significativa, pues significa «la fiebre enviada por el Señor Viṣṇu». Tal fiebre se fija siempre en 42 grados, la temperatura a la que muere un hombre. Así pues, el rey de los mlecchas y los yavanas pidió a la hija del Tiempo, Kālakanyā, que se convirtiera en su hermana. No había necesidad de pedirle que se convirtiera en su esposa, porque los yavanas y los mlecchas no hacen distinción alguna en lo que respecta a la vida sexual. Por eso uno puede ser de forma manifiesta hermana, madre o hija y, aun así, tener relaciones sexuales. El hermano de Yavana-rāja era Prajvāra, y Kālakanyā era la invalidez en persona. Combinados y fortalecidos por los soldados de Yavana-rāja —a saber, las condiciones antihigiénicas, la vida sexual ilícita y, en última instancia, una elevada temperatura para provocar la muerte—, serían capaces de aplastar el modo de vida materialista. En relación con esto, es significativo que, así como Nārada era inmune al ataque de jarā, la invalidez, del mismo modo, jarā, la fuerza destructora, no puede atacar a ningún seguidor de Nārada Muni ni a un vaiṣṇava puro.
 
 Así terminan los significados de Bhaktivedanta correspondientes al capítulo vigesimoséptimo del Canto Cuarto del Śrīmad-Bhāgavatam, titulado «Caṇḍavega ataca la ciudad del rey Purañjana; el carácter de Kālakanyā».
-
-SB 4.28: Purañjana se convierte en mujer en la siguiente vida
-
-28. Purañjana se convierte en mujer en la siguiente vida

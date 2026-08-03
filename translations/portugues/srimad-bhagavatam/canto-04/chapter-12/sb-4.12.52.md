@@ -18,7 +18,3 @@ gṛhaṁ ca viṣṇuṁ śaraṇaṁ yo jagāma
 Cāṇakya Paṇḍita afirma que a vida é decerto curta para todos, mas que, se a pessoa agir corretamente, sua reputação permanecerá por uma geração. Assim como a Suprema Personalidade de Deus, Kṛṣṇa, é eternamente famoso, do mesmo modo a reputação do devoto do Senhor Kṛṣṇa também é eterna. Por isso, na descrição das atividades de Dhruva Mahārāja, foram empregadas duas palavras específicas — vikhyāta, muito famoso, e viśuddha, transcendental. O fato de Dhruva Mahārāja deixar o lar em idade tenra e abrigar-se na Suprema Personalidade de Deus na floresta é um exemplo único neste mundo.
 
 Neste ponto, encerram-se os significados Bhaktivedanta do Quarto Canto, Décimo Segundo Capítulo, do *Śrīmad-Bhāgavatam*, intitulado "Dhruva Mahārāja Volta ao Supremo".
-
-SB 4.13: Descrição dos Descendentes de Dhruva Mahārāja
-
-13. Descrição dos Descendentes de Dhruva Mahārāja

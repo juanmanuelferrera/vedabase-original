@@ -15,7 +15,3 @@
 El Señor Supremo no es visible para los ojos materiales, pero, cuando los sentidos materiales se inclinan hacia el trascendental servicio amoroso del Señor y de ese modo se purifican, el Señor Se revela ante la visión del devoto. Avyakta significa «no manifestado». Aunque el mundo material es la creación de la Suprema Personalidad de Dios, Él permanece no manifestado para los ojos materiales. Mahārāja Pṛthu, sin embargo, desarrolló ojos espirituales mediante su servicio devocional puro. Por eso aquí se describe al Señor como sandarśitātmā, pues Se revela ante la visión del devoto, aunque no es visible para los ojos ordinarios.
 
 Así terminan los significados de Bhaktivedanta correspondientes al Capítulo Vigésimo del Canto Cuarto del Śrīmad-Bhāgavatam, titulado «La aparición del Señor Viṣṇu en el recinto de sacrificio de Mahārāja Pṛthu».
-
-SB 4.21: Instrucciones de Mahārāja Pṛthu
-
-21. Instrucciones de Mahārāja Pṛthu

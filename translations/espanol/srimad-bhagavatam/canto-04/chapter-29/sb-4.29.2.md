@@ -19,7 +19,3 @@ Aquí se describe muy bien cómo el alma espiritual transmigra de un tipo de cue
 De hecho, toda la existencia material no es más que un sueño. Por lo tanto, no hay lugar para el pasado, el presente ni el futuro. Las personas que son adictas al karma-kāṇḍa-vicāra, que significa «trabajar por la felicidad futura mediante actividades fruitivas», también están soñando. De manera similar, la felicidad pasada y la felicidad presente son meros sueños. La verdadera realidad es Kṛṣṇa y el servicio a Kṛṣṇa, que puede salvarnos de las garras de la māyā, pues el Señor dice en el Bhagavad-gītā (Bg. 7.14): mām eva ye prapadyante māyām etāṁ taranti te: «Aquellos que se entregan a Mí pueden cruzar fácilmente más allá de Mi energía ilusoria».
 
 Así terminan los significados Bhaktivedanta del Capítulo Vigesimonoveno del Cuarto Canto del Śrīmad-Bhāgavatam, titulado «Conversaciones entre Nārada y el rey Prācīnabarhi».
-
-SB 4.30: Las actividades de los Pracetās
-
-30. Las actividades de los Pracetās

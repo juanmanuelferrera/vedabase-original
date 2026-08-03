@@ -23,7 +23,3 @@ loko 'ñjasā tarati dustaram aṅga mṛtyum
 Os grandes ṛṣis aproximaram-se de Dhruva Mahārāja num momento em que sua mente estava muito perplexa devido às proezas mágicas exibidas pelos Yakṣas. O devoto é sempre protegido pela Suprema Personalidade de Deus. Foi apenas por inspiração Dele que os sábios vieram encorajar Dhruva Mahārāja e assegurar-lhe que não havia perigo, porque ele era uma alma plenamente rendida ao Senhor Supremo. Pela graça do Senhor, se um devoto consegue simplesmente cantar Seu santo nome — Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare — no momento da morte, então ele imediatamente ultrapassa o grande oceano do céu material e entra no céu espiritual. Jamais terá de voltar para a repetição de nascimentos e mortes. Simplesmente por cantar o santo nome do Senhor, a pessoa pode ultrapassar o oceano da morte; assim, Dhruva Mahārāja certamente foi capaz de ultrapassar as ilusórias proezas mágicas dos Yakṣas, que por algum tempo perturbaram sua mente.
 
 Neste ponto encerram-se os significados Bhaktivedanta do Quarto Canto, Décimo Capítulo, do Śrīmad-Bhāgavatam, intitulado "A Luta de Dhruva Mahārāja com os Yakṣas".
-
-SB 4.11: Svāyambhuva Manu Aconselha Dhruva Mahārāja a Parar de Lutar
-
-11. Svāyambhuva Manu Aconselha Dhruva Mahārāja a Parar de Lutar

@@ -23,7 +23,3 @@ Como a alma espiritual transmigra de um tipo de corpo para outro é muito bem de
 Na verdade, toda a existência material é apenas um sonho. Assim, não há possibilidade de passado, presente ou futuro. As pessoas viciadas em karma-kāṇḍa-vicāra, o que significa "trabalhar pela felicidade futura através de atividades fruitivas", também estão sonhando. De modo semelhante, a felicidade passada e a felicidade presente são meros sonhos. A realidade verdadeira é Kṛṣṇa e o serviço a Kṛṣṇa, que podem salvar-nos das garras de māyā, pois o Senhor diz no Bhagavad-gītā (Bg. 7.14): mām eva ye prapadyante māyām etāṁ taranti te: "Aqueles que se rendem a Mim podem facilmente transpor Minha energia ilusória."
 
 Neste ponto, encerram-se os significados Bhaktivedanta do Quarto Canto, Vigésimo Nono Capítulo, do Śrīmad-Bhāgavatam, intitulado "Conversas entre Nārada e o Rei Prācīnabarhi."
-
-SB 4.30: As Atividades dos Pracetās
-
-30. As Atividades dos Pracetās

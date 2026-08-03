@@ -25,7 +25,3 @@ brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati samaḥ sarveṣu bh�
 El plano del conocimiento es ventajoso, porque es un medio por el cual uno puede llegar a la etapa del servicio devocional. Sin embargo, si uno emprende directamente el servicio devocional, el conocimiento se revela sin un esfuerzo aparte. Esto se confirma en el *Śrīmad-Bhāgavatam*: vāsudeve bhagavati bhakti-yogaḥ prayojitaḥ/ janayaty āśu vairāgyaṁ jñānaṁ ca yad ahaitukam (1.2.7). El servicio devocional revela automáticamente el verdadero conocimiento de nuestra existencia material. Aquel que es suficientemente inteligente alcanza de inmediato la etapa de la renunciación a la supuesta sociedad, familia y amor, así como a otras cosas. Mientras estemos apegados a la sociedad, la familia y el amor del mundo material, no hay lugar para el conocimiento. Tampoco hay lugar para el servicio devocional. Al emprender directamente el servicio devocional, sin embargo, uno se llena de conocimiento y renunciación. De esta manera, la vida de uno alcanza el éxito.
 
 Así terminan los significados de Bhaktivedanta correspondientes al Capítulo Vigésimo Quinto del Cuarto Canto del *Śrīmad-Bhāgavatam*, titulado «Las descripciones de las características del rey Purañjana».
-
-SB 4.26: El rey Purañjana se va al bosque a cazar, y su reina se enoja
-
-26. El rey Purañjana se va al bosque a cazar, y su reina se enoja

@@ -19,5 +19,3 @@ Aquí, una palabra, saṅgatātmā, es malinterpretada por los filósofos māyā
 Al complacer a la Suprema Personalidad de Dios, uno complace a todos, tal como, al regar la raíz de un árbol, uno satisface cada rama, ramita y hoja del árbol. Si uno puede atraer a la Suprema Personalidad de Dios, naturalmente atrae al universo entero, porque Kṛṣṇa es la causa suprema del universo. Todos los semidioses temían quedar totalmente aniquilados por la asfixia, pero la Personalidad de Dios les aseguró que Dhruva Mahārāja era un gran devoto del Señor y que no estaba a punto de aniquilar a todos en el universo. El devoto nunca envidia a las demás entidades vivientes.
 
 Así terminan los significados de Bhaktivedanta correspondientes al capítulo octavo del Canto Cuarto del Śrīmad-Bhāgavatam, titulado «Dhruva Mahārāja abandona el hogar y se va al bosque».
-
-SB 4.8: Dhruva Mahārāja abandona el hogar y se va al bosque

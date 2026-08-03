@@ -36,7 +36,3 @@ patraṁ puṣpaṁ phalaṁ toyaṁ yo me bhaktyā prayacchati tad ahaṁ bhakt
 Dakṣa llegó a ser casi tan poderoso como el Señor Brahmā. En consecuencia, el Señor Brahmā lo ocupó en engendrar población. Dakṣa era muy influyente y opulento. A su vez, Dakṣa ocupó a otros prajāpatis, encabezados por Marīci. De esta manera aumentó la población del universo.
 
 Así terminan los significados de Bhaktivedanta correspondientes al Capítulo Trigésimo del Cuarto Canto del Śrīmad-Bhāgavatam, titulado «Las actividades de los Pracetās».
-
-SB 4.31: Nārada instruye a los Pracetās
-
-31. Nārada instruye a los Pracetās

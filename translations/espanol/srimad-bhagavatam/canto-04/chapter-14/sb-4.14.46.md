@@ -19,5 +19,3 @@ māṁ hi pārtha vyapāśritya ye 'pi syuḥ pāpa-yonayaḥ striyo vaiśyās t
 «¡Oh hijo de Pṛthā!, aquellos que se refugian en Mí, aunque sean de bajo nacimiento —las mujeres, los vaiśyas [comerciantes], así como los śūdras [trabajadores]—, pueden alcanzar el destino supremo». (Bg. 9.32)
 
 Así terminan los significados de Bhaktivedanta correspondientes al Capítulo Decimocuarto del Canto Cuarto del Śrīmad-Bhāgavatam, titulado «La historia del rey Vena».
-
-15. La aparición y coronación del rey Pṛthu

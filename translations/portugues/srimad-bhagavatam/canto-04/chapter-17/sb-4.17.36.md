@@ -22,7 +22,3 @@ A palavra īśvarāṇām refere-se a todas as Personalidades de Deus. Como se a
 Para nossa compreensão, às vezes se diz que o Senhor está situado no coração do ladrão bem como no coração do chefe de família, mas a Superalma no coração do ladrão dita: "Vai e rouba coisas daquela casa em particular", e, ao mesmo tempo, o Senhor diz ao chefe de família: "Agora toma cuidado com ladrões e assaltantes." Essas instruções a pessoas diferentes parecem contraditórias, mas devemos saber que a Superalma, a Suprema Personalidade de Deus, tem algum plano, e não devemos considerar tais atividades contraditórias. O melhor caminho é render-se de todo o coração à Suprema Personalidade de Deus e, protegido por Ele, permanecer em paz.
 
 Neste ponto, encerram-se os significados Bhaktivedanta do Quarto Canto, Décimo Sétimo Capítulo, do Śrīmad-Bhāgavatam, intitulado "Mahārāja Pṛthu Fica Irado com a Terra".
-
-SB 4.18: Pṛthu Mahārāja Ordenha o Planeta Terra
-
-18. Pṛthu Mahārāja Ordenha o Planeta Terra

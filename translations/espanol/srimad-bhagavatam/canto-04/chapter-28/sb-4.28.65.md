@@ -97,7 +97,3 @@ Vīrya. Aquel que tiene misericordia.
 Yavana. El sirviente de Yamarāja.
 
 Así terminan los significados de Bhaktivedanta correspondientes al Capítulo Vigésimo Octavo del Cuarto Canto del Śrīmad-Bhāgavatam, titulado «Purañjana se convierte en mujer en la siguiente vida».
-
-SB 4.29: Conversaciones entre Nārada y el rey Prācīnabarhi
-
-29. Conversaciones entre Nārada y el rey Prācīnabarhi

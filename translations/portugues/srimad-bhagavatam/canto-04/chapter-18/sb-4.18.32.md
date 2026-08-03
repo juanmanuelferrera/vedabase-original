@@ -18,7 +18,3 @@ tatra tatrākutobhayāḥ
 Por esta afirmação, parece que o planejamento de vilas e cidades não é algo novo, mas vem sendo transmitido desde a época do rei Pṛthu. Na Índia, podemos ver métodos regulares de planejamento evidentes em cidades muito antigas. No Śrīmad-Bhāgavatam, há muitas descrições de tais cidades antigas. Mesmo há 5.000 anos, a capital do Senhor Kṛṣṇa, Dvārakā, era bem planejada, e outras cidades semelhantes — Mathurā e Hastināpura (hoje Nova Delhi) — também eram bem planejadas. Assim, o planejamento de cidades e vilas não é uma inovação moderna, mas existia em eras passadas.
 
 Neste ponto, encerram-se os significados Bhaktivedanta do Quarto Canto, Décimo Oitavo Capítulo, do Śrīmad-Bhāgavatam, intitulado "Pṛthu Mahārāja Ordenha o Planeta Terra".
-
-SB 4.19: Os Cem Sacrifícios de Cavalo do Rei Pṛthu
-
-19. Os Cem Sacrifícios de Cavalo do Rei Pṛthu

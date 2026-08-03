@@ -17,7 +17,3 @@ En la época de Mahārāja Pṛthu, el mundo estaba gobernado por un solo empera
 La palabra utpāṭita-loka-śalyaḥ indica que Mahārāja Pṛthu arrancó por completo todas las miserias de sus ciudadanos. La palabra śalya significa «espinas que se clavan». Hay muchas clases de miserables espinas que se clavan en los ciudadanos de un Estado, pero todos los gobernantes competentes, incluso hasta el reinado de Mahārāja Yudhiṣṭhira, arrancaron todas las condiciones miserables de los ciudadanos. Se afirma que durante el reinado de Mahārāja Yudhiṣṭhira ni siquiera existía el frío intenso ni el calor abrasador, ni tampoco sufrían los ciudadanos de ninguna clase de ansiedad mental. Ese es el criterio de un buen gobierno. Pṛthu Mahārāja estableció un gobierno tan pacífico y próspero, libre de ansiedad. De este modo, los habitantes de los planetas santos y los de los demoníacos estaban todos ocupados en glorificar las actividades de Mahārāja Pṛthu. Las personas o naciones ansiosas de extender su influencia por todo el mundo deberían considerar este punto. Si uno es capaz de erradicar por completo las tres miserias de los ciudadanos, debe aspirar a gobernar el mundo. No se debe aspirar a gobernar por ninguna consideración política o diplomática.
 
 Así terminan los significados de Bhaktivedanta correspondientes al Capítulo Decimosexto del Canto Cuarto del Śrīmad-Bhāgavatam, titulado «Alabanza del rey Pṛthu por parte de los recitadores profesionales».
-
-SB 4.17: Mahārāja Pṛthu se enfada con la Tierra
-
-17. Mahārāja Pṛthu se enfada con la Tierra

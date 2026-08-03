@@ -28,7 +28,3 @@ brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati samaḥ sarveṣu bh�
 A plataforma do conhecimento é vantajosa porque é um meio pelo qual a pessoa pode chegar à etapa do serviço devocional. Contudo, se a pessoa adota o serviço devocional diretamente, o conhecimento é revelado sem esforço à parte. Isso é confirmado no Śrīmad-Bhāgavatam: vāsudeve bhagavati bhakti-yogaḥ prayojitaḥ/ janayaty āśu vairāgyaṁ jñānaṁ ca yad ahaitukam (1.2.7). O serviço devocional automaticamente revela o conhecimento verdadeiro de nossa existência material. Aquele que é suficientemente inteligente alcança imediatamente a etapa de renúncia à suposta sociedade, à família e ao amor, bem como a outras coisas. Enquanto estivermos apegados à sociedade, à família e ao amor do mundo material, não há possibilidade de conhecimento. Tampouco há possibilidade de serviço devocional. Ao adotar diretamente o serviço devocional, contudo, a pessoa fica repleta de conhecimento e renúncia. Dessa maneira, sua vida se torna bem-sucedida.
 
 Neste ponto, encerram-se os significados Bhaktivedanta do Quarto Canto, Vigésimo Quinto Capítulo, do Śrīmad-Bhāgavatam, intitulado "As Descrições das Características do Rei Purañjana".
-
-SB 4.26: O Rei Purañjana Vai à Floresta Caçar, e Sua Rainha Fica Irada
-
-26. O Rei Purañjana Vai à Floresta Caçar, e Sua Rainha Fica Irada

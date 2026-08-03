@@ -15,7 +15,3 @@
 El Señor Śiva, que es el principal de todos los yogīs místicos, ni siquiera construyó una casa para residir en ella. Satī era la hija de un gran rey, Dakṣa, y como su hija menor, Satī, eligió como esposo al Señor Śiva, el rey Dakṣa no estaba muy satisfecho con ella. Por eso, siempre que se encontraba con su padre, este reprendía sin motivo a su esposo, aunque el Señor Śiva era intachable. Debido a esto, antes de alcanzar una edad madura, Satī abandonó el cuerpo que le había dado su padre, Dakṣa, y por ello no pudo tener un hijo.
 
 Así terminan los significados de Bhaktivedanta correspondientes al Capítulo Primero del Canto Cuarto del Śrīmad-Bhāgavatam, titulado «Cuadro genealógico de las hijas de Manu».
-
-SB 4.2: Dakṣa maldice al Señor Śiva
-
-2. Dakṣa maldice al Señor Śiva

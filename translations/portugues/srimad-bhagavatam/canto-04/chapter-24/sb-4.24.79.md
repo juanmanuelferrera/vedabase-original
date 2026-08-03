@@ -18,7 +18,3 @@ caradhvam ante tata āpsyathepsitam
 Se nos ocuparmos persistentemente em serviço devocional, decerto todos os nossos desejos se realizarão no devido curso do tempo.
 
 Neste ponto, encerram-se os significados Bhaktivedanta do Quarto Canto, Vigésimo Quarto Capítulo, do Śrīmad-Bhāgavatam, intitulado "Cantando a Canção Entoada pelo Senhor Śiva".
-
-SB 4.25: As Descrições das Características do Rei Purañjana
-
-25. As Descrições das Características do Rei Purañjana
