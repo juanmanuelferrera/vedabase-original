@@ -14,7 +14,7 @@
 
 Mahārāja Yudhiṣṭhira was not a mere tax collector. He was always conscious of his duty as a king, which is no less than that of a father or spiritual master. The king is to see to the welfare of the citizens from all angles of social, political, economic and spiritual upliftment. The king must know that human life is meant for liberating the encaged soul from the bondage of material conditions, and therefore his duty is to see that the citizens are properly looked after to attain this highest stage of perfection.
 
-Mahārāja Yudhiṣṭhira followed these principles strictly, as it will be seen from the next chapter. Not only did he follow the principles, but he also got approval from his old uncle who was experienced in political affairs, and that was also confirmed by Lord Kṛṣṇa. the speaker of the philosophy of Bhagavad-gītā.
+Mahārāja Yudhiṣṭhira followed these principles strictly, as it will be seen from the next chapter. Not only did he follow the principles, but he also got approval from his old uncle who was experienced in political affairs, and that was also confirmed by Lord Kṛṣṇa, the speaker of the philosophy of Bhagavad-gītā.
 
 Mahārāja Yudhiṣṭhira is the ideal monarch, and monarchy under a trained king like Mahārāja Yudhiṣṭhira is by far the most superior form of government, superior to modern republics or governments of the people, by the people. The mass of people, especially in this age of Kali, are all born śūdras, basically low-born, ill-trained, unfortunate and badly associated. Therefore, they themselves do not know the highest perfectional aim of life. Therefore, votes cast by them actually have no value, and thus persons elected by such irresponsible votes cannot be responsible representatives like Mahārāja Yudhiṣṭhira.
 

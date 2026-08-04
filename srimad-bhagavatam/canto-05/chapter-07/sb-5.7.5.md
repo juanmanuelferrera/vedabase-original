@@ -8,7 +8,7 @@
 
 **With great faith King Bharata performed various kinds of sacrifice. He performed the sacrifices known as agni-hotra, darśa, pūrṇamāsa, cāturmāsya, paśu-yajña [wherein a horse is sacrificed] and soma-yajña [wherein a kind of beverage is offered]. Sometimes these sacrifices were performed completely and sometimes partially. In any case, in all the sacrifices the regulations of cāturhotra were strictly followed. In this way Bharata Mahārāja worshiped the Supreme Personality of Godhead.**
 
-Animals like hogs and cows were offered in sacrifice to test the proper execution of the sacrifice. Otherwise, there was no purpose in killing the animal. Actually the animal was offered in the sacrificial fire to get a rejuvenated life. Generally an old animal was sacrificed in the fire. and it would come out again in a youthful body. Some of the rituals however, did not require animal sacrifice. In the present age, animal sacrifices are forbidden. As stated by Śrī Caitanya Mahāprabhu:
+Animals like hogs and cows were offered in sacrifice to test the proper execution of the sacrifice. Otherwise, there was no purpose in killing the animal. Actually the animal was offered in the sacrificial fire to get a rejuvenated life. Generally an old animal was sacrificed in the fire, and it would come out again in a youthful body. Some of the rituals however, did not require animal sacrifice. In the present age, animal sacrifices are forbidden. As stated by Śrī Caitanya Mahāprabhu:
 
 > aśvamedhaṁ gavālambhaṁ
 > sannyāsaṁ pala-paitṛkam

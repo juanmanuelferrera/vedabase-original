@@ -6,7 +6,7 @@ Hard Struggle for Happiness
 
 
 
-In the revealed scriptures the Supreme Lord is described as sac-cid-ānanda-vigraha . Sat means eternal, cit means fully cognizant, ānanda means joyful, and vigraha means that He is a person. Thus the Lord, or the Supreme Godhead, who is one without a second, is a fully cognizant and eternally joyful personality with a full sense of His identity. No one is equal to Him or greater than Him. This is a concise description of the Supreme Lord.
+In the revealed scriptures the Supreme Lord is described as sac-cid-ānanda-vigraha. Sat means eternal, cit means fully cognizant, ānanda means joyful, and vigraha means that He is a person. Thus the Lord, or the Supreme Godhead, who is one without a second, is a fully cognizant and eternally joyful personality with a full sense of His identity. No one is equal to Him or greater than Him. This is a concise description of the Supreme Lord.
 
 
 
@@ -14,7 +14,7 @@ The living entities (jīvas) are minute samples of the Supreme Lord, and being s
 
 
 
-Every living being desires the topmost level of enjoyment in this material world, and yet everyone is unhappy here. This unhappiness is present on all the higher planets, despite a longer life span, higher standards of enjoyment and comfort. That is due to the law of material nature. We can increase the duration of life and standard to the highest capacity, and yet by the law of material nature we will be unhappy. The reason for this is that the quality of happiness which is suitable for our constitution is different from the happiness which is derived from material activities. The living entity is a minute particle of the superior spiritual energy of the Lord, which is sac-cid-ānanda-vigraha , and therefore he has the necessary propensity for joy which is spiritual in quality. Unfortunately for him, he is trying vainly to attain his enjoyment from the foreign atmosphere of material nature.
+Every living being desires the topmost level of enjoyment in this material world, and yet everyone is unhappy here. This unhappiness is present on all the higher planets, despite a longer life span, higher standards of enjoyment and comfort. That is due to the law of material nature. We can increase the duration of life and standard to the highest capacity, and yet by the law of material nature we will be unhappy. The reason for this is that the quality of happiness which is suitable for our constitution is different from the happiness which is derived from material activities. The living entity is a minute particle of the superior spiritual energy of the Lord, which is sac-cid-ānanda-vigraha, and therefore he has the necessary propensity for joy which is spiritual in quality. Unfortunately for him, he is trying vainly to attain his enjoyment from the foreign atmosphere of material nature.
 
 
 

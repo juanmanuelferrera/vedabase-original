@@ -10,7 +10,7 @@
 > bhruvor madhye prāṇam āveśya samyak\
 > sa taṁ paraṁ puruṣam upaiti divyam
 
-*prayāṇa-kāle*--at the time of death; *manasā*—by the mind; *acalena*—without being deviated; *bhaktyā*—in full devotion; *yuktaḥ*—engaged; *yoga-balena*—by the power of mystic *yoga*; *ca*—also; *eva*—certainly; *bhruvoḥ*—between the two eyebrows; *madhye*—in; *prāṇam*—the life air; *āveśya*—establishing; *samyak*—completely; *saḥ*—he; *tam*—that; *param*—transcendental; *puruṣam*—Personality of Godhead; *upaiti*—achieves; *divyam*—in the spiritual kingdom.
+*prayāṇa-kāle*—at the time of death; *manasā*—by the mind; *acalena*—without being deviated; *bhaktyā*—in full devotion; *yuktaḥ*—engaged; *yoga-balena*—by the power of mystic *yoga*; *ca*—also; *eva*—certainly; *bhruvoḥ*—between the two eyebrows; *madhye*—in; *prāṇam*—the life air; *āveśya*—establishing; *samyak*—completely; *saḥ*—he; *tam*—that; *param*—transcendental; *puruṣam*—Personality of Godhead; *upaiti*—achieves; *divyam*—in the spiritual kingdom.
 
 **One who, at the time of death, fixes his life air between the eyebrows and in full devotion engages himself in remembering the Supreme Lord, will certainly attain to the Supreme Personality of Godhead.**
 

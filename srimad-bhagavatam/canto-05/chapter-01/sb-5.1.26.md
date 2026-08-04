@@ -15,4 +15,4 @@ Another significant word is *arbha-bhāvāt,* which means "from very childhood."
 > tyaktvā tūrṇam aśeṣa-maṇḍala-pati-śreṇīṁ sadā tucchavat
 > bhūtvā dīna-gaṇeśakau karuṇayā kaupīna-kanthāśritau
 
-Because of their compassion for the poor fallen souls. the six Gosvāmīs gave up their exalted positions as ministers and took vows as mendicants. Thus minimizing their bodily wants as far as possible, they each accepted only a loincloth and a begging bowl. Thus they remained in Vṛndāvana to execute the orders of Śrī Caitanya Mahāprabhu by compiling and publishing various Vaiṣṇava literatures.
+Because of their compassion for the poor fallen souls, the six Gosvāmīs gave up their exalted positions as ministers and took vows as mendicants. Thus minimizing their bodily wants as far as possible, they each accepted only a loincloth and a begging bowl. Thus they remained in Vṛndāvana to execute the orders of Śrī Caitanya Mahāprabhu by compiling and publishing various Vaiṣṇava literatures.

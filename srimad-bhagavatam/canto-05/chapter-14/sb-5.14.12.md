@@ -8,7 +8,7 @@
 
 **Due to his pious activities in previous lives, the conditioned soul attains material facilities in this life, but when they are finished, he takes shelter of wealth and riches, which cannot help him in this life or the next. Because of this, he approaches the living dead who possess these things. Such people are compared to impure trees, creepers and poisonous wells.**
 
-The wealth and riches acquired through previous pious activities should not be misused for sense gratification. Enjoying them for sense gratification is like enjoying the fruits of a poisonous tree. Such activities will not help the conditioned soul in any way, neither in this life nor the next. However, if one engages his possessions in the service of the Lord under the guidance of a proper spiritual master. he will attain happiness both in this life and the next. Unless he does so, he eats a forbidden apple and thereby loses his paradise. Lord Śrī Kṛṣṇa therefore advises that one's possessions should be given unto Him.
+The wealth and riches acquired through previous pious activities should not be misused for sense gratification. Enjoying them for sense gratification is like enjoying the fruits of a poisonous tree. Such activities will not help the conditioned soul in any way, neither in this life nor the next. However, if one engages his possessions in the service of the Lord under the guidance of a proper spiritual master, he will attain happiness both in this life and the next. Unless he does so, he eats a forbidden apple and thereby loses his paradise. Lord Śrī Kṛṣṇa therefore advises that one's possessions should be given unto Him.
 
 > yat karoṣi yad aśnāsi
 > yaj juhoṣi dadāsi yat

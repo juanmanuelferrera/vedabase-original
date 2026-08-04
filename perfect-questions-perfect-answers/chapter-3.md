@@ -152,7 +152,7 @@ Yes.
 Through this I can feel not only God outside but God inside?
 
 **Śrīla Prabhupāda:**
-You'll understand everything of God—how God is inside, how God is outside, how God is working. Everything will be revealed. By this attitude of service, God will reveal Himself. You cannot understand God by your endeavor. Only if God reveals Himself. For instance, when the sun is out of your sight at night, you cannot see it by your torchlight, or any light. But in the morning you can see the sun automatically. without any torchlight. Similarly, you have to create a situation—you have to put yourself in a situation—in which God will be revealed. It is not that by some method you can ask God, "Please come. I will see You." No, God is not your order carrier.
+You'll understand everything of God—how God is inside, how God is outside, how God is working. Everything will be revealed. By this attitude of service, God will reveal Himself. You cannot understand God by your endeavor. Only if God reveals Himself. For instance, when the sun is out of your sight at night, you cannot see it by your torchlight, or any light. But in the morning you can see the sun automatically, without any torchlight. Similarly, you have to create a situation—you have to put yourself in a situation—in which God will be revealed. It is not that by some method you can ask God, "Please come. I will see You." No, God is not your order carrier.
 
 **Bob:**
 You must please God for Him to reveal Himself. Is that correct?

@@ -24,4 +24,4 @@ Coming to his senses, King Indra realized that he was not a very sincere discipl
 > upadekṣyanti te jñānaṁ
 > jñāninas tattva-darśinaḥ
 
-"Just try to learn the truth by approaching a spiritual master. Inquire from him submissively and render service unto him. The self-realized soul can impart knowledge unto you because he has seen the truth." One should fully surrender unto the spiritual master. and with service (*sevayā*) one should approach him for further spiritual enlightenment.
+"Just try to learn the truth by approaching a spiritual master. Inquire from him submissively and render service unto him. The self-realized soul can impart knowledge unto you because he has seen the truth." One should fully surrender unto the spiritual master, and with service (*sevayā*) one should approach him for further spiritual enlightenment.

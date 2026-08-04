@@ -8,7 +8,7 @@
 > yeṣāṁ kim u syād itareṇa teṣām\
 > akiñcanānāṁ mayi bhakti-bhājām
 
-*mattaḥ*—from Me; *api*—even; *anantāt*—unlimited in strength and opulence; *parataḥ parasmāt*—higher than the highest; *svarga-apavarga-adhipateḥ*—able to bestow happiness obtainable by living in the heavenly kingdom. by liberation, or by enjoyment of material comfort and then liberation; *na*—not; *kiñcit*—anything; *yeṣām*—of whom; *kim*—what need; *u*—oh; *syāt*—can there be; *itareṇa*—with any other; *teṣām*—of them; *akiñcanānām*—without needs or without possessions; *mayi*—unto Me; *bhakti-bhājām*—executing devotional service.
+*mattaḥ*—from Me; *api*—even; *anantāt*—unlimited in strength and opulence; *parataḥ parasmāt*—higher than the highest; *svarga-apavarga-adhipateḥ*—able to bestow happiness obtainable by living in the heavenly kingdom, by liberation, or by enjoyment of material comfort and then liberation; *na*—not; *kiñcit*—anything; *yeṣām*—of whom; *kim*—what need; *u*—oh; *syāt*—can there be; *itareṇa*—with any other; *teṣām*—of them; *akiñcanānām*—without needs or without possessions; *mayi*—unto Me; *bhakti-bhājām*—executing devotional service.
 
 **I am fully opulent, almighty and superior to Lord Brahmā and Indra, the King of the heavenly planets. I am also the bestower of all happiness obtained in the heavenly kingdom and by liberation. Nonetheless, the brāhmaṇas do not seek material comforts from Me. They are very pure and do not want to possess anything. They simply engage in My devotional service. What is the need of their asking for material benefits from anyone else?**
 

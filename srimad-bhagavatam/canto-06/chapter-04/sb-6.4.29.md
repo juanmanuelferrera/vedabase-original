@@ -37,4 +37,4 @@ Dakṣa very carefully points out that material designations cannot be names of 
 > śrotavyaḥ kīrtitavyaś ca
 > smartavyaś cecchatābhayam
 
-"O descendant of King Bharata, one who desires to be free from all miseries must hear, glorify and also remember the Personality of Godhead. who is the Supersoul, the controller and the savior from all miseries."
+"O descendant of King Bharata, one who desires to be free from all miseries must hear, glorify and also remember the Personality of Godhead, who is the Supersoul, the controller and the savior from all miseries."

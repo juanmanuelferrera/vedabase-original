@@ -341,7 +341,7 @@ You look very well now.
 I am always well... in the sense that even if there is suffering, I know Kṛṣṇa will protect me. But this suffering is not due to *my* sinful activities.
 
 **Bob:**
-But let us say when I—in the town I live in, I take boiled water because some of the water has disease in it. Now, why should I drink boiled water if I have been good enough not to get a disease? Then I may drink any water. And if I have been not acting properly. then I shall get disease anyway.
+But let us say when I—in the town I live in, I take boiled water because some of the water has disease in it. Now, why should I drink boiled water if I have been good enough not to get a disease? Then I may drink any water. And if I have been not acting properly, then I shall get disease anyway.
 
 **Śrīla Prabhupāda:**
 So long as you are in the material world, you cannot neglect physical laws. Suppose you go to a jungle and there is a tiger. It is known that it will attack you, so why should you voluntarily go and be attacked? It is not that a devotee should take physical risk so long as he has a physical body. It is not a challenge to the physical laws: "I have become a devotee. I challenge everything." That is foolishness.

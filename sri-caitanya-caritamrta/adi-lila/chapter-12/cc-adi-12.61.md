@@ -8,4 +8,4 @@
 
 *yādava-dāsa*—of the name Yādava dāsa; *vijaya-dāsa*—of the name Vijaya dāsa; *dāsajanārdana*—of the name Janārdana dāsa; *ananta-dāsa*—of the name Ananta dāsa; *kānu-paṇḍita*—of the name Kānu Paṇḍita; *dāsanārāyaṇa*—of the name Nārāyaṇa dāsa.
 
-**Yādava dāsa, Vijaya dāsa, Janārdana dāsa, Ananta dāsa, Kānu Paṇḍita and Nārāyaṇa dāsa were the nineteenth, twentieth, twenty-first, twenty-second, twentythird and twenty-fourth branches of Advaita Ācārya.**
+**Yādava dāsa, Vijaya dāsa, Janārdana dāsa, Ananta dāsa, Kānu Paṇḍita and Nārāyaṇa dāsa were the nineteenth, twentieth, twenty-first, twenty-second, twenty-third and twenty-fourth branches of Advaita Ācārya.**

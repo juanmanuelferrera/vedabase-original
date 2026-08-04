@@ -8,4 +8,4 @@
 
 **Any brāhmaṇa or brāhmaṇa's wife who drinks liquor is taken by the agents of Yamarāja to the hell known as Ayaḥpāna. This hell also awaits any kṣatriya, vaiśya, or person under a vow who in illusion drinks soma-rasa. In Ayaḥpāna the agents of Yamarāja stand on their chests and pour hot melted iron into their mouths.**
 
-One should not be a *brāhmaṇa* in name only and engage in all kinds of sinful activities, especially drinking liquor. *Brāhmaṇas, kṣatriyas* and *vaiśyas* must behave according to the principles of their order. If they fall down to the level of *śūdras,* who are accustomed to drink liquor. they will be punished as described herein.
+One should not be a *brāhmaṇa* in name only and engage in all kinds of sinful activities, especially drinking liquor. *Brāhmaṇas, kṣatriyas* and *vaiśyas* must behave according to the principles of their order. If they fall down to the level of *śūdras,* who are accustomed to drink liquor, they will be punished as described herein.

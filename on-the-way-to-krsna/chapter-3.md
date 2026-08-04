@@ -69,7 +69,7 @@ How is this done? How is it possible to become Kṛṣṇa conscious in every st
 > praṇavaḥ sarva-vedeṣu
 > śabdaḥ khe pauruṣaṁ nṛṣu
 
-**"O son of Kuntī [Arjuna], I am the taste of water. the light of the sun and the moon, the syllable *oṁ* in the Vedic *mantras;* I am the sound in ether and ability in man."** [[bg/7/8|(Bg. 7.8)]]
+**"O son of Kuntī [Arjuna], I am the taste of water, the light of the sun and the moon, the syllable *oṁ* in the Vedic *mantras;* I am the sound in ether and ability in man."** [[bg/7/8|(Bg. 7.8)]]
 
 In this verse Śrī Kṛṣṇa is describing how we can become Kṛṣṇa conscious fully, in all stages of life. All living entities must drink water. The taste of water is so nice that when we are thirsty nothing but water seems to do. No manufacturer can create the pure taste of water. We can thus remember Kṛṣṇa or God when we drink water. No one can avoid drinking water every day of his life, so God consciousness is there—how can we forget?
 
