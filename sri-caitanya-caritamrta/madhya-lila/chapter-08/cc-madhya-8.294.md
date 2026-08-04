@@ -7,7 +7,7 @@
 
 *tāmā*—copper; *kāṅsā*—bell metal; *rūpā*—silver; *sonā*—gold; *ratna-cintāmaṇi*—the best of all metals, touchstone; *keha*—somebody; *yadi*—*if*; *kāhāṅ*—somewhere; *potā*—buried; *pāya*—finds; *eka-khāni*—in one place.
 
-**Actually, these conversations are like a great mine wherefrom one can extract all kinds of metals-copper, bell metal , silver, gold, base metals and all metals.**
+**Actually these conversations are like a great mine wherefrom one can extract all kinds of metal—copper, bell metal, silver, gold, base metals and all others. They are like a touchstone buried in one place.**
 
 Śrīla Bhaktivinoda Ṭhākura gives the following summary of the conversations between Rāmānanda Rāya and Śrī Caitanya Mahāprabhu. Rāmānanda Rāya replied to five questions of Śrī Caitanya Mahāprabhu, stated in verses 57-67. The first answer is compared to copper, and the fifth answer is most valuable because it deals with unalloyed devotion, the ultimate goal of devotional life, and illuminates the preceding four subordinate answers.
 
