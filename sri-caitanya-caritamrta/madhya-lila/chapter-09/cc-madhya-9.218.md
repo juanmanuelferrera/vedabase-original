@@ -10,4 +10,4 @@
 
 **Śrī Caitanya Mahāprabhu passed that night in the house of the brāhmaṇa. Then, after showing him mercy, the Lord started toward Tāmraparṇī in Pāṇḍya-deśa.**
 
-Pāṇḍya-deśa is situated in the southern part of India known as Kerala. In all these areas there were many kings with the title Pāṇḍya who ruled over Madurai and Rāmeśvara. In the *Rāmāyaṇa* the name of Tāmraparṇī is mentioned. Tāmraparṇī is also known as Puruṇai and is situated on the bank of the Tinebheli River. This river flows into the Bay of Bengal. Tāmraparṇī is also mentioned in *Śrīmad-Bhāgavatam* (11.5.39) Popup
+Pāṇḍya-deśa is situated in the southern part of India known as Kerala. In all these areas there were many kings with the title Pāṇḍya who ruled over places known as Mādurā and Rāmeśvara. In the *Rāmāyaṇa* the name of Tāmraparṇī is mentioned. Tāmraparṇī is also known as Puruṇai and is situated on the bank of the Tinebheli River. This river flows into the Bay of Bengal. Tāmraparṇī is also mentioned in *Śrīmad-Bhāgavatam* (11.5.39).

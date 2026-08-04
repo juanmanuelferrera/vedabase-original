@@ -33,4 +33,4 @@ In this Age of Kali, *hari-kīrtana* is very, very important. The importance of 
 > dvāpare paricaryāyāṁ
 > kalau tad dhari-kīrtanāt
 
-"The most important factor in this Age of Kali, which is an ocean of faults, is that one can be free from all contamination and become eligible to enter the kingdom of God simply by chanting the Hare Kṛṣṇa *mantra.* The self-realization that was achieved in the Satya millennium by meditation, in the Tretā millennium by the performance of different sacrifices, and in the Dvāpara millennium by worship of Lord Kṛṣṇa can be achieved in the Age of Kali simply by chanting the holy names, Hare Kṛṣṇa." ()
+"The most important factor in this Age of Kali, which is an ocean of faults, is that one can be free from all contamination and become eligible to enter the kingdom of God simply by chanting the Hare Kṛṣṇa *mantra.* The self-realization that was achieved in the Satya millennium by meditation, in the Tretā millennium by the performance of different sacrifices, and in the Dvāpara millennium by worship of Lord Kṛṣṇa can be achieved in the Age of Kali simply by chanting the holy names, Hare Kṛṣṇa." (*Bhāg.* 12.3.51-52)
