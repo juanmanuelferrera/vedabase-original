@@ -10,7 +10,7 @@
 
 **Śrī Caitanya Mahāprabhu replied to Prakāśānanda Sarasvatī, "My dear sir, kindly hear the reason. My spiritual master considered Me a fool, and therefore he chastised Me.**
 
-When Prakāśānanda Sarasvatī inquired from Lord Caitanya Mahāprabhu why He neither studied Vedānta nor performed meditation, Lord Caitanya presented Himself as a number one fool in order to indicate that the present age, Kali-yuga, is an age of fools and rascals in which it is not possible to obtain perfection simply by reading Vedānta philosophy and meditating. The *śāstras* strongly recommend:.
+When Prakāśānanda Sarasvatī inquired from Lord Caitanya Mahāprabhu why He neither studied Vedānta nor performed meditation, Lord Caitanya presented Himself as a number one fool in order to indicate that the present age, Kali-yuga, is an age of fools and rascals in which it is not possible to obtain perfection simply by reading Vedānta philosophy and meditating. The *śāstras* strongly recommend:
 
 > harer nāma harer nāma
 > harer nāmaiva kevalam

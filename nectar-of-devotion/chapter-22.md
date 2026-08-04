@@ -8,7 +8,7 @@ A person who is very enthusiastic in military activities and expert in releasing
 
 Regarding Kṛṣṇa's heroism in fighting, there is the following statement: "My dear killer of the enemy, just as the elephant while taking bath in the lake destroys all the lotus stems within the water by swinging its trunk, so simply by moving Your arms, which are compared to the trunks of elephants, You have killed so many lotus-like enemies."
 
-Regarding Kṛṣṇa's expertise in releasing weapons, when Jarāsandha, along with thirteen divisions of soldiers,, attacked Kṛṣṇa's army, they were unable to hurt even one soldier on the side of Kṛṣṇa. This was due to Kṛṣṇa's expert military training. This is unique in the history of military art.
+Regarding Kṛṣṇa's expertise in releasing weapons, when Jarāsandha, along with thirteen divisions of soldiers, attacked Kṛṣṇa's army, they were unable to hurt even one soldier on the side of Kṛṣṇa. This was due to Kṛṣṇa's expert military training. This is unique in the history of military art.
 
 ## 32. Compassionate
 

@@ -114,7 +114,7 @@ The youth agreed, and in this way they left Vṛndāvana to go to the other town
 
 We should therefore conclude that because God is everywhere, He is also in His statue, in the image made of Him. If Kṛṣṇa is everywhere, as even the impersonalists admit, then why isn't He in His image? Whether an image or statue speaks to us or not is dependent on the degree of our devotion. But if we choose to see the image merely as a piece of wood or stone, Kṛṣṇa will always remain wood or stone for us. Kṛṣṇa is everywhere, but as we advance in spiritual consciousness we can begin to see Him as He is. If we put a letter into a mailbox, it will go to its destination because the mailbox is authorized. Similarly, if we worship an authorized image of God, our faith will have some effect. If we are prepared to follow the various rules and regulations—that is to say, if we become qualified—it is possible to see God anywhere and everywhere. When a devotee is present, Kṛṣṇa, by His omnipresent energies, will manifest Himself anywhere and everywhere, but when His devotee is not there, He will not do this. There are many instances of this. Prahlāda Mahārāja saw Kṛṣṇa in a pillar. There are many other examples. Kṛṣṇa is there; all that is required is our qualification to see Him.
 
-Kṛṣṇa Himself gives an example of His omnipresence in this way:.
+Kṛṣṇa Himself gives an example of His omnipresence in this way:
 
 > yathākāśa-sthito nityaṁ
 > vāyuḥ sarvatra-go mahān

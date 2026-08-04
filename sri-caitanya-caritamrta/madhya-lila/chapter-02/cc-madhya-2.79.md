@@ -10,7 +10,7 @@
 > tāhe mukhya-rasāśraya, ha-iyāchena mahāśaya,\
 > tāte haya sarva-bhāvodaya
 
-*līlā-śuka*—Bilvamaṅgala Ṭhākura; *martya-jana*—a person of this world; *tāṅra*—of him; *haya*—there is; *bhāva-udgama*—manifestation of different ecstasies; *īśvare*—in the Supreme Lord; *se*—that; *ki*—what; *ihā*—here; *vismaya*—astonishing; *tāhe*—in that; *mukhya*—chief; *rasa-āśraya*—mellows,; *ha-iyāchena*—has become; *mahā-āśaya*—the great personality Śrī Caitanya Mahāprabhu; *tāte*—therefore; *haya*—there is; *sarva-bhāva-udaya*—a manifestation of all ecstasies.
+*līlā-śuka*—Bilvamaṅgala Ṭhākura; *martya-jana*—a person of this world; *tāṅra*—of him; *haya*—there is; *bhāva-udgama*—manifestation of different ecstasies; *īśvare*—in the Supreme Lord; *se*—that; *ki*—what; *ihā*—here; *vismaya*—astonishing; *tāhe*—in that; *mukhya*—chief; *rasa-āśraya*—mellows; *ha-iyāchena*—has become; *mahā-āśaya*—the great personality Śrī Caitanya Mahāprabhu; *tāte*—therefore; *haya*—there is; *sarva-bhāva-udaya*—a manifestation of all ecstasies.
 
 **Līlāśuka [Bilvamaṅgala Ṭhākura] was an ordinary human being, yet he developed many ecstatic symptoms in his body. What, then, is so astonishing about these symptoms' being manifest in the body of the Supreme Personality of Godhead? In the ecstatic mood of conjugal love, Śrī Caitanya Mahāprabhu was on the highest platform; therefore, all the exuberant ecstasies were naturally visible in His body.**
 

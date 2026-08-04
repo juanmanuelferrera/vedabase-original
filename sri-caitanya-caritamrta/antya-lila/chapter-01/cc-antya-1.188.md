@@ -8,7 +8,7 @@
 > vrajavāma-dṛśāṁ na paddhatiḥ\
 > prakaṭā sarva-dṛśaḥ śruter api
 
-*harim*—Kṛṣṇa; *uddiśate*—it indicates; *rajaḥ-bharaḥ*—dust from the cows,; *purataḥ*—in front; *saṅgamayati*—causes to meet; *amum*—Kṛṣṇa; *tamaḥ*—the darkness; *vrajavāma-dṛśām*—of the damsels of Vṛndāvana; *na*—not; *paddhatiḥ*—the course of activities; *prakaṭā*—manifested; *sarva-dṛśaḥ*—who know everything; *śruteḥ*—of the *Vedas*; *api*—as well as.
+*harim*—Kṛṣṇa; *uddiśate*—it indicates; *rajaḥ-bharaḥ*—dust from the cows; *purataḥ*—in front; *saṅgamayati*—causes to meet; *amum*—Kṛṣṇa; *tamaḥ*—the darkness; *vrajavāma-dṛśām*—of the damsels of Vṛndāvana; *na*—not; *paddhatiḥ*—the course of activities; *prakaṭā*—manifested; *sarva-dṛśaḥ*—who know everything; *śruteḥ*—of the *Vedas*; *api*—as well as.
 
 **The dust from cows and calves on the road creates a kind of darkness indicating that Kṛṣṇa is returning home from the pasture. Also, the darkness of evening provokes the gopīs to meet Kṛṣṇa. Thus the pastimes of Kṛṣṇa and the gopīs are covered by a kind of transcendental darkness and are therefore impossible for ordinary scholars of the Vedas to see.'**
 

@@ -5,7 +5,7 @@
 > নহে পিমু নিরন্তর, তোমায় মোর নাহিক ডর,\
 > অন্যে দেখোঁ তৃণের সমান ॥১২৬॥
 
-> tabe more krodha kari;, lajjā bhaya, dharma, chāḍi',\
+> tabe more krodha kari', lajjā bhaya, dharma, chāḍi',\
 > chāḍi' dimu, kara āsi' pāna\
 > nahe pimu nirantara, tomāya mora nāhika ḍara,\
 > anye dekhoṅ tṛṇera samāna

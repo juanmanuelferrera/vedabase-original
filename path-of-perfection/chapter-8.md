@@ -177,7 +177,7 @@ As stated in the Eighteenth Chapter of *Bhagavad-gītā* (18.55),
 > tato māṁ tattvato jñātvā
 > viśate tad-anantaram
 
-"one can understand the Supreme Personality as He is only by devotional service. And when one is in full consciousness of the Supreme Lord by such devotion, he can enter into the kingdom of God." In the other *yoga* systems, there must be a mixture of *bhakti,* but *bhakti-yoga* is unadulterated devotion. It is service without a motive. Generally people pray with some motive in mind, but we should pray only for further engagement in devotional service. Lord Caitanya Mahāprabhu has taught us that when we pray we should not pray for anything material. In the beginning, we cited Lord Caitanya Mahāprabhu's perfect prayer.:
+"one can understand the Supreme Personality as He is only by devotional service. And when one is in full consciousness of the Supreme Lord by such devotion, he can enter into the kingdom of God." In the other *yoga* systems, there must be a mixture of *bhakti,* but *bhakti-yoga* is unadulterated devotion. It is service without a motive. Generally people pray with some motive in mind, but we should pray only for further engagement in devotional service. Lord Caitanya Mahāprabhu has taught us that when we pray we should not pray for anything material. In the beginning, we cited Lord Caitanya Mahāprabhu's perfect prayer:
 
 > na dhanaṁ na janaṁ na sundarīṁ
 > kavitāṁ vā jagad-īśa kāmaye

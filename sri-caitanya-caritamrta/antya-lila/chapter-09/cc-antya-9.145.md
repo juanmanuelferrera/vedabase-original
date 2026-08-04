@@ -6,7 +6,7 @@
 > rāyera ghare prabhura 'kṛpā-vivarta' kahila\
 > bhakta-vātsalya-guṇa yāte vyakta haila
 
-*rāyera*—of Bhavānanda Rāya; *ghare*—at the home; *prabhura*—of Śrī Caitanya Mahāprabhu; *kṛpā-vivarta*—mercy appearing as something else; *kahila*—spoke; *bhakta-vātsalya-guṇa*—the quality of being very affectionate to the devotees,; *yāte*—in which; *vyakta haila*—was revealed.
+*rāyera*—of Bhavānanda Rāya; *ghare*—at the home; *prabhura*—of Śrī Caitanya Mahāprabhu; *kṛpā-vivarta*—mercy appearing as something else; *kahila*—spoke; *bhakta-vātsalya-guṇa*—the quality of being very affectionate to the devotees; *yāte*—in which; *vyakta haila*—was revealed.
 
 **Thus the mercy of Śrī Caitanya Mahāprabhu was spoken of in the family of Bhavānanda Rāya. That mercy was clearly demonstrated, although it appeared to be something different.**
 

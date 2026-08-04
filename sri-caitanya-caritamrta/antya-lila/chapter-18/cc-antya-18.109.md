@@ -5,7 +5,7 @@
 > কাঁহা যমুনা, বৃন্দাবন, কাঁহা কৃষ্ণ, গোপীগণ,\
 > সেই সুখ ভঙ্গ করাইলা !” ॥ ১০৯ ॥
 
-> hena-kāle more dhari, mahā-kolāhala kari;,\
+> hena-kāle more dhari, mahā-kolāhala kari',\
 > tumi-saba ihāṅ lañā āilā\
 > kāṅhā yamunā, vṛndāvana, kāṅhā kṛṣṇa, gopī-gaṇa,\
 > sei sukha bhaṅga karāilā!"
