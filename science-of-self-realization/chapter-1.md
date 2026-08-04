@@ -675,4 +675,65 @@ In a public vehicle like a railway carriage, we meet and sit down together with 
 
 *Śrīla Prabhupāda writes a letter to noted cardiologist Dr. Wilfred G. Bigelow: "The central question, you say, is 'Where is the soul, and where does it come from?' That is not difficult to understand. . . ."*
 
+In 1968, speaking before a gathering of students at Massachusetts Institute of Technology, Śrīla Prabhupāda points out an important lag in technological research. “Although you have so many departments of knowledge,” he says, “there is no department aiming to find the difference between a living body and a dead body.”
+
+Although advanced in understanding the mechanical workings of the physical body, modern science gives but little attention to studying the spiritual spark that animates the body. In the *Montreal Gazette* article reproduced below, we find world-famous cardiologist Wilfred G. Bigelow urging systematic research to determine what the soul is and where it comes from. Reproduced next is Śrīla Prabhupāda’s letter in response to Dr. Bigelow’s plea. Śrīla Prabhupāda offers substantial Vedic knowledge on the science of the soul and suggests a practical method for scientifically understanding the spiritual spark.
+
 *Gazette* Headline:
+
+### Heart Surgeon Wants to Know What a Soul Is
+
+WINDSOR—A world-famous Canadian heart surgeon says he believes the body has a soul which departs at death and theologians ought to try to find out more about it.
+
+Dr. Wilfred G. Bigelow, head of the cardiovascular surgery unit at Toronto General Hospital, said that "as a person who believes there is a soul," he thought the time had come "to take the mystery out of this and find out what it is."
+
+Bigelow was a member of a panel which appeared before the Essex County Medical-Legal Society to discuss problems associated with attempts to define the exact moment of death.
+
+The question has become vital in the age of transplants of hearts and other organs in cases when the donors are inevitably dying.
+
+The Canadian Medical Association has produced a widely accepted definition of death as the moment when the patient is in coma, responds to no stimulus of any kind, and brain waves recorded on a machine are flat.
+
+The other members of the panel were Mr. Justice Edson L. Haines of the Ontario Supreme Court and J. Francis Leddy, president of the University of Windsor.
+
+Bigelow, elaborating on points he had raised during the discussion, said in an interview later that his thirty-two years as a surgeon had left him no doubts that there is a soul.
+
+"There are certain cases where you happen to be present at the moment when people pass from a living state to death, and some mysterious changes take place.
+
+"One of the most noticeable is the sudden lack of life or luster to the eyes. They become opaque and literally lifeless.
+
+"It's difficult to document what you observe. In fact, I don't think it can be documented very well."
+
+Bigelow, who became world renowned for his pioneering work in the "deep freeze" surgical technique known as hypothermia and for his heart valve surgery, said "soul research" should be undertaken by theology and allied disciplines within the university.
+
+During this discussion Leddy said that "if there is a soul, you are not going to see it. You are not going to find it."
+
+"If there is a principle of vitality or life, what is it?" The problem was that "the soul doesn't exist anywhere specifically, geographically. It's everywhere and yet it's nowhere in the body."
+
+It would "be nice to start experimenting, but I don't know how you are going to get on any of these things," Leddy said. He said the discussion reminded him of the Soviet cosmonaut who returned from space to report there was no God, because he didn't see Him up there.
+
+Maybe so, said Bigelow, but in modern medicine when something was encountered that could not be explained, "the watchword is discover the answer, take it into the laboratory, take it somewhere where you can discover the truth."
+
+The central question, said Bigelow, was "where is the soul and where does it come from?"
+
+### Śrila Prabhupāda Gives the Vedic Evidence
+
+My dear Dr. Bigelow:
+
+Please accept my greetings. Recently I have read an article in the *Gazette* by Rae Corelli entitled "Heart Surgeon Wants to Know What a Soul Is," and it was very interesting. Your comments show great insight, and so I thought to write you on this matter. Perhaps you may know that I am the founder-*ācārya* of the International Society for Krishna Consciousness. I have several temples in Canada—Montreal, Toronto, Vancouver, and Hamilton. This Kṛṣṇa consciousness movement is specifically meant to teach every soul his original, spiritual position.
+
+Undoubtedly the soul is present in the heart of the living entity, and it is the source of all the energies for maintaining the body. The energy of the soul is spread all over the body, and this is known as consciousness. Since this consciousness spreads the energy of the soul all over the body, one can feel pains and pleasures in any part of the body. The soul is individual, and he is transmigrating from one body to another, just as a person transmigrates from babyhood to childhood, from childhood to boyhood, from boyhood to youth, and then to advanced old age. Then the change called death takes place when we change to a new body, just as we change our old dress to a new dress. This is called transmigration of the soul.
+
+When a soul wants to enjoy this material world, forgetting his real home in the spiritual world, he takes this life of hard struggle for existence. This unnatural life of repeated birth, death, disease, and old age can be stopped when his consciousness is dovetailed with the supreme consciousness of God. That is the basic principle of our Kṛṣṇa movement.
+
+As far as heart transplant is concerned, there is no question of success unless the soul is there in the heart. So the presence of the soul has to be accepted. In sexual intercourse, if there is no soul, there is no conception, no pregnancy. Contraception deteriorates the womb so that it no longer is a good place for the soul. That is against the order of God. By the order of God, a soul is sent to a particular womb, but by this contraceptive he is denied that womb and has to be placed in another. That is disobedience to the Supreme. For example, take a man who is supposed to live in a particular apartment. If the situation there is so disturbed that he cannot enter the apartment, then he is put at a great disadvantage. That is illegal interference and is punishable.
+
+The undertaking of "soul research" would certainly mark the advancement of science. But advancement of science will not be able to find the soul. The soul's presence can simply be accepted on circumstantial understanding. You will find in the Vedic literature that the dimension of the soul is one ten-thousandth the size of a point. The material scientist cannot measure the length and breadth of a point. Therefore it is not possible for the material scientist to capture the soul. You can simply accept the soul's existence by taking it from authority. What the greatest scientists are finding, we've explained long ago.
+
+As soon as one understands the existence of the soul, he can immediately understand the existence of God. The difference between God and the soul is that God is a very great soul, and the living entity is a very small soul; but qualitatively they are equal. Therefore God is all-pervading, and the living entity is localized. But the nature and quality are the same.
+
+The central question, you say, is "Where is the soul, and where does it come from?" That is not difficult to understand. We have already discussed that the soul is residing in the heart of the living entity and that it takes shelter in another body after death. Originally the soul comes from God. Just as a spark comes from fire, and when the spark falls down it appears to be extinguished, the spark of soul originally comes from the spiritual world to the material world. In the material world he falls down into three different conditions, which are called the modes of nature. When a spark of fire falls on dry grass, the fiery quality continues; when the spark falls on the ground, it cannot display its fiery manifestation unless the ground is favorably situated; and when the spark falls on water, it becomes extinguished. As such, we find three kinds of living conditions. One living entity is completely forgetful of his spiritual nature; another is almost forgetful but still has an instinct of spiritual nature; and another is completely in search of spiritual perfection. There is a bona fide method for the attainment of spiritual perfection by the spiritual spark of soul, and if he is properly guided then he is very easily sent back home, back to Godhead, wherefrom he originally fell.
+
+It will be a great contribution to human society if this authorized information from the Vedic literature is presented to the modern world on the basis of modern scientific understanding. The fact is already there. It simply has to be presented for modern understanding.
+
+Yours sincerely, 
+A.C. Bhaktivedanta Swami
