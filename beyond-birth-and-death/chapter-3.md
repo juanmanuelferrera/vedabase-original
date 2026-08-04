@@ -87,9 +87,3 @@ punar janma na vidyate
 
 
 We should be very serious about attaining our eternal life full of bliss and knowledge. We have forgotten that this is actually our aim of life, our real self-interest. Why have we forgotten? We have simply been entrapped by the material glitter, by skyscrapers, big factories, and political play, although we know that however big we build skyscrapers, we will not be able to live here indefinitely. We should not spoil our energy in building mighty industries and cities to further entrap ourselves in material nature; rather, our energy should be used to develop Kṛṣṇa consciousness, in order to attain a spiritual body whereby we may enter into Kṛṣṇa's planet. Kṛṣṇa consciousness is not a religious formula or some spiritual recreation; it is the most important part of the living entity.
-
-
-
-
-
-Chapter Four

@@ -167,9 +167,3 @@ Today all facets of human society are thinking that their self-interest is in ma
 
 
 Modern society is in dire need of intellectual persons or brāhmaṇas who can broadcast real spiritual knowledge all over the world. That is an absolute necessity for a society which is working hard simply to exploit nature. If people try to understand this Kṛṣṇa consciousness movement scientifically and philosophically, with their best knowledge and judgement, and try to cooperate, there will be peace all over the world. In essence, the method is very simple. We need only chant Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare and follow the regulative principles mentioned before. By following the regulative principles, we will be avoiding the four pillars of sinful life, and by chanting the Hare Kṛṣṇa mantra, we will be associating with God constantly; thus there will be peace among all classes of men.
-
-
-
-
-
-Chapter Four

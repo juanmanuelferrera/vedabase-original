@@ -323,9 +323,3 @@ sthānaṁ prāpsyasi śāśvatam
 
 
 "O scion of Bharata, surrender unto Him in all respects, so that by His mercy you can have transcendental peace and the eternal abode." (Bg. 18.62)
-
-
-
-
-
-Chapter Five

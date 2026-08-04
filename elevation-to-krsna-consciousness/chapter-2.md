@@ -253,9 +253,3 @@ yena mam upayānti te
 
 
 By rendering such devotional service only, and not by merely acquiring a bulk of discriminative knowledge, can we know the Supreme Lord as He is. When we know the personality of Godhead in reality, we can then enter into His pastimes. That is the verdict of all revealed scriptures.
-
-
-
-
-
-Chapter Three

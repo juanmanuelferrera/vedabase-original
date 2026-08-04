@@ -205,9 +205,3 @@ vimukto 'mṛtam aśnute
 
 
 To establish ourselves on the pure brahma-bhūta spiritual platform, above the three modes, we must take up the method of Kṛṣṇa consciousness. The gift of Caitanya Mahāprabhu, the chanting of the names of Kṛṣṇa-Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare-facilitates this process. This method is called bhakti-yoga or mantra-yoga, and it is employed by the highest transcendentalists. How the transcendentalists realize their identity beyond birth and death, beyond the material body, and transfer themselves from the material universe to the spiritual universes are the subjects of the following chapters.
-
-
-
-
-
-Chapter Two

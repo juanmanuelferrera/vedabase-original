@@ -241,9 +241,3 @@ If we purify our existence simply by following the basic regulations of Kṛṣ�
 
 
 The spiritual world is not dry or abstract; as pointed out before, there is variegatedness there. A part of the spiritual pleasure experienced in the Vaikuṇṭhas is the pleasure of dancing. There are also young girls and young boys there. Indeed, there is no such thing as old age, or disease, or death, or the pains of birth. If we want to participate in the unlimited happiness, knowledge and eternal life which constitute our actual heritage in the spiritual world, we should not waste this life by working hard for sense gratification and worshiping hogs. We should accept a life devoted to the cultivation of Kṛṣṇa consciousness, and then we will get unlimited happiness and unlimited pleasure. This is the sum and substance of the Kṛṣṇa consciousness movement.
-
-
-
-
-
-Chapter Two

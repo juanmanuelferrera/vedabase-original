@@ -179,9 +179,3 @@ In this material world we have become acclimatized to birth, death, and all sort
 
 
 In India I lived in Vṛndāvana, and now I am in America, but this does not mean that I am out of Vṛndāvana, because if I think of Kṛṣṇa always, then I'm always in Vṛndāvana, regardless of the material designation. Kṛṣṇa consciousness means that one always lives with Kṛṣṇa on that spiritual planet, Goloka Vṛndāvana, and that one is simply waiting to give up this material body. Smarati nityaśaḥ means "continuously remembering," and for one who is continuously remembering Kṛṣṇa, the Lord becomes tasyāhaṁ sulabhaḥ-easily purchased. Kṛṣṇa Himself says that He is easily purchased by this bhakti-yoga process. Then why should we take to any other process? We can chant Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare twenty-four hours daily. There are no rules and regulations. One can chant in the street, in the subway, or at his home or office. There is no tax and no expense. So why not take to it?
-
-
-
-
-
-Chapter Three

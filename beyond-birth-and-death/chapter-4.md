@@ -221,9 +221,3 @@ mad-bhaktiṁ labhate parām
 
 
 He who has progressed in devotional life and who is relishing service to Kṛṣṇa will automatically become detached from material enjoyment. The symptom of one absorbed in bhakti is that he is fully satisfied with Kṛṣṇa.
-
-
-
-
-
-Chapter Five

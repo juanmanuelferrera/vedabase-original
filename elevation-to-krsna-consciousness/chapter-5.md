@@ -223,9 +223,3 @@ yataḥ pravṛttiḥ prasṛtā purāṇī
 
 
 The personality of Godhead, who is fully cognizant of everything in His creation, informs us in our best interest that we must desire to get rid of this material existence. We must detach ourselves from everything material. To make the best use of a bad bargain, our material existence should be 100% spiritualized by constant association with Kṛṣṇa's message, His devotees and His names. Therefore everyone who ordinarily engages in material affairs can derive the highest benefit from this Kṛṣṇa consciousness movement. All kinds of spiritual endeavors are more or less tinged with material contamination. However, pure devotional service is transcendental to all pollution. We need not artificially adopt principles of materialism; we need only fix our minds on the lotus feet of the Supreme Lord, the Personality of Godhead, Śrī Kṛṣṇa.
-
-
-
-
-
-Chapter Six
