@@ -104,7 +104,7 @@ Is there any science that gives us the knowledge by which we may become immortal
 *Śrīla Prabhupāda speaks out in an interview with the London* Times: *"If you want to be cheated, you will find many cheating gurus. But if you are sincere, you will find a sincere guru. . . . The genuine guru is God's representative, and he speaks about God and nothing else. . . . A genuine guru is not a businessman. He is a representative of God. Whatever God says, the guru repeats. He does not speak otherwise."*
 
 **Reporter:**
-What frankly worries me is that since the arrival in Britain some time ago of an Indian *yogī,* who was the first *"guru"* that most people had ever heard of, a lot of *"gurus"* have suddenly appeared out of nowhere. Sometimes I get the feeling that not all of them are as genuine as they ought to be. Would it be right to warn people who are thinking of taking up spiritual life that they should make sure that they have a genuine *guru* to teach them?
+What frankly worries me is that since the arrival in Britain some time ago of an Indian yogi, who was the first *"guru"* that most people had ever heard of, a lot of *"gurus"* have suddenly appeared out of nowhere. Sometimes I get the feeling that not all of them are as genuine as they ought to be. Would it be right to warn people who are thinking of taking up spiritual life that they should make sure that they have a genuine *guru* to teach them?
 
 **Śrīla Prabhupāda:**
 Yes. Of course, to search out a *guru* is very nice, but if you want a cheap *guru,* or if you want to be cheated, then you will find many cheating *gurus.* But if you are sincere, you will find a sincere *guru.* Because people want everything very cheaply, they are cheated. We ask our students to refrain from illicit sex, meat-eating, gambling, and intoxication. People think that this is all very difficult—a botheration. But if someone else says, "You may do whatever nonsense you like, simply take my *mantra,*"then people will like him. The point is that people want to be cheated, and therefore cheaters come. No one wants to undergo any austerity. Human life is meant for austerity, but no one is prepared to undergo austerity. Consequently, cheaters come and say, "No austerity. Whatever you like, you do. Simply pay me, and I'll give you some *mantra,* and you'll become God in six months." All this is going on. If you want to be cheated like this, the cheaters will come.
@@ -475,9 +475,10 @@ Gentlemen, although we are like ignorant children in the knowledge of the Transc
 
 "For receiving the mercy of Kṛṣṇa, I surrender unto His energy (Rādhā), and for receiving the mercy of His energy, I surrender unto Kṛṣṇa." Also in the *Ṛg Veda* (1.22.20):
 
-> *tad viṣṇoḥ paramaṁ padaṁ sadā
-> paśyanti sūrayaḥ divīva cakṣur ātatam
-> viṣṇor yat paramaṁ padam*
+> tad viṣṇoḥ paramaṁ padaṁ
+> sadā paśyanti sūrayaḥ
+> divīva cakṣur ātataṁ
+> viṣṇor yat paramaṁ padam
 
 "The lotus feet of Lord Viṣṇu are the supreme objective of all the demigods. These lotus feet of the Lord are as enlightening as the sun in the sky."
 

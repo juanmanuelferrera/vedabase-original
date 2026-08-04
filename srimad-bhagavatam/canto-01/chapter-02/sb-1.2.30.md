@@ -12,6 +12,6 @@
 
 **In the beginning of the material creation, the Absolute Lord in His transcendental position created the energies of cause and effect by His own internal energy.**
 
-The position of the Lord is always transcendental because the causal and effectual energies required for the creation of the material world were also created by Him. He is, therefore, unaffected by the qualities of the material modes. His existence, form, activities and paraphernalia all existed before the material creation.* He is all spiritual and has nothing to do with the qualities of the material world, which are qualitatively distinct from the spiritual qualities of the Lord.
+The position of the Lord is always transcendental because the causal and effectual energies required for the creation of the material world were also created by Him. He is, therefore, unaffected by the qualities of the material modes. His existence, form, activities and paraphernalia all existed before the material creation. He is all spiritual and has nothing to do with the qualities of the material world, which are qualitatively distinct from the spiritual qualities of the Lord.
 
-* Śrīpāda Śaṅkarācārya, the head of the Māyāvāda school, accepts this transcendental position of Lord Kṛṣṇa in his commentation on Bhagavad-gītā.
+Śrīpāda Śaṅkarācārya, the head of the Māyāvāda school, accepts this transcendental position of Lord Kṛṣṇa in his commentation on Bhagavad-gītā.

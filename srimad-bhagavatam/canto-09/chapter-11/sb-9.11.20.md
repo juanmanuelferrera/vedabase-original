@@ -19,7 +19,6 @@ As stated in the *Vedas* (*Śvetāśvatara Upaniṣad* 6.8):
 > na tasya kāryaṁ karaṇaṁ ca vidyate
 > na tat-samaś cābhyadhikaś ca dṛśyate
 > parāsya śaktir vividhaiva śrūyate
-> svābhāvikī jñāna-bala-kriyā ca *
-> [Cc. Madhya 13.65, purport]*
+> svābhāvikī jñāna-bala-kriyā ca
 
 "The Supreme Lord has nothing to do, and no one is found to be equal to or greater than Him, for everything is done naturally and systematically by His multifarious energies." The Lord has nothing to do (*na tasya kāryaṁ karaṇaṁ ca vidyate*); whatever He does is His pastime. The Lord has no duty to perform to oblige anyone. Nonetheless, He appears to act to protect His devotees or kill His enemies. Of course, no one can be the Lord's enemy, since who could be more powerful than the Lord? There is actually no question of anyone's being His enemy, but when the Lord wants to take pleasure in pastimes, He comes down to this material world and acts like a human being, thus showing His wonderful, glorious activities to please the devotees. His devotees always want to see the Lord victorious in varied activities, and therefore, to please Himself and them, the Lord sometimes agrees to act as a human being and perform wonderful, uncommon pastimes for the satisfaction of the devotees.
