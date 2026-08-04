@@ -22,6 +22,6 @@ One who is fully surrendered is qualified with the six following characteristics
 > vedaiś ca sarvair aham eva vedyo
 > vedānta-kṛd veda-vid eva cāham
 
-"I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness. By all the *Vedas* am I to be known; indeed I am the compiler of Vedānta, and I am the knower of the *Vedas.*" (Bg. 15.15)]]
+"I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness. By all the *Vedas* am I to be known; indeed I am the compiler of Vedānta, and I am the knower of the *Vedas.*" [[bg/15/15|(Bg. 15.15)]]
 
 Situated in everyone's heart, Kṛṣṇa deals differently according to the living entity's position. The living entity's position is to be under the protection of the illusory energy or under Kṛṣṇa's personal protection. When a living entity is fully surrendered, he is under the direct protection of Kṛṣṇa, and Kṛṣṇa gives him all intelligence by which he can advance in spiritual realization. The nondevotee, however, being under the protection of the illusory energy, increasingly forgets his relationship with Kṛṣṇa. Sometimes it is asked how Kṛṣṇa causes one to forget. Kṛṣṇa causes His devotee to forget material activities, and through the agency of *māyā,* Kṛṣṇa causes the nondevotee to forget his devotional service to the Lord. This is called *apohana.*

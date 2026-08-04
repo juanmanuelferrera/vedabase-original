@@ -14,11 +14,11 @@
 
 In this verse, the word *dvija-deva-mantram* is very important. The word *mantra* means "that which delivers one from the material world." Only the *dvijas* (the *brāhmaṇas*) and the *devas* (the demigods) can be delivered from material existence by the instructions of the Supreme Personality of Godhead. Whatever is spoken by the Supreme Personality of Godhead is a *mantra* and is suitable for delivering the conditioned souls from mental speculation. The conditioned souls are engaged in a struggle for existence (*manaḥ ṣaṣṭhānīndriyāṇi prakṛti-sthāni karṣati* [[bg/15/7|[Bg. 15.7] ]]). Deliverance from this struggle constitutes the highest benefit, but unless one gets a *mantra* from the Supreme Personality of Godhead, deliverance is impossible. The beginning *mantra* is the Gāyatrī *mantra.* Therefore, after purification, when one is qualified to become a *brāhmaṇa* (*dvija*), he is offered the Gāyatrī *mantra.* Simply by chanting the Gāyatrī *mantra,* one can be delivered. This *mantra,* however, is suitable only for the *brāhmaṇas* and demigods. In Kali-yuga, we are all in a very difficult position, in which we need a suitable *mantra* that can deliver us from the dangers of this age. Therefore the Supreme Personality of Godhead, in His incarnation as Lord Caitanya, gives us the Hare Kṛṣṇa *mantra.*
 
-Text 16] The Demigods and Demons Declare a Truce harer nāma harer nāma
-Text 16] The Demigods and Demons Declare a Truce harer nāmaiva kevalam
-Text 16] The Demigods and Demons Declare a Truce kalau nāsty eva nāsty eva
-Text 16] The Demigods and Demons Declare a Truce nāsty eva gatir anyathā
-Text 16] The Demigods and Demons Declare a Truce [[cc/adi/17/21|[Cc. Ādi 17.21] ]]
+> harer nāma harer nāma
+> harer nāmaiva kevalam
+> kalau nāsty eva nāsty eva
+> nāsty eva gatir anyathā
+> [[cc/adi/17/21|[Cc. Ādi 17.21] ]]
 
 "In this age of quarrel and hypocrisy the only means of deliverance is chanting the holy name of the Lord. There is no other way. There is no other way. There is no other way." In His *Śikṣāṣṭaka,* Lord Caitanya says, *paraṁ vijayate śrī-kṛṣṇa-saṅkīrtanam:* "All glories to the chanting of *śrī-kṛṣṇa-saṅkīrtana!*" The *mahā-mantra*—Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare—is directly chanted by the Lord Himself, who gives us this *mantra* for deliverance.
 
