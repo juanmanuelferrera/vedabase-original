@@ -17,7 +17,3 @@ There are innumerable material universes, and in each and every universe there a
 Sometimes He incarnates Himself or empowers a suitable living being to act for Him, but in either case the purpose is the same: the Lord wants the suffering living being to go back home, back to Godhead. The happiness which the living beings are hankering for is not to be found within any corner of the innumerable universes and material planets. The eternal happiness which the living being wants is obtainable in the kingdom of God, but the forgetful living beings under the influence of the material modes have no information of the kingdom of God. The Lord, therefore, comes to propagate the message of the kingdom of God either personally as an incarnation or through His bona fide representative as the good son of God. Such incarnations or sons of God are not only making propaganda for going back to Godhead within human society. Their work is also going on in all types of societies, amongst demigods and those other than human beings.
 
 Thus end the Bhaktivedanta purports of the First Canto, Second Chapter, of the Śrīmad-Bhāgavatam, entitled "Divinity and Divine Service."
-
-Chapter Three
-
-Kṛṣṇa is the Source of All incarnations

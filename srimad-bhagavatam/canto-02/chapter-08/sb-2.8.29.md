@@ -15,7 +15,3 @@
 Mahārāja Parīkṣit asked many questions, some of them very curiously, to know things as they are, but it is not necessary for the master to answer them in the order of the disciple's inquiries, one after the other. But Śukadeva Gosvāmī, experienced teacher that he was, answered all the questions in a systematic way as they were received from the chain of disciplic succession. And he answered all of them without exception.
 
 Thus end the Bhaktivedanta purports of the Second Canto, Eighth Chapter, of the Śrīmad-Bhāgavatam, entitled "Questions By King Parīkṣit."
-
-Chapter Nine
-
-Answers by Citing the Lord's version
