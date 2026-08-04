@@ -2,7 +2,7 @@
 
 26. Stimulation for Ecstatic Love
 
-Some things which give stimulation to ecstatic love of Kṛṣṇa are His transcendental qualities, His uncommon activities, His smiling features, His apparel, His garlands, His flute, His buffalo horn, His leg bells, His conchshell, His footprints, His places of pastimes (such as Vṛndāvana), His favorite plant (*tulasī*), His devotee and the periodical occasions for remembering Him. One such occasion for remembrance is Ekādaśī, which comes twice a month on the eleventh day of the moon, both waning and waxing. On that day all the devotees remain fasting throughout the night and continually chant the glories of the Lord.
+Some things which give stimulation to ecstatic love of Kṛṣṇa are His transcendental qualities, His uncommon activities, His smiling features, His apparel, His garlands, His flute, His buffalo horn, His leg bells, His conchshell, His footprints, His place of pastimes (such as Vṛndāvana), His favorite plant (*tulasī*), His devotee and the periodical occasions for remembering Him. One such occasion for remembrance is Ekādaśī, which comes twice a month on the eleventh day of the moon, both waning and waxing. On that day all the devotees remain fasting throughout the night and continually chant the glories of the Lord.
 
 ## Kṛṣṇa’s Transcendental Qualities, His Uncommon Activities and His Smile
 
@@ -76,7 +76,7 @@ Kṛṣṇa used a buffalo horn as a bugling instrument. This instrument was alw
 
 ## The Attraction of Kṛṣṇa’s Leg Bells
 
-A certain *gopī* once stated to her friend, "My dear friend, when I heard the sound of the leg bells of Śrī Kṛṣṇa, I immediately started to go out of the house to see Him. But most regrettably, my superiors were present just before me at that time, and I could not go out."
+A certain *gopī* once stated to her friend, "My dear friend, when I heard the sound of the leg bell of Śrī Kṛṣṇa, I immediately started to go out of the house to see Him. But most regrettably, my superiors were present just before me at that time, and I could not go out."
 
 ## Kṛṣṇa’s Conchshell
 

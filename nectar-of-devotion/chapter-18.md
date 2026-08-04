@@ -16,7 +16,7 @@ Rūpa Gosvāmī next describes the characteristics of a person who has actually 
 
 ## Utilization of Time
 
-An unalloyed devotee who has developed ecstatic love for Kṛṣṇa is always engaging his words in reciting prayers to the Lord. Within the mind he is always thinking of Kṛṣṇa, and with his body he is either offering obeisances by bowing down before the Deity or is engageing in some other service. During these ecstatic activities he sometimes sheds tears. In this way his whole life is engaged in the service of the Lord, with not a moment wasted on any other engagement.
+An unalloyed devotee who has developed ecstatic love for Kṛṣṇa is always engaging his words in reciting prayers to the Lord. Within the mind he is always thinking of Kṛṣṇa, and with his body he is either offering obeisances by bowing down before the Deity or is engaging in some other service. During these ecstatic activities he sometimes sheds tears. In this way his whole life is engaged in the service of the Lord, with not a moment wasted on any other engagement.
 
 ## Perseverance
 
