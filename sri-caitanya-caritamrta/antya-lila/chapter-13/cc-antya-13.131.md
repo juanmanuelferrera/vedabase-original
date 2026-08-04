@@ -8,4 +8,4 @@
 
 *nija śiṣye*—to his own disciples; *kahi'*—by speaking; *govindera*—of Lord Govinda; *mandira karāilā*—constructed a temple; *vaṁśī*—flute; *makara kuṇḍala-ādi*—earrings shaped like sharks, etc.; *bhūṣaṇa*—ornaments; *kari'*—preparing; *dilā*—gave.
 
-**Subsequently Raghunātha Bhaṭṭa ordered his disciples to construct a temple for Govinda. He prepared various ornaments for Govinda, including a flute and earrings shaped like sharks**
+**Subsequently Raghunātha Bhaṭṭa ordered his disciples to construct a temple for Govinda. He prepared various ornaments for Govinda, including a flute and earrings shaped like sharks.**

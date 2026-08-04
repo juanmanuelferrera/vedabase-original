@@ -18,7 +18,7 @@ There is a statement in the *Hari-vaṁśa* wherein Satyabhāmā, one of the que
 
 In the Tenth Canto, 51st Chapter, 29th verse of *Śrīmad-Bhāgavatam* there is this statement: "My dear Kṛṣṇa, I cannot say that it is only other people who are implicated in material existence, because I too am much entangled with the bodily concept of life. I am always too anxious about my family, home, wife, wealth, land and kingdom. And because I have been so maddened by this material atmosphere, I am thinking now that my life has been simply spoiled." This statement is an instance of disappointment caused by lamentation.
 
-According to Bharata Muni, this disappointment is inauspicious. But there are other learned scholars who have accepted such disappointment as being in the mood of neutrality and as being a preservative fpr ecstatic love.
+According to Bharata Muni, this disappointment is inauspicious. But there are other learned scholars who have accepted such disappointment as being in the mood of neutrality and as being a preservative for ecstatic love.
 
 ## Lamentation
 

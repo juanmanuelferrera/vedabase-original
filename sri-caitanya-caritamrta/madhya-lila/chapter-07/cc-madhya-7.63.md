@@ -6,7 +6,7 @@
 > śūdra viṣayi-jñāne upekṣā nā karibe\
 > āmāra vacane tāṅre avaśya milibe
 
-*śūdra*—the fourth social division; *viṣayi-jñāne*—by the impression of being a worldly man; *upekṣā*—negligence; *nā karibe*—should not do; *āmāra*—my; *vacane*—on the request; *tāṅre*—him; *avaśya*—certainly; *milibe*—You shouid meet.
+*śūdra*—the fourth social division; *viṣayi-jñāne*—by the impression of being a worldly man; *upekṣā*—negligence; *nā karibe*—should not do; *āmāra*—my; *vacane*—on the request; *tāṅre*—him; *avaśya*—certainly; *milibe*—You should meet.
 
 **"Please do not neglect him, thinking he belongs to a śūdra family engaged in material activities. It is my request that You meet him without fail."**
 

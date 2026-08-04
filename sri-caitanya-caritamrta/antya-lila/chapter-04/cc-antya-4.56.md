@@ -8,4 +8,4 @@
 
 *deha-tyāge*—by giving up the body; *kṛṣṇa*—Lord Kṛṣṇa; *nā pāi*—I do not get; *pāiye*—I get; *bhajane*—by devotional service; *kṛṣṇa-prāptyera*—to get the shelter of Kṛṣṇa; *upāya*—means; *kona*—any; *nāhi*—there is not; *bhakti vine*—without devotional service.
 
-**"You should know that one cannot attain Kṛṣṇa simply by giving up the body. Kṛṣṇa is attainable by devotional service. There is no other meas to attain Him.**
+**"You should know that one cannot attain Kṛṣṇa simply by giving up the body. Kṛṣṇa is attainable by devotional service. There is no other means to attain Him.**

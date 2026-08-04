@@ -2,7 +2,7 @@
 
 Light of the Bhāgavata 48
 
-**The moon, or Candraloka, is one of the four important places of residence for the demigods. Beyond Mānasa Lake is Sumeru Mountain. On the eastern side of this mountain is the planet Devadhānī, where Indra resides. On the southern side is the planet known as Saṁyamanī, where Yamarāja resides. On the western side is the planet known as Nimlocanī, the residence of Vāyu, the demigod who controls the wind. And on the northern side of the mountain is the moon, which is also known as Vibhāvarī.**
+**The moon, or Candraloka, is one of the four important places of residence for the demigods. Beyond Mānasa Lake is Sumeru Mountain. On the eastern side of this mountain is the planet Devadhānī, where Indra resides. On the southern side is the planet known as Saṁyamanī, where Yamarāja resides. On the western side is the planet known as Nimlocati, the residence of Vāyu, the demigod who controls the wind. And on the northern side of the mountain is the moon, which is also known as Vibhāvarī.**
 
 All these various planets are within the universe in which our planet is situated. Persons who are too materialistic always engage in sense enjoyment. Such persons worship the material demigods and goddesses to fulfill their material desires. They are fond of performing many *yajñas* to propitiate the various demigods and the forefathers in heaven. Such persons are automatically promoted to the moon, where they enjoy *soma,* a celestial beverage.
 

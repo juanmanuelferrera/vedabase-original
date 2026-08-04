@@ -10,7 +10,7 @@
 
 *tatra*—there; *abhavat*—appeared; *bhagavān*—powerful; *vyāsa-putraḥ*—son of Vyāsadeva; *yadṛcchayā*—as one desires; *gām*—the earth; *aṭamānaḥ*—while traveling; *anapekṣaḥ*—disinterested; *alakṣya*—unmanifested; *liṅgaḥ*—symptoms; *nija-lābha*—self-realized; *tuṣṭaḥ*—satisfied; *vṛtaḥ*—surrounded; *ca*—and; *bālaiḥ*—by children; *avadhūta*—neglected by others; *veṣaḥ*—dressed.
 
-**At that moment there appeared the powerful son of Vyāsadeva who traveled over the earth disinterested and satisfied with himself. He did not manifest any symptoms of belonging to any social order or status of iife. He was surrounded with women and children, and he dressed as if others had neglected him.**
+**At that moment there appeared the powerful son of Vyāsadeva who traveled over the earth disinterested and satisfied with himself. He did not manifest any symptoms of belonging to any social order or status of life. He was surrounded with women and children, and he dressed as if others had neglected him.**
 
 The word bhagavān is sometimes used in relation with some of the great devotees of the Lord, like Śukadeva Gosvāmī. Such liberated souls are disinterested in the affairs of this material world because they are self-satisfied by the great achievements of devotional service. As explained before, Śukadeva Gosvāmī never accepted any formal spiritual master, nor did he undergo any formal reformatory performances. His father, Vyāsadeva, was his natural spiritual master because he heard Śrīmad-Bhāgavatam from him. After this, he became completely self-satisfied.
 

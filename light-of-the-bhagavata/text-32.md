@@ -2,9 +2,9 @@
 
 Light of the Bhāgavata 32
 
-**The beautiful white clouds, freed from all burdens of water distribution, float in midair, like mendicants freed from all family responsibilities.**
+**The beautiful white clouds, freed from all burdens of water distribution, floated in midair, like mendicants freed from all family responsibilities.**
 
-As long as one is attached to the so-called responsibilities of family burdens, he is always full of cares and anxieties about meeting his family expenses. The four orders of social life, as designed in the *varṇāśrama* system, are very scientific and cooperative. In student life one is taught the primary principles of the human form of life. One who enters the householder's life can execute the duties of a family man because he has already been trained for this job in the *brahmacarya-āśrama.* And after fifty years of age the householder retires from family life and prepares for the life of *sannyāsa.*
+As long as one is attached to the so-called responsibilities of family burdens, he is always full of cares and anxieties about meeting his family expenses. The four orders of social life, as designed in the *varṇāśrama* system, are very scientific and cooperative. In student life one is taught the primary principles of the human form of life. One who enters the householder's life can execute the duties of a family man because he has already been trained for this job in the *brahmacārī āśrama.* After fifty years of age the householder retires from family life and prepares for the life of *sannyāsa.*
 
 The householder is duty-bound to maintain the members of all three of the other *āśramas,* namely the *brahmacārīs,* the *vānaprasthas,* and the *sannyāsīs.* Therefore, every member of society was given a chance to retire for a higher order of spiritual culture, and the householders neglected no one. The *brahmacārīs, vānaprasthas,* and *sannyāsīs* all curtailed their necessities to the minimum, and therefore no one would begrudge maintaining them in the bare necessities of life.
 

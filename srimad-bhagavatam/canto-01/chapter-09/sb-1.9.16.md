@@ -8,7 +8,7 @@
 > yad vijijñāsayā yuktā\
 > muhyanti kavayo 'pi hi
 
-*na*—never; *hi*—certainly; *asya*—His; *karhicit*—whatsoever; *rājan*—O King; *pumān*—anyone; *veda*—knows; *vidhitsitam*—plan; *yat*—which; *vijijñāsayā*—even after exhaustive inquiries; *yuktāḥ*—being engaged in in in; *muhyanti*—bewildered; *kavayaḥ*—great philosophers; *api*—even; *hi*—certainly.
+*na*—never; *hi*—certainly; *asya*—His; *karhicit*—whatsoever; *rājan*—O King; *pumān*—anyone; *veda*—knows; *vidhitsitam*—plan; *yat*—which; *vijijñāsayā*—even after exhaustive inquiries; *yuktāḥ*—being engaged in; *muhyanti*—bewildered; *kavayaḥ*—great philosophers; *api*—even; *hi*—certainly.
 
 **O King, no one can know the plan of the Lord [Śrī Kṛṣṇa]. Even though great philosophers inquire exhaustively, they are bewildered.**
 

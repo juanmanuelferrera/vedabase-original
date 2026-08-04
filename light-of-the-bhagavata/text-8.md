@@ -2,7 +2,7 @@
 
 Light of the Bhāgavata 8
 
-**The colorful greenery of the newly grown grass, the seaonal flowers, the frog's umbrellas, the butterflies, and the other variegatedness of the rainy season perfectly represent a well-to-do family absorbed in vanity over their personal assets.**
+**The colorful greenery of the newly grown grass, the seasonal flowers, the frog's umbrellas, the butterflies, and the other variegatedness of the rainy season perfectly represent a well-to-do family absorbed in vanity over their personal assets.**
 
 A rich man displays his opulence in various colorful ways. He has a good residential bungalow with sufficient property and a well-trimmed garden. The bungalow is decorated with up-to-date furniture and carpets. There are motorcars with dazzling polish, and a radio set receiving and broadcasting colorful news and melodious songs. All these captivate their proprietor as though he were in a dreamland of his own creation.
 

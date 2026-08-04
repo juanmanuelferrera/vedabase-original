@@ -1,6 +1,6 @@
 ### 1
 
-1. Yoga as Action
+1. Yoga as Action
 
 In the Sixth and Eighth Chapters of *Bhagavad-gītā,* Lord Śrī Kṛṣṇa, the Supreme Personality of Godhead, explains that the eightfold *yoga* system is a means to control the mind and senses. This method, however, is very difficult for people to perform, especially in this age of Kali, an age characterized by ignorance and chaos.
 
@@ -15,7 +15,7 @@ It is our duty to act in Kṛṣṇa consciousness because we are constitutional
 
 "One who is unattached to the fruits of his work and who works as he is obligated is in the renounced order of life, and he is the true mystic, not he who lights no fire and performs no work."
 
-Sometimes *sannyāsīs* (renunciates) incorrectly think that they have become liberated from all material engagements and therefore no longer have to perform *agni-hotra yajñas,* or fire sacrifices. This is a mistake. Certain *yajñas* (sacrifices) have to be performed by everyone for purification. Since *sannyāsīs* are not traditionally required to perform *yajñas,* they sometimes think that they can attain liberation by ceasing to perform the ritualistic *yajñas,* but actually, unless one comes to the platform of Kṛṣṇa consciousness, there is no question of liberation. Those *sannyāsīs* who cease to perform *yajñas* are in fact acting out of self-interest, because their goal is to become one with the impersonal Brahman. That is the ultimate goal of the impersonalists (Māyāvādīs), who have one major goal or demand: to become one with the supreme impersonal Being. The devotees have no such demands. They are simply satisfied in serving Kṛṣṇa for the satisfaction of Kṛṣṇa. They do not want anything in return. That is the characteristic of pure devotion.
+Sometimes *sannyāsīs* (renunciants) incorrectly think that they have become liberated from all material engagements and therefore no longer have to perform *agni-hotra yajñas,* or fire sacrifices. This is a mistake. Certain *yajñas* (sacrifices) have to be performed by everyone for purification. Since *sannyāsīs* are not traditionally required to perform *yajñas,* they sometimes think that they can attain liberation by ceasing to perform the ritualistic *yajñas,* but actually, unless one comes to the platform of Kṛṣṇa consciousness, there is no question of liberation. Those *sannyāsīs* who cease to perform *yajñas* are in fact acting out of self-interest, because their goal is to become one with the impersonal Brahman. That is the ultimate goal of the impersonalists (Māyāvādīs), who have one major goal or demand: to become one with the supreme impersonal Being. The devotees have no such demands. They are simply satisfied in serving Kṛṣṇa for the satisfaction of Kṛṣṇa. They do not want anything in return. That is the characteristic of pure devotion.
 
 It was Lord Caitanya Mahāprabhu who expressed this devotional attitude so succinctly:
 

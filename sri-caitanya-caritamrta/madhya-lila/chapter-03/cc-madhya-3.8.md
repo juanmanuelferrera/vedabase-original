@@ -6,7 +6,7 @@
 > parātma-niṣṭhā-mātra veṣa-dhāraṇa\
 > mukunda-sevāya haya saṁsāra-tāraṇa
 
-*para-ātma-niṣṭhā-mātra*—only for the determination to serve Kṛṣṇa; *veṣa-dhāraṇa*—changing the dress; *mukunda-sevāya*—by serving Mukunda; *haya*—there is; *saṁsāra-tāraṇa*—liberation from this materiai bondage.
+*para-ātma-niṣṭhā-mātra*—only for the determination to serve Kṛṣṇa; *veṣa-dhāraṇa*—changing the dress; *mukunda-sevāya*—by serving Mukunda; *haya*—there is; *saṁsāra-tāraṇa*—liberation from this material bondage.
 
 **The real purpose of accepting sannyāsa is to dedicate oneself to the service of Mukunda. By serving Mukunda, one can actually be liberated from the bondage of material existence.**
 
