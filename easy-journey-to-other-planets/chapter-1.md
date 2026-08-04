@@ -174,7 +174,7 @@ Long, long before the discovery of the principles of anti-matter and the anti-ma
 
 
 
-The assumption of an anti-material universe is also found in the *Gītā*. And from all data available it is to be assumed without the slightest doubt that the anti-material world is situated in the anti-material sky, a sky which is mentioned in the *Bhagavad-gītā* as sanātana-dhāma, or the eternal nature.
+The assumption of an anti-material universe is also found in the *Gītā*. And from all data available it is to be assumed without the slightest doubt that the anti-material world is situated in the anti-material sky, a sky which is mentioned in the *Gītā* as sanātana-dhāma, or the eternal nature.
 
 
 
