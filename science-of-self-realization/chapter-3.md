@@ -305,7 +305,7 @@ My dear Dr. Staal:
 
 I am very glad to receive your letter dated Sunday, February 8, 1970. I am very much pleased also to note the contents.
 
-Regarding convincing you that all scriptures prescribe chanting of the name of Kṛṣṇa, I can simply present the authority of Lord Caitanya. Lord Caitanya recommended, kīrtanīyaḥ sadā hariḥ [“Hari, Kṛṣṇa, is constantly to be praised” ( Śikṣāṣṭaka 3 ). Similarly, Madhvācārya quotes, vede rāmāyaṇe caiva hariḥ sarvatra gīyate [“Hari is sung about everywhere in the *Vedas* and Rāmāyaṇa ”]. Similarly, in the *Bhagavad-gītā* [15.15] the Lord says, vedaiś ca sarvair aham eva vedyaḥ [“By all the *Vedas*, I am to be known”].
+Regarding convincing you that all scriptures prescribe chanting of the name of Kṛṣṇa, I can simply present the authority of Lord Caitanya. Lord Caitanya recommended, kīrtanīyaḥ sadā hariḥ [“Hari, Kṛṣṇa, is constantly to be praised” ( Śikṣāṣṭaka 3 )]. Similarly, Madhvācārya quotes, vede rāmāyaṇe caiva hariḥ sarvatra gīyate [“Hari is sung about everywhere in the *Vedas* and Rāmāyaṇa ”]. Similarly, in the *Bhagavad-gītā* [15.15] the Lord says, vedaiś ca sarvair aham eva vedyaḥ [“By all the *Vedas*, I am to be known”].
 
 In this way we find all the scriptures aiming at the Supreme Person. In the Rg Veda [1.22.20] the mantra is om tad viṣṇoḥ paramaṁ padaṁ sadā paśyanti sūrayaḥ [“The demigods are always looking to that supreme abode of Viṣṇu”]. The whole Vedic process, therefore, is to understand Lord Viṣṇu, and any scripture is directly or indirectly chanting the glories of the Supreme Lord, Viṣṇu.
 

@@ -125,9 +125,9 @@ It is said that Mahārāja Parīkṣit attained salvation simply by hearing, and
 > utpātāyaiva kalpate
 > [Brs. 1.2.101]
 
-That is, without references to *śruti, smṛti, Purāṇas,* and *Pañcarātras,* unadulterated devotional service is never achieved. Therefore, anyone who shows a devotional ecstasy without reference to the *śāstras* [Vedic scriptures] simply creates disturbances. On the other hand, if we simply stick to the *śrutīs,* then we become *veda-vāda-ratāḥ,** who are not very much appreciated in the *Bhagavad-gītā.*
+That is, without references to *śruti, smṛti, Purāṇas,* and *Pañcarātras,* unadulterated devotional service is never achieved. Therefore, anyone who shows a devotional ecstasy without reference to the *śāstras* [Vedic scriptures] simply creates disturbances. On the other hand, if we simply stick to the *śrutīs,* then we become *veda-vāda-ratāḥ,* who are not very much appreciated in the *Bhagavad-gītā.*
 
-Therefore *Bhagavad-gītā,* although *smṛti,* is the essence of all Vedic scripture, *sarvopaniṣado gāvaḥ.** It is just like a cow which is delivering the milk, or the essence of all the *Vedas* and *Upaniṣads,* and all the *ācāryas,* including Śaṅkarācārya, accept the *Bhagavad-gītā* as such. Therefore you cannot deny the authority of the *Bhagavad-gītā* because it is *smṛti;* that view is *śruti-smṛti-virodhaḥ,* "in conflict with the *smṛti* and the *śruti,*"as you have correctly said.
+Therefore *Bhagavad-gītā,* although *smṛti,* is the essence of all Vedic scripture, *sarvopaniṣado gāvaḥ.* It is just like a cow which is delivering the milk, or the essence of all the *Vedas* and *Upaniṣads,* and all the *ācāryas,* including Śaṅkarācārya, accept the *Bhagavad-gītā* as such. Therefore you cannot deny the authority of the *Bhagavad-gītā* because it is *smṛti;* that view is *śruti-smṛti-virodhaḥ,* "in conflict with the *smṛti* and the *śruti,*"as you have correctly said.
 
 Regarding Ānandagiri's quotation that *kīrtana* means *vedānta-śravaṇaṁ praṇava japaś ca* ["listening to the *Vedānta* and muttering *oṁ*"], the knower of *Vedānta* is Kṛṣṇa, and He is the compiler of *Vedānta.* He is *veda-vit* and *vedānta-kṛt.* So where is there a greater opportunity for *vedānta-śravaṇa* than to hear it from Kṛṣṇa?
 

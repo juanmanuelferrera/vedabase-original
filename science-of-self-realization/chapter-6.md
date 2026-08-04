@@ -253,7 +253,7 @@ A dog has a body, and I have a body. So, my sex pleasure and the dog's sex pleas
 What do you mean, "the pleasure is already stored up"?
 
 **Śrīla Prabhupāda:**
-That is called destiny. A pig has got a certain type of body, and his eatable is the stool. You cannot change it. The pig will not like to eat halava a dessert made of sweetened, buttery toasted in butter]. It is not possible. Because he has a particular type of body, he must eat like that. Can any scientist improve the standard of living of the pig?
+That is called destiny. A pig has got a certain type of body, and his eatable is the stool. You cannot change it. The pig will not like to eat halvah [a sweetmeat made of wheat toasted in butter]. It is not possible. Because he has a particular type of body, he must eat like that. Can any scientist improve the standard of living of the pig?
 
 **Interviewer:**
 I doubt it.
@@ -425,7 +425,9 @@ Yes. But your standard of happiness may be different from my standard. You may l
 So should everyone be free to try to achieve whatever standard of happiness he wants?
 
 **Śrīla Prabhupāda:**
-No, the standard of happiness should be prescribed according to the qualities of the person. You must divide the whole society into four groups: those with *brāhmaṇa* qualities, those with *kṣatriya* qualities, those with *vaiśya* qualities, and those with *śūdra* qualities.* Everyone should have good facility to work according to his natural qualities.
+No, the standard of happiness should be prescribed according to the qualities of the person. You must divide the whole society into four groups: those with *brāhmaṇa* qualities, those with *kṣatriya* qualities, those with *vaiśya* qualities, and those with *śūdra* qualities. Everyone should have good facility to work according to his natural qualities.
+
+*Brāhmaṇas* are the learned and pious teachers (and spiritual leaders) of society, *kṣatriyas* are the military and administrators, *vaiśyas* are the farmers and merchants, and *śūdras* are the laborers.
 
 You cannot engage a bull in the business of a horse, nor can you engage a horse in the business of a bull. Today practically everyone is getting a college education. But what is taught at these colleges? Mostly technical knowledge, which is *śūdra* education. Real higher education means learning Vedic wisdom. This is meant for the *brāhmaṇas.* Alone, *śūdra* education leads to a chaotic condition. Everyone should be tested to find out which education he is suited for. Some *śūdras* may be given technical education, but most *śūdras* should work on the farms. Because everyone is coming to the cities to get an education, thinking, "We can get more money," the agriculture is being neglected. Now there is scarcity because no one is engaged in producing nice foodstuffs. All these anomalies have been caused by bad government. It is the duty of the government to see that everyone is engaged according to his natural qualities. Then people will be happy.
 
@@ -539,7 +541,7 @@ They're manufacturing their own way of governing. And that is their defect. They
 Who determines the regulative principles of religion that people should follow?
 
 **Śrīla Prabhupāda:**
-God. God is perfect. He does that. According to the Vedic version, God is the leader of all living entities (*nityo nityānāṁ cetanaś cetanānām*). We are different from Him because He is all-perfect and we are not. We are very small. We have the qualities of God, but in very small quantity. Therefore we have only a little knowledge—with a little knowledge you can manufacture a 747 airplane, but you cannot manufacture a mosquito. God has created the mosquito's body, which is also an "airplane." And that is the difference between God and us: we have knowledge, but it is not as perfect as God's. So the leaders of the government have to consult God; then they will rule perfectly.
+God. God is perfect. He does that. According to the Vedic version, God is the leader of all living entities (*nityo nityānāṁ cetanaś cetanānām*). We are different from Him because He is all-perfect and we are not. We are very small. We have the qualities of God, but in very small quantity. Therefore we have only a little knowledge—that's all. With a little knowledge you can manufacture a 747 airplane, but you cannot manufacture a mosquito. God has created the mosquito's body, which is also an "airplane." And that is the difference between God and us: we have knowledge, but it is not as perfect as God's. So the leaders of the government have to consult God; then they will rule perfectly.
 
 **BTG:**
 Has God also devised the most perfect government?
@@ -602,7 +604,7 @@ Hinduism is a very complex topic.
 Oh, yes. [*They laugh*.] Really, to my understanding, it is not a religion, from the European point of view; it is a way of life—religion, philosophy, a way of life, whatever you want.
 
 **Śrīla Prabhupāda:**
-This word *Hindu* is not a Sanskrit word. It was given by the Muhammadans. You know that there is a river, Indus, which in Sanskrit is called Sindhu. The Muhammadans pronounce *s* as *h.* Instead of *Sindhu,* they made it *Hindu.* So *Hindu* is a term that is not found in the Sanskrit dictionary, but it has come into use. But the real cultural institution is called *varṇāśrama.* There are four *varṇas* (social divisions)—*brāhmaṇa, kṣatriya, vaiśya,* and *śūdra*—and four *āśramas* (spiritual divisions)—*brahmacarya, gṛhastha, vānaprastha,* and *sannyāsa.* According to the Vedic concept of life, unless people take to this system or institution of four *varṇas* and four *āśramas,* actually they do not become civilized human beings. One has to take this process of four divisions of social orders and four divisions of spiritual orders; that is called *varṇāśrama.* India's culture is based on this age-old Vedic system.
+This word *Hindu* is not a Sanskrit word. It was given by the Muhammadans. You know that there is a river, Indus, which in Sanskrit is called Sindhu. The Muhammadans pronounce *s* as *h.* Instead of *Sindhu,* they made it *Hindu.* So *Hindu* is a term that is not found in the Sanskrit dictionary, but it has come into use. But the real cultural institution is called *varṇāśrama.* There are four *varṇas* (social divisions)—*brāhmaṇa, kṣatriya, vaiśya,* and *śūdra*—and four *āśramas* (spiritual divisions)—*brahmacārī, gṛhastha, vānaprastha,* and *sannyāsa.* According to the Vedic concept of life, unless people take to this system or institution of four *varṇas* and four *āśramas,* actually they do not become civilized human beings. One has to take this process of four divisions of social orders and four divisions of spiritual orders; that is called *varṇāśrama.* India's culture is based on this age-old Vedic system.
 
 **Prof. Kotovsky:**
 *Varṇāśrama.*
@@ -1088,7 +1090,7 @@ Then they are suffering from what we call "Doctor Frog's philosophy." There was 
 
 "How much larger? Ten times the size?"
 
-In this way the frog went on calculating. But what was the possibility of his ever understanding the depths and fur reaches of the great ocean? Our faculties, experience, and powers of speculation are always limited. The frog was always thinking in terms relative to his well. He had no power to think otherwise. Similarly, the scientists are estimating the Absolute Truth, the cause of all causes, with their imperfect senses and minds, and thus they are bound to be bewildered. The essential fault of the so-called scientists is that they have adopted the inductive process to arrive at their conclusions. For example, if a scientist wants to determine whether or not man is mortal by the inductive process, he must study every man to try to discover if some or one of them may be immortal. The scientist says, "I cannot accept the proposition that all men are mortal. There may be some men who are immortal. I have not yet seen every man. Therefore how can I accept that man is mortal?" This is called the inductive process. And the deductive process means that your father, your teacher, or your guru says that man is mortal, and you accept it.
+In this way the frog went on calculating. But what was the possibility of his ever understanding the depths and far reaches of the great ocean? Our faculties, experience, and powers of speculation are always limited. The frog was always thinking in terms relative to his well. He had no power to think otherwise. Similarly, the scientists are estimating the Absolute Truth, the cause of all causes, with their imperfect senses and minds, and thus they are bound to be bewildered. The essential fault of the so-called scientists is that they have adopted the inductive process to arrive at their conclusions. For example, if a scientist wants to determine whether or not man is mortal by the inductive process, he must study every man to try to discover if some or one of them may be immortal. The scientist says, "I cannot accept the proposition that all men are mortal. There may be some men who are immortal. I have not yet seen every man. Therefore how can I accept that man is mortal?" This is called the inductive process. And the deductive process means that your father, your teacher, or your guru says that man is mortal, and you accept it.
 
 **Dr. Singh:**
 So there is an ascending process of gaining knowledge and a descending process?

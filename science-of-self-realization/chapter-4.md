@@ -19,7 +19,7 @@ What is the meaning of the word *Christ?*
 This is very interesting.
 
 **Śrīla Prabhupāda:**
-When an Indian person calls on Kṛṣṇa, he often says, "Kṛṣṭa." *Kṛṣṭa* is a Sanskrit word meaning "attraction." So when we address God as "Christ," "Kṛṣṭa," or "Kṛṣṇa," we indicate the same all-attractive Supreme Personality of Godhead. When Jesus said, "Our Father, who an in heaven, sanctified be Thy name," that name of God was "Kṛṣṭa" or "Kṛṣṇa." Do you agree?
+When an Indian person calls on Kṛṣṇa, he often says, "Kṛṣṭa." *Kṛṣṭa* is a Sanskrit word meaning "attraction." So when we address God as "Christ," "Kṛṣṭa," or "Kṛṣṇa," we indicate the same all-attractive Supreme Personality of Godhead. When Jesus said, "Our Father, who art in heaven, sanctified be Thy name," that name of God was "Kṛṣṭa" or "Kṛṣṇa." Do you agree?
 
 **Father Emmanuel:**
 I think Jesus, as the son of God, has revealed to us the actual name of God: Christ. We can call God "Father," but if we want to address Him by His actual name, we have to say "Christ."
