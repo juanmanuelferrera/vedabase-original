@@ -30,7 +30,7 @@ punar janma na vidyate
 
 "From the highest planet in the material world down to the lowest, all are places of misery wherein repeated birth and death take place. But one who attains to My abode, O son of Kuntī, never takes birth again." (Bg. 8.16)
 
-Similarly, one is not very safe even if he is promoted to Śivaloka, because the planet of Śivaloka is marginal. However, if one attains Vaikuṇṭhaloka (mām upetya tu kaunteya punar janma na vidyate, Bg. 8.16), he attains the highest perfection of life and the end of the evolutionary process . In other words, it is confirmed herein that a person in human society who has developed consciousness must take to Kṛṣṇa consciousness in order to be promoted to Vaikuṇṭhaloka, or Kṛṣṇaloka, immediately after leaving the body. As stated in Bhagavad-gītā:
+Similarly, one is not very safe even if he is promoted to Śivaloka, because the planet of Śivaloka is marginal. However, if one attains Vaikuṇṭhaloka (mām upetya tu kaunteya punar janma na vidyate, Bg. 8.16), he attains the highest perfection of life and the end of the evolutionary process. In other words, it is confirmed herein that a person in human society who has developed consciousness must take to Kṛṣṇa consciousness in order to be promoted to Vaikuṇṭhaloka, or Kṛṣṇaloka, immediately after leaving the body. As stated in Bhagavad-gītā:
 
 janma karma ca me divyam
 
