@@ -8,4 +8,4 @@
 
 *saṁsāra bhramite*—wandering throughout the universe; *kona bhāgye*—by some good fortune; *keha tare*—someone crosses the ocean of nescience; *nadīra pravāhe*—in the flow of the river; *yena*—just as; *kāṣṭha*—wood; *lāge*—sticks; *tīre*—on the bank.
 
-**"There are unlimited conditioned souls who are bereft of Lord Kṛṣṇa's service. Not knowing how to cross the ocean of nescience, they are scattered by waves, time and tide. However, some are fortunate to contact devotees, and by this contact they are deIivered from the ocean of nescience, just as a log, floating down a river, accidentally washes upon the bank.**
+**"There are unlimited conditioned souls who are bereft of Lord Kṛṣṇa's service. Not knowing how to cross the ocean of nescience, they are scattered by waves, time and tide. However, some are fortunate to contact devotees, and by this contact they are delivered from the ocean of nescience, just as a log, floating down a river, accidentally washes upon the bank.**

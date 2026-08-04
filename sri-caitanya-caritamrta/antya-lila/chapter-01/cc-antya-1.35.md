@@ -8,7 +8,7 @@
 
 *vṛndāvane*—at Vṛndāvana; *nāṭakera*—of the drama; *ārambha*—the beginning; *karilā*—wrote; *maṅgalācaraṇa*—invoking auspiciousness; *nāndī-śloka*—introductory verse; *tathāi*—there; *likhilā*—he wrote.
 
-**In Vṛndāvana, Rūpa Gosvāmī began to write a drama. In particuIar, he composed the introductory verses to invoke good fortune.**
+**In Vṛndāvana, Rūpa Gosvāmī began to write a drama. In particular, he composed the introductory verses to invoke good fortune.**
 
 Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura quotes his notes from the *Nāṭaka-candrikā,* wherein he has written:
 
