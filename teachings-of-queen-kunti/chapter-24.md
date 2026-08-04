@@ -7,6 +7,8 @@
 > sneha-pāśam imaṁ chindhi
 > dṛḍhaṁ pāṇḍuṣu vṛṣṇiṣu
 
+*atha*—therefore; *viśva-īśa*—O Lord of the universe; *viśva-ātman*—O soul of the universe; *viśva-mūrte*—O personality of the universal form; *svakeṣu*—unto my own kinsmen; *me*—my; *sneha-pāśam*—tie of affection; *imam*—this; *chindhi*—cut off; *dṛḍham*—deep; *pāṇḍuṣu*—for the Pāṇḍavas; *vṛṣṇiṣu*—for the Vṛṣṇis also.
+
 **O Lord of the universe, soul of the universe, O personality of the form of the universe, please, therefore, sever my tie of affection for my kinsmen, the Pāṇḍavas and the Vṛṣṇis.**
 —Śrīmad-Bhāgavatam 1.8.41
 

@@ -7,6 +7,8 @@
 > tiryaṅ-nṝṣiṣu yādaḥsu
 > tad atyanta-viḍambanam
 
+*janma*—birth; *karma*—activity; *ca*—and; *viśva-ātman*—O soul of the universe; *ajasya*—of the unborn; *akartuḥ*—of the inactive; *ātmanaḥ*—of the vital energy; *tiryak*—animal; *nṛ*—human being; *ṛṣiṣu*—in the sages; *yādaḥsu*—in the water; *tat*—that; *atyanta*—veritable; *viḍambanam*—bewildering.
+
 **Of course it is bewildering, O soul of the universe, that You work, though You are inactive, and that You take birth, though You are the vital force and the unborn. You Yourself descend among animals, men, sages, and aquatics. Verily, this is bewildering.**
 —Śrīmad-Bhāgavatam 1.8.30
 

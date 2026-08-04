@@ -8,6 +8,8 @@
 > alakṣyaṁ sarva-bhūtānām  
 > antar bahir avasthitam
 
+*kuntī uvāca*—Śrīmatī Kuntī said; *namasye*—let me bow down; *puruṣam*—the Supreme Person; *tvā*—You; *ādyam*—the original; *īśvaram*—the controller; *prakṛteḥ*—of the material cosmos; *param*—beyond; *alakṣyam*—the invisible; *sarva*—all; *bhūtānām*—of living beings; *antaḥ*—within; *bahiḥ*—without; *avasthitam*—existing.
+
 **Śrīmatī Kuntī said: O Kṛṣṇa, I offer my obeisances unto You because You are the original personality and are unaffected by the qualities of the material world. You are existing both within and without everything, yet You are invisible to all.**
 —Śrīmad-Bhāgavatam 1.8.18
 

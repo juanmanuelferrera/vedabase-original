@@ -7,6 +7,8 @@
 > samaṁ carantaṁ sarvatra
 > bhūtānāṁ yan mithaḥ kaliḥ
 
+*manye*—I consider; *tvām*—Your Lordship; *kālam*—the eternal time; *īśānam*—the Supreme Lord; *anādi-nidhanam*—without beginning and end; *vibhum*—all-pervading; *samam*—equally merciful; *carantam*—distributing; *sarvatra*—everywhere; *bhūtānām*—of the living beings; *yat mithaḥ*—by intercourse; *kaliḥ*—dissension.
+
 **My Lord, I consider Your Lordship to be eternal time, the supreme controller, without beginning and end, the all-pervasive one. In distributing Your mercy, You are equal to everyone. The dissensions between living beings are due to social intercourse.**
 —Śrīmad-Bhāgavatam 1.8.28
 

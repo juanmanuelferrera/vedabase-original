@@ -7,6 +7,8 @@
 > bhavato 'darśanaṁ yarhi
 > hṛṣīkāṇām iveśituḥ
 
+*ke*—who are; *vayam*—we; *nāma-rūpābhyām*—without fame and ability; *yadubhiḥ*—with the Yadus; *saha*—along with; *pāṇḍavāḥ*—and the Pāṇḍavas; *bhavataḥ*—Your; *adarśanam*—absence; *yarhi*—as if; *hṛṣīkāṇām*—of the senses; *iva*—like; *īśituḥ*—of the living being.
+
 **As the name and fame of a particular body is finished with the disappearance of the living spirit, similarly, if You do not look upon us, all our fame and activities, along with the Pāṇḍavas and Yadus, will end at once.**
 —Śrīmad-Bhāgavatam 1.8.38
 

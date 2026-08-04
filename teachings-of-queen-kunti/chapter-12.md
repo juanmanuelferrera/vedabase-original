@@ -7,6 +7,8 @@
 > na yasya kaścid dayito 'sti karhicid
 > dveṣyaś ca yasmin viṣamā matir nṛṇām
 
+*na*—does not; *veda*—know; *kaścit*—anyone; *bhagavan*—O Lord; *cikīrṣitam*—pastimes; *tava*—Your; *īhamānasya*—like the worldly men; *nṛṇām*—of the people in general; *viḍambanam*—misleading; *na*—never; *yasya*—His; *kaścit*—anyone; *dayitaḥ*—object of specific favor; *asti*—there is; *karhicit*—anywhere; *dveṣyaḥ*—object of envy; *ca*—and; *yasmin*—unto Him; *viṣamā*—partiality; *matiḥ*—conception; *nṛṇām*—of the people.
+
 **O Lord, no one can understand Your transcendental pastimes, which appear to be human and so are misleading. You have no specific object of favor, nor do You have any object of envy. People only imagine that You are partial.**
 —Śrīmad-Bhāgavatam 1.8.29
 

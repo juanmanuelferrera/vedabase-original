@@ -7,6 +7,8 @@
 > ta eva paśyanty acireṇa tāvakaṁ
 > bhava-pravāhoparamaṁ padāmbujam
 
+*śṛṇvanti*—hear; *gāyanti*—chant; *gṛṇanti*—take; *abhīkṣṇaśaḥ*—continuously; *smaranti*—remember; *nandanti*—take pleasure; *tava*—Your; *īhitam*—activities; *janāḥ*—people in general; *te*—they; *eva*—certainly; *paśyanti*—can see; *acireṇa*—very soon; *tāvakam*—Your; *bhava-pravāha*—the current of rebirth; *uparamam*—cessation; *pada-ambujam*—lotus feet.
+
 **O Kṛṣṇa, those who continuously hear, chant, and repeat Your transcendental activities, or take pleasure in others' doing so, certainly see Your lotus feet, which alone can stop the repetition of birth and death.**
 —Śrīmad-Bhāgavatam 1.8.36
 

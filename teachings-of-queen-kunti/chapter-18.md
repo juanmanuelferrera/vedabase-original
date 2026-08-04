@@ -7,6 +7,8 @@
 > śravaṇa-smaraṇārhāṇi
 > kariṣyann iti kecana
 
+*bhave*—in the material creation; *asmin*—this; *kliśyamānānām*—of those who are suffering from; *avidyā*—nescience; *kāma*—desire; *karmabhiḥ*—by execution of fruitive work; *śravaṇa*—hearing; *smaraṇa*—remembering; *arhāṇi*—worshiping; *kariṣyan*—may perform; *iti*—thus; *kecana*—others.
+
 **And yet others say that You appeared to rejuvenate the devotional service of hearing, remembering, worshiping, and so on, in order that the conditioned souls suffering from material pangs might take advantage and gain liberation.**
 —Śrīmad-Bhāgavatam 1.8.35
 

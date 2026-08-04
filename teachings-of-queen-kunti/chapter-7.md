@@ -7,6 +7,8 @@
 > mṛdhe mṛdhe 'neka-mahārathāstrato
 > drauṇy-astrataś cāsma hare 'bhirakṣitāḥ
 
+*viṣāt*—from poison; *mahā-agneḥ*—from the great fire; *puruṣa-ada*—the man-eaters; *darśanāt*—by combating; *asat*—vicious; *sabhāyāḥ*—assembly; *vana-vāsa*—exiled to the forest; *kṛcchrataḥ*—sufferings; *mṛdhe mṛdhe*—again and again in battle; *aneka*—many; *mahā-ratha*—great generals; *astrataḥ*—weapons; *drauṇi*—the son of Droṇācārya; *astrataḥ*—from the weapon of; *ca*—and; *āsma*—indicating past tense; *hare*—O my Lord; *abhirakṣitāḥ*—protected completely.
+
 **My dear Kṛṣṇa, Your Lordship has protected us from a poisoned cake, from a great fire, from cannibals, from the vicious assembly, from sufferings during our exile in the forest, and from the battle where great generals fought. And now You have saved us from the weapon of Aśvatthāmā.**
 —Śrīmad-Bhāgavatam 1.8.24
 

@@ -7,6 +7,8 @@
 > nanda-gopa-kumārāya
 > govindāya namo namaḥ
 
+*kṛṣṇāya*—unto the Supreme Lord; *vāsudevāya*—unto the son of Vasudeva; *devakī-nandanāya*—unto the son of Devakī; *ca*—and; *nanda-gopa*—Nanda and the cowherd men; *kumārāya*—unto their son; *govindāya*—unto the Personality of Godhead, who enlivens the cows and the senses; *namaḥ*—respectful obeisances; *namaḥ*—obeisances.
+
 **Let me therefore offer my respectful obeisances unto the Lord, who has become the son of Vasudeva, the pleasure of Devakī, the boy of Nanda and the other cowherd men of Vṛndāvana, and the enlivener of the cows and the senses.**
 —Śrīmad-Bhāgavatam 1.8.21
 

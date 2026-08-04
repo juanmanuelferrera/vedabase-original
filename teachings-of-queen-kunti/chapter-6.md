@@ -7,6 +7,8 @@
 > vimocitāhaṁ ca sahātmajā vibho
 > tvayaiva nāthena muhur vipad-gaṇāt
 
+*yathā*—as it were; *hṛṣīkeśa*—the master of the senses; *khalena*—by the envious; *devakī*—Devakī (the mother of Śrī Kṛṣṇa); *kaṁsena*—by King Kaṁsa; *ruddhā*—imprisoned; *ati-ciram*—for a long time; *śuca-arpitā*—distressed; *vimocitā*—released; *aham ca*—also myself; *saha-ātma-jā*—along with my children; *vibho*—O great one; *tvayā eva*—by Your Lordship; *nāthena*—as the protector; *muhuḥ*—constantly; *vipat-gaṇāt*—from a series of dangers.
+
 **O Hṛṣīkeśa, master of the senses and Lord of lords, You have released Your mother, Devakī, who was long imprisoned and distressed by the envious King Kaṁsa, and me and my children from a series of constant dangers.**
 —Śrīmad-Bhāgavatam 1.8.23
 

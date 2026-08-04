@@ -7,6 +7,8 @@
 > tvat-padair aṅkitā bhāti
 > sva-lakṣaṇa-vilakṣitaḥ
 
+*na*—not; *iyam*—this land of our kingdom; *śobhiṣyate*—will appear beautiful; *tatra*—then; *yathā*—as it is now; *idānīm*—now; *gadādhara*—O Kṛṣṇa; *tvat*—Your; *padaiḥ*—by the feet; *aṅkitā*—marked; *bhāti*—is dazzling; *sva-lakṣaṇa*—Your own marks; *vilakṣitaiḥ*—by the impressions.
+
 **O Gadādhara [Kṛṣṇa], our kingdom is now being marked by the impressions of Your feet, and therefore it appears beautiful. But when You leave, it will no longer be so.**
 —Śrīmad-Bhāgavatam 1.8.39
 

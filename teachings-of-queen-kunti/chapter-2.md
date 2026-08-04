@@ -7,6 +7,8 @@
 > na lakṣyase mūḍha-dṛśā
 > nato nāṭya-dharo yathā
 
+*māyā*—deluding; *javanikā*—curtain; *ācchannam*—covered by; *ajña*—ignorant; *adhokṣajam*—beyond the range of material conception (transcendental); *avyayam*—irreproachable; *na*—not; *lakṣyase*—observed; *mūḍha-dṛśā*—by the foolish observer; *naṭaḥ*—artist; *nāṭya-dharaḥ*—dressed as a player; *yathā*—as.
+
 **Being beyond the range of limited sense perception, You are the eternally irreproachable factor covered by the curtain of deluding energy. You are invisible to the foolish observer, exactly as an actor dressed as a player is not recognized.**
 —Śrīmad-Bhāgavatam 1.8.19
 

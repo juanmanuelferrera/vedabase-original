@@ -7,6 +7,8 @@
 > bhakti-yoga-vidhānārthaṁ
 > kathaṁ paśyema hi striyaḥ
 
+*tathā*—besides that; *paramahaṁsānām*—of the advanced transcendentalists; *munīnām*—of the great philosophers or mental speculators; *amala-ātmanām*—those whose minds are competent to discern between spirit and matter; *bhakti-yoga*—the science of devotional service; *vidhāna-artham*—for executing; *katham*—how; *paśyema*—can observe; *hi*—certainly; *striyaḥ*—women.
+
 **You Yourself descend to propagate the transcendental science of devotional service unto the hearts of the advanced transcendentalists and mental speculators, who are purified by being able to discriminate between matter and spirit. How, then, can we women know You perfectly?**
 —Śrīmad-Bhāgavatam 1.8.20
 

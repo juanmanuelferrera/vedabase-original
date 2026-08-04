@@ -7,6 +7,8 @@
 > ātmārāmāya śāntāya
 > kaivalya-pataye namaḥ
 
+*namaḥ*—all obeisances unto You; *akiñcana-vittāya*—unto the property of the materially impoverished; *nivṛtta*—completely transcendental to the actions of the material modes; *guṇa*—material modes; *vṛttaye*—affection; *ātma-ārāmāya*—one who is self-satisfied; *śāntāya*—the most gentle; *kaivalya-pataye*—unto the master of the monists; *namaḥ*—bowing down.
+
 **My obeisances are unto You, who are the property of the materially impoverished. You have nothing to do with the actions and reactions of the material modes of nature. You are self-satisfied, and therefore You are the most gentle and are master of the monists.**
 —Śrīmad-Bhāgavatam 1.8.27
 

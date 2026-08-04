@@ -7,6 +7,8 @@
 > yadoḥ priyasyānvavāye
 > malayasyeva candanam
 
+*kecit*—someone; *āhuḥ*—says; *ajam*—the unborn; *jātam*—being born; *puṇya-ślokasya*—of the great pious king; *kīrtaye*—for glorifying; *yadoḥ*—of King Yadu; *priyasya*—of the dear; *anvavāye*—in the family of; *malayasya*—Malaya Hills; *iva*—as; *candanam*—sandalwood.
+
 **Some say that the Unborn is born for the glorification of pious kings, and others say that He is born to please King Yadu, one of Your dearest devotees. You appear in his family as sandalwood appears in the Malaya Hills.**
 —Śrīmad-Bhāgavatam 1.8.32
 

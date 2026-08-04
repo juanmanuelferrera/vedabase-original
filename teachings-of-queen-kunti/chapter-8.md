@@ -7,6 +7,8 @@
 > bhavato darśanaṁ yat syād
 > apunar bhava-darśanam
 
+*vipadaḥ*—calamities; *santu*—let there be; *tāḥ*—all; *śaśvat*—again and again; *tatra*—there; *tatra*—and there; *jagat-guro*—O Lord of the universe; *bhavataḥ*—Your; *darśanam*—meeting; *yat*—that which; *syāt*—is; *apunaḥ*—not again; *bhava-darśanam*—seeing repetition of birth and death.
+
 **I wish that all those calamities would happen again and again so that we could see You again and again, for seeing You means that we will no longer see repeated births and deaths.**
 —Śrīmad-Bhāgavatam 1.8.25
 

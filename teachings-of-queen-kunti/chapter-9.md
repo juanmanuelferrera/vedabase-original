@@ -7,6 +7,8 @@
 > naivārhaty abhidhātuṁ vai
 > tvām akiñcana-gocaram
 
+*janma*—birth; *aiśvarya*—opulence; *śruta*—education; *śrībhiḥ*—by the possession of beauty; *edhamāna*—progressively increasing; *madaḥ*—intoxication; *pumān*—the human being; *na*—never; *eva*—ever; *arhati*—deserves; *abhidhātum*—to address in feeling; *vai*—certainly; *tvām*—You; *akiñcana-gocaram*—one who is approached easily by the materially exhausted man.
+
 **My Lord, Your Lordship can easily be approached, but only by those who are materially exhausted. One who is on the path of [material] progress, trying to improve himself with respectable parentage, great opulence, high education, and bodily beauty, cannot approach You with sincere feeling.**
 —Śrīmad-Bhāgavatam 1.8.26
 
