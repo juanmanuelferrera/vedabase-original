@@ -9,7 +9,7 @@
 > tejo yat te rūpaṁ kalyāṇa-tamaṁ\
 > tat te paśyāmi yo 'sāv asau puruṣaḥ so 'ham asmi
 
-*pūṣan*—O maintainer; *eka-ṛṣe*—the primeval philosopher; *yama*—the regulating principal; *sūrya*—the destination of the Sūris (great devotees); *prājāpatya*—the well-wisher of the prajāpatis (progenitors of mankind); *vyūha*—kindly arrange; *raśmīn*—the rays; *samūha*—wind up; *tejaḥ*—effulgence; *yat*—that; *te*—Your; *rūpam*—form; *kalyāṇa-tamam*—auspicious; *tat*—that; *te*—Your; *paśyāmi*—I may see; *yaḥ*—one who is; *asau*—the sun; *asau*—that; *puruṣaḥ*—Personality of Godhead; *saḥ*—He; *aham*—myself; *asmi*—I am.
+*pūṣan*—the Maintainer; *ekarṣe*—the primeval Philosopher; *yama*—the regulating principal; *sūrya*—the destination of the Sūris (great devotees); *prājāpatya*—the well-wisher of the Prajāpatis (progenitors of Mankind); *vyūha*—kindly arrange; *raśmīn*—the rays; *samūha*—wind up; *tejaḥ*—effulgence; *yat*—that; *te*—your; *rūpam*—form; *kalyāṇa-tamam*—auspicious; *tat*—that; *te*—your; *paśyāmi*—I may see; *yaḥ*—one who is; *asau*—the sun; *asau*—that; *puruṣaḥ*—Personality of Godhead; *saḥ*—He; *aham*—myself; *asmi*—I am.
 
 **O my Lord, O primeval Philosopher, Maintainer of the universe, O regulating Principle, Destination of the pure devotees, Well-wisher of the progenitors of mankind, please remove the effulgence of Your transcendental rays, so that I can see Your Form of Bliss. You are the eternal Supreme Personality of Godhead, like unto the Sun, as am I.**
 

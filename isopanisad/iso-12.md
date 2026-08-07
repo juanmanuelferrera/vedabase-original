@@ -8,7 +8,7 @@
 > tato bhūya iva te tamo\
 > ya u sambhūtyām ratāḥ
 
-*andham*—ignorance; *tamaḥ*—darkness; *praviśanti*—enter into; *ye*—those avidyām—nescience; *upāsate*—worship; *tataḥ*—than that; *bhūyaḥ*—again; *iva*—like that; *te*—who; *tamaḥ*—darkness; *ye*—those; *u*—also; *sambhūtyām*—in the Absolute; *ratāḥ*—engaged.
+*andham*—ignorance; *tamaḥ*—darkness; *praviśanti*—do enter into; *ye*—those; *asambhūtim*—demigods; *upāsate*—do worship; *tataḥ*—more than that; *bhūyaḥ*—again; *iva*—like that; *te*—who; *tamaḥ*—darkness; *ye*—those; *u*—also; *sambhūtyām*—in the Absolute; *ratāḥ*—engaged.
 
 **Those who are engaged in the worship of demigods enter into the darkest region of ignorance, and still more so do the worshipers of the Absolute.**
 

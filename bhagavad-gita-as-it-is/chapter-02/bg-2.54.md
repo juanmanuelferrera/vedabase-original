@@ -10,7 +10,7 @@
 > sthita-dhīḥ kiṁ prabhāṣeta\
 > kim āsīta vrajeta kim
 
-*arjuna uvāca*—Arjuna said; *sthita-prajñasya*—of one who is situated in fixed Kṛṣṇa consciousness; *kā*—what; *bhāṣā*—language; *samādhi-sthasya*—of one situated in trance; *keśava*—O Kṛṣṇa; *sthita-dhīḥ*—one fixed in Kṛṣṇa consciousness; *kim*—what; *prabhāṣeta*—speak; *kim*—how; *āsīta*—does remain; *vrajeta*—walk; *kim*—how.
+*arjunaḥ uvāca*—Arjuna said; *sthita-prajñasya*—of one who is situated in fixed Kṛṣṇa consciousness; *kā*—what; *bhāṣā*—language; *samādhi-sthasya*—of one situated in trance; *keśava*—O Kṛṣṇa; *sthita-dhīḥ*—one fixed in Kṛṣṇa consciousness; *kim*—what; *prabhāṣeta*—speak; *kim*—how; *āsīta*—does remain; *vrajeta*—walk; *kim*—how.
 
 **Arjuna said: What are the symptoms of one whose consciousness is thus merged in Transcendence? How does he speak, and what is his language? How does he sit, and how does he walk?**
 

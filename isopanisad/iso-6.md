@@ -8,7 +8,7 @@
 > sarva-bhūteṣu cātmānaṁ\
 > tato na vijugupsate
 
-*yaḥ*—he who; *tu*—but; *sarvāṇi*—all; *bhūtāni*—living entities; *ātmani*—in relation with the Supreme Lord; *eva*—only; *anupaśyati*—observes in a systematic way; *sarva-bhūteṣu*—in every living being; *ca*—and; *ātmānam*—the Supersoul; *tataḥ*—thereafter; *na*—not; *vijugupsate*—hates anyone.
+*yaḥ*—a person; *tu*—but; *sarvāṇi*—all; *bhūtāni*—living entities; *ātmani*—in relation with the Supreme Lord; *eva*—only; *anupaśyati*—observes in a systematic way; *sarva-bhūteṣu*—in every living being; *ca*—and; *ātmānam*—the Supersoul; *tataḥ*—thereafter; *na*—not; *vijugupsate*—hates anyone.
 
 **A person who sees everything in relation to the Supreme Lord, and sees all entities as His parts and parcels, and who sees the Supreme Lord within everything, never hates anything, nor any being.**
 

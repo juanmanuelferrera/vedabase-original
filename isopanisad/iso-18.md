@@ -8,7 +8,7 @@
 > yuyodhy asmaj juhurāṇam eno\
 > bhūyiṣṭhāṁ te nama-uktiṁ vidhema
 
-*agne*—O my Lord, powerful like the fire; *naya*—kindly lead me; *supathā*—in the right path; *rāye*—O the Omnipotent; *asmān*—all of us; *viśvāni*—everything including; *deva*—O my Lord; *vayunāni*—all actions; *vidvān*—the knower; *yuyodhi*—get me freed from; *asmat*—ourselves; *juhurāṇam*—all hindrances on the path; *enaḥ*—all vices; *bhūyiṣṭhām*—being fallen on the ground; *te*—unto You; *namaḥ*—of obeisances; *uktim*—words; *vidhema*—do I act.
+*agne*—O my Lord, powerful like the fire; *naya*—kindly lead me; *supathā*—in the right path; *rāye*—O the Omnipotent; *asmān*—all of us; *viśvāni*—everything including; *deva*—O my Lord; *vayunāni*—all actions; *vidvān*—the knower; *yuyodhi*—get me freed from; *asmat*—ourselves; *juhurāṇam*—all hindrances on the path; *enas*—all vices; *bhūyiṣṭhām*—being fallen on the ground; *te*—unto you; *namaḥ*—of obeisances; *uktim*—words; *vidhema*—do I act.
 
 **O my Lord, powerful as the fire, Omnipotent One, now I do offer You all obeisances, falling at Your Feet on the ground. O my Lord, please lead me on the right path to reach You, and, as You know all of what I have done in the past, please make me free from the reactions to my past sins, so that there will be no hindrance to my progress.**
 

@@ -8,7 +8,7 @@
 > iti śuśruma dhīrāṇāṁ\
 > ye nas tad vicacakṣire
 
-*anyat*—different; *eva*—certainly; *āhuḥ*—it is said; *sambhavāt*—by worshiping the Supreme Lord, the cause of all causes; *anyat*—different; *āhuḥ*—it is said; *asambhavāt*—by worshiping what is not the Supreme; *iti*—thus; *śuśruma*—I heard it; *dhīrāṇām*—from the undisturbed authorities; *ye*—those; *naḥ*—unto us; *tat*—about that subject matter; *vicacakṣire*—perfectly explained.
+*anyat*—different; *eva*—certainly; *āhuḥ*—it is said; *sambhavāt*—by worshiping the Supreme Lord, the Cause of all causes; *anyat*—different; *āhuḥ*—it is said; *asambhavāt*—by worshiping what is not the Supreme; *iti*—thus; *śuśruma*—I heard it; *dhīrāṇām*—from the undisturbed authorities; *ye*—those; *naḥ*—unto us; *tat*—about that subject matter; *vicacakṣire*—perfectly explained.
 
 **It is said that one result is obtained by worshiping the Supreme Cause of all causes, and that another is obtained by worshiping what is not supreme. All this was heard from the undisturbed authorities who clearly explained it.**
 

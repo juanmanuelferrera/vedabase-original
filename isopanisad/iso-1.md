@@ -8,7 +8,7 @@
 > tena tyaktena bhuñjīthā\
 > mā gṛdhaḥ kasya svid dhanam
 
-*īśa*—by the Lord; *āvāsyam*—controlled; *idam*—this; *sarvam*—all; *yat*—whatever; *kim*—it (is); *ca*—and; *jagatyām*—within the universe; *jagat*—all that is animate or inanimate; *tena*—by Him; *tyaktena*—set-apart quota; *bhuñjīthāḥ*—you should accept; *mā*—do not; *gṛdhaḥ*—endeavor to gain; *kasya svit*—of anyone else; *dhanam*—the wealth.
+*īśā*—by the Lord; *vāsyam*—controlled; *idam*—this; *sarvam*—all; *yat*—whatever; *kim*—it (is); *ca*—and; *jagatyām*—within the universe; *jagat*—all that is animate or inanimate; *tena*—by Him; *tyaktena*—set apart quota; *bhuñjīthāḥ*—must you accept; *mā*—do not; *gṛdhaḥ*—make into use; *kasya svid*—whom does it belong; *dhanam*—things necessary.
 
 **Everything animate or inanimate that is within the universe is controlled and owned by the Lord. One should therefore accept only those things necessary for himself, which are set aside as his quota, and one must not accept other things, knowing well to Whom they belong.**
 

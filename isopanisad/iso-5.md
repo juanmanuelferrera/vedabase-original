@@ -8,7 +8,7 @@
 > tad antar asya sarvasya\
 > tad u sarvasyāsya bāhyataḥ
 
-*tat*—this Supreme Lord; *ejati*—does walk; *tat*—He; *na*—not; *ejati*—does walk; *tat*—He (is); *dūre*—far away; *tat*—He; *u*—also; *antike*—very near; *tat*—He; *antar*—within; *asya*—of this; *sarvasya*—all; *tat*—He; *u*—also; *sarvasya*—all; *asya*—of this; *bāhyataḥ*—external to.
+*tat*—this Supreme Lord; *ejati*—does walk; *tat*—He; *na*—not; *ejati*—does walk; *tat*—He (is); *dūre*—far away; *tat*—He (is); *u*—also; *antike*—very near; *tat*—He (is); *antar*—within; *asya*—of this; *sarvasya*—all; *tat*—He (is); *u*—also; *sarvasya*—all; *asya*—of this; *bāhyataḥ*—external to.
 
 **The Supreme Lord walks and does not walk. He is far away, but He is very near as well. He is within everything, and again He is outside of everything.**
 

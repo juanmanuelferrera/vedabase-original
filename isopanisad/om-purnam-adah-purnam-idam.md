@@ -6,7 +6,7 @@
 > pūrṇasya pūrṇam ādāya\
 > pūrṇam evāvaśiṣyate
 
-*oṁ*—the Complete Whole; *pūrṇam*—perfectly complete; *adaḥ*—that; *pūrṇam*—perfectly complete; *idam*—this phenomenal world; *pūrṇāt*—from the all-perfect; *pūrṇam*—complete unit; *udacyate*—produced; *pūrṇasya*—of the Complete Whole; *pūrṇam*—completely, all; *ādāya*—having been taken away; *pūrṇam*—the complete balance; *eva*—even; *avaśiṣyate*—is remaining.
+*oṁ*—the Complete Whole; *pūrṇam*—perfectly complete; *adaḥ*—that; *pūrṇam*—perfectly complete; *idam*—this phenomenal world; *pūrṇāt*—from the all perfect; *pūrṇam*—complete unit; *udacyate*—produced; *pūrṇasya*—of the Complete Whole; *pūrṇam*—completely all; *ādāya*—having been taken away; *pūrṇam*—the complete balance; *eva*—even; *avaśiṣyate*—is remaining.
 
 **The Personality of Godhead is perfect and complete. And because He is completely perfect, all emanations from Him, such as this phenomenal world, are perfectly equipped as a complete whole. Whatever is produced of the Complete Whole is also complete by itself. And because He is the Complete Whole, even though so many complete units emanate from Him, He remains the complete balance.**
 
