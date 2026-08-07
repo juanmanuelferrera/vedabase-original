@@ -1,0 +1,5 @@
+Concluding Words
+
+Śrīla Rūpa Gosvāmī concludes by saying that *Bhakti-rasāmṛta-sindhu* is very difficult for ordinary men to understand, yet he hopes that Lord Kṛṣṇa, the eternal Supreme Personality of Godhead, will be pleased with his presentation of this book.
+
+By rough calculation it is estimated that Śrīla Rūpa Gosvāmī finished *Śrī Bhakti-rasāmṛta-sindhu* in Gokula Vṛndāvana in the year 1552. While physically present, Śrīla Rūpa Gosvāmī was living in different parts of Vṛndāvana, and his headquarters were in the temple of Rādhā-Dāmodara in the present city of Vṛndāvana. The place of Rūpa Gosvāmī's *bhajana,* execution of devotional service, is commemorated still. There are two different tomb-like structures in the Rādhā-Dāmodara temple; one structure is called his place of *bhajana*, and in the other his body is entombed. Behind this very tomb I have my place of *bhajana,* but since 1965 I have been away. The place, however, is being taken care of by my disciples. By Kṛṣṇa's will, I am now residing at the Los Angeles Temple of the International Society for Krishna Consciousness. This purport is finished today, the 30th of June, 1969.
