@@ -1,6 +1,6 @@
 ### 25
 
-25. Personal and Impersonal Realizations
+25. Personal and Impersonal Realization
 
 The Puranas are called the supplementary Vedic literature, because sometimes in the original Vedas the subject matter is too difficult to be understood by the common man. The Puranas, therefore, explain things nicely by different stories and historical incidents. So, in the Srimad Bhagwatam it is stated in the Tenth Canto, Fourteenth Chapter, that Maharaj Nanda and the cowherd men and inhabitants of Vrindaban generally are very fortunate because the Supreme Brahman, the Personality of Godhead, full of bliss, is now engaged there in His eternal pastimes as their friend. According to Svetasvatara Upanishad, the mantra of apani-pado although Brahman has no materially created hands and legs, still He walks very stately, and He accepts everything offered to Him. These words suggest that He has transcendental limbs of the body, and therefore He is not impersonal.
 
