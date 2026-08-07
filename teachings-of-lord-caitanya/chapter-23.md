@@ -1,6 +1,6 @@
 ### 23
 
-23. Why Study the *Vedanta Sutra?*
+23. Why Study the Vedanta Sutra?
 
 Knowledge means information gathered from the scriptures, and science means practical realization of the knowledge gathered from the scriptures. It is scientific knowledge when it is gathered from the scriptures through the practical application of the bona fide spiritual master, but when interpreted by mental concoction it is personal. By scientific understanding of the information from the scripture, through the bona fide spiritual master, one learns, by one's own realization, each actual conception of the Supreme Personality of Godhead. The transcendental form of the Supreme Personality of Godhead is different from material manifestation and different from the reactions of matter. Therefore, without scientific understanding of the spiritual form of the Personality of Godhead one becomes an impersonalist.
 
