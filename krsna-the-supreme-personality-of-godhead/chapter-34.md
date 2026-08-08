@@ -34,4 +34,4 @@ Another *gopī* told mother Yaśodā, "My dear mother, when your son returns hom
 
 Such descriptions of Kṛṣṇa's transcendental pastimes and activities were remembered by the *gopīs* during His absence from Vṛndāvana. They give us some idea of Kṛṣṇa's attraction. Everyone and everything is attracted to Kṛṣṇa—that is the perfect description of Kṛṣṇa's attraction. The example of the *gopīs* is very instructive to persons who are trying to be absorbed in Kṛṣṇa consciousness. One can very easily associate with Kṛṣṇa simply by remembering His transcendental pastimes. Everyone has a tendency to love someone. That Kṛṣṇa should be the object of love is the central point of Kṛṣṇa consciousness. By constantly chanting the Hare Kṛṣṇa *mantra* and remembering the transcendental pastimes of Kṛṣṇa, one can be fully in Kṛṣṇa consciousness and thus make his life sublime and fruitful.
 
-*Thus ends the Bhaktivedanta purport of the Thirty-fourth Chapter of* Kṛṣṇa,* "The* Gopīs' *Feelings of Separation."*
+*Thus ends the Bhaktivedanta purport of the Thirty-fourth Chapter of* Kṛṣṇa, *"The Gopīs' Feelings of Separation."*
