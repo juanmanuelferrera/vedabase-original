@@ -10,7 +10,7 @@
 
 *hareḥ nāma*—the holy name of the Lord Hari; *hareḥ nāma*—the holy name of the Lord Hari; *hareḥ nāma*—the holy name of the Lord; *eva*—certainly; *kevalam*—only; *kalau*—in this Age of Kali; *na asti*—there is not; *eva*—certainly; *na asti*—there is not; *eva*—certainly; *na asti*—there is not; *eva*—certainly; *gatiḥ*—means; *anyathā*—other.
 
-**“ 'In this age of quarrel and hypocrisy, the only means of deliverence is the chanting of the holy names of the Lord. There is no other way. There is no other way. There is no other way.' "**
+**“ 'In this age of quarrel and hypocrisy, the only means of deliverance is the chanting of the holy names of the Lord. There is no other way. There is no other way. There is no other way.' "**
 
 Because the people of this age are so fallen, they can simply chant the Hare Kṛṣṇa *mahā-mantra.* In this way they can rid themselves of the bodily conception of life and become eligible to engage in the Lord's devotional service. One cannot engage in the devotional service of the Lord without being purified of all contamination. This is confirmed in the *Bhagavad-gītā* [[bg/7/28|(Bg. 7.28)]]:
 

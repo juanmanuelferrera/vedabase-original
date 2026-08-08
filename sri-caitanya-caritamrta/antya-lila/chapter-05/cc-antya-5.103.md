@@ -8,4 +8,4 @@
 
 *rasa*—transcendental mellows; *rasa-ābhāsa*—overlapping of transcendental mellows; *yāra*—of whom; *nāhika vicāra*—there is no consideration; *bhakti-siddhānta-sindhu*—the ocean of the conclusions of devotional service; *nāhi*—not; *pāya*—attains; *pāra*—the limit.
 
-**"A so-called poet who has no knowledge of transcendentaI mellows and the overlapping of transcendental mellows cannot cross the ocean of the conclusions of devotional service.**
+**"A so-called poet who has no knowledge of transcendental mellows and the overlapping of transcendental mellows cannot cross the ocean of the conclusions of devotional service.**

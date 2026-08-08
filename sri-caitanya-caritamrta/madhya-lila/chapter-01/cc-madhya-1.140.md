@@ -8,4 +8,4 @@
 
 *śivānanderasaṅge*—with Śivānanda Sena; *āilā*—came; *kukkura*—a dog; *bhāgyavān*—fortunate; *prabhura*—of the Lord; *caraṇa*—the lotus feet; *dekhi'*—seeing; *kaila*—did; *antardhāna*—disappearing.
 
-**A dog accompanied Śivānanda Sena and the devotees, and that dog was so fortunate that after seeing the lotus feet of Lord Caitanya Mahāprabhu, it was liberated and went back home, back to Godheand.**
+**A dog accompanied Śivānanda Sena and the devotees, and that dog was so fortunate that after seeing the lotus feet of Lord Caitanya Mahāprabhu, it was liberated and went back home, back to Godhead.**
