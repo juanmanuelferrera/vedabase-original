@@ -8,6 +8,6 @@
 
 *vraja-lokera*—of the inhabitants of Vrajabhūmi; *bhāve*—in the ecstasy; *yei*—anyone who; *karaye*—does; *bhajana*—worship; *sei jana*—that person; *pāya*—attains; *vraje*—in Vraja; *vrajendra-nandana*—Lord Kṛṣṇa, the son of Mahārāja Nanda.
 
-**"One who worships the Lord by following in the footsteps of the inhabitants of Vrajabhūmi attains Him in the transcendental planet of Vraja, there He is known as the son of Mahārāja Nanda."**
+**"One who worships the Lord by following in the footsteps of the inhabitants of Vrajabhūmi attains the Lord and gets to know Him as He is known in the transcendental planet of Vraja. There He is known as the son of Mahārāja Nanda."**
 
 The inhabitants of Vrajabhūmi, or Goloka Vṛndāvana, know Kṛṣṇa as the son of Mahārāja Nanda. They do not accept Him as the Supreme Personality of Godhead. The Lord is the supreme maintainer of everyone and the chief personality among all personalities. In Vrajabhūmi Kṛṣṇa is certainly the central point of love, but no one knows Him there as the Supreme Personality of Godhead. Rather, a person may know Him as a friend, son, lover or master. In any case, the center is Kṛṣṇa. The inhabitants of Vrajabhūmi are related to the Lord in servitude, friendship, paternal love and conjugal love. A person engaged in devotional service may accept any one of these transcendental relationships, which are known as mellows. One who is in the perfectional stage may return home, back to Godhead, and attain his pure spiritual identity.
