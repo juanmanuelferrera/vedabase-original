@@ -8,4 +8,4 @@
 
 *śrī-haste*—by the spiritual hand; *karena*—does; *tāṅra aṅga*—of his body; *sammārjana*—cleansing; *teṅho kahe*—he said; *more*—me; *prabhu*—my Lord; *nā kara sparśana*—do not touch.
 
-**When Śrī Caitanya Mahāprabhu began cleansing Sanātana Gosvāmī's body with His own transcendental had, Sanātana Gosvāmī said, "O my Lord, please do not touch me."**
+**When Śrī Caitanya Mahāprabhu began cleansing Sanātana Gosvāmī's body with His own transcendental hand, Sanātana Gosvāmī said, "O my Lord, please do not touch me."**

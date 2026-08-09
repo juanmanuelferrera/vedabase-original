@@ -41,4 +41,4 @@ In this regard, Madhva Muni quotes from the *Garuḍa Purāṇa:*
 
 The lesson to be derived from this narration concerning Mahārāja Ambarīṣa and Durvāsā Muni is that all the demigods, including Lord Brahmā and Lord Śiva, are under the control of Lord Viṣṇu. Therefore, when a Vaiṣṇava is offended, the offender is punished by Viṣṇu, the Supreme Lord. No one can protect such a person, even Lord Brahmā or Lord Śiva.
 
-Thus end the Bhaktivedanta purports of the Ninth Canto, Sixth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Ambarīṣa Mahārāja Offended by Durvāsā Muni."
+Thus end the Bhaktivedanta purports of the Ninth Canto, Fourth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Ambarīṣa Mahārāja Offended by Durvāsā Muni."

@@ -12,4 +12,4 @@
 
 **Therefore, my dear gentle lady, follow this ritualistic vow, strictly observing the regulative principles. By this process, the Supreme Person will very soon be pleased with you and will satisfy all your desires.**
 
-Thus end the Bhaktivedanta purports of the Eighth Canto, Tenth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Executing the Payo-vrata Process of Worship."
+Thus end the Bhaktivedanta purports of the Eighth Canto, Sixteenth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Executing the Payo-vrata Process of Worship."

@@ -10,4 +10,4 @@
 
 **"After Her midday bath, Rādhārāṇī takes another bath in the nectar of bodily luster, and She puts on the garment of shyness, which is exactly like a black silk sari.**
 
-Over and above the other baths, the bath taken in the afternoon is taken in the nectar of full beauty. This nectar represents the personal qualities of beauty and luster. Thus there are three baths in different kinds of water. Rādhārāṇī then puts on two garments-a lower and an upper garment. The upper garment is pinkish and is Her affection and attraction for Kṛṣṇa, and the lower garment, a blackish silk sari, is Her shyness.
+Over and above the other baths, the bath taken in the afternoon is taken in the nectar of full beauty. This nectar represents the personal qualities of beauty and luster. Thus there are three baths in different kinds of water. Rādhārāṇī then puts on two dresses-a lower and an upper garment. The upper garment is pinkish and is Her affection and attraction for Kṛṣṇa, and the lower garment, a blackish silk sari, is Her shyness.

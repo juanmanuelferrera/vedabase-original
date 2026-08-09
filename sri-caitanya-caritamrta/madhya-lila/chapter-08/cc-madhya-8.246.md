@@ -77,7 +77,7 @@ In the *Bṛhad-vāmana Purāṇa,* Lord Brahmā tells Bhṛgu:
 > nanda-gopa-vraja-strīṇāṁ
 > pāda-reṇūpalabdhaye
 
-"I underwent meditation and austerities for sixty thousand years just to understand the dust of the lotus feet of the *gopīs.* Still, I could not understand them. To say nothing of me, even Lord Śiva, Lord Śeṣa and the goddess of fortune Lakṣmī could not understand it."
+"I underwent meditation and austerities for sixty thousand years just to understand the dust of the lotus feet of the *gopīs.* Still, I could not understand them. To say nothing of me, even Lord Śiva, Lord Śeṣa and the goddess of fortune Lakṣmī could not understand them."
 
 In the *Ādi Purāṇa* the Supreme Personality of Godhead Himself says:
 

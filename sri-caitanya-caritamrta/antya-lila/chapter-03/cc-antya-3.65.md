@@ -8,4 +8,4 @@
 
 *nāma-ābhāse*—simply by a glimpse of the rays of the holy name; *mukti*—liberation; *haya*—there is; *sarva-śāstre*—in all the revealed scriptures; *dekhi*—I find; *śrī-bhāgavate*—in *Śrīmad-Bhāgavatam*; *tāte*—to that; *ajāmila*—Ajāmila; *sākṣī*—witness.
 
-**"Because of even the faintest rays of the effulgence of the Lord's holy name, one ca attain liberation. We can see this in all the revealed scriptures. The evidence appears in the story of Ajāmila in Śrīmad-Bhāgavatam."**
+**"Because of even the faintest rays of the effulgence of the Lord's holy name, one can attain liberation. We can see this in all the revealed scriptures. The evidence appears in the story of Ajāmila in Śrīmad-Bhāgavatam."**

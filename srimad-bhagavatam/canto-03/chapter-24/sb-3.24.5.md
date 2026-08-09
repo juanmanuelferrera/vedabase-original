@@ -12,7 +12,7 @@
 
 *maitreyaḥ uvāca*—Maitreya said; *devahūtī*—Devahūti; *api*—also; *sandeśam*—the direction; *gauraveṇa*—with great respect; *prajāpateḥ*—of Kardama; *samyak*—complete; *śraddhāya*—having faith in; *puruṣam*—the Supreme Personality of Godhead; *kūṭa-stham*—situated in everyone's heart; *abhajat*—worshiped; *gurum*—most worshipable.
 
-**Śrī Maitreya said: Devahūti was fully faithful and respectful toward the direction of her husband, Kardama, who was one of the Prajāpatis, or generators of human beings in the universe. O great sage, she thus began to worship the master of the universe, the Supreme Personality of Godhead, who is situated in everyone's heart.**
+**Śrī Maitreya said: Devahūti was fully faithful and respectful towards the direction of her husband, Kardama, who was one of the Prajāpatis, or generators of human beings in the universe. O great sage, she thus began to worship the master of the universe, the Supreme Personality of Godhead, who is situated in everyone's heart.**
 
 This is the process of spiritual realization; one has to receive instruction from a bona fide spiritual master. Kardama Muni was Devahūti's husband, but because he instructed her on how to achieve spiritual perfection, he naturally became her spiritual master also. There are many instances wherein the husband becomes the spiritual master. Lord Śiva also is the spiritual master of his consort, Pārvatī. A husband should be so enlightened that he should become the spiritual master of his wife in order to enlighten her in the advancement of Kṛṣṇa consciousness. Generally *strī,* or woman, is less intelligent than man; therefore, if the husband is intelligent enough, the woman gets a great opportunity for spiritual enlightenment.
 

@@ -8,7 +8,7 @@
 
 *rādhā-prati*—toward Śrīmatī Rādhārāṇī; *kṛṣṇa-sneha*—the affection of Lord Kṛṣṇa; *su-gandhi udvartana*—perfumed massage; *tā'te*—in that; *ati*—very; *su-gandhi*—perfumed; *deha*—the body; *ujjvala*—brilliant; *varaṇa*—luster.
 
-**"Śrīmatī Rādhārāṇī's transcendental body is brilliant in luster and full of all transcendental fragrances. Lord Kṛṣṇa's affection for Her is like a perfumed massage.**
+**"Śrīmatī Rādhārāṇī's transcendental body is brilliant in luster and full of all transcendental flavors. Lord Kṛṣṇa's affection for Her is like a perfumed massage.**
 
 Sugandhi udvartana refers to a paste made of several perfumes and flavored oils. This paste is massaged all over the body, and in this way the body's dirt and perspiration are removed. Śrīmatī Rādhārāṇī's body is automatically perfumed, but when Her body is massaged with the scented paste of Lord Kṛṣṇa's affection, Her entire body is doubly perfumed and made brilliant and lustrous. This is the beginning of Kṛṣṇadāsa Kavirāja Gosvāmī's description of Śrīmatī Rādhārāṇī's transcendental body. This description is based on the book known as *Premāmbhoja-maranda* compiled by Śrī Raghunātha dāsa Gosvāmī. Śrīla Kavirāja Gosvāmī's descriptions in verses 165-181 are based on this book. A translation of the original Sanskrit as described by Śrīla Bhaktivinoda Ṭhākura reads as follows:
 

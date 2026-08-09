@@ -17,4 +17,4 @@ The internal potency of the Lord, which is called *cit-śakti* or *antaraṅga-�
 > parāsya śaktir vividhaiva śrūyate
 > svābhāvikī jñāna-bala-kriyā ca
 
-"The Supreme Lord is one without a second. He has nothing to do personally, nor does He have material senses. No one is equal to Him or greater than Him. He has unlimited, variegated potencies of different names, which exist within Him as autonomous attributes and provide Him full knowledge, power and pastimes."
+"The Supreme Lord is one without a second. He has nothing to do personally, nor does He have material senses. No one is equal to Him nor greater than Him. He has unlimited, variegated potencies of different names, which exist within Him as autonomous attributes and provide Him full knowledge, power and pastimes."

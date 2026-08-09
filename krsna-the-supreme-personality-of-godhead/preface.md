@@ -38,7 +38,7 @@ People love to read various kinds of fiction to spend their time and energy. Now
 
 It is said in the *Bhagavad-gītā* that even a little effort expended on the path of Kṛṣṇa consciousness can save one from the greatest danger. Hundreds of thousands of examples can be cited of people who have escaped the greatest dangers of life due to a slight advancement in Kṛṣṇa consciousness. We therefore request everyone to take advantage of this great transcendental literature. One will find that by reading one page after another, an immense treasure of knowledge in art, science, literature, philosophy and religion will be revealed, and ultimately, by reading this one book, *Kṛṣṇa,* love of Godhead will fructify.
 
-My grateful acknowledgment is due to Sriman George Harrison, now chanting Hare Kṛṣṇa, for his liberal contribution of $19,000 to meet the entire cost of printing this volume. May Kṛṣṇa bestow upon this nice boy further advancement in Kṛṣṇa consciousness.
+My grateful acknowledgement is due to Sriman George Harrison, now chanting Hare Kṛṣṇa, for his liberal contribution of $19,000 to meet the entire cost of printing this volume. May Kṛṣṇa bestow upon this nice boy further advancement in Kṛṣṇa consciousness.
 
 And at last my ever-willing blessings are bestowed upon Śrīmān Śyāmasundaradāsa Adhikārī, Śrīmān Brahmānandadāsa Brahmacārī, Śrīmān Hayagrīvadāsa Adhikārī, Śrīmān Satsvarūpadāsa Adhikārī, Śrīmatī Devahūti Devī, Śrīmatī Jadurāṇī Dāsī, Śrīmān Muralīdharadāsa Brahmacārī, Śrīmān Bhāradvājadāsa Adhikārī, and Śrīmān Pradyumnadāsa Adhikārī, etc., for their hard labor in different ways to make this publication a great success.
 

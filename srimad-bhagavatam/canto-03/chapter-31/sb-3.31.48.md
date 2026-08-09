@@ -10,7 +10,7 @@
 
 *samyak-darśanayā*—endowed with right vision; *buddhyā*—through reason; *yoga*—by devotional service; *vairāgya*—by detachment; *yuktayā*—strengthened; *māyā-viracite*—arranged by *māyā*; *loke*—to this world; *caret*—one should move about; *nyasya*—relegating; *kalevaram*—the body.
 
-**Endowed with right vision and strengthened by devotional service and a pessimistic attitude towards material identity, one should relegate his body to this illusory world through his reason. Thus one can be unconcerned with this material world.**
+**Endowed with right vision and strengthened by devotional service and a pessimistic attitude towardmaterial identity, one should relegate his body to this illusory world through his reason. Thus one can be unconcerned with this material world.**
 
 It is sometimes misunderstood that if one has to associate with persons engaged in devotional service, he will not be able to solve the economic problem. To answer this argument, it is described here that one has to associate with liberated persons not directly, physically, but by understanding, through philosophy and logic, the problems of life. It is stated here, *samyag-darśanayā buddhyā:* one has to see perfectly, and by intelligence and yogic practice one has to renounce this world. That renunciation can be achieved by the process recommended in the Second Chapter of the First Canto of *Śrīmad-Bhāgavatam.*
 

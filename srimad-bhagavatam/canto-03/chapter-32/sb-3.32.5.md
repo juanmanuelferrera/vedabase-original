@@ -10,7 +10,7 @@
 
 *ye*—those who; *sva-dharmān*—their own occupational duties; *na*—do not; *duhyanti*—take advantage of; *dhīrāḥ*—intelligent; *kāma*—sense gratification; *artha*—economic development; *hetave*—for the sake of; *niḥsaṅgāḥ*—free from material attachment; *nyasta*—given up; *karmāṇaḥ*—fruitive activities; *praśāntāḥ*—satisfied; *śuddha-cetasaḥ*—of purified consciousness.
 
-**Those who are intelligent and are of purified consciousness are completely satisfied in Kṛṣṇa consciousness. Freed from the modes of material nature, they do not act for sense gratification; rather, since they are situated in their own occupational duties, they act as one is expected to act.**
+**Those who are intelligent and are of purified consciousness are completely satisfied in Kṛṣṇa consciousness. Freed from the modes of material nature, they do not act for sense gratification; but, since they are situated in their own occupational duties, they act as one is expected to act.**
 
 The first-class example of this type of man is Arjuna. Arjuna was a *kṣatriya,* and his occupational duty was to fight. Generally, kings fight to extend their kingdoms, which they rule for sense gratification. But as far as Arjuna is concerned, he declined to fight for his own sense gratification. He said that although he could get a kingdom by fighting with his relatives, he did not want to fight with them. But when he was ordered by Kṛṣṇa and convinced by the teachings of *Bhagavad-gītā* that his duty was to satisfy Kṛṣṇa, then he fought. Thus he fought not for his sense gratification but for the satisfaction of the Supreme Personality of Godhead.
 

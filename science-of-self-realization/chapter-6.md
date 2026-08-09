@@ -1008,7 +1008,7 @@ How can they see it? It is too small to see. Where is such seeing power?
 Still, they want to sense it by some means.
 
 **Śrīla Prabhupāda:**
-If you inject just one grain of deadly poison into someone, he immediately dies. No one can see the poison or how it acts. But the poison is acting nevertheless. In the same way, the *Vedas* say that because the minute particle called the soul is within the body, the whole body is working nicely. If I pinch myself, I immediately feel it, because I am conscious all over my skin. But as soon as the soul is absent, which is the case when my body dies, you can take this same skin and cut it and chop it, and no one will protest. Why is this simple thing so hard to understand? ls this not detecting spirit?
+If you inject just one grain of deadly poison into someone, he immediately dies. No one can see the poison or how it acts. But the poison is acting nevertheless. In the same way, the *Vedas* say that because the minute particle called the soul is within the body, the whole body is working nicely. If I pinch myself, I immediately feel it, because I am conscious all over my skin. But as soon as the soul is absent, which is the case when my body dies, you can take this same skin and cut it and chop it, and no one will protest. Why is this simple thing so hard to understand? is this not detecting spirit?
 
 **Dr. Singh:**
 That is the soul. But what about God?
