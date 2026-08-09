@@ -17,6 +17,6 @@ The word *tryadhīśvara* means "proprietor of the three worlds." There are thre
 > suhṛdaṁ sarva-bhūtānāṁ
 > jñātvā māṁ śāntim ṛcchati
 
-"The sages, knowing Me as the ultimate purpose of all sacrifices and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries." [[bg/5/29|(Bg. 5.29)]]
+"The sages, knowing Me as the ultimate purpose of all sacrificies and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries." [[bg/5/29|(Bg. 5.29)]]
 
 The word *sarva-loka* means "all three worlds," and the word *maheśvara* means "the supreme proprietor." Kṛṣṇa is the proprietor of both material and spiritual worlds. The spiritual world is divided into two portions-Goloka Vṛndāvana and the Vaikuṇṭhas. The material world is a combination of universes unlimited in number.

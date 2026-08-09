@@ -12,4 +12,4 @@
 
 **The internal, subtle senses are experienced as having four aspects, in the shape of mind, intelligence, ego and contaminated consciousness. Distinctions between them can be made only by different functions, since they represent different characteristics.**
 
-The four internal senses, or subtle senses, described herein are defined by different characteristics. When pure consciousness is polluted by material contamination and when identification with the body becomes prominent, one is said to be situated under false ego. Consciousness is the function of the soul, and therefore behind consciousness there is soul. Consciousness polluted by material contamination is called *ahaṅkāra.*
+The four internal senses, or subtle senses, described herein are defined by different characteristics. When pure consciousness is polluted by material contamination and when identification with the body becomes prominent, this is called false ego. Consciousness is the function of the soul, and therefore behind consciousness there is soul. Consciousness polluted by material contamination is called *ahaṅkāra.*

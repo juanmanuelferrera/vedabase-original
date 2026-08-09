@@ -14,7 +14,7 @@
 
 **My dear Lord, at the end of each millennium the Supreme Personality of Godhead Garbhodakaśāyī Viṣṇu dissolves everything manifested within the universe in His belly. He lies down on the lap of Śeṣanāga, from His navel sprouts a golden lotus flower on a stem, and on that lotus Lord Brahmā is created. I can understand that You are the same Supreme Godhead. I therefore offer my respectful obeisances unto You.**
 
-Dhruva Mahārāja's understanding of the Supreme Personality of Godhead is complete. In the Vedas it is said, yasmin vijñāte sarvam evaṁ vijñātaṁ bhavati: knowledge received through the transcendental, causeless mercy of the Lord is so perfect that by that knowledge the devotee becomes acquainted with all the different manifestations of the Lord. Lord Kṣīrodakaśāyī Viṣṇu was present before Dhruva Mahārāja, who could also understand the Lord's two other forms, namely Garbhodakaśāyī Viṣṇu and Kāraṇodakaśāyī (Mahā) Viṣṇu. Regarding Mahā-Viṣṇu, it is stated in the Brahma-saṁhitā :
+Dhruva Mahārāja's understanding of the Supreme Personality of Godhead is complete. In the Vedas it is said, yasmin vijñāte sarvam evaṁ vijñātaṁ bhavanti: knowledge received through the transcendental, causeless mercy of the Lord is so perfect that by that knowledge the devotee becomes acquainted with all the different manifestations of the Lord. Lord Kṣīrodakaśāyī Viṣṇu was present before Dhruva Mahārāja, who could also understand the Lord's two other forms, namely Garbhodakaśāyī Viṣṇu and Kāraṇodakaśāyī (Mahā) Viṣṇu. Regarding Mahā-Viṣṇu, it is stated in the Brahma-saṁhitā :
 
 yasyaika-niśvasita-kālam athāvalambya jīvanti loma-vilajā jagad-aṇḍa-nāthāḥ viṣṇur mahān sa iha yasya kalā-viśeṣo govindam ādi-puruṣaṁ tam ahaṁ bhajāmi (Bs. 5.48)
 

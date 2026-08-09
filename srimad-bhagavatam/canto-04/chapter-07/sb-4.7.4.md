@@ -12,4 +12,4 @@
 
 **The demigod Pūṣā will be able to chew only through the teeth of his disciples, and if alone, he will have to satisfy himself by eating dough made from chickpea flour. But the demigods who have agreed to give me my share of the sacrifice will recover from all their injuries.**
 
-The demigod Pūṣā became dependent on his disciples for chewing. Otherwise he was allowed to swallow only dough made of chickpea flour. Thus his punishment continued. He could not use his teeth for eating, since he had laughed at Lord Śiva, deriding him by showing his teeth. In other words, it was not appropriate for him to have teeth because he had used them against Lord Śiva.
+The demigod Pūṣā became dependent on his disciples for chewing. Otherwise he was allowed to swallow only dough made of chickpea flour. Thus his punishment continued. He could not use his teeth for eating, purposes because he had laughed at Lord Śiva, deriding him by showing his teeth. In other words, it was not appropriate for him to have teeth because he had used them against Lord Śiva.

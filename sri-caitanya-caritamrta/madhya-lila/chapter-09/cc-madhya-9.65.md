@@ -8,4 +8,4 @@
 
 *tripati āsiyā*—coming to Tripati; *kaila śrī-rāma daraśana*—visited the temple of Rāmacandra; *raghunātha-āge*—before Lord Rāmacandra; *kaila*—did; *praṇāma*—obeisances; *stavana*—offering prayers.
 
-**After arriving at Tirupati, Lord Śrī Caitanya Mahāprabhu visited the temple of Lord Rāmacandra. He offered His prayers and obeisances before Rāmacandra, the descendant of King Raghu.**
+**After arriving at Tripati, Lord Śrī Caitanya Mahāprabhu visited the temple of Lord Rāmacandra. He offered His prayers and obeisances before Rāmacandra, the descendant of King Raghu.**

@@ -36,7 +36,7 @@ One of the queens said to the bird *kurarī,* "My dear *kurarī,* now it is very
 
 "Hello *cakravākī.* Why have you closed your eyes? Are you searching after your husband, who might have gone to foreign countries? Why are you lamenting so pitiably? Alas, it appears that you are very much aggrieved. Or is it a fact that you also are willing to become an eternal servitor of the Supreme Personality of Godhead? I think that you are anxious to put a garland on the lotus feet of the Lord and then place it on your hair.
 
-"O my dear ocean, why are you roaring all day and night? Don't you like to sleep? I think you have been attacked by insomnia, or, if I am not wrong, my dear Śyāmasundara has tactfully taken away your gravity and power of forbearance which are your natural qualifications. Is it a fact that for this reason you are suffering from insomnia like me? Yes, I admit that there is no remedy for this disease.
+"O my dear ocean, why are you roaring all day and night? Don't you like to sleep? I think you have been attacked by insomnia, or, if I am not wrong, my dear Śyāmasundara has tactfully taken away your gravity and power of forbearence which are your natural qualifications. Is it a fact that for this reason you are suffering from insomnia like me? Yes, I admit that there is no remedy for this disease.
 
 "My dear moon-god, I think you have been attacked by a severe type of tuberculosis. For this reason, you are becoming thinner and thinner day by day. O my lord, you are now so weak that your thin rays cannot dissipate the darkness of night. Or is it a fact that, just as I have, you also have been stunned by the mysteriously sweet words of my Lord Śyāmasundara? Is it a fact that it is because of this severe anxiety that you are so grave?
 

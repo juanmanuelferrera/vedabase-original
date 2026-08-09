@@ -12,7 +12,7 @@
 
 *yeṣām*—unto those who are fully surrendered souls; *saḥ*—He; *eṣaḥ*—this; *bhagavān*—the Supreme Personality of Godhead; *dayayet*—may show mercy; *anantaḥ*—the unlimited; *sarva-ātmanā*—fully, without reservation; *āśrita-padaḥ*—those who have taken shelter of the Lord; *yadi*—if; *nirvyalīkam*—without duplicity; *te*—such persons; *dustarām*—insurmountable; *atitaranti*—surpass; *ca*—also; *deva-māyām*—the illusory material energy; *na*—not; *eṣām*—this; *mama aham*—"my" and "I"; *iti*—such; *dhīḥ*—intelligence; *śva-śṛgāla-bhakṣye*—in the body, which is to be eaten by dogs and jackals.
 
-**“ 'When a person unreservedly takes shelter of the lotus feet of the Supreme Personality of Godhead, the unlimited, merciful Lord bestows His causeless mercy upon him. Thus he can pass over the insurmountable ocean of nescience. Those whose intelligence is fixed in the bodily conception, who think, "I am this body," are fit food for dogs and jackals. The Supreme Lord never bestows His mercy upon such people.' "**
+**“ 'When a person without reservation takes shelter of the lotus feet of the Supreme Personality of Godhead, the unlimited, merciful Lord bestows His causeless mercy upon him. Thus he can pass over the insurmountable ocean of nescience. Those whose intelligence is fixed in the bodily conception, who think, "I am this body," are fit food for dogs and jackals. The Supreme Lord never bestows His mercy upon such people.' "**
 
 The Supreme Lord never bestows His benediction upon those fixed in the bodily conception. As Kṛṣṇa clearly states in the *Bhagavad-gītā* [[bg/18/66|(Bg. 18.66)]]:
 

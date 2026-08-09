@@ -10,4 +10,4 @@
 
 **"In the town of Vidyānagara, on the bank of the Godāvarī, there is a responsible government officer named Rāmānanda Rāya.**
 
-In his *Amṛta-pravāha-bhāṣya,* Bhaktivinoda Ṭhākura states that Vidyānagara is today known as Porbandar. There is another Porbandar in western India in the province of Gujarat.
+In his *Amṛta-pravāha-bhāṣya,* Bhaktivinoda Ṭhākura states that Vidyānagara is today known as Poravandara. There is another Poravandara in western India in the province of Gujarat.

@@ -8,4 +8,4 @@
 
 *tabe*—thereafter; *kata dine*—in a few days; *kaila*—did; *pada*—leg; *caṅkramaṇa*—movement; *śiśu-gaṇe*—all the children; *mili'*—mingling together; *kaila*—executed; *vividha*—varieties; *khelana*—sporting.
 
-**After some days the Lord began to move His legs and walk. He mixed with other children and exhibited various sports.**
+**After some days the Lord began to move His legs and walk. He mixed with other children and exhibited varieties of sports.**

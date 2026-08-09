@@ -15,7 +15,7 @@
 
 **Kṛṣṇa's own form has only two hands, but in the form of Lord Nārāyaṇa He has four hands. Lord Nārāyaṇa holds a conchshell, disc, club and lotus flower, and He is full of great opulence. The śrī, bhū and nīlā energies serve at His lotus feet.**
 
-In the Rāmānuja and Madhva sects of Vaiṣṇavism there are extensive descriptions of the *śrī, bhū* and *nīlā* energies. In Bengal the *nīlā* energy is sometimes called the *līlā* energy. These three energies are employed in the service of four-handed Nārāyaṇa in Vaikuṇṭha. Relating how three of the Alwars, namely Bhūta-yogī, Sara-yogī and Bhrānta-yogī, saw Nārāyaṇa in person when they took shelter at the house of a *brāhmaṇa* in the village of Gehalī, the *Prapannāmṛta* of the Śrī-sampradāya describes Nārāyaṇa as follows:
+In the Rāmānuja and Madhva sects of Vaiṣṇavism there are extensive descriptions of the *śrī, bhū* and *nīlā* energies. In Bengal the *nīlā* energy is sometimes called the *līlā* energy. These three energies are employed in the service of four-handed Nārāyaṇa in Vaikuṇṭha. Relating how three of the Alvaras, namely Bhūta-yogī, Sara-yogī and Bhrānta-yogī, saw Nārāyaṇa in person when they took shelter at the house of a *brāhmaṇa* in the village of Gehalī, the *Prapannāmṛta* of the Śrī-sampradāya describes Nārāyaṇa as follows:
 
 > tārkṣyādhirūḍhaṁ taḍid-ambudābhaṁ
 > lakṣmī-dharaṁ vakṣasi paṅkajākṣam

@@ -22,7 +22,7 @@ One who is intelligent understands that all the personal associates and devotees
 > nikhilāsv apy avasthāsu
 > jīvan-muktaḥ sa ucyate
 
-"A person acting in the service of Kṛṣṇa with body, mind, intelligence and words is a liberated person even within the material world, although he may be engaged in many so-called material activities." (*Bhakti-rasāmṛta-sindhu* 1.2.187)
+"A person acting in the service of Kṛṣṇa with body, mind, intelligence and words is a liberated person even within the material world, although he may be engaged in many so-called material activites." (*Bhakti-rasāmṛta-sindhu* 1.2.187)
 
 A devotee is always thinking of how better to serve Lord Kṛṣṇa, the Supreme Personality of Godhead, and how to broadcast His name, fame and qualities throughout the world. One who is *nitya-siddha* has no business other than broadcasting the glories of the Lord all over the world according to his ability. Such people are already associates of Lord Caitanya Mahāprabhu. Therefore Narottama dāsa Ṭhākura says, *nitya-siddha kari' māne.* One should not think that because Śrī Caitanya Mahāprabhu was personally present five hundred years ago, only His associates were liberated. Rather, Śrīla Narottama dāsa Ṭhākura says that anyone is a *nitya-siddha* if he acts on behalf of Śrī Caitanya Mahāprabhu by spreading the glories of the holy name of the Lord. We should respect those devotees preaching the glories of the Lord as *nitya-siddha* and should not consider them conditioned.
 

@@ -14,7 +14,7 @@
 
 According to Vedic injunctions, a fire sacrifice is held in order to give food to the Supreme Personality of Godhead in the names of the different demigods. While performing a fire sacrifice, one pronounces the word svāhā in mantras such as indrāya svāhā and ādityāya svāhā. These mantras are uttered to satisfy the Supreme Personality of Godhead through demigods such as Indra and Āditya, for the Supreme Personality of Godhead says:
 
-nāhaṁ tiṣṭhāmi vaikuṇṭhe yogināṁ hṛdayeṣu vā tatra tiṣṭhāmi nārada yatra gāyanti mad-bhaktāḥ
+nāhaṁ tiṣṭhāmi vaikuṇṭhe yogināṁ hṛdayeṣu vā tattat tiṣṭhāmi nārada yatra gāyanti mad-bhaktāḥ
 
 "I am not in Vaikuṇṭha nor in the hearts of the yogīs. I remain where My devotees engage in glorifying My activities." It is to be understood that the Supreme Personality of Godhead does not leave the company of His devotees.
 

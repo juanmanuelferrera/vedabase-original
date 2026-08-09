@@ -202,7 +202,7 @@ There is a very common Bengali proverb that says that whatever one does for perf
 
 
 
-yad akṣaraṁ veda-vido vadanti
+yad akṣaraṁ veda-vido vedanti
 
 
 

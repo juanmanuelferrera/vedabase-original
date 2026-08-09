@@ -10,7 +10,7 @@
 
 *kvacit*—in a certain case; *tattva*—the fundamental principles; *avamarśena*—by reflecting upon; *nivṛttam*—avoided; *bhayam*—fear; *ulbaṇam*—great; *anivṛtta*—not ceased; *nimittatvāt*—since the cause; *punaḥ*—again; *pratyavatiṣṭhate*—it appears.
 
-**Even if the great fear of bondage is avoided by mental speculation and inquiry into the fundamental principles, it may still appear again, since its cause has not ceased.**
+**Even if the great fear of bondage is avoided by mental speculation and inquiry into the fundamental principles, still it may appear again, since its cause has not ceased.**
 
 Material bondage is caused by putting oneself under the control of matter because of the false ego of lording it over material nature. *Bhagavad-gītā* [[bg/7/27|(Bg. 7.27)]] states, *icchā-dveṣa-samutthena.* Two kinds of propensities arise in the living entity. One propensity is *icchā,* which means desire to lord it over material nature or to be as great as the Supreme Lord. Everyone desires to be the greatest personality in this material world. *Dveṣa* means "envy." When one becomes envious of Kṛṣṇa, or the Supreme Personality of Godhead, one thinks, "Why should Kṛṣṇa be the all and all? I'm as good as Kṛṣṇa." These two items, desire to be the Lord and envy of the Lord, are the beginning cause of material bondage. As long as a philosopher, salvationist or voidist has some desire to be supreme, to be everything, or to deny the existence of God, the cause remains, and there is no question of his liberation.
 
