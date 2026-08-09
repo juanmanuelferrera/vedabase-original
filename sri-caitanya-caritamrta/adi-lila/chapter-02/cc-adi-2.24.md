@@ -21,7 +21,7 @@ There are innumerable authoritative statements in the *Vedas* regarding the pers
 
 (2) From the *Nārāyaṇātharva-śira Upaniṣad* (1-2): *nārāyaṇād eva samutpadyante nārāyaṇāt pravartante nārāyaṇe pralīyante.* .* . . atha nityo nārāyaṇaḥ. . . . nārāyaṇa evedaṁ sarvaṁ yad bhūtaṁ yac ca bhavyam. . . . śuddho deva eko nārāyaṇo na dvitīyo 'sti kaścit.* "It is from Nārāyaṇa only that everything is generated, by Him only that everything is maintained, and in Him only that everything is annihilated. Therefore Nārāyaṇa is eternally existing. Everything that exists now or will be created in the future is nothing but Nārāyaṇa, who is the unadulterated Deity. There is only Nārāyaṇa and nothing else."
 
-(3) From the *Nārāyaṇa Upaniṣad* (1.4): *yataḥ prasūtā jagataḥ prasūtī.* "Nārāyaṇa is the source from whom all the universes emanate."
+(3) From the *Nārāyaṇa Upaniṣad* (1.4): *yataḥ prasūtā jagataḥ prasūtā.* "Nārāyaṇa is the source from whom all the universes emanate."
 
 (4) From the *Hayaśīrṣa Pañcarātra: paramātmā harir devaḥ.* "Hari is the Supreme Lord."
 

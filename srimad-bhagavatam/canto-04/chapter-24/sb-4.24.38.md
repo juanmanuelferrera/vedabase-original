@@ -12,7 +12,7 @@
 
 **My Lord, You are the provider of the Pitṛlokas as well as all the demigods. You are the predominating deity of the moon and the master of all three Vedas. I offer my respectful obeisances unto You because You are the original source of satisfaction for all living entities.**
 
-When the living entity is born within this material world—especially as a human being—he has several obligations unto the demigods, unto the saintly persons and unto living entities in general. As enjoined in the śāstras: devarṣi-bhūtāpta-nṛṇāṁ pitḷṇām. Thus one has an obligation to one's forefathers, the previous hierarchy. Lord Śiva prays to Lord Aniruddha to give him strength so he can become free from all obligation to the pitās, demigods, general living entities and saintly persons and completely engage himself in the devotional service of the Lord. As stated:
+When the living entity is born within this material world—especially as a human being—he has several obligations unto the demigods, unto the saintly persons and unto living entities in general. As enjoined in the śāstras: devarṣi-bhūtāpta-nṛṇāṁ pitṝṇām. Thus one has an obligation to one's forefathers, the previous hierarchy. Lord Śiva prays to Lord Aniruddha to give him strength so he can become free from all obligation to the pitās, demigods, general living entities and saintly persons and completely engage himself in the devotional service of the Lord. As stated:
 
 devarṣi-bhūtāpta-nṛṇāṁ pitḷṇāṁ na kiṅkaro nāyam ṛṇī ca rājan sarvātmanā yaḥ śaraṇaṁ śaraṇyaṁ gato mukundaṁ parihṛtya kartam (Bhāg. 11.5.41)
 

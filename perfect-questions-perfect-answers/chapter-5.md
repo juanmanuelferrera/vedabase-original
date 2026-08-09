@@ -347,7 +347,7 @@ Yes. Material pleasure means the Pleasure of the senses. That's all. This is the
 I had viewed this as—my thought of pleasing God was to—
 
 **Śrīla Prabhupāda:**
-Don't manufacture your ways of Pleasing God. Don't manufacture. Suppose I want to please you. Then I shall ask you, "How can I serve you?" Not that I manufacture some service. That is not pleasing. Suppose I want a glass of water. If you concoct the idea, "Swāmījī will be more pleased if I give him a glass of milk, hot milk," that will not please me. If you want to please me, then you should ask me, "How can I Please you?" And if you do what I order, that will please me.
+Don't manufacture your ways of Pleasing God. Don't manufacture. Suppose I want to please you. Then I shall ask you, "How can I serve you?" Not that I manufacture some service. That is not pleasing. Suppose I want a glass of water. If you concoct the idea, "Svāmījī will be more pleased if I give him a glass of milk, hot milk," that will not please me. If you want to please me, then you should ask me, "How can I Please you?" And if you do what I order, that will please me.
 
 **Bob:**
 And pleasing Kṛṣṇa, then, is being a devotee of Kṛṣṇa.

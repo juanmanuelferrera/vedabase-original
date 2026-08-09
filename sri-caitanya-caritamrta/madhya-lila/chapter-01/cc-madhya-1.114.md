@@ -10,4 +10,4 @@
 
 **Caitanya Mahāprabhu also had a discussion with the Tattvavādī community, and the Tattvavādīs felt themselves to be inferior Vaiṣṇavas.**
 
-The Tattvavādī sect belongs to Madhvācārya's Vaiṣṇava community, but its behavior differs from the strict Madhvācārya Vaiṣṇava principles. There is one monastery named Uttararāḍhī, and its commander is named Raghuvarya Tīrtha Madhvācārya.
+The Tattvavādī sect belongs to Madhvācārya's Vaiṣṇava community, but its behavior differs from the strict Madhvācārya Vaiṣṇava principles. There is one monastery named Uttararāḍī, and its commander is named Raghuvarya Tīrtha Madhvācārya.

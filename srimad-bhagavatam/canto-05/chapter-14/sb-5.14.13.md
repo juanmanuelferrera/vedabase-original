@@ -8,7 +8,7 @@
 
 **Sometimes, to mitigate distresses in this forest of the material world, the conditioned soul receives cheap blessings from atheists. He then loses all intelligence in their association. This is exactly like jumping in a shallow river. As a result one simply breaks his head. He is not able to mitigate his sufferings from the heat, and in both ways he suffers. The misguided conditioned soul also approaches so-called sādhus and svāmīs who preach against the principles of the Vedas. He does not receive benefit from them, either in the present or in the future.**
 
-Cheaters are always there to manufacture their own way of spiritual realization. To get some material benefit, the conditioned soul approaches these pseudo *sannyāsīs* and *yogīs* for cheap blessings, but he does not receive any benefit from them, either spiritual or material. In this age there are many cheaters who show some jugglery and magic. They even create gold to amaze their followers, and their followers accept them as God. This type of cheating is very prominent in Kali-yuga. Viśvanātha Cakravartī Ṭhākura describes the real *guru* in this way.
+Cheaters are always there to manufacture their own way of spiritual realization. To get some material benefit, the conditioned soul approaches these pseudo *sannyāsīs* and *yogīs* for cheap blessings, but he does not receive any benefit from them, either spiritual or material. In this age there are many cheaters who show some jugglery and magic. They even create gold to amaze their followers, and their followers accept them as God. This type of cheating is very prominent in Kali-yuga. Viśvanātha Cakravatī Ṭhākura describes the real *guru* in this way.
 
 > saṁsāra-dāvānala-līḍha-loka-
 > trāṇāya kāruṇya-ghanāghanatvam

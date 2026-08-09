@@ -10,7 +10,7 @@
 
 **Mukunda Datta, a class friend of Lord Caitanya's, was another branch of the Caitanya tree. Lord Caitanya danced while he sang.**
 
-Śrī Mukunda Datta was born in the Caṭṭagrāma district, in the village of Chanharā, which is under the jurisdiction of the police station named Paṭiyā. This village is situated ten *krośas,* or about twenty miles, from the home of Puṇḍarīka Vidyānidhi. In the *Gaura-gaṇoddeśa-dīpikā* (140) it is said:
+Śrī Mukunda Datta was born in the Caṭṭagrāma district, in the village of Chanhorā, which is under the jurisdiction of the police station named Paṭiyā. This village is situated ten *krośas,* or about twenty miles, from the home of Puṇḍarīka Vidyānidhi. In the *Gaura-gaṇoddeśa-dīpikā* (140) it is said:
 
 > vraje sthitau gāyakau yau
 > madhukaṇṭha-madhuvratau

@@ -8,4 +8,4 @@
 
 *purī-gosāñi-saṅge*—with Purī Gosvāmī; *vastra-pradāna-prasaṅga*—incidents of exchanging cloth; *rāmānandarāya*—of the name Rāmānanda Rāya; *āilā*—came; *bhadraka*—a place of the name Bhadraka; *paryanta*—as far as.
 
-**On the way to Vṛndāvana via Bengal, there was an incident wherein some cloth was exchanged with Purī Gosāñi. Śrī Rāmānada Rāya accompanied the Lord as far as the city of Bhadraka.**
+**On the way to Vṛndāvana via Bengal, there was an incident wherein some cloth was exchanged with Purī Gosāñi. Śrī Rāmānanda Rāya accompanied the Lord as far as the city of Bhadraka.**
