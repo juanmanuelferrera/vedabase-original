@@ -10,4 +10,4 @@
 
 **Śrī Vijaya dāsa, the twenty-seventh branch, another of the Lord's chief singers, gave the Lord many books written by hand.**
 
-Formerly there were no printing presses or printed books. All books were handwritten. Precious books were kept in manuscript form in temples or important places, and anyone who was interested in a book had to copy it by hand. Vijaya dāsa was a professional writer who copied many manuscripts and gave them to Śrī Caitanya Mahāprabhu.
+Formerly there were no printing presses nor printed books. All books were handwritten. Precious books were kept in manuscript form in temples or important places, and anyone who was interested in a book had to copy it by hand. Vijaya dāsa was a professional writer who copied many manuscripts and gave them to Śrī Caitanya Mahāprabhu.

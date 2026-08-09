@@ -12,7 +12,7 @@
 
 **O Vidura, who can estimate or measure the transcendental time, work and potency of the gigantic form manifested by the internal potency of the Supreme Personality of Godhead?**
 
-The froggish philosophers may go on with their mental speculations on the subject matter of the *virāṭ,* the gigantic form exhibited by the *yogamāyā* internal potency of the Supreme Personality of Godhead, but factually no one can measure such a vast exhibition. In *Bhagavad-gītā* [[bg/11/16|(Bg. 11.16)]], Arjuna, the recognized devotee of the Lord, says:
+The froggish philosophers may go on with their mental speculations on the subject matter of the *virāṭa,* the gigantic form exhibited by the *yogamāyā* internal potency of the Supreme Personality of Godhead, but factually no one can measure such a vast exhibition. In *Bhagavad-gītā* [[bg/11/16|(Bg. 11.16)]], Arjuna, the recognized devotee of the Lord, says:
 
 > aneka-bāhūdara-vaktra-netraṁ
 > paśyāmi tvāṁ sarvato 'nanta-rūpam

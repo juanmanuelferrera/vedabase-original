@@ -17,6 +17,6 @@ Although the *brāhmaṇa* could not pronounce the words very well due to illite
 > nāmāny anantasya yaśo-'ṅkitāni yat
 > śṛṇvanti gāyanti gṛṇanti sādhavaḥ
 
-"On the other hand, that literature which is full of descriptions of the transcendental glories of the name, fame, forms and pastimes of the unlimited Supreme Lord is a different creation, full of transcendental words directed toward bringing about a revolution in the impious lives of this world's misdirected civilization. Such transcendental literature, even though imperfectly composed, are heard, sung and accepted by purified men who are thoroughly honest."
+"On the other hand, that literature which is full of descriptions of the transcendental glories of the name, fame, forms and pastimes of the unlimited Supreme Lord is a different creation, full of transcendental words directed toward bringing about a revolution in the impious lives of this world's misdirected civilization. Such transcendental literatures, even though imperfectly composed, are heard, sung and accepted by purified men who are thoroughly honest."
 
 The purport to this verse may be considered for further information on this subject.

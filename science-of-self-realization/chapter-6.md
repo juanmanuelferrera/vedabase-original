@@ -1084,7 +1084,7 @@ Then they are suffering from what we call "Doctor Frog's philosophy." There was 
 
 "It is a vast body of water," his friend replied.
 
-"How vast? ls it double the size of this well?"
+"How vast? is it double the size of this well?"
 
 "Oh, no, much larger," his friend replied.
 

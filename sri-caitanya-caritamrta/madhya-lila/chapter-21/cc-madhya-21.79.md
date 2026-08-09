@@ -10,4 +10,4 @@
 
 **"Thus the opulence of Dvārakā was perceived by each and every one of them. Although they were all assembled together, no one could see anyone but himself.**
 
-The four-headed Brahmā perceived the opulence of Dvārakā-dhāma where Kṛṣṇa was staying, and although there were Brahmās present having ten to ten million heads, and also many Lord Śivas were also assembled, only the four-headed Brahmā of this universe could see all of them. By the inconceivable potency of Kṛṣṇa, the others could not see one another. Although all the Brahmās and Śivas were assembled together, due to Kṛṣṇa's energy, they could not meet or talk among themselves individually.
+The four-headed Brahmā perceived the opulence of Dvārakā-dhāma where Kṛṣṇa was staying, and although there were Brahmās present having ten to ten million heads, and also many Lord Śivas were also assembled, only the four-headed Brahmā of this universe could see all of them. By the inconceivable potency of Kṛṣṇa, the others could not see one another. Althouth all the Brahmās and Śivas were assembled together, due to Kṛṣṇa's energy, they could not meet or talk among themselves individually.

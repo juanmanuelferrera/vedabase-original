@@ -10,7 +10,7 @@
 
 *prasthāna*—to leave; *abhimukhaḥ*—ready; *api*—although; *enam*—him (Pṛthu); *anugraha*—by kindness; *vilambitaḥ*—detained; *paśyan*—seeing; *padma-palāśa-akṣaḥ*—the Lord, whose eyes are like the petals of a lotus flower; *na*—not; *pratasthe*—departed; *suhṛt*—the well-wisher; *satām*—of the devotees.
 
-**The Lord was just about to leave, but because He was so greatly inclined toward the behavior of King Pṛthu, He did not depart. Seeing the behavior of Mahārāja Pṛthu with His lotus eyes, He was detained because He is always the well-wisher of His devotees.**
+**The Lord was just about to leave, but because He was so greatly inclined towards the behavior of King Pṛthu, He did not depart. Seeing the behavior of Mahārāja Pṛthu with His lotus eyes, He was detained because He is always the well-wisher of His devotees.**
 
 Here the words suhṛt satām are very significant. The Supreme Personality of Godhead is always very inclined toward His devotee and is always thinking of his well-being. This is not partiality. As stated in Bhagavad-gītā, the Lord is equal to everyone (samo 'haṁ sarva-bhūteṣu), but to one who particularly engages in His service, He is very much inclined. In another place, the Lord says that a devotee always exists in His heart, and He also exists always in the heart of the devotee.
 

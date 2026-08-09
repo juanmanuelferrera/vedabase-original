@@ -8,9 +8,9 @@ We Are Not These Bodies
 
 dehī nityam avadhyo 'yaṁ
 
-dehe sarvofya bhārata
+dehe sarvasya bhārata
 
-tofmāt sarvāṇi bhūtāni
+tasmāt sarvāṇi bhūtāni
 
 na tvaṁ śocitum arhasi
 
@@ -80,7 +80,7 @@ yan mano 'nuvidhīyate
 
 tad asya harati prajñāṁ
 
-vāyur nāvam ivāmbhofi
+vāyur nāvam ivāmbhasi
 
 
 
@@ -92,11 +92,11 @@ It is imperative that we learn how to control the senses. The name gosvāmī is 
 
 
 
-bhogaiśvarya-profaktānāṁ
+bhogaiśvarya-prasaktānāṁ
 
-tayāpahṛta-cetofām
+tayāpahṛta-cetasām
 
-vyavofāyātmikā buddhiḥ
+vyavasāyātmikā buddhiḥ
 
 samādhau na vidhīyate
 
@@ -136,7 +136,7 @@ Actually, material enjoyment is not enjoyment at all. Real enjoyment does not ce
 
 
 
-bhoktāraṁ yajña-tapofāṁ
+bhoktāraṁ yajña-tapasāṁ
 
 sarva-loka-maheśvaram
 
@@ -178,11 +178,11 @@ The gross material body is a result of the interaction of the modes of material 
 
 antavanta ime dehā
 
-nityofyoktāḥ śarīriṇaḥ
+nityasyoktāḥ śarīriṇaḥ
 
-anāśino 'prameyofya
+anāśino 'prameyasya
 
-tofmād yudhyofva bhārata
+tasmād yudhyasva bhārata
 
 
 

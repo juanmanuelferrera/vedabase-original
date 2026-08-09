@@ -8,4 +8,4 @@
 
 *dekhiyā*—seeing this; *santuṣṭa*—satisfied; *hailā*—became; *śacīra*—of mother Śacī; *nandana*—son; *sabāke*—everyone; *khāoyāla*—made to eat; *āge*—in the beginning; *kariyā*—doing; *bhakṣaṇa*—eating Himself.
 
-**Seeing the quality of the mangoes, the Lord was greatly satisfied, and thus after eating first, He fed all the other devotees.**
+**Seeing the quality of the mangos, the Lord was greatly satisfied, and thus after eating first, He fed all the other devotees.**

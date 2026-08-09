@@ -19,4 +19,4 @@ King Kulaśekhara has written similarly, in his book *Mukunda-mālā-stotra* (5)
 > etat prārthyaṁ mama bahu-mataṁ janma-janmāntare 'pi
 > tvat-pādāmbho-ruha-yuga-gatā niścalā bhaktir astu
 
-"I have no attraction for performing religious rituals or holding any earthly kingdom. I do not care for sense enjoyments; let them appear and disappear in accordance with my previous deeds. My only desire is to be fixed in devotional service to the lotus feet of the Lord, even though I may continue to take birth here life after life."
+"I have no attraction for performing religious rituals nor holding any earthly kingdom. I do not care for sense enjoyments; let them appear and disappear in accordance with my previous deeds. My only desire is to be fixed in devotional service to the lotus feet of the Lord, even though I may continue to take birth here life after life."

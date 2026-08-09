@@ -10,7 +10,7 @@
 
 *eka-ekasya*—of each one; *abhavat*—there became; *teṣām*—of them; *rājan*—O King; *arbudam*—ten million; *arbudam*—ten million; *bhokṣyate*—is ruled; *yat*—whose; *vaṁśa-dharaiḥ*—by descendants; *mahī*—the whole world; *manu-antaram*—up to the end of one Manu; *param*—and afterwards.
 
-**My dear King Prācīnabarhiṣat, the sons of Malayadhvaja gave birth to many thousands and thousands of sons, and all of these have been protecting the entire world up to the end of one Manu's life-span and even afterward.**
+**My dear King Prācīnabarhiṣat, the sons of Malayadhvaja gave birth to many thousands and thousands of sons, and all of these have been protecting the entire world up to the end of one Manu's life-span and even afterwards.**
 
 There are fourteen Manus in one day of Brahmā. A manvantara, the life span of one Manu, is given as 71 multiplied by 4,320,000 years. After one such Manu passes on, another Manu begins his life-span. In this way the life cycle of the universe is going on. As one Manu follows another, the cult of Kṛṣṇa consciousness is being imparted, as confirmed in Bhagavad-gītā:
 

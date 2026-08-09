@@ -12,7 +12,7 @@
 
 **This world is a product of fruitive activities. Therefore you may imperceptibly attack people in general. Helped by my soldiers, you can kill them without opposition.**
 
-The word karma-vinirmitam means "manufactured by fruitive activities." This entire material world, especially in these days, is the result of fruitive activities. Everyone is fully engaged in decorating the world with highways, motor cars, electricity, skyscrapers, industries, businesses, etc. All this appears very nice for those who are simply engaged in sense gratification and who are ignorant of spiritual identity. As described in Śrīmad-Bhāgavatam:
+The word karma-vinirmitam means "manufactured by fruitive activities." This entire material world, especially in these days, is the result of fruitive activities. Everyone is fully engaged in decorating the world by highways, motor cars, electricity, skyscrapers, industries, businesses, etc. All this appears very nice for those who are simply engaged in sense gratification and who are ignorant of spiritual identity. As described in Śrīmad-Bhāgavatam:
 
 nūnaṁ pramattaḥ kurute vikarma yad indriya-prītaya āpṛṇoti na sādhu manye yata ātmano 'yam asann api kleśada āsa dehaḥ (Bhāg. 5.5.4)
 

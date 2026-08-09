@@ -8,4 +8,4 @@
 
 *śrī-vaiṣṇava*—a devotee of the Rāmānuja-sampradāya; *bhaṭṭa*—Vyeṅkaṭa Bhaṭṭa; *seve*—used to worship; *lakṣmī-nārāyaṇa*—the Deities of Lord Nārāyaṇa and the goddess of fortune, Lakṣmī; *tāṅra*—his; *bhakti*—devotion; *dekhi'*—seeing; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *tuṣṭa*—happy; *haila*—became; *mana*—the mind.
 
-**Being a Vaiṣṇava in the Rāmānuja-sampradāya, Veṅkaṭa Bhaṭṭa worshiped the Deities of Lakṣmī and Nārāyaṇa. Seeing his pure devotion, Śrī Caitanya Mahāprabhu was very much satisfied.**
+**Being a Vaiṣṇava in the Rāmānuja-sampradāya, Vyeṅkaṭa Bhaṭṭa worshiped the Deity of Lakṣmī and Nārāyaṇa. Seeing his pure devotion, Śrī Caitanya Mahāprabhu was very much satisfied.**

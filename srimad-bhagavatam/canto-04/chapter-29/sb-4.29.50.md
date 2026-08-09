@@ -28,7 +28,7 @@ The living entity is within the body, and the Supersoul, the Supreme Personality
 
 sarvasya cāhaṁ hṛdi sanniviṣṭo
 
-mattaḥ smṛtir jñānam apohanaṁ ca
+mataḥ smṛtir jñānam apohanaṁ ca
 
 vedaiś ca sarvair aham eva vedyo
 

@@ -8,4 +8,4 @@
 
 *ei-mata*—in this way; *bhaṭṭa-gṛhe*—in the house of Vyeṅkaṭa Bhaṭṭa; *rahe*—remained; *gauracandra*—Śrī Caitanya Mahāprabhu; *nirantara*—constantly; *bhaṭṭa-saṅge*—with Vyeṅkaṭa Bhaṭṭa; *kṛṣṇa-kathā-ānanda*—the transcendental bliss of talking about Kṛṣṇa.
 
-**Śrī Caitanya Mahāprabhu remained at the house of Veṅkaṭa Bhaṭṭa and constantly talked with him about Lord Kṛṣṇa. In this way He was very happy.**
+**Śrī Caitanya Mahāprabhu remained at the house of Vyeṅkaṭa Bhaṭṭa and constantly talked with him about Lord Kṛṣṇa. In this way He was very happy.**
