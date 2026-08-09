@@ -8,4 +8,4 @@
 
 *sei*—that; *hājipure*—in Hājipura; *rahe*—there is; *śrī-kānta*—Śrīkānta; *tāra*—his; *nāma*—name; *gosāñira*—of Sanātana Gosvāmī; *bhaginī-pati*—sister's husband; *kare*—executes; *rāja-kāma*—government service.
 
-**In Hājipura there was a gentleman named Śrīkānta, who happened to be the husband of Sanātana Gosvāmī's sister. He was engaged there in government service.**
+**In Hājipura there was a gentlemen named Śrīkānta, who happened to be the husband of Sanātana Gosvāmī's sister. He was engaged there in government service.**

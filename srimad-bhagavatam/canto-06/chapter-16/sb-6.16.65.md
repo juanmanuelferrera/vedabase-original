@@ -14,4 +14,4 @@
 
 **Śrī Śukadeva Gosvāmī continued: After thus instructing Citraketu and assuring him of perfection in this way, the Supreme Personality of Godhead, who is the supreme spiritual master, the supreme soul, Saṅkarṣaṇa, disappeared from that place as Citraketu looked on.**
 
-*Thus end the Bhaktivedanta purports of the Sixth Canto, Sixteenth Chapter, of the* Śrīmad-Bhāgavatam, *entitled "King Citraketu Meets the Supreme Lord."*
+*Thus end the Bhaktivedanta purports of the Sixth Canto, Fifth Chapter, of the* Śrīmad-Bhāgavatam, *entitled "King Citraketu Meets the Supreme Lord."*

@@ -10,4 +10,4 @@
 
 **This is the nature of the mind of an uncommon personality. Sometimes it is soft like a flower, but sometimes it is as hard as a thunderbolt.**
 
-The softness of a flower and the hardness of a thunderbolt are reconciled in the behavior of a great personality. The following quotation from *Uttara-rāma-racita* (2.7) explains this behavior. One may also consult *Madhya-līlā,* Third Chapter, verse 212.
+The softness of a flower and the hardness of a thunderbolt are reconciled in the behavior of a great personality. The following quotation from *Uttara-rāma-carita* (2.7) explains this behavior. One may also consult *Madhya-līlā,* Third Chapter, verse 212.

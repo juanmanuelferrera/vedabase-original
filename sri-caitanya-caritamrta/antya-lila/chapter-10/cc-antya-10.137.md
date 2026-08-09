@@ -8,4 +8,4 @@
 
 *bhṛṣṭa*—fried; *phula-baḍī*—a hot *dahl* preparation; *āra*—and; *mudga-ḍāli-sūpa*—a liquid preparation made from mung *dahl*; *vividha vyañjana*—varieties of vegetables; *rāndhe*—used to cook; *prabhura ruci-anurūpa*—very tasteful for Śrī Caitanya Mahāprabhu.
 
-**They also offered phula-baḍī, liquid mung dahl and many vegetables, all cooked according to the Lord's taste.**
+**They also offered phula-baḍī, liquid mung dhal and many vegetables, all cooked according to the Lord's taste.**

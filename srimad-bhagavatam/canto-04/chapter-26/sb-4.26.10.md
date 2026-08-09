@@ -10,7 +10,7 @@
 
 *śaśān*—rabbits; *varāhān*—boars; *mahiṣān*—buffaloes; *gavayān*—bisons; *ruru*—black deer; *śalyakān*—porcupines; *medhyān*—game animals; *anyān*—others; *ca*—and; *vividhān*—various; *vinighnan*—by killing; *śramam adhyagāt*—became very tired.
 
-**In this way King Purañjana killed many animals, including rabbits, boars, buffaloes, bisons, black deer, porcupines and other game animals. After killing and killing, the King became very tired.**
+**In this way King Purañjana killed many animals, including rabbits, boars, buffaloes, bison, black deer, porcupines and other game animals. After killing and killing, the King became very tired.**
 
 A person in the mode of ignorance commits many sinful activities. In the Bhakti-rasāmṛta-sindhu, Śrīla Rūpa Gosvāmī explains that a man becomes sinful out of ignorance only. The resultant effect of sinful life is suffering. Those who are not in knowledge, who commit violations of the standard laws, are subject to be punished under criminal laws. Similarly, the laws of nature are very stringent. If a child touches fire without knowing the effect, he must be burned, even though he is only a child. If a child violates the law of nature, there is no compassion. Only through ignorance does a person violate the laws of nature, and when he comes to knowledge he does not commit any more sinful acts.
 

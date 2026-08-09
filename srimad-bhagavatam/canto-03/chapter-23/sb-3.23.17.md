@@ -12,4 +12,4 @@
 
 **Its beauty was enhanced by artistic engravings here and there on the walls. The floor was of emerald, with coral daises.**
 
-At the present moment people are very proud of their architectural art, yet floors are generally decorated with colored cement. It appears, however, that the castle constructed by the yogic powers of Kardama Muni had floors of coral and diamonds.
+At the present moment people are very proud of their architectural art, yet floors are generally decorated with colored cement. It appears, however, that the castle constructed by the yogic powers of Kardama Muni had floors of emerald with coral daises.

@@ -8,4 +8,4 @@
 
 *sukha-rūpa*—embodiment of pleasure; *kṛṣṇa*—Lord Kṛṣṇa; *kare*—does; *sukha*—happiness; *āsvādana*—tasting; *bhakta-gaṇe*—unto the devotee; *sukha*—happiness; *dite*—to give; *hlādinī*—the pleasure potency; *kāraṇa*—the cause.
 
-**"Lord Kṛṣṇa tastes all kinds of transcendental happiness, although He Himself is happiness personified. The pleasure relished by His pure devotee is also manifest by His pleasure potency.**
+**"Lord Kṛṣṇa tastes all kinds of transcendental happiness, although He Himself is happiness personified. The pleasure relished by His pure devotees is also manifest by His pleasure potency.**

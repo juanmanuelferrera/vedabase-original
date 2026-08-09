@@ -12,4 +12,4 @@
 
 **O learned brāhmaṇa, please describe how the leader of all the demigods, namely Prajāpati, Brahmā, decided to establish the various Manus, the heads of the ages. Please describe the Manus also, and please describe the descendants of those Manus.**
 
-The human race, or *manuṣya-sare,* descends from the Manus, sons and grandsons of the Prajāpati, Brahmā. The descendants of Manu reside in all the different planets and rule all the universe.
+The human race, or *manuṣya-sara,* descends from the Manus, sons and grandsons of the Prajāpati, Brahmā. The descendants of Manu reside in all the different planets and rule all the universe.

@@ -24,6 +24,6 @@ The word pakva-guṇāśayāḥ has special significance, for it means that by d
 
 ābrahma-bhuvanāl lokāḥ punar āvartino 'rjuna mām upetya tu kaunteya punar janma na vidyate
 
-"From the highest planet in the material world down to the lowest, all are places of misery wherein repeated birth and death take place. But one who attains to My abode, O son of Kuntī, never take birth again." (Bg. 8.16)
+"From the highest planet in the material world down to the lowest, all are places of misery wherein repeated birth and death take place. But one who attains to My abode, O son of Kuntī, never takes birth again." (Bg. 8.16)
 
 Thus there is no profit, even if one is promoted to the highest planet in the material universe, Brahmaloka. However, if one is somehow or other promoted to the abode of the Lord, he never returns to the material world.

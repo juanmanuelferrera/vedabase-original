@@ -28,6 +28,6 @@ By misusing his independence, the living entity falls down from the service of t
 
 bhoktāraṁ yajña-tapasāṁ sarva-loka-maheśvaram suhṛdaṁ sarva-bhūtānāṁ jñātvā māṁ śāntim ṛcchati
 
-"The sages, knowing Me as the ultimate purpose of all sacrifices and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries." (Bg. 5.29)
+"The sages, knowing Me as the ultimate purpose of all sacrifices and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attains peace from the pangs of material miseries." (Bg. 5.29)
 
 The Supreme Lord is the supreme friend of everyone; however, no one can take advantage of the supreme friend's instructions while making his own plans to become happy and entangling himself in the modes of material nature. When there is creation, the living entities take on different forms according to past desires. This means that all the species or forms of life are simultaneously created. Darwin's theory stating that no human being existed from the beginning but that humans evolved after many, many years is simply a nonsensical theory. From Vedic literature we find that the first creature within the universe is Lord Brahmā. Being the most intelligent personality, Lord Brahmā could take charge of creating all the variety found within this material world.

@@ -150,7 +150,7 @@ sūtre maṇi-gaṇā iva
 
 
 
-"O conquerer of wealth (Arjuna), there is no truth superior to Me. Everything rests upon Me, as pearls are strung on a thread." (Bg. 7.7)
+"O conqueror of wealth (Arjuna), there is no truth superior to Me. Everything rests upon Me, as pearls are strung on a thread." (Bg. 7.7)
 
 
 

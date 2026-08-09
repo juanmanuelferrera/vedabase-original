@@ -12,7 +12,7 @@
 
 **The conditioned soul in the material forest is sometimes swallowed by a python or crushed. At such a time he is left lying in the forest like a dead person, devoid of consciousness and knowledge. Sometimes other poisonous snakes bite him. Being blind to his consciousness, he falls down into a dark well of hellish life with no hope of being rescued.**
 
-When one becomes unconscious due to being bitten by a snake, one cannot understand what is taking place outside the body. This unconscious condition is the condition of deep sleep. Similarly, the conditioned soul is actually sleeping on the lap of the illusory energy. Bhaktivinoda Ṭhākura has sung, *kata nidrā yāo māyā-piśācīra kole:* "O living entity, how long will you sleep in this condition on the lap of the illusory energy?" People do not understand that they are actually sleeping in this material world, being devoid of knowledge of spiritual life. Caitanya Mahāprabhu therefore says:
+When one becomes unconscious due to being bitten by a snake, one cannot understand what is taking place outside the body. This unconscious condition is the condition of deep sleep. Similarly, the conditioned soul is actually sleeping on the lap of the illusory energy. Bhaktivinoda Ṭhākura has sung, *kota nidrā yāo māyā-piśācīra kole:* "O living entity, how long will you sleep in this condition on the lap of the illusory energy?" People do not understand that they are actually sleeping in this material world, being devoid of knowledge of spiritual life. Caitanya Mahāprabhu therefore says:
 
 > enechi auṣadhi māyā nāśibāra lāgi'
 > hari-nāma-mahā-mantra lao tumi māgi'

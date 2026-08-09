@@ -12,4 +12,4 @@
 
 **“ 'Somehow or other, if one is attracted to talks about Me and has faith in the instructions I have set forth in Bhagavad-gītā, and if one is actually detached from material things and material existence, his dormant love for Me will be awakened by devotional service.'**
 
-This verse from *Śrīmad-Bhāgavatam* (11.20.8) was spoken by Kṛṣṇa at the time of His deparature from this material world. It was spoken to Uddhava.
+This verse from *Śrīmad-Bhāgavatam* (11.20.8) was spoken by Kṛṣṇa at the time of His departure from this material world. It was spoken to Uddhava.

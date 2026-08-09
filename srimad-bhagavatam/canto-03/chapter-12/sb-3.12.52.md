@@ -12,4 +12,4 @@
 
 **While he was thus absorbed in contemplation and was observing the supernatural power, two other forms were generated from his body. They are still celebrated as the body of Brahmā.**
 
-Two bodies came out from the body of Brahmā. One had a moustache, and the other had swollen breasts. No one can explain the source of their manifestation, and therefore until today they are known as the *kāyam,* or the body of Brahmā, with no indication of their relationship as his son or daughter.
+Two bodies came out from the body of Brahmā. One had a mustache, and the other had swollen breasts. No one can explain the source of their manifestation, and therefore until today they are known as the *kāyam,* or the body of Brahmā, with no indication of their relationship as his son or daughter.

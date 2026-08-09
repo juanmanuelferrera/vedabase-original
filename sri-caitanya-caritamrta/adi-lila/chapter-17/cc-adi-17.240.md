@@ -8,4 +8,4 @@
 
 *kahite*—speaking; *śunite*—hearing; *aiche*—in that way; *prātaḥ-kāla*—morning; *haila*—appeared; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *śrīvāsere*—unto Śrīvāsa Ṭhākura; *toṣi'*—satisfying; *āliṅgana*—embracing; *kaila*—did.
 
-**As thus the lord requested and Śrīvāsa Ṭhākura spoke, the morning appeared, and the Lord embraced Śrīvāsa Ṭhākura and satisfied him.**
+**As the Lord thus requested and Śrīvāsa Ṭhākura spoke, the morning appeared, and the Lord embraced Śrīvāsa Ṭhākura and satisfied him.**

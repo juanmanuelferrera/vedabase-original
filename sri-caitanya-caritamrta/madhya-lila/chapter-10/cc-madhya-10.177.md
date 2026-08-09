@@ -10,7 +10,7 @@
 
 **"Bilvamaṅgala Ṭhākura abandoned his impersonal realization for the realization of the Personality of Godhead. I now see that my condition is similar to his, for it has already changed."**
 
-In his early life, Bilvamaṅgala Ṭhākura was an impersonalist monist, and he used to meditate upon the impersonal Brahman effulgence. Later he became a devotee of Lord Kṛṣṇa, and his explanation for this change is given in a verse (text 178) that is quoted in *Bhakti-rasāmṛta-sindhu.* Gradually one comes to the stage of Bhagavān realization, realization of the Supreme Person, after having attained the lower stages of realization-impersonal Brahman realization and localized Paramātmā realization. This is described in the *Caitanya-candrāmṛta* (5) by Prabodhānanda Sarasvatī:
+In his early life, Bilvamaṅgala Ṭhākura was an impersonalistic monist, and he used to meditate upon the impersonal Brahman effulgence. Later he became a devotee of Lord Kṛṣṇa, and his explanation for this change is given in a verse (text 178) that is quoted in *Bhakti-rasāmṛta-sindhu.* Gradually one comes to the stage of Bhagavān realization, realization of the Supreme Person, after having attained the lower stages of realization-impersonal Brahman realization and localized Paramātmā realization. This is described in the *Caitanya-candrāmṛta* (5) by Prabodhānanda Sarasvatī:
 
 > kaivalyaṁ narakāyate tri-daśa-pūr ākāśa-puṣpāyate
 > durdāntendriya-kāla-sarpa-paṭalī protkhāta-daṁṣṭrāyate

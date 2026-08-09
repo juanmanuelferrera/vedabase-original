@@ -22,7 +22,7 @@ I wish that You may deliver them. Therefore if You so desire their deliverance, 
 
 The words of the *Śrīmad-Bhāgavatam* are Your incarnation, and if a sober person repeatedly receives them with submissive aural reception, then he will be able to understand Your message.
 
-It is said in the *Śrīmad-Bhāgavatam* (i.2.17-21): "Śrī Kṛṣṇa, the Personality of Godhead, who is the Paramātmā [Supersoul] in everyone's heart and the benefactor of the truthful devotee, cleanses desire for material enjoyment from the heart of the devotee who relishes His messages, which are in themselves virtuous when properly heard and chanted. By regularly hearing the *Bhāgavatam* and rendering service unto the pure devotee, all that is troublesome to the heart is practically destroyed, and loving service unto the glorious Lord, who is praised with transcendental songs, is established as an irrevocable fact. At the time loving service is established in the heart, the modes of passion [*rajas*] and ignorance [*tamas*], and lust and desire [*kāma*] disappear from the heart. Then the devotee is established in goodness and he becomes happy. Thus established in the mode of goodness, the man rejuvenated by loving service to the Lord gains liberation from material association [*mukti*] and comes to know scientifically of the Personality of Godhead. Thus the knots of the heart and all misgivings are cut to pieces. The chain of fruitive actions [*karma*] is terminated when one sees the self as master."
+It is said in the *Śrīmad-Bhāgavatam* (1.2.17-21): "Śrī Kṛṣṇa, the Personality of Godhead, who is the Paramātmā [Supersoul] in everyone's heart and the benefactor of the truthful devotee, cleanses desire for material enjoyment from the heart of the devotee who relishes His messages, which are in themselves virtuous when properly heard and chanted. By regularly hearing the *Bhāgavatam* and rendering service unto the pure devotee, all that is troublesome to the heart is practically destroyed, and loving service unto the glorious Lord, who is praised with transcendental songs, is established as an irrevocable fact. At the time loving service is established in the heart, the modes of passion [*rajas*] and ignorance [*tamas*], and lust and desire [*kāma*] disappear from the heart. Then the devotee is established in goodness and he becomes happy. Thus established in the mode of goodness, the man rejuvenated by loving service to the Lord gains liberation from material association [*mukti*] and comes to know scientifically of the Personality of Godhead. Thus the knots of the heart and all misgivings are cut to pieces. The chain of fruitive actions [*karma*] is terminated when one sees the self as master."
 
 He will become liberated from the influence of the modes of ignorance and passion and thus all inauspicious things accumulated in the core of the heart will disappear.
 
@@ -104,7 +104,7 @@ The word *bhāva* means "nature." There is another nature, which never dissolves
 
 "For the soul there is neither birth nor death. Nor, having once been, does he ever cease to be. He is unborn, eternal, ever-existing, undying, and primeval. He is not slain when the body is slain."
 
-Just as God has no birth or death, we spirit souls can have neither birth nor death, but because we think, "i am this body," we consider that we are born and that we die. Such thinking is called *māyā,* or illusion, and as soon as we get out of this illusion of identifying the soul with the body, we attain the stage called *brahma-bhūta.* When one realizes *aham-brahmāsmi,* "I am not this body; I am spirit soul, part and parcel of the Supreme Brahman," he attains what is called Brahman realization. As soon as Brahman realization is attained, one becomes happy.
+Just as God has no birth or death, we spirit souls can have neither birth nor death, but because we think, "1 am this body," we consider that we are born and that we die. Such thinking is called *māyā,* or illusion, and as soon as we get out of this illusion of identifying the soul with the body, we attain the stage called *brahma-bhūta.* When one realizes *aham-brahmāsmi,* "I am not this body; I am spirit soul, part and parcel of the Supreme Brahman," he attains what is called Brahman realization. As soon as Brahman realization is attained, one becomes happy.
 
 Is this not a fact? If you understand clearly that you have no birth and death, that you are eternal, will you not become happy? Yes, certainly. Thus when one is Brahman realized, spiritually realized, he has no more to do with hankering or lamentation. The whole world is simply hankering and lamenting. You African people are now hankering to be like Europeans and Americans, but the Europeans have lost their empire, and now they are lamenting. So in this way one party is hankering and another is lamenting. Similarly, this material life is simply a combination of hankering and lamenting. We are hankering for those things which we do not possess, and we are lamenting for those things which we have lost. That is our material business. If we realize, however, that we are part and parcel of the Supreme Personality of Godhead (Parabrahman) and that we are Brahman, then we will transcend this hankering and lamenting.
 
@@ -136,7 +136,7 @@ If you really want to understand God, He is very easy to understand. God is the 
 > tena tyaktena bhuñjīthā
 > mā gṛdhaḥ kasya svid dhanam
 
-"Everything animate or inanimate that is within the universe is controlled and owned by the Lord. One should therefore accept only those things necessary for himself, which are set aside as his quota, and one should not accept other things, knowing well to whom they belong." (*Īśopaniṣad* i)
+"Everything animate or inanimate that is within the universe is controlled and owned by the Lord. One should therefore accept only those things necessary for himself, which are set aside as his quota, and one should not accept other things, knowing well to whom they belong." (*Īśopaniṣad* 1)
 
 This realization is wanting. Kṛṣṇa claims proprietorship over all forms—including American forms, African forms, cat forms, dog forms, tree forms, etc.—for in actuality He is the proprietor and the supreme father. If we simply realize this, we attain God realization. Actually, if we realize God as prescribed in the authorized books and Vedic literatures, we will find that there will no longer be quarrels between this party and that party. Everything will be peaceful.
 
@@ -170,7 +170,7 @@ After hearing a description of the hellish planets from Śukadeva Goswami, Parī
 > nānogra-yātanān neyāt
 > tan me vyākhyātum arhasi
 
-"Sir, I have heard from you about the hellish planets. Men who are very sinful are sent to those planets." (Śrīmad-Bhāgavatam 6.i.6) Parīkṣit Mahārāja is a Vaiṣṇava [devotee], and a Vaiṣṇava always feels compassion for others' distress. He is very afflicted by the miseries of others. When Lord Jesus Christ presented himself, for instance, he was greatly afflicted by the miserable conditions of the people. Regardless of which country or sect they belong to, all Vaiṣṇavas, or devotees—any people who are God conscious, or Kṛṣṇa conscious—are thus compassionate. Therefore to blaspheme a Vaiṣṇava, a preacher of God's glories, is a great offense.
+"Sir, I have heard from you about the hellish planets. Men who are very sinful are sent to those planets." (Śrīmad-Bhāgavatam 6.1.6) Parīkṣit Mahārāja is a Vaiṣṇava [devotee], and a Vaiṣṇava always feels compassion for others' distress. He is very afflicted by the miseries of others. When Lord Jesus Christ presented himself, for instance, he was greatly afflicted by the miserable conditions of the people. Regardless of which country or sect they belong to, all Vaiṣṇavas, or devotees—any people who are God conscious, or Kṛṣṇa conscious—are thus compassionate. Therefore to blaspheme a Vaiṣṇava, a preacher of God's glories, is a great offense.
 
 Kṛṣṇa, God, is never tolerant of offenses committed at the lotus feet of a Vaiṣṇava. *Kṛpāmbudhi:* a Vaiṣṇava is an ocean of mercy. *Vāñchā-kalpa-taru:* everyone has desires, but a Vaiṣṇava can fulfill all desires. *Kalpa-taru* means "desire tree." There is a tree in the spiritual world which is called a desire tree. In this material world, you get a particular type of fruit from a particular type of tree, but in Kṛṣṇaloka as well as in all the Vaikuṇṭha planets, all the trees are spiritual and will fulfill all your desires. That is described in the *Brahma-saṁhitā: cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa*.
 
@@ -243,7 +243,7 @@ With similar Vaiṣṇava compassion, Parīkṣit Mahārāja says to Śukadeva G
 > dhruvaṁ sa vai pretya narakān upaiti
 > ye kīrtitā me bhavatas tigma-yātanāḥ
 
-"Yes, I've already described the different types of hellish conditions and very severe painful life, but one has to counteract it." [[sb/6/i/7|(SB 6.i.7)]]
+"Yes, I've already described the different types of hellish conditions and very severe painful life, but one has to counteract it." [[sb/6/1/7|(SB 6.1.7)]]
 
 How can this be done? Sinful activities are committed in various ways. We can commit sinful activity or thus make a plan, thinking, "I shall kill that man." Either way, it is sinful. When the mind is thinking, feeling, and willing, then there is action.
 
@@ -271,13 +271,13 @@ There are two kinds of activities—good and bad. If you act nicely and perform 
 > yateta mṛtyor avipadyatātmanā
 > doṣasya dṛṣṭvā guru-lāghavaṁ yathā
 > bhiṣak cikitseta rujāṁ nidāna-vit
-> [[sb/6/i/8|(SB 6.i.8)]]
+> [[sb/6/1/8|(SB 6.1.8)]]
 
 There are different kinds of atonement. If you commit some sin and counteract it by something else, that is atonement. There are examples of this in the Christian Bible. Śukadeva Goswami says, "You should know that you are responsible, and according to the gravity of sinful life, you should accept some type of atonement as described in the *śāstras,* the scriptures."
 
 Actually, just as when one is diseased he must go to a doctor and pay doctor bills as a form of atonement, according to the Vedic way of life there is a class of *brāhmaṇas* to whom one should go for the prescribed atonement according to the sins one commits.
 
-Śukadeva Goswami says that one has to execute the prescribed atonement according to the gravity of one's sinful life. He continues the example: *doṣasya dṛṣṭvā guru-lāghavaṁ yathā bhiṣak cikitseta rujāṁ nidāna-vit* [[sb/6/i/8|[SB 6.i.8] ]]. When you consult a physician, he prescribes an inexpensive medicine or a costly medicine, according to the gravity of the disease. If you simply have a headache, he may prescribe an aspirin, but if you have something very severe, he immediately prescribes a surgical operation which will cost a thousand dollars. Similarly, sinful life is a diseased condition, so one must follow the prescribed cure to become healthy.
+Śukadeva Goswami says that one has to execute the prescribed atonement according to the gravity of one's sinful life. He continues the example: *doṣasya dṛṣṭvā guru-lāghavaṁ yathā bhiṣak cikitseta rujāṁ nidāna-vit* [[sb/6/1/8|[SB 6.1.8] ]]. When you consult a physician, he prescribes an inexpensive medicine or a costly medicine, according to the gravity of the disease. If you simply have a headache, he may prescribe an aspirin, but if you have something very severe, he immediately prescribes a surgical operation which will cost a thousand dollars. Similarly, sinful life is a diseased condition, so one must follow the prescribed cure to become healthy.
 
 Acceptance of the chain of birth and death is a diseased condition of the soul. The soul has no birth and death and no disease, because it is spirit. Kṛṣṇa says in the *Bhagavad-gītā* (2.20)/ *na jāyate,* the soul has no birth, and *mriyate,* it has no death. *Nityaḥ śāśvato 'yaṁ purāṇo/ na hanyate hanyamāne śarīre.* The soul is eternal and everlasting. It is not lost with the dissolution of this body. *Na hanyate hanyamāne śarīre.* *Na hanyate* means that it is not killed or destroyed, even after the destruction of this body.
 
@@ -491,7 +491,7 @@ The point you have missed is that although you are sitting in one place and I am
 > hṛṣīkeṇa hṛṣīkeśa-
 > sevanaṁ bhaktir ucyate
 > [[cc/madhya/19/170|[Cc. Madhya 19.170] ]]
-> (*Bhakti-rasāmṛta-sindhu* i.i.12)
+> (*Bhakti-rasāmṛta-sindhu* 1.1.12)
 
 When you have purified your senses and engaged those purified senses in the service of the master of the senses, Kṛṣṇa, you have perfected your life. That is nonduality, and that is absolute.
 
@@ -589,7 +589,7 @@ No. First of all there is the question who *is* God. Then we shall ask who taugh
 Yes.
 
 **Śrīla Prabhupāda:**
-Who God is, is explained in the *Brahma-sūtra. Janmādy asya yataḥ:* God is He from whom everything emanates. That is God—the Supreme Being from whom everything emanates. Now, what is the nature of that Supreme Being? Is He a dead stone or a living entity? That is also explained. *Janmādy asya yato 'nvayād itarataś cārtheṣv abhijñaḥ svarāṭ* (Śrīmad-Bhāgavatam i.i.i): the Supreme Being is fully cognizant of everything, directly and indirectly. Unless He is fully cognizant of everything, He cannot be God. Then the question that you raised comes, Who taught God? And that is also answered. *Svarāṭ:* He is fully independent. He does not need to take lessons from anyone. That is God. If one needs to take lessons from others, he is not God. Kṛṣṇa spoke the *Bhagavad-gītā,* and He did not have to learn it from anyone. I had to learn it from my spiritual master, but Kṛṣṇa did not have to learn it from anyone. One who does not need to take lessons from others is God.
+Who God is, is explained in the *Brahma-sūtra. Janmādy asya yataḥ:* God is He from whom everything emanates. That is God—the Supreme Being from whom everything emanates. Now, what is the nature of that Supreme Being? Is He a dead stone or a living entity? That is also explained. *Janmādy asya yato 'nvayād itarataś cārtheṣv abhijñaḥ svarāṭ* (Śrīmad-Bhāgavatam 1.1.1): the Supreme Being is fully cognizant of everything, directly and indirectly. Unless He is fully cognizant of everything, He cannot be God. Then the question that you raised comes, Who taught God? And that is also answered. *Svarāṭ:* He is fully independent. He does not need to take lessons from anyone. That is God. If one needs to take lessons from others, he is not God. Kṛṣṇa spoke the *Bhagavad-gītā,* and He did not have to learn it from anyone. I had to learn it from my spiritual master, but Kṛṣṇa did not have to learn it from anyone. One who does not need to take lessons from others is God.
 
 **Mr. O'Grady:**
 Where does human love come in?
@@ -663,7 +663,7 @@ Thank you very much. My request to you is this. You are a poet. Just describe Go
 > sviṣṭasya sūktasya ca buddhi-dattayoḥ
 > avicyuto 'rthaḥ kavibhir nirūpito
 > yad uttamaśloka-guṇānuvarṇanam
-> (Śrīmad-Bhāgavatam i.5.22)
+> (Śrīmad-Bhāgavatam 1.5.22)
 
 There are many leaders in society who are poets, scientists, religionists, philosophers, politicians, and so on. Those who are so expert are given this injunction: Your duty is to perfect your occupation by describing the glories of the Supreme Being.
 

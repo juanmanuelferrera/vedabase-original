@@ -13,4 +13,4 @@
 
 *prabhu-sthāne*—to the place of Śrī Caitanya Mahāprabhu; *nitya*—daily; *āise*—comes; *kare namaskāra*—offers respectful obeisances; *prabhu-sane*—with the Lord; *vāt kahe*—talks; *prabhu-prāṇa tāra*—his life and soul was Śrī Caitanya Mahāprabhu; *prabhute*—unto the Lord; *tāhāra prīti*—his affection; *prabhu*—the Lord; *dayā kare*—reciprocates His mercy; *dāmodara*—Dāmodara Paṇḍita; *tāra*—his; *prīti*—love of Lord Śrī Caitanya Mahāprabhu; *sahite nā pāre*—could not tolerate.
 
-**The boy came daily to Śrī Caitanya Mahāprabhu and offered Him respectful obeisances. He was free to talk with Śrī Caitanya Mahāprabhu because the Lord was his life and soul, but the boy's intimacy with the Lord and the Lord's mercy toward him were intolerable to Dāmodara Paṇḍita.**
+**The boy came dally to Śrī Caitanya Mahāprabhu and offered Him respectful obeisances. He was free to talk with Śrī Caitanya Mahāprabhu because the Lord was his life and soul, but the boy's intimacy with the Lord and the Lord's mercy toward him were intolerable to Dāmodara Paṇḍita.**

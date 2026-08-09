@@ -12,7 +12,7 @@
 
 **Once while wandering in this way, he saw on the southern side of the Himalayas, in a place named Bhārata-varṣa [India], a city that had nine gates all about and was characterized by all auspicious facilities.**
 
-The tract of land south of the Himalayan Mountains is the land of India, which was known as Bhārata-varṣa. When a living entity takes birth in Bhārata-varṣa he is considered to be most fortunate. Indeed, Caitanya Mahāprabhu has stated:
+The tract of land south of the Himalaya Mountains is the land of India, which was known as Bhārata-varṣa. When a living entity takes birth in Bhārata-varṣa he is considered to be most fortunate. Indeed, Caitanya Mahāprabhu has stated:
 
 bhārata-bhūmite haila manuṣya-janma yāra janma sārthaka kari' kara para-upakāra (Cc. Ādi 9.41)
 

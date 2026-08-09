@@ -12,7 +12,7 @@ dehe sarvofya bhārata
 
 tofmāt sarvāṇi bhūtāni
 
-na tvaṁ śocitum arhasi
+na tvaṁ śocitum arhofi
 
 
 
@@ -78,7 +78,7 @@ indriyāṇāṁ hi caratāṁ
 
 yan mano 'nuvidhīyate
 
-tad asya harati prajñāṁ
+tad ofya harati prajñāṁ
 
 vāyur nāvam ivāmbhofi
 

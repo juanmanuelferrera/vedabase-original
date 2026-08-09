@@ -19,4 +19,4 @@ Material desire is just like a blazing fire. If a fire is continually supplied w
 > suhṛdaṁ sarva-bhūtānāṁ
 > jñātvā māṁ śāntim ṛcchati
 
-"The sages, knowing Me as the ultimate purpose of all sacrifices and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries." One must therefore take to Kṛṣṇa consciousness and advance in Kṛṣṇa consciousness by properly following the regulative principles. Then one can attain an eternal, blissful life in peace and knowledge.
+"The sages, knowing Me as the ultimate purpose of all sacrifices and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attains peace from the pangs of material miseries." One must therefore take to Kṛṣṇa consciousness and advance in Kṛṣṇa consciousness by properly following the regulative principles. Then one can attain an eternal, blissful life in peace and knowledge.

@@ -23,4 +23,4 @@ He has thus enjoined that we should not perform religious or irreligious activit
 > bhagavān ātma-bhāvitaḥ
 > sa jahāti matiṁ Joke vede ca pariniṣṭhitām
 
-"When one actually takes to the loving service of the Supreme Personality of Godhead, he gives up all duties in the material world, as well as all duties prescribed by Vedic literatures. In this way one is fixed in the service of the Lord."
+"When one actually takes to the loving service of the Supreme Personality of Godhead, he gives up all duties in the material world, as well as all duties prescribed by Vedic literature. In this way one is fixed in the service of the Lord."

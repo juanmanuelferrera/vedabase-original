@@ -43,7 +43,7 @@ The *Bhakti-rasāmṛta-sindhu* of Rūpa Gosvāmī explains the superexcellent q
 > prārthaye tava pādābje
 > dāsyam evābhikāmaye
 
-"My dear Lord, I do not wish to become a man of religion or a master of economic development or sense gratification, nor do I wish for liberation. Although I can have all these from You, the supreme benedictor, I do not pray for all these. I simply pray that I may always be engaged as a servant of Your lotus feet." Nṛsiṁhadeva offered Prahlāda Mahārāja all kinds of benedictions, but Prahlāda Mahārāja did not accept any of them, for he simply wanted to engage in the service of the lotus feet of the Lord. Similarly, a pure devotee wishes to be blessed like Mahārāja Prahlāda by being thus endowed with devotional service. Devotees also offer their respects to Hanumān, who always remained a servant of Lord Rāma. The great devotee Hanumān prayed:
+"My dear Lord, I do not wish to become a man of religion or a master of economic development or sense gratification, nor do I wish for liberation. Although I can have all these from You, the supreme bestower of benedictions, I do not pray for all these. I simply pray that I may always be engaged as a servant of Your lotus feet." Nṛsiṁhadeva offered Prahlāda Mahārāja all kinds of benedictions, but Prahlāda Mahārāja did not accept any of them, for he simply wanted to engage in the service of the lotus feet of the Lord. Similarly, a pure devotee wishes to be blessed like Mahārāja Prahlāda by being thus endowed with devotional service. Devotees also offer their respects to Hanumān, who always remained a servant of Lord Rāma. The great devotee Hanumān prayed:
 
 > bhava-bandha-cchide tasyai
 > spṛhayāmi na muktaye

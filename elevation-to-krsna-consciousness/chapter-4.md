@@ -88,11 +88,11 @@ sūtre maṇi-gaṇa iva
 
 
 
-"O conquerer of wealth (Arjuna), there is no truth superior to Me. Everything rests upon Me, as pearls are strung on a thread." (Bg. 7.7)
+"O conqueror of wealth (Arjuna), there is no truth superior to Me. Everything rests upon Me, as pearls are strung on a thread." (Bg. 7.7)
 
 
 
-God is asamaurdha, which means that no one is equal to or superior to Him. If we find someone who has no superior, we can accept him as God. God can be defined as one who has no superior and who has no equal. This is the Vedic version. In the *Upaniṣads* it is said, na tat samaś cābhyadhikaś ca dṛśyate: no one is found equal to or greater than Him.
+God is asamaurdhva, which means that no one is equal to or superior to Him. If we find someone who has no superior, we can accept him as God. God can be defined as one who has no superior and who has no equal. This is the Vedic version. In the *Upaniṣads* it is said, na tat samaś cābhyadhikaś ca dṛśyate: no one is found equal to or greater than Him.
 
 
 

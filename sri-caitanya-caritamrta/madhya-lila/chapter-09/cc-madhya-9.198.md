@@ -10,4 +10,4 @@
 
 **At Durvaśana Śrī Caitanya Mahāprabhu visited the temple of Lord Rāmacandra, and on the hill known as Mahendra-śaila He saw Lord Paraśurāma.**
 
-In Durvaśana, or Darbhaśayana, seven miles east of Ramnad, there is a temple of Lord Rāmacandra overlooking the ocean. The hill known as Mahendra-śaila is near Tinebheli, and at the end of this hill is a city known as Tiruchendurḍ. West of Mahendra-śaila is the territory of Tribāṅkura. There is mention of Mahendra-śaila in the *Rāmāyaṇa.*
+In Durvaśana, or Darbhaśayana, seven miles east of Ramnad, there is a temple of Lord Rāmacandra overlooking the ocean. The hill known as Mahendra-śaila is near Tirunelveli, and at the end of this hill is a city known as Tiruchendurḍ. West of Mahendra-śaila is the territory of Tribāṅkura. There is mention of Mahendra-śaila in the *Rāmāyaṇa.*

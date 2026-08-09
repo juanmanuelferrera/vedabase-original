@@ -17,4 +17,4 @@ This is also the teaching of *Bhagavad-gītā*:
 > ahaṁ tvāṁ sarva-pāpebhyo
 > mokṣayiṣyāmi mā śucaḥ
 
-"Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear." Such firm faith in the Supreme Personality of Godhead is possible only by the mercy of the Lord. The Lord is sitting within everyone's heart, and when He personally inspires His devotee, the devotee does not stick to the Vedic principles or social customs but rather devotes himself to the transcendental loving service of the Lord. This is confirmed in the following verse from *Śrīmad-Bhāgavatam* (4.29.46).
+"Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reactions. Do not fear." Such firm faith in the Supreme Personality of Godhead is possible only by the mercy of the Lord. The Lord is sitting within everyone's heart, and when He personally inspires His devotee, the devotee does not stick to the Vedic principles or social customs but rather devotes himself to the transcendental loving service of the Lord. This is confirmed in the following verse from *Śrīmad-Bhāgavatam* (4.29.46).

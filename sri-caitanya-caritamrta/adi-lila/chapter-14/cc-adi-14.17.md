@@ -10,4 +10,4 @@
 
 **"This child will preach the Vaiṣṇava cult and deliver both His maternal and paternal families.**
 
-Without Nārāyaṇa Himself or His bona fide representative one cannot preach the cult of Vaiṣṇavism, or devotional service. When a Vaiṣṇava is born, he delivers both his maternal and paternal families simultaneously.
+Only Nārāyaṇa Himself or His bona fide representative one cannot preach the cult of Vaiṣṇavism, or devotional service. When a Vaiṣṇava is born, he delivers both his maternal and paternal families simultaneously.

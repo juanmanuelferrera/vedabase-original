@@ -8,4 +8,4 @@
 
 *pūrva-likhita*—previously mentioned; *grantha-sūtra*—the codes of the literature; *anusāre*—according to; *yei*—whatever; *nāhi likhi*—I have not mentioned; *tāhā*—that; *likhiye*—I shall write; *vistāre*—elaborately.
 
-**In accordance with the codes previously written, I shall describe in detail whatever I have not mentioned.**
+**In accordance with the synopsis previously written, I shall describe in detail whatever I have not mentioned.**

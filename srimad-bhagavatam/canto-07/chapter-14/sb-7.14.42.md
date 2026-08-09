@@ -14,4 +14,4 @@
 
 As admitted by Lord Kṛṣṇa in *Bhagavad-gītā* [[bg/18/69|(Bg. 18.69)]], *na ca tasmān manuṣyeṣu kaścin me priya-kṛttamaḥ.* The *brāhmaṇas* preach the cult of Kṛṣṇa consciousness all around the world, and therefore, although they worship Kṛṣṇa, the Supreme Personality of Godhead, the Lord also recognizes them as worshipable. The relationship is reciprocal. The *brāhmaṇas* want to worship Kṛṣṇa, and similarly Kṛṣṇa wants to worship the *brāhmaṇas.* In conclusion, therefore, *brāhmaṇas* and Vaiṣṇavas who are engaged in preaching the glories of the Lord must be worshiped by religionists, philosophers and people in general. At the Rājasūya-yajña of Mahārāja Yudhiṣṭhira, many hundreds and thousands of *brāhmaṇas* were present, yet Kṛṣṇa was selected to be worshiped first. Therefore, Kṛṣṇa is always the Supreme Person, but by His causeless mercy He recognizes the *brāhmaṇas* as dearmost to Him.
 
-Thus end the Bhaktivedanta purports of the Seventh Canto, Fourteenth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Ideal Family Life."
+Thus end the Bhaktivedanta purports of the Seventh Canto, Third Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Ideal Family Life."

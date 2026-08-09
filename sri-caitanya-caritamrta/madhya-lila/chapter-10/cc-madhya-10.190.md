@@ -10,4 +10,4 @@
 
 **Praying at the lotus feet of Śrī Rūpa and Śrī Raghunātha, always desiring their mercy, I, Kṛṣṇadāsa, narrate Śrī Caitanya-caritāmṛta, following in their footsteps.**
 
-*Thus end the Bhaktivedanta purports to Śrī Caitanya-caritāmṛta, Madhya-līlā,  Tenth Chapter, describing the Lord's meeting the Vaiṣṇavas upon His return to Jagannātha Purī from South India.*
+*Thus end the Bhaktivedanta purports to Śrī Caitanya-caritāmṛta, Madhya-līlā,  Seventeenth Chapter, describing the Lord's meeting the Vaiṣṇavas upon His return to Jagannātha Purī from South India.*

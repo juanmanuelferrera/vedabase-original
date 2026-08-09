@@ -17,7 +17,7 @@ As stated in the *Bhagavad-gītā* [[bg/5/18|(Bg. 5.18)]]:
 > śuni caiva śva-pāke ca
 > paṇḍitāḥ sama-darśinaḥ
 
-"The humble sages, by virtue of true knowledge, sees with equal vision a learned and gentle *brāhmaṇa,* a cow, an elephant, a dog and a dog-eater [outcaste]."
+"The humble sages, by virtue of true knowledge, see with equal vision a learned and gentle *brāhmaṇa,* a cow, an elephant, a dog and a dog-eater [outcaste]."
 
 Those who are highly advanced in spiritual understanding do not care about a person's material condition. A spiritually advanced person sees the spiritual identity of every living being, and consequently he makes no distinction between a learned *brāhmaṇa,* a dog, a *caṇḍāla* or anyone else. He is not influenced by the material body but sees a person's spiritual identity. Consequently Bhavānanda Rāya appreciated Śrī Caitanya Mahāprabhu's statement, which showed that the Lord did not consider the social position of Bhavānanda Rāya, who belonged to the *śūdra* caste engaged in mundane activities. Rather, the Lord considered the spiritual position of Bhavānanda Rāya, along with that of Rāmānanda Rāya and his brothers. The servant of the Lord is also similarly inclined. He gives shelter to any person-any living entity-regardless of whether one belongs to a *brāhmaṇa* family or is a *caṇḍāla*. The spiritual master reclaims all people and encourages everyone in spiritual life. By taking shelter of such a devotee, one can make his life successful. As confirmed in *Śrīmad-Bhāgavatam* (2.4.18):
 
