@@ -8,4 +8,4 @@
 
 **In Pulaha-āśrama is the Gaṇḍakī River, which is the best of all rivers. The śālagrāma-śilā, the marble pebbles, purify all those places. On each and every marble pebble, up and down, circles like navels are visible.**
 
-*Śālagrāma-śilā* refers to pebbles that appear like stones with circle; marked up and down. These are available in the river known as Gaṇḍakī-nadī. Wherever the waters of this river flow, the place becomes immediately sanctified.
+*Śālagrāma-śilā* refers to pebbles that appear like stones with circles; marked up and down. These are available in the river known as Gaṇḍakī-nadī. Wherever the waters of this river flow, the place becomes immediately sanctified.

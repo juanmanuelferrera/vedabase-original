@@ -16,7 +16,7 @@ Whenever there is need of material creation, the transcendental Personality of G
 
 na māṁ karmāṇi limpanti na me karma-phale spṛhā
 
-iti māṁ yo 'bhijānāti karmabhir na sa badhyate
+iti māṁ yo 'bhijānāti karmabhir na sa baddhyati
 
 (Bg. 4.14)
 

@@ -12,4 +12,4 @@
 
 **One who rises from bed early in the morning and recites this history of Citraketu, controlling his words and mind and remembering the Supreme Personality of Godhead, will return home, back to Godhead, without difficulty.**
 
-*Thus end the Bhaktivedanta purports of the Sixth Canto, Fifth Chapter, of the* Śrīmad-Bhāgavatam *entitled, "Mother Pārvatī Curses Citraketu."*
+*Thus end the Bhaktivedanta purports of the Sixth Canto, Seventeenth Chapter, of the* Śrīmad-Bhāgavatam *entitled, "Mother Pārvatī Curses Citraketu."*

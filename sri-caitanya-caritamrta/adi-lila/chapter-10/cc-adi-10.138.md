@@ -10,4 +10,4 @@
 
 **Brahmacārī Kāśīśvara was a disciple of Īśvara Purī, and Śrī Govinda was another of his dear disciples.**
 
-Govinda was the personal servant of Śrī Caitanya Mahāprabhu. In the *Gaura-gaṇoddeśa-dīpikā,* verse 137, it is stated that the servants formerly named Bhṛṅgāra and Bhaṅgura in Vṛndāvana became Kāśīśvara and Govinda in Caitanya Mahāprabhu's pastimes. Govinda always engaged in the service of the Lord, even at great risk.
+Govinda was the personal servant of Śrī Caitanya Mahāprabhu. In the *Gauru-gaṇoddeśa-dīpikā,* verse 137, it is stated that the servants formerly named Bhṛṅgāra and Bhaṅgura in Vṛndāvana became Kāśīśvara and Govinda in Caitanya Mahāprabhu's pastimes. Govinda always engaged in the service of the Lord, even at great risk.

@@ -10,6 +10,6 @@
 
 *eṣaḥ*—this; *deva*—O lord; *diteḥ*—of Diti; *garbhaḥ*—womb; *ojaḥ*—semina; *kāśyapam*—of Kaśyapa; *arpitam*—deposited; *diśaḥ*—directions; *timirayan*—causing complete darkness; *sarvāḥ*—all; *vardhate*—overloads; *agniḥ*—fire; *iva*—as; *edhasi*—fuel.
 
-**As fuel overloads a fire, so the embryo created by the semen of Kaśyapa in the womb of Diti has caused complete darkness throughout the universe.**
+**As fuel overloads a fire, so the embryo created by the semina of Kaśyapa in the womb of Diti has caused complete darkness throughout the universe.**
 
-The darkness throughout the universe is explained herewith as being caused by the embryo created in the womb of Diti by the semen of Kaśyapa.
+The darkness throughout the universe is explained herewith as being caused by the embryo created in the womb of Diti by the semina of Kaśyapa.

@@ -10,4 +10,4 @@
 
 **In their two houses Lord Caitanya Mahāprabhu begged foodstuffs on the Ekādaśī day and ate them personally.**
 
-The injunction to fast on Ekādaśī is especially meant for devotees; on Ekādaśī there are no restrictions regarding foodstuffs that may be offered to the Lord. Lord Śrī Caitanya Mahāprabhu took the food of Lord Viṣṇu in His ecstasy as *viṣṇu-tattva.*
+The injunction to fast on Ekādaśī is especially meant for devotees; on Ekādaśī there are no restrictions regarding foodstuffs that may be offered to the Lord. Lord Śrī Caitanya Mahāprabhu took the foodstuffs of Lord Viṣṇu in His ecstasy as *viṣṇu-tattva.*

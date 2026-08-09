@@ -12,7 +12,7 @@
 
 **Mahārāja Pṛthu thus engaged completely in devotional service, executing the rules and regulations strictly according to principles, twenty-four hours daily. Thus his love and devotion unto the Supreme Personality of Godhead, Kṛṣṇa, developed and became unflinching and fixed.**
 
-The word bhagavad-dharmiṇaḥ indicates that the religious process practiced by Mahārāja Pṛthu was beyond all pretensions. As stated in the beginning of Śrīmad-Bhāgavatam, dharmaḥ projjhita-kaitavo 'tra (Bhāg. 1.1.2): Religious principles which are simply pretentious are actually nothing but cheating. Bhagavad-dharmiṇaḥ is described by Vīrarāghavācārya as nivṛtta-dharmeṇa, which indicates that it cannot be contaminated by material aspiration. As described by Śrīla Rūpa Gosvāmī:
+The word bhagavad-dharmiṇaḥ indicates that the religious process practiced by Mahārāja Pṛthu was beyond all pretentions. As stated in the beginning of Śrīmad-Bhāgavatam, dharmaḥ projjhita-kaitavo 'tra (Bhāg. 1.1.2): Religious principles which are simply pretentious are actually nothing but cheating. Bhagavad-dharmiṇaḥ is described by Vīrarāghavācārya as nivṛtta-dharmeṇa, which indicates that it cannot be contaminated by material aspiration. As described by Śrīla Rūpa Gosvāmī:
 
 anyābhilāṣitā-śūnyaṁ jñāna-karmādy-anāvṛtam ānukūlyena kṛṣṇānuśīlanaṁ bhaktir uttamā
 

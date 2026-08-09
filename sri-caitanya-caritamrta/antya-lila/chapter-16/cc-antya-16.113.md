@@ -8,4 +8,4 @@
 
 *alaukika*—uncommon; *gandha*—fragrance; *svāda*—taste; *anya-vismāraṇa*—forgetting all others; *mahā-mādaka*—highly enchanting; *haya*—are; *ei*—these; *kṛṣṇa-adharera*—of the lips of Kṛṣṇa; *guṇa*—attributes.
 
-**"An uncommon, greatly enchanting fragrance and taste that makes one forget all other experiences are attributes of Kṛṣṇa's lips.**
+**"An uncommon, greatly enchanting fragrance and taste that make one forget all other experiences are attributes of Kṛṣṇa's lips.**

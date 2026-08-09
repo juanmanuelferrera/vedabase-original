@@ -8,7 +8,7 @@
 
 *sva-mādhurya*—His own conjugal love; *rādhā-prema-rasa*—the mellow of the loving affairs between Rādhārāṇī and Kṛṣṇa; *āsvādite*—to taste; *rādhā-bhāva*—the mood of Śrīmatī Rādhārāṇī; *aṅgī kariyāche*—He accepted; *bhāla-mate*—very well.
 
-**To taste the mellows of Śrīmatī Rādhārāṇī's loving affairs in Her relationship with Kṛṣṇa, and to understand the reservoir of pleasure in Kṛṣṇa, Kṛṣṇa Himself, as Śrī Caitanya Mahāprabhu, accepted the mood of Rādhārāṇī.**
+**To taste the mellow quality of Śrīmatī Rādhārāṇī's loving affairs in Her relationship with Kṛṣṇa, and to understand the reservoir of pleasure in Kṛṣṇa, Kṛṣṇa Himself, as Śrī Caitanya Mahāprabhu, accepted the mood of Rādhārāṇī.**
 
 In this connection Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura writes in his *Anubhāṣya,* "Śrī Gaurasundara is Kṛṣṇa Himself with the attitude of Śrīmatī Rādhārāṇī. Śrī Caitanya Mahāprabhu never gave up the attitude of the *gopīs.* He remained everlastingly predominated by Kṛṣṇa and never accepted the part of the predominator by imitating conjugal love with an ordinary woman, as *sahajiyās* generally do. He never placed Himself in the position of a debauchee. Lusty materialists like the members of the *sahajiyā-sampradāya* hanker after women, even others' wives. But when they try to ascribe the responsibility for their lusty activities to Śrī Caitanya Mahāprabhu, they become offenders to Svarūpa Dāmodara and Śrīla Vṛndāvana dāsa Ṭhākura. In *Śrī Caitanya-bhāgavata, Ādi-khaṇḍa,* Chapter Fifteen, it is said:
 

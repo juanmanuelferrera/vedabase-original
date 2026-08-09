@@ -8,7 +8,7 @@
 
 *pañcama*—five; *varṣera*—years; *bālaka*—small boy; *kahe*—says; *siddhāntera*—conclusive; *sāra*—essence; *śuniyā*—hearing; *pāilā*—got; *ācārya*—Advaita Ācārya; *santoṣa*—satisfaction; *apāra*—very much.
 
-**When Advaita Ācārya heard this statement from His five-year-old son Acyutānanda, He felt great satisfaction because of his conclusive judgment.**
+**When Advaita Ācārya heard this statement from His five-year-old son Acyutānanda, He felt great satisfaction because of his conclusive judgement.**
 
 Commenting on verses 13 through 17, Bhaktisiddhānta Sarasvatī Ṭhākura gives an extensive description of the descendants of Advaita Ācārya. The *Caitanya-bhāgavata, Antya-khaṇḍa,* Chapter One, states that Acyutānanda was the eldest son of Advaita Ācārya. The Sanskrit book *Advaita-carita* states, "Advaita Ācārya Prabhu had three sons, named Acyuta, Kṛṣṇa Miśra and Gopāla dāsa, all born of the womb of His wife, Sītādevī, who were devotees of Lord Caitanya. Advaita Ācārya also had three more sons, whose names were Balarāma, Svarūpa and Jagadīśa. Thus there were six sons of Advaita Ācārya." Among the six sons, three were strict followers of Lord Caitanya Mahāprabhu, and of these three, Acyutānanda was the eldest.
 

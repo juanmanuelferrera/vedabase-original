@@ -18,6 +18,6 @@ Nonetheless, everyone in devotional service can offer essential prayers to the L
 
 māṁ hi pārtha vyapāśritya ye 'pi syuḥ pāpa-yonayaḥ striyo vaiśyās tathā śūdrās te 'pi yānti parāṁ gatim
 
-"O son of Pṛthā, those who take shelter in Me, though they be of lower birth—women, vaiśyas [merchants], as well as śūdras [workers]—can approach the supreme destination." (Bg. 9.32)
+"O son of Pṛthā, those who take shelter in Me, though they be of lower birth—woman, vaiśyas [merchants], as well as śūdras [workers]—can approach the supreme destination." (Bg. 9.32)
 
 If one seriously accepts the lotus feet of the Lord, he is purified by the grace of the Lord and by the grace of the Lord's servant. This is confirmed by Śukadeva Gosvāmī: ye 'nye ca pāpā yad-apāśrayāśrayāḥ śudhyanti tasmai prabhaviṣṇave namaḥ (Bhāg. 2.4.18). One who is brought under the lotus feet of the Lord by the endeavor of the Lord's servant, the spiritual master, is certainly immediately purified, however lowborn he may be. He becomes eligible to return home, back to Godhead.

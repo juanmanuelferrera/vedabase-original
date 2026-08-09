@@ -12,7 +12,7 @@
 
 *sañcintayet*—he should concentrate; *bhagavataḥ*—of the Lord; *caraṇa-aravindam*—on the lotus feet; *vajra*—thunderbolt; *aṅkuśa*—goad (rod for driving elephants); *dhvaja*—banner; *saroruha*—lotus; *lāñchana*—marks; *āḍhyam*—adorned with; *uttuṅga*—prominent; *rakta*—red; *vilasat*—brilliant; *nakha*—nails; *cakravāla*—the circle of the moon; *jyotsnābhiḥ*—with splendor; *āhata*—dispelled; *mahat*—thick; *hṛdaya*—of the heart; *andhakāram*—darkness.
 
-**The devotee should first concentrate his mind on the Lord's lotus feet, which are adorned with the marks of a thunderbolt, a goad, a banner and a lotus. The splendor of their beautiful ruby nails resembles the orb of the moon and dispels the thick gloom of one's heart.**
+**The devotee should first concentrate his mind on the Lord's lotus feet, which are adorned with the marks of a thunderbolt, a goad, a banner and a lotus. The splendor of their beautiful ruby nails resembles the orbit of the moon and dispels the thick gloom of one's heart.**
 
 The Māyāvādī says that because one is unable to fix his mind on the impersonal existence of the Absolute Truth, one can imagine any form he likes and fix his mind on that imaginary form; but such a process is not recommended here. Imagination is always imagination and results only in further imagination.
 

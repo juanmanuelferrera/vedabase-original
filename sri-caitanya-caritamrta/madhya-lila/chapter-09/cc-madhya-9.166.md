@@ -10,4 +10,4 @@
 
 **When the Lord arrived at Ṛṣabha Hill, He saw the temple of Lord Nārāyaṇa and offered obeisances and various prayers.**
 
-Ṛṣabha Hill is in southern Karṇāṭa, in the district of Madurai. Twelve miles north of Madurai City is a place called Ānāgaḍa-malaya-parvata, which is situated within the forest of Kuṭakācala. Within this forest Lord Ṛṣabhadeva burned Himself to ashes. Now this place is known as Palni Hill.
+Ṛṣabha Hill is in southern Karṇāṭa, in the district of Madura. Twelve miles north of Madura City is a place called Ānāgaḍa-malaya-parvata, which is situated within the forest of Kuṭakācala. Within this forest Lord Ṛṣabhadeva burned Himself to ashes. Now this place is known as Palni Hill.

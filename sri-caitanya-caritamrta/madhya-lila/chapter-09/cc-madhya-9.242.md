@@ -10,4 +10,4 @@
 
 **Śrī Caitanya Mahāprabhu remained for two or three days at Ananta Padmanābha and visited the temple there. Then, with great ecstasy, He went to see the temple of Śrī Janārdana.**
 
-The temple of Śrī Janārdana is situated twenty-six miles north of Trivandrum, near the Varkāla railway station.
+The temple of Śrī Janārdana is situated twenty-six miles north of Trivandrama, near the Varkāla railway station.

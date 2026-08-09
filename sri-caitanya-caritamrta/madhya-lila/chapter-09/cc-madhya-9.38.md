@@ -10,4 +10,4 @@
 
 **After showing mercy to the brāhmaṇa, Lord Śrī Caitanya Mahāprabhu left the next day and arrived at Vṛddhakāśī, where He visited the temple of Lord Śiva.**
 
-Vṛddhakāśī's present name is Vṛddhācalam. It is situated in the southern Arcot district on the bank of the river Maṇimukha. This place is also known as Kālahastipura. Lord Śiva's temple there was worshiped for many years by Govinda, the cousin of Rāmānujācārya.
+Vṛddhakāśī's present name is Vṛddhācalam. It is situated in the southern Arkata district on the bank of the river Maṇimukha. This place is also known as Kālahastipura. Lord Śiva's temple there was worshiped for many years by Govinda, the cousin of Rāmānujācārya.

@@ -8,4 +8,4 @@
 
 *ei-mata*—in this way; *puruṣottama-vāsī*—the residents of Jagannātha Purī; *yata*—all; *jana*—persons; *prabhuke*—Lord Śrī Caitanya Mahāprabhu; *milite*—to meet; *sabāra*—of everyone; *utkaṇṭhita*—anxious; *mana*—mind.
 
-**Thus all the residents of Jagannātha Purī, which is also known as Puruṣottama, became anxious to meet Śrī Caitanya Mahāprabhu again.**
+**Thus all the residents of Jagannātha Purī, which is also known as Puruṣottama, were very anxious to meet Śrī Caitanya Mahāprabhu again.**

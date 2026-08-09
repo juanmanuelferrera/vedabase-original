@@ -23,7 +23,7 @@ Modern enterprisers (the astronauts who travel in space) may take information fr
 
 ā-brahma-bhuvanāl lokāḥ punar āvartino 'rjuna
 
-mām upetya tu kaunteya punar janma na vidyate
+mām apetya tu kaunteya punar janma na vidyate
 
 (Bg. 8.16)
 

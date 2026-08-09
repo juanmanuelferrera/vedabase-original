@@ -16,4 +16,4 @@
 
 Hiraṇyakaśipu's coming to this earth and acting as the Lord's enemy was prearranged. Jaya and Vijaya were cursed by the *brāhmaṇas* Sanaka, Sanat-kumāra, Sanandana and Sanātana because Jaya and Vijaya checked these four Kumāras. The Lord accepted this cursing of His servants and agreed that they would have to go to the material world and would then return to Vaikuṇṭha after serving the term of the curse. Jaya and Vijaya were very much perturbed, but the Lord advised them to act as enemies, for then they would return after three births; otherwise, ordinarily, they would have to take seven births. With this authority, Jaya and Vijaya acted as the Lord's enemies, and now that these two were dead, all the Viṣṇudūtas understood that the Lord's killing of Hiraṇyakaśipu was special mercy bestowed upon them.
 
-Thus end the Bhaktivedanta purports of the Seventh Canto, Third Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Lord Nṛsiṁhadeva Slays the King of the Demons."
+Thus end the Bhaktivedanta purports of the Seventh Canto, Eighth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Lord Nṛsiṁhadeva Slays the King of the Demons."

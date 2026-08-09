@@ -8,4 +8,4 @@
 
 *ucca*—loud; *kari'*—making; *gāya*—sings; *gīta*—songs; *deya*—practices; *karatāli*—clapping; *mṛdaṅga*—*mṛdaṅga* drum; *karatāla*—hand bells; *śabde*—by sounds; *karṇe*—in the ear; *lāge*—there is; *tāli*—blocking.
 
-**“ 'Now He loudly sings all kinds of songs, clapping, playing drums and hand cymbals, and making a tumultuous sound that deafens our ears.**
+**“ 'Now He loudly sings all kinds of songs, clapping, playing drums and hand bells, and making a tumultuous sound that deafens our ears.**

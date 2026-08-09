@@ -12,4 +12,4 @@
 
 **But those who, out of envy, disregard these teachings and do not practice them regularly, are to be considered bereft of all knowledge, befooled, and doomed to ignorance and bondage.**
 
-The flaw of not being Kṛṣṇa conscious is clearly stated herein. As there is punishment for disobedience to the order of the supreme executive head, so there is certainly punishment for the disobedience of the order of the Supreme Personality of Godhead. A disobedient person, however great he may be, is ignorant of his own self, of the Supreme Brahman, and Paramātmā and the Personality of Godhead, due to a vacant heart. Therefore there is no hope of perfection of life for him.
+The flaw of not being Kṛṣṇa conscious is clearly stated herein. As there is punishment for disobedience to the order of the supreme executive head, so there is certainly punishment for the disobedience of the order of the Supreme Personality of Godhead. A disobedient person, however great he may be, is ignorant of his own self, of the Supreme Brahman, and Paramātmā and the Personality of Godhead, due to a vacant heart. Therefor there is no hope of perfection of life for him.

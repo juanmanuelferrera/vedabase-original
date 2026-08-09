@@ -10,4 +10,4 @@
 
 **Later the Lord went to Cāmtāpura, where He saw the Deities of Lord Rāmacandra and Lakṣmaṇa. He then went to Śrī Vaikuṇṭha and saw the temple of Lord Viṣṇu there.**
 
-Cāmtāpura is sometimes called Ceṅgānura and is located in the state of Tribāṅkura. A temple of Lord Rāmacandra and Lakṣmaṇa is located there. Śrī Vaikuṇṭha-about four miles north of Alwar Tirunagarai and sixteen miles southeast of Tirunelveli-is situated on the bank of the Tāmraparṇī River.
+Cāmtāpura is sometimes called Ceṅgānura and is located in the state of Tribāṅkura. A temple of Lord Rāmacandra and Lakṣmaṇa is located there. Śrī Vaikuṇṭha-about four miles north of Aloyara tirunagari and sixteen miles southeast of Tinebheli-is situated on the bank of the Tāmraparṇī River.

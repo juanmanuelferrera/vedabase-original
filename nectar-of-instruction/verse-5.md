@@ -10,7 +10,7 @@
 > śuśrūṣayā bhajana-vijñam ananyam anya-\
 > nindādi-śūnya-hṛdam īpsita-saṅga-labdhyā
 
-*kṛṣṇa*—the holy name of Lord Kṛṣṇa; *iti*—thus; *yasya*—of whom; *giri*—in the words or speech; *tam*—him; *manasā*—by the mind; *ādriyeta*—one must honour; *dīkṣā*—initiation; *asti*—there is; *cet*—if; *praṇatibhiḥ*—by obeisances; *ca*—also; *bhajantam*—engaged in devotional service; *īśam*—unto the Supreme Personality of Godhead; *śuśrūṣayā*—by practical service; *bhajana-vijñam*—one who is advanced in devotional service; *ananyam*—without deviation; *anya-nindā-ādi*—of blasphemy of others, etc.; *śūnya*—completely devoid; *hṛdam*—whose heart; *īpsita*—desirable; *saṅga*—association; *labdhyā*—by gaining.
+*kṛṣṇa*—the holy name of Lord Kṛṣṇa; *iti*—thus; *yasya*—of whom; *giri*—in the words or speech; *tam*—him; *manasā*—by the mind; *ādriyeta*—one must honor; *dīkṣā*—initiation; *asti*—there is; *cet*—if; *praṇatibhiḥ*—by obeisances; *ca*—also; *bhajantam*—engaged in devotional service; *īśam*—unto the Supreme Personality of Godhead; *śuśrūṣayā*—by practical service; *bhajana-vijñam*—one who is advanced in devotional service; *ananyam*—without deviation; *anya-nindā-ādi*—of blasphemy of others, etc.; *śūnya*—completely devoid; *hṛdam*—whose heart; *īpsita*—desirable; *saṅga*—association; *labdhyā*—by gaining.
 
 **One should mentally honor the devotee who chants the holy name of Lord Kṛṣṇa, one should offer humble obeisances to the devotee who has undergone spiritual initiation [dīkṣā] and is engaged in worshiping the Deity, and one should associate with and faithfully serve that pure devotee who is advanced in undeviated devotional service and whose heart is completely devoid of the propensity to criticize others.**
 

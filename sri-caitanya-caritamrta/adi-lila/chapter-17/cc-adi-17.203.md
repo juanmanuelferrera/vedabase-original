@@ -8,7 +8,7 @@
 
 *eta śuni'*—after hearing all this; *tā'-sabhāre*—all of them; *ghare*—back home; *pāṭhāila*—sent; *hena-kāle*—at that time; *pāṣaṇḍī*—nonbeliever; *hindu*—Hindus; *pāṅca-sāta*—five or seven; *āila*—came.
 
-**"After hearing all this, I sent all the mlecchas back to their homes. Five or seven nonbelieving Hindus then approached me.**
+**"After hearing all this, I sent all the mlecchas back to their homes. Five or seven nonbeliving Hindus then approached me.**
 
 The word *pāṣaṇḍī* refers to nonbelievers engaged in fruitive activities and to idolatrous worshipers of many demigods. *Pāṣaṇḍīs* do not believe in one God, the Supreme Personality, Lord Viṣṇu; they think that all the demigods have the same potency as Him. The definition of a *pāṣaṇḍī* is given in the *tantra-śāstra:*
 

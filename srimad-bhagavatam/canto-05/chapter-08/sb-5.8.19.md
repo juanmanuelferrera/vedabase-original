@@ -8,7 +8,7 @@
 
 **Alas, when the sun rises, all auspicious things begin. Unfortunately, they have not begun for me. The sun-god is the Vedas personified, but I am bereft of all Vedic principles. That sun-god is now setting, yet the poor animal who trusted in me since its mother died has not returned.**
 
-In the *Brahma-saṁhitā* (5.52), the sun is considered to be the eye of the Supreme Personality of Godhead.
+In the *Brahma-saṁhitā* (5.52), the sun is described as the eye of the Supreme Personality of Godhead.
 
 > yac-cakṣur eṣa savitā sakala-grahāṇāṁ
 > rājā samasta-sura-mūrtir aśeṣa-tejāḥ

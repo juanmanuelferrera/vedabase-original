@@ -10,7 +10,7 @@
 
 *yathā*—as; *nabhasi*—in the sky; *abhra*—clouds; *tamaḥ*—darkness; *prakāśāḥ*—and illumination; *bhavanti*—exist; *bhū-pāḥ*—O Kings; *na bhavanti*—do not appear; *anukramāt*—consecutively; *evam*—thus; *pare*—supreme; *brahmaṇi*—in the Absolute; *śaktayaḥ*—energies; *tu*—then; *amūḥ*—those; *rajaḥ*—passion; *tamaḥ*—darkness; *sattvam*—goodness; *iti*—thus; *pravāhaḥ*—emanation.
 
-**My dear Kings, sometimes in the sky there are clouds, sometimes there is darkness, and sometimes there is illumination. The appearance of all these takes place consecutively. Similarly, in the Supreme Absolute, the modes of passion, darkness and goodness appear as consecutive energies. Sometimes they appear, and sometimes they disappear.**
+**My dear Kings, sometimes in the sky there are clouds, sometimes there is darkness, and sometimes there is illumination. The appearance of all these take place consecutively. Similarly, in the Supreme Absolute, the modes of passion, darkness and goodness appear as consecutive energies. Sometimes they appear, and sometimes they disappear.**
 
 Darkness, illumination and clouds sometimes appear and sometimes disappear, but even when they have disappeared, the potency is still there, always existing. In the sky sometimes we see clouds, sometimes rainfall and sometimes snow. Sometimes we see night, sometimes day, sometimes illumination and sometimes darkness. All these exist due to the sun, but the sun is unaffected by all these changes. Similarly, although the Supreme Personality of Godhead is the original cause of the total cosmic manifestation, He is unaffected by the material existence. This is confirmed in Bhagavad-gītā:
 
@@ -30,4 +30,4 @@ mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram
 
 "This material nature is working under My direction, O son of Kuntī, and producing all moving and unmoving beings." (Bg. 9.10)
 
-The Supreme Lord casts His glance over material energy, and His glance agitates the three modes of nature. Creation then takes place. The conclusion is that nature is not the cause of the material manifestation. The Supreme Lord is the cause of all causes.
+The Supreme Lord casts His glance over material energy, and His glance agitates the three modes of nature. Creation then take place. The conclusion is that nature is not the cause of the material manifestation. The Supreme Lord is the cause of all causes.

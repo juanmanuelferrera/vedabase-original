@@ -10,4 +10,4 @@
 
 **The next morning the poet came to Lord Caitanya and surrendered unto His lotus feet. The Lord bestowed His mercy upon him and cut off all his bondage to material attachment.**
 
-The same process advocated by Lord Śrī Kṛṣṇa in His teachings of the*Bhagavad-gītā* as it is—"Surrender unto Me in all instances"—was advocated by Lord Caitanya Mahāprabhu. The champion surrendered unto the Lord, and the Lord favored him. One who is favored by the Lord is freed from material bondage, as stated in *Bhagavad-gītā* [[bg/4/9|(Bg. 4.9)]]: *tyaktvā dehaṁ punar janma naiti mām eti so 'rjuna.*
+The same process advocated by Lord Śrī Kṛṣṇa in His teachings of the*Bhagavad-gītā* as it is—"Surrender unto Me in all instances"—was advocated by Lord Caitanya Mahāprabhu. The champion surrendered unto the Lord, and the Lord favored him. One who is favored by the Lord is freed from material bondage, as stated in *Bhagavad-gītā* [[bg/4/9|(Bg. 4.9)]]: *tyaktvā dehaṁ punar janma naiti mām etl so 'rjuna.*

@@ -10,7 +10,7 @@
 
 **Śrī Caitanya Mahāprabhu asked, "What should all living entities constantly remember?"**
 
-**Rāmānanda Rāya replied, "The chief objects of remembrance is always the Lord's holy name of the Lord, His qualities and pastimes."**
+**Rāmānanda Rāya replied, "The chief object of remembrance is always the Lord's holy name of the Lord, His qualities and pastimes."**
 
 Śrīmad-Bhāgavatam (2.2.36) states:
 

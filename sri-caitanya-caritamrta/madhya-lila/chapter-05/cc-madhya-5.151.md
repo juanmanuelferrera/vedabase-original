@@ -8,4 +8,4 @@
 
 *mora*—My; *aparādhe*—by the offense; *tomāra*—Your; *daṇḍa*—*sannyāsa* staff; *ha-ila*—became; *khaṇḍa*—broken; *ye*—whatever; *ucita*—fitting; *haya*—is; *mora*—to Me; *kara*—do; *tāra*—for that; *daṇḍa*—punishment.
 
-**"It is certainly because of My offense that Your staff was broken. Now You can punish Me on this account as You think proper."**
+**"It is certainly because of My offense that Your staff has broken. Now You can punish Me on this account as You think proper."**

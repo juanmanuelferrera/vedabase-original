@@ -22,7 +22,7 @@ Thus in this verse it is said (na anurūpam) that the King could never find a pl
 
 "The Supreme Lord is situated in everyone's heart, O Arjuna, and is directing the wanderings of all living entities, who are seated as on a machine, made of the material energy." (Bg. 18.61)
 
-The living entity is carried in the machine of the body through so many species of life on so many planets. Therefore Bhaktivinoda Ṭhākura asks the living entity why he is being carried away in these bodily machines to be placed in so many different circumstances. He advises that one surmount the waves of māyā by surrendering unto Kṛṣṇa. (Jīva) kṛṣṇa-dāsa, ei viśvāsa, karle ta' āra duḥkha nāi. As soon as we confront Kṛṣṇa, Kṛṣṇa advises:
+The living entity is carried in the machine of the body through so many species of life on so many planets. Therefore Bhaktivinoda Ṭhākura asks the living entity why he is being carried away in these bodily machines to be placed in so many different circumstances. He advises that one surmount the waves of māyā by surrendering unto Kṛṣṇa. (Jīva) kṛṣṇa-dāsa, e viśvāsa, karle ta' āra duḥkha nāi. As soon as we confront Kṛṣṇa, Kṛṣṇa advises:
 
 sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja ahaṁ tvāṁ sarva-pāpebhyo mokṣayiṣyāmi mā śucaḥ
 
