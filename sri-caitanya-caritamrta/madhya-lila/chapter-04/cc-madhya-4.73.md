@@ -8,4 +8,4 @@
 
 *tāra pāśe*—around the stack of rice; *ruṭi*—of chapatis; *rāśira*—of stacks; *parvata*—another small hill; *ha-ila*—became; *sūpa-ādi*—of all liquid vegetables; *vyañjana*—and of all other vegetables; *bhāṇḍa*—pots; *caudike*—all around; *dharila*—were placed.
 
-**Around the stack of cooked rice were stacks of chapatis, and all the vegetables and liquid vegetable preparations were placed in different pots and put around them.**
+**Around the stack of cooked rice were stacks of chappatis, and all the vegetables and liquid vegetable preparations were placed in different pots and put around them.**
