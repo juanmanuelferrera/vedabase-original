@@ -8,6 +8,6 @@
 
 *sūtrera artha*—meanings of the *sūtras*; *bhāṣya*—the purport; *kahe*—one speaks; *prakāśiyā*—clearly manifesting; *tumi*—you; *bhāṣya kaha*—make a comment; *sūtrera*—of the verses; *artha*—the meanings; *ācchādiyā*—covering.
 
-**"The meaning of the verses in the Vedānta-sūtra contain clear purports in themselves, but other purports you presented simply covered the meaning of the sūtras like a cloud.**
+**"The meaning of the verses in the Vedānta-sūtra contain clear purports in themselves, but other purports you presented simply covered the meaning of the sūtra like a cloud.**
 
 Please refer to *Ādi-līlā,* Seventh Chapter, verses 106-146, for an explanation of this verse.

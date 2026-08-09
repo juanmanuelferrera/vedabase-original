@@ -24,7 +24,7 @@ bhavatād bhaktir ahaitukī tvayi
 
 
 
-"O almighty Lord! I have no desire to accumulate wealth, nor have I any desire to enjoy beautiful women, nor do I want any number of followers. What I want only is that I may have Your causeless devotional service in my life-birth after birth." (Śikṣāṣṭaka 4)
+"O almighty Lord! I have no desire to accumulate wealth, nor have I any desire to enjoy beautiful women, nor do I want any number of followers. What I want only is that I may have Your causeless devotional service in my life-birth after birth." (Śikṣāṣṭakamm 4)
 
 
 

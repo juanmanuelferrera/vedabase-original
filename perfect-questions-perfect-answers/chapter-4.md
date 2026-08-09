@@ -122,7 +122,7 @@ Yes, you can learn more and more.
 But I still have... my connections at home. Marriage is... I am engaged....
 
 **Śrīla Prabhupāda:**
-No, no. There are so many marriages. [*He indicates Śyāmasundara*.] He is married. Marriage is no barrier. I told you that there are four different orders of spiritual life—*brahmacārī, gṛhastha, vānaprastha* and *sannyāsa.* So after *brahmacārī* life, one can marry. That is not obligatory. One may remain *naiṣṭhika-brahmacārī* for his whole life. But a *brahmacārī* can marry. And after marriage, there is *vānaprastha* life. This means that one is a little aloof from family—the husband and wife live separately. At that time there is no sex life. Then when he is fully renounced, detached from family life, he takes *sannyāsa*,
+No, no. There are so many marriages. [*He indicates Śyāmasundara*.] He is married. Marriage is no barrier. I told you that there are four different orders of spiritual life—*brahmacārī, gṛhastha, vānaprastha* and *sannyāsa.* So after *brahmacārī* life, one can marry. That is not obligatory. One may remain *naiṣṭika-brahmacārī* for his whole life. But a *brahmacārī* can marry. And after marriage, there is *vānaprastha* life. This means that one is a little aloof from family—the husband and wife live separately. At that time there is no sex life. Then when he is fully renounced, detached from family life, he takes *sannyāsa*,
 
 **Bob:**
 Does somebody forget his wife completely then?

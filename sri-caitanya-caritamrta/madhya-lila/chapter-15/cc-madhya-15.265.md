@@ -8,7 +8,7 @@
 
 **"When a husband is fallen, his relationship must be given up."**
 
-This is a quotation from *smṛti-śāstram.* As stated in *Śrīmad-Bhāgavatam* (7.11.28):
+This is a quotation from *smṛti-śāstra.* As stated in *Śrīmad-Bhāgavatam* (7.11.28):
 
 > santuṣṭālolupā dakṣā
 > dharma-jñā priya-satya-vāk

@@ -10,7 +10,7 @@
 
 **The seed of devotional service next fructified in the form of Śrī Īśvara Purī, and then the gardener Himself, Caitanya Mahāprabhu, became the main trunk of the tree of devotional service.**
 
-Śrī Īśvara Purī was a resident of Kumāra-haṭṭa, where there is now a railroad station known as Kāmarhaṭṭa. Nearby there is also another station named Hālisahara, which belongs to the Eastern Railway that runs from the eastern section of Calcutta.
+Śrī Īśvara Purī was a resident of Kumāra-haṭṭa, where there is now a railroad station known as Kāmarhaṭṭy. Nearby there is also another station named Hālisahara, which belongs to the Eastern Railway that runs from the eastern section of Calcutta.
 
 Īśvara Purī appeared in a *brāhmaṇa* family and was the most beloved disciple of Śrīla Mādhavendra Purī. In the last portion of *Caitanya-caritāmṛta*, Chapter Eight, verses 26-29, it is stated:
 

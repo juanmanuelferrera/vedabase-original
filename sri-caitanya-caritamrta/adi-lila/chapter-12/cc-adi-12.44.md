@@ -8,4 +8,4 @@
 
 *prabhuke*—unto the Lord; *kahena*—says; *tomāra*—Your; *nā*—do not; *bujhi*—I understand; *e*—these; *līlā*—pastimes; *āmā*—Myself; *haite*—more than; *prasāda-pātra*—object of favor; *karilā*—You did; *kamalā*—unto Kamalā Viśvāsa.
 
-**Śrī Advaita Ācārya told Lord Caitanya, "ḷ cannot understand Your transcendental pastimes. You have shown more favor to Kamalākānta than You generally show to Me.**
+**Śrī Advaita Ācārya told Lord Caitanya, "I cannot understand Your transcendental pastimes. You have shown more favor to Kamalākānta than You generally show to Me.**

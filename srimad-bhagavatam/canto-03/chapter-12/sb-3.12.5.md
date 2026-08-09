@@ -12,7 +12,7 @@
 
 **Brahmā spoke to his sons after generating them. "My dear sons," he said, "now generate progeny." But due to their being attached to Vāsudeva, the Supreme Personality of Godhead, they aimed at liberation, and therefore they expressed their unwillingness.**
 
-The four sons of Brahmā, the Kumāras, declined to become family men even on the request of their great father, Brahmā. Those who are serious about gaining release from material bondage should not be entangled in the false relationship of family bondage. People may ask how the Kumāras could refuse the orders of Brahmā, who was their father and above all the creator of the universe. The reply is that one who is *vāsudeva-parāyaṇa,* or seriously engaged in the devotional service of the Personality of Godhead, Vāsudeva, need not care for any other obligation. It is enjoined in the *Bhāgavatam* (11.5.41):
+The four sons of Brahmā, the Kumāras, declined to become family men even on the request of their great father, Brahmā. Those who are serious about gaining release from material bondage should not be entangled in the false relationship of family bondage. People may ask how the Kumāras could refuse the orders of Brahmā, who was their father and above all the creator of the universe. The reply is that one who is *vāsudeva-parāyaṇaḥ,* or seriously engaged in the devotional service of the Personality of Godhead, Vāsudeva, need not care for any other obligation. It is enjoined in the *Bhāgavatam* (11.5.41):
 
 > devarṣi-bhūtāpta-nṛṇāṁ pitṝṇāṁ
 > na kiṅkaro nāyam ṛṇī ca rājan

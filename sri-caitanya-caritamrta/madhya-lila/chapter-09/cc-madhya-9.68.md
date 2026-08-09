@@ -10,4 +10,4 @@
 
 **Arriving at Śiva-kāñcī, Caitanya Mahāprabhu visited the deity of Lord Śiva. By His influence, He converted all the devotees of Lord Śiva into Vaiṣṇavas.**
 
-Śiva-kāñcī is also known as Kañjīvaramā, or the Benares of southern India. In Śiva-kāñcī there are hundreds of temples containing symbolic representations of Lord Śiva, as well as a temple that is supposed to be very, very old.
+Śiva-kāñcī is also known as Kañjibhirām, or the Benares of southern India. In Śiva-kāñcī there are hundreds of temples containing symbolic representations of Lord Śiva, as well as a temple that is supposed to be very, very old.

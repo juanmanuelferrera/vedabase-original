@@ -20,7 +20,7 @@ icchā-dveṣa-samutthena dvandva-mohena bhārata sarva-bhūtāni sammohaṁ sar
 
 This is an explanation of how the living entity falls down into this material world. In the spiritual world there is no duality, nor is there hate. The Supreme Personality of Godhead expands Himself into many. In order to enjoy bliss more and more, the Supreme Lord expands Himself in different categories. As mentioned in the Varāha Purāṇa, He expands Himself in viṣṇu-tattva (the svāṁśa expansion) and in His marginal potency (the vibhinnāṁśa, or the living entity). These expanded living entities are innumerable, just as the minute molecules of sunshine are innumerable expansions of the sun. The vibhinnāṁśa expansions, the marginal potencies of the Lord, are the living entities. When the living entities desire to enjoy themselves, they develop a consciousness of duality and come to hate the service of the Lord. In this way the living entities fall into the material world. In the Prema-vivarta it is said:
 
-kṛṣṇa-bahirmukha hañā bhoga-vāñchā kare nikaṭa-stha māyā tāre jāpaṭiyā dhare
+kṛṣṇa-bahirmukha hañā bhoga-vāñcā kare nikaṭa-stha māyā tāre jāpaṭiyā dhare
 
 The natural position of the living entity is to serve the Lord in a transcendental loving attitude. When the living entity wants to become Kṛṣṇa Himself or imitate Kṛṣṇa, he falls down into the material world. Since Kṛṣṇa is the Supreme Father, His affection for the living entity is eternal. When the living entity falls down into the material world, the Supreme Lord, through His svāṁśa expansion (Paramātmā), keeps company with the living entity. In this way the living entity may some day return home, back to Godhead.
 

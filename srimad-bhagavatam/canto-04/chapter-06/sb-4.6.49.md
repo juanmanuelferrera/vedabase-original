@@ -18,6 +18,6 @@ daivī hy eṣā guṇamayī mama māyā duratyayā mām eva ye prapadyante māy
 
 "My divine energy consisting of the three modes of material nature is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it." (Bg. 7.14) A Vaiṣṇava should take care of those who are bewildered by this māyā instead of becoming angry with them because without a Vaiṣṇava's mercy they have no way to get out of the clutches of māyā. Those who have been condemned by māyā are rescued by the mercy of devotees.
 
-vāñchā-kalpatarubhyaś ca kṛpā-sindhubhya eva ca patitānāṁ pāvanebhyo vaiṣṇavebhyo namo namaḥ
+vāñcā-kalpatarubhyaś ca kṛpā-sindhubhya eva ca patitānāṁ pāvanebhyo vaiṣṇavebhyo namo namaḥ
 
 "I offer my respectful obeisances unto all the Vaiṣṇava devotees of the Lord. They are just like desire trees who can fulfill the desires of everyone, and they are full of compassion for the fallen conditioned souls." Those who are under the influence of the illusory energy are attracted to fruitive activities, but a Vaiṣṇava preacher attracts their hearts to the Supreme Personality of Godhead, Śrī Kṛṣṇa.

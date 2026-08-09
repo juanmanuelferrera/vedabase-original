@@ -10,4 +10,4 @@
 
 **The Lord then visited a holy place known as Viṣṇu-kāñcī. He saw there Lakṣmī-Nārāyaṇa Deities, and He offered His respects and many prayers to please Them.**
 
-Viṣṇu-kāñcī is situated about five miles away from Kañjīvaramā. It is here that Lord Varadarāja, another form of Lord Viṣṇu, resides. There is also a big lake known as Ananta-sarovara.
+Viṣṇu-kāñcī is situated about five miles away from Kañjibhirām. It is here that Lord Varadarāja, another form of Lord Viṣṇu, resides. There is also a big lake known as Ananta-sarovara.

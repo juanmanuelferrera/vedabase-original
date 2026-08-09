@@ -10,4 +10,4 @@
 
 **"In the Bhagavad-gītā the living entity is established as the marginal potency of the Supreme Personality of Godhead. Yet you say that the living entity is completely different from the Lord.**
 
-The *Brahma-sūtra* states that according to the principle of *śakti-śaktimatayor abhedaḥ,* the living entity is simultaneously one with and different from the Supreme Personality of Godhead. Qualitatively the living entity and the Supreme Lord are one, but in quantity they are different. According to Śrī Caitanya Mahāprabhu's philosophy (*acintya-bhedābheda-tattva*), the living entity and the Supreme Lord are accepted as one and different at the same time.
+The *Brahma-sūtra* states that according to the principle of *śakti-śaktimator abhedaḥ,* the living entity is simultaneously one with and different from the Supreme Personality of Godhead. Qualitatively the living entity and the Supreme Lord are one, but in quantity they are different. According to Śrī Caitanya Mahāprabhu's philosophy (*acintya-bhedābheda-tattva*), the living entity and the Supreme Lord are accepted as one and different at the same time.

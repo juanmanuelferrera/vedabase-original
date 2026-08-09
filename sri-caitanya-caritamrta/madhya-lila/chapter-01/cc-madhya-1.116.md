@@ -10,4 +10,4 @@
 
 **After that, Lord Caitanya Mahāprabhu delivered the celebrated Saptatāla tree, took His bath at Setubandha Rāmeśvara and visited the temple of Lord Śiva known as Rāmeśvara.**
 
-It is said that the Saptatāla tree is a very old, massive palm tree. There was once a fight between Vāliand his brother Sugrīva, and Lord Rāmacandra took the side of Sugrīva and killed Vāli, keeping Himself behind this celebrated tree. When Lord Caitanya Mahāprabhu toured south India, He embraced this tree, which was delivered and directly promoted to Vaikuṇṭha.
+It is said that the Saptatāla tree is a very old, massive palm tree. There was once a fight between Vāliand his brother Sugrīva, and Lord Rāmacandra took the side of Sugrīva and killed Bali, keeping Himself behind this celebrated tree. When Lord Caitanya Mahāprabhu toured south India, He embraced this tree, which was delivered and directly promoted to Vaikuṇṭha.

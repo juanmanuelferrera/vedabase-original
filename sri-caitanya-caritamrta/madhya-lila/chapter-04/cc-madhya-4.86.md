@@ -32,6 +32,6 @@ Formerly, at the end of Dvāpara-yuga, all the cowherd men of Vṛndāvana had a
 > go-dhanāni puras-kṛtya
 > giriṁ cakruḥ pradakṣiṇam
 
-“ 'Prepare very nice foodstuffs of all descriptions from the grains and ghee collected for the *yajña.* Prepare rice, *dāl,* then halavah, *pākorā, purī* and all kinds of milk preparations like sweet rice, sweetballs, *sandeśa, rasagullā* and *lāḍḍu.*'
+“ 'Prepare very nice foodstuffs of all descriptions from the grains and ghee collected for the *yajña.* Prepare rice, *dahl,* then halavah, *pākorā, purī* and all kinds of milk preparations like sweet rice, sweetballs, *sandeśa, rasagullā* and *lāḍḍu.*'
 
 "The Supreme Personality of Godhead, Kṛṣṇa, therefore advised the cowherd men to stop the Indra-yajña and begin the Govardhana-pūjā to chastise Indra, who was very much puffed up at being the supreme controller of the heavenly planets. The honest and simple cowherd men, headed by Nanda Mahārāja, accepted Kṛṣṇa's proposal and executed in detail everything He advised. They performed Govardhana worship and circumambulation of the hill. According to the instruction of Lord Kṛṣṇa, Nanda Mahārāja and the cowherd men called in learned *brāhmaṇas* and began to worship Govardhana Hill by chanting Vedic hymns and offering *prasāda.* The inhabitants of Vṛndāvana assembled together, decorated their cows and gave them grass. Keeping the cows in front, they began to circumambulate Govardhana Hill."

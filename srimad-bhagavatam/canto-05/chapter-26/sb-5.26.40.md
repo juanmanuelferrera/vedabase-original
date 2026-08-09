@@ -12,7 +12,7 @@
 
 *bhū*—of this planet earth; *dvīpa*—and other different planetary systems; *varṣa*—of tracts of land; *sarit*—rivers; *adri*—mountains; *nabhaḥ*—the sky; *samudra*—oceans; *pātāla*—lower planets; *dik*—directions; *naraka*—the hellish planets; *bhāgaṇa-loka*—the luminaries and higher planets; *saṁsthā*—the situation; *gītā*—described; *mayā*—by me; *tava*—for you; *nṛpa*—O King; *adbhutam*—wonderful; *īśvarasya*—of the Supreme Personality of Godhead; *sthūlam*—gross; *vapuḥ*—body; *sakala-jīva-nikāya*—of all the masses of living entities; *dhāma*—which is the place of repose.
 
-**My dear King, I have now described for you this planet earth, other planetary systems, and their lands [varṣas], rivers and mountains. I have also described the sky, the oceans, the lower planetary systems, the directions, the hellish planetary systems and the stars. These constitute the virāṭ-rūpa, the gigantic material form of the Lord, on which all living entities repose. Thus I have explained the wonderful expanse of the external body of the Lord.**
+**My dear King, I have now described for you this planet earth, other planetary systems, and their lands [varṣas], rivers and mountains. I have also described the sky, the oceans, the lower planetary systems, the directions, the hellish planetary systems and the stars. These constitute the virāṭa-rūpa, the gigantic material form of the Lord, on which all living entities repose. Thus I have explained the wonderful expanse of the external body of the Lord.**
 
 Thus end the Bhaktivedanta purports of the Fifth Canto, Twenty-sixth Chapter, of *Śrīmad-Bhāgavatam,* entitled "A Description of the Hellish Planets."
 

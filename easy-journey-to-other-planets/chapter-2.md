@@ -198,7 +198,7 @@ We are eternally connected with the Supreme Lord, but somehow or other we are no
 
 
 
-There is a very common Bengali proverb that says that whatever one does for perfection will be tested at the time of his death. *Bhagavad-gītā* describes what we should do at the point of our death, when we are giving up this present body. For the dhyāna-yogī (meditator) Śrī Kṛṣṇa speaks the following verses:
+There is a very common Bengali proverb that says that whatever one does for perfection will be tested at the time of his death. *Bhagavad-gītā* describes what we should do at the point of our death, when we are giving up this present body. For the dyana-yogī (meditator) Śrī Kṛṣṇa speaks the following verses:
 
 
 

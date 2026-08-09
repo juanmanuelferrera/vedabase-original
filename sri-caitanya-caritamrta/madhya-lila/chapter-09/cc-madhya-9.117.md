@@ -12,4 +12,4 @@
 
 **Veṅkaṭa Bhaṭṭa continued, " 'According to transcendental realization, there is no difference between the forms of Nārāyaṇa and Kṛṣṇa. Yet in Kṛṣṇa there is a special transcendental attraction due to the conjugal mellow, and consequently He surpasses Nārāyaṇa. This is the conclusion of transcendental mellows.'**
 
-This verse quoted by Veṅkaṭa Bhaṭṭa is also found in *Bhakti-rasāmṛta-sindhu* (1.2.59).
+This verse quoted by Vyeṅkaṭa Bhaṭṭa is also found in *Bhakti-rasāmṛta-sindhu* (1.2.59).

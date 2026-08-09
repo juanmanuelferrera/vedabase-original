@@ -22,7 +22,7 @@ It is said that this part of the world is situated on the western side of the Me
 
 Bhāratavarṣa: This part of the world is also one of the nine varṣas of the Jambūdvīpa or earthly planet. Each planet is also sometimes called a dvīpa because of its being an island in the fathomless outer space. Each planet is factually an island in the airy ocean of outer space. Jambūdvīpa is only one of such countless islands in this airy ocean of space. A description of Bhāratavarṣa is given in the Mahābhārata (Bhīṣma Parva, Chapters 9 to 10).
 
-Uttarān: According to Śrīdhara Svāmī these parts of the world are called Ilāvrtavarṣa, or the Mediterranean countries of Europe. The description of the Ilāvrtavarṣa is given in the Mahābhārata (Sabhā 28.6-7) as follows:
+Uttarān: According to Śrīdhara Svāmī these parts of the world are called Ilāvartavarṣa, or the Mediterranean countries of Europe. The description of the Ilāvrtavarṣa is given in the Mahābhārata (Sabhā 28.6-7) as follows:
 
 nagaraś ca vanaṁ ca vā nadīś ca vimalodakaḥ
 

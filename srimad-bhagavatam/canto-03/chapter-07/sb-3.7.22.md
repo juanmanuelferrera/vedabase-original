@@ -10,6 +10,6 @@
 
 *yam*—who; *āhuḥ*—is called; *ādyam*—original; *puruṣam*—incarnation for cosmic manifestation; *sahasra*—thousand; *aṅghri*—legs; *ūru*—thighs; *bāhukam*—hands; *yatra*—wherein; *viśvaḥ*—the universe; *ime*—all these; *lokāḥ*—planets; *sa-vikāśam*—with respective developments; *sam*—all of them; *āsate*—living.
 
-**The puruṣa incarnation lying on the Causal Ocean is called the original puruṣa in the material creations, and in His virāṭ form, in whom all the planets and their inhabitants live, He has many thousands of legs and hands.**
+**The puruṣa incarnation lying on the Causal Ocean is called the original puruṣa in the material creations, and in His virāṭa form, in whom all the planets and their inhabitants live, He has many thousands of legs and hands.**
 
 The first *puruṣa* is Kāraṇodakaśāyī Viṣṇu, the second *puruṣa* is Garbhodakaśāyī Viṣṇu, and the third *puruṣa* is Kṣīrodakaśāyī Viṣṇu, in whom is contemplated the *virāṭ-puruṣa,* the gigantic form in which all the planets with their different developments and inhabitants are floating.

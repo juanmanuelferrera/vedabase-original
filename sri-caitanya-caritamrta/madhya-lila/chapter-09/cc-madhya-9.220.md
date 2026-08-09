@@ -10,4 +10,4 @@
 
 **After this, Śrī Caitanya Mahāprabhu went to a holy place known as Ciyaḍatalā, where He saw the Deities of the two brothers Lord Rāmacandra and Lakṣmaṇa. He then proceeded to Tila-kāñcī, where He saw the temple of Lord Śiva.**
 
-Ciyaḍatalā is sometimes known as Cheratalā. It is near the city of Kaila, and there is a temple there dedicated to Lord Śrī Rāmacandra and His brother Lakṣmaṇa. Tila-kāñcī is about thirty miles northeast of the city of Tinebheli.
+Ciyaḍatalā is sometimes known as Cheratalā. It is near the city of Kaila, and there is a temple there dedicated to Lord Śrī Rāmacandra and His brother Lakṣmaṇa. Tilankāñcī is about thirty miles northeast of the city of Tinebheli.
