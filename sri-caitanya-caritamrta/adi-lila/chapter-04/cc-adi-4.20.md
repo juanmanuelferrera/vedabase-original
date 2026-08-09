@@ -8,7 +8,7 @@
 > mama vartmānuvartante\
 > manuṣyāḥ pārtha sarvaśaḥ
 
-*ye*—those who; *yathā*—as; *mām*—to Me; *prapadyante*—surrender; *tān*—them; *tathā*—so; *eva*—certainly; *bhajāmi*—reward; *aham*—I; *mama*—My; *vartma*—path; *anuvartante*—follow; *manuṣyāḥ*—men; *pārtha*—O son of Pṛthā; *sarvaśaḥ*—in all respects.
+*ye*—those who; *yathā*—as; *mām*—to Me; *prapadyante*—surrender; *tān*—him; *tathā*—so; *eva*—certainly; *bhajāmi*—reward; *aham*—I; *mama*—My; *vartma*—path; *anuvartante*—follow; *manuṣyāḥ*—men; *pārtha*—O son of Pṛthā; *sarvaśaḥ*—in all respects.
 
 **“ 'In whatever way My devotees surrender unto Me, I reward him accordingly. Everyone follows My path in all respects, O son of Pṛthā.'**
 

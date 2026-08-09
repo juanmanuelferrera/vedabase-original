@@ -10,4 +10,4 @@
 
 **As a matter of principle, Lord Caitanya regularly accepted His food at the house of Tapana Miśra. He never mixed with other sannyāsīs, nor did He accept invitations from them.**
 
-This exemplary behavior of Lord Caitanya definitely proves that a Vaiṣṇava *sannyāsī* cannot accept invitations from Māyāvādī *sannyāsīs* or intimately mix with them.
+This exemplary behavior of Lord Caitanya definitely proves that a Vaiṣṇava *sannyāsī* cannot accept invitations from Māyāvādī *sannyāsīs* nor intimately mix with them.

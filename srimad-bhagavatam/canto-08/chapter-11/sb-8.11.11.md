@@ -8,6 +8,6 @@
 > nāmṛṣyat tad-adhikṣepaṁ\
 > totrāhata iva dvipaḥ
 
-*evam*—thus; *nirākṛtaḥ*—being defeated; *devaḥ*—King Indra; *vairiṇā*—by his enemy; *tathya-vādinā*—who was competent to speak the truth; *na*—not; *amṛṣyat*—lamented; *tat*—of him (Bali); *adhikṣepam*—the chastisement; *totra*—by the scepter or rod; *āhataḥ*—being beaten; *iva*—just like; *dvipaḥ*—an elephant.
+*evam*—thus; *nirākṛtaḥ*—being defeated; *devaḥ*—King Indra; *vairiṇā*—by his enemy; *tathya-vādinā*—who was competent to speak the truth; *na*—not; *amṛṣyat*—lamented; *tat*—of him (Bali); *adhikṣepam*—the chastisement; *totra*—by the scepter or rod; *āhataḥ*—being beated; *iva*—just like; *dvipaḥ*—an elephant.
 
 **Since Mahārāja Bali's rebukes were truthful, King Indra did not at all become sorry, just as an elephant beated by its driver's rod does not become agitated.**

@@ -8,7 +8,7 @@
 > āste kṛtvā śiraḥ kukṣau\
 > bhugna-pṛṣṭha-śirodharaḥ
 
-*ulbena*—by the amnion; *saṁvṛtaḥ*—enclosed; *tasmin*—in that place; *antraiḥ*—by the intestines; *ca*—and; *bahiḥ*—outside; *āvṛtaḥ*—covered; *āste*—he lies; *kṛtvā*—having put; *śiraḥ*—the head; *kukṣau*—towards the belly; *bhugna*—bent; *pṛṣṭha*—back; *śiraḥ-dharaḥ*—neck.
+*ulbena*—by the amnion; *saṁvṛtaḥ*—enclosed; *tasmin*—in that place; *antraiḥ*—by the intestines; *ca*—and; *bahiḥ*—outside; *āvṛtaḥ*—covered; *āste*—he lies; *kṛtvā*—having put; *śiraḥ*—the head; *kukṣau*—toward the belly; *bhugna*—bent; *pṛṣṭha*—back; *śiraḥ-dharaḥ*—neck.
 
 **Placed within the amnion and covered outside by the intestines, the child remains lying on one side of the abdomen, his head turned toward his belly and his back and neck arched like a bow.**
 

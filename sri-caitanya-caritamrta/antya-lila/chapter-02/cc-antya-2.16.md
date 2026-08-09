@@ -10,4 +10,4 @@
 
 **In Āmbuyā-muluka there was a person named Nakula Brahmacārī, who was a perfectly pure devotee, greatly advanced in devotional service.**
 
-Śrīla Bhaktivinoda Ṭhākura says that Āmbuyā-muluka is the present Ambikā, a cit in the Vardhamāna district of West Bengal. Formerly, during the Mohammedan regime, it was known as Āmbuyā-muluka. In this city there is a neighborhood called Pyārīgañja, and that is where Nakula Brahmacārī used to live.
+Śrīla Bhaktivinoda Ṭhākura says that Āmbuyā-muluka is the present Ambikā, a cit in the Vardhamāna district of West Bengal. Formerly, during the Mohammedan regime, it was known as Āmbuyā-muluka. In this cit there is a neighborhood called Pyārīgañja, and that is where Nakula Brahmacārī used to live.

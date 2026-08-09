@@ -6,7 +6,7 @@
 > lāvaṇyāmṛta-dhārāya tad-upari snāna\
 > nija-lajjā-śyāma-paṭṭasāṭi-paridhāna
 
-*lāvaṇya-amṛta-dhārāya*—in the shower of the nectar of bodily luster; *tat-upari*—over and above that; *snāna*—the bath; *nija*—own; *lajjā*—shyness; *śyāma*—blackish; *paṭṭa*—silk; *sāṭi*—garments; *paridhāna*—wearing.
+*lāvaṇya-amṛta-dhārāya*—in the shower of the nectar of bodily luster; *tat-upari*—over and above that; *snāna*—the bath; *nija*—own; *lajjā*—shyness; *śyāma*—blackish; *paṭṭa*—silk; *sāṭi*—dresses; *paridhāna*—wearing.
 
 **"After Her midday bath, Rādhārāṇī takes another bath in the nectar of bodily luster, and She puts on the garment of shyness, which is exactly like a black silk sari.**
 

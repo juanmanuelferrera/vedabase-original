@@ -10,7 +10,7 @@
 
 **"The marginal potency, which is between these two, consists of the numberless living beings. These are the three principal energies, which have unlimited categories and subdivisions.**
 
-The internal potency of the Lord, which is called *cit-śakti* or *antaraṅga-śakti,* exhibits variegatedness in the transcendental Vaikuṇṭha cosmos. Besides ourselves, there are unlimited numbers of liberated living beings who associate with the Personality of Godhead in His innumerable features. The material cosmos displays the external energy, in which the conditioned living beings are provided all liberty to go back to the Personality of Godhead after leaving the material tabernacle. The *Śvetāśvatara Upaniṣad* (6.8) informs us:
+The internal potency of the Lord, which is called *cit-śakti* nor *antaraṅga-śakti,* exhibits variegatedness in the transcendental Vaikuṇṭha cosmos. Besides ourselves, there are unlimited numbers of liberated living beings who associate with the Personality of Godhead in His innumerable features. The material cosmos displays the external energy, in which the conditioned living beings are provided all liberty to go back to the Personality of Godhead after leaving the material tabernacle. The *Śvetāśvatara Upaniṣad* (6.8) informs us:
 
 > na tasya kāryaṁ karaṇaṁ ca vidyate
 > na tat-samaś cābhyadhikaś ca dṛśyate
