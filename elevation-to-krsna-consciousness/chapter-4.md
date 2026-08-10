@@ -24,7 +24,7 @@ bhavatād bhaktir ahaitukī tvayi
 
 
 
-"O almighty Lord! I have no desire to accumulate wealth, nor have I any desire to enjoy beautiful women, nor do I want any number of followers. What I want only is that I may have Your causeless devotional service in my life-birth after birth." (Śikṣāṣṭakamm 4)
+"O almighty Lord! I have no desire to accumulate wealth, nor have I any desire to enjoy beautiful women, nor do I want any number of followers. What I want only is that I may have Your causeless devotional service in my life-birth after birth." (Śikṣāṣṭakam 4)
 
 
 
@@ -282,7 +282,7 @@ sthita-dhūlī-sadṛśaṁ vicintaya
 
 
 
-"O son of Mahārāja Nanda, I am Your eternal servitor, and although I am so, somehow or other I have fallen in the ocean of birth and death. please, therefore, pick me up from this ocean of death and fix me as one of the atoms at Your lotus feet." (Śikṣāṣṭakamm 5)
+"O son of Mahārāja Nanda, I am Your eternal servitor, and although I am so, somehow or other I have fallen in the ocean of birth and death. please, therefore, pick me up from this ocean of death and fix me as one of the atoms at Your lotus feet." (Śikṣāṣṭakam 5)
 
 
 

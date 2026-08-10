@@ -10,7 +10,7 @@
 
 **One who says that ten million aśvamedha sacrifices are equal to the chanting of the holy name of Lord Kṛṣṇa is undoubtedly an atheist. He is sure to be punished by Yamarāja.**
 
-In the list of the ten kinds of offenses in chanting the holy name of the Supreme Personality of Godhead, Hare Kṛṣṇa, the eighth offense is *dharma-vrata-tyāga-hutādi-sarva-śubha-kriyā-sāmyam api pramādaḥ.* One should never consider the chanting of the holy name of Godhead equal to pious activities like giving charity to *brāhmaṇas* or saintly persons, opening charitable educational institutions, distributing free foodstuffsstuffs and so on. The results of pious activities do not equal the results of chanting the holy name of Kṛṣṇa.
+In the list of the ten kinds of offenses in chanting the holy name of the Supreme Personality of Godhead, Hare Kṛṣṇa, the eighth offense is *dharma-vrata-tyāga-hutādi-sarva-śubha-kriyā-sāmyam api pramādaḥ.* One should never consider the chanting of the holy name of Godhead equal to pious activities like giving charity to *brāhmaṇas* or saintly persons, opening charitable educational institutions, distributing free foodstuffs and so on. The results of pious activities do not equal the results of chanting the holy name of Kṛṣṇa.
 
 The Vedic scriptures say:
 
