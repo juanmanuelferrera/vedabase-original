@@ -12,7 +12,7 @@
 
 It is the mission of Śrī Caitanya Mahāprabhu to act Himself and teach the people. He says, *āpani ācari' bhakti karila pracāra* (Cc. Ādi 4.41). One must first act himself and then teach. This is the function of a real teacher. Unless one is able to understand the philosophy that he speaks, it will not be effective. Therefore one should not only understand the philosophy of the Caitanya cult but also implement it practically in one's life.
 
-While chanting the Hare Kṛṣṇa *mahā-mantra,* Śrī Caitanya Mahāprabhu sometimes fainted and remained unconscious for many hours. He prays in His *Śikṣāṣṭaka* (7):
+While chanting the Hare Kṛṣṇa *mahā-mantra,* Śrī Caitanya Mahāprabhu sometimes fainted and remained unconscious for many hours. He prays in His *Śikṣāṣṭaka* (yugāyitaṁ nimeṣeṇa cakṣuṣā prāvṛṣāyitam / śūnyāyitaṁ jagat sarvaṁ govinda-viraheṇa me):
 
 > yugāyitaṁ nimeṣeṇa
 > cakṣuṣā prāvṛṣāyitam

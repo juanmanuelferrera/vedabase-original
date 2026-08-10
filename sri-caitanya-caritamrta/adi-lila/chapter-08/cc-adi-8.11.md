@@ -8,7 +8,7 @@
 
 *sannyāsi-buddhye*—by consideration of a *sannyāsī*; *more*—unto Me; *karibe*—they will; *namaskāra*—offer obeisances; *tathāpi*—therefore; *khaṇḍibe*—will diminish; *duḥkha*—distress; *pāibe*—will get; *nistāra*—liberation.
 
-**"If a person offers obeisances to Me, even due to accepting Him only as an ordinary sannyāsī, his material distresses will diminish, and he will ultimately get liberation."**
+**"If a person offers obeisances to Lord Caitanya, even due to accepting Him only as an ordinary sannyāsī, his material distresses will diminish, and he will ultimately get liberation."**
 
 Kṛṣṇa is so merciful that He always thinks of how to liberate the conditioned souls from the material platform. It is for this reason that Kṛṣṇa incarnates, as clearly indicated in the *Bhagavad-gītā* [[bg/4/7|(Bg. 4.7)]]:
 

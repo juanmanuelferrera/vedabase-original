@@ -112,7 +112,7 @@ The Lord is described in all scriptures as līlā-puruṣottama, or the personal
 
 
 
-Many so-called svamis who are so frequently attracted by the cities often seek a kind of pleasure in society and feminine friendship. Generally they are not attracted by the natural beauty of the woods, although they may assume the dress of a man who is meant to live in the woods. Such swamis are seeking varieties of enjoyment in matter because they have no information of the variegatedness of spiritual life. On the one hand they enjoy variegatedness in matter, and on the other they deny spiritual variegatedness to the Absolute. Because they are pledged to the theory of monism and impersonalism, they deny that whatever pertains to matter can pertain also to spirit. According to them, spirit is the denial of matter. The fact is, however, that spirit is not a negation of matter, but matter is a perverted reflection of spirit.
+Many so-called svamis who are so frequently attracted by the cities often seek a kind of pleasure in society and feminine friendship. Generally they are not attracted by the natural beauty of the woods, although they may assume the dress of a man who is meant to live in the woods. Such svāmīs are seeking varieties of enjoyment in matter because they have no information of the variegatedness of spiritual life. On the one hand they enjoy variegatedness in matter, and on the other they deny spiritual variegatedness to the Absolute. Because they are pledged to the theory of monism and impersonalism, they deny that whatever pertains to matter can pertain also to spirit. According to them, spirit is the denial of matter. The fact is, however, that spirit is not a negation of matter, but matter is a perverted reflection of spirit.
 
 
 

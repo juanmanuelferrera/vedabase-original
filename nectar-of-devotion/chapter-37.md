@@ -24,7 +24,7 @@ In *Śrīmad-Bhāgavatam,* Tenth Canto, 85th Chapter, 30th verse, Śukadeva Gosv
 
 In such expressions of ecstatic love there are many other subsidiary symptoms, such as jubilation, withering, silence, disappointment, moroseness, reverence, thoughtfulness, remembrance, doubtfulness, confidence, eagerness, indifference, restlessness, impudence, shyness, inertness, illusion, madness, ghastliness, contemplation, dreaming, disease and signs of death. When a devotee meets Kṛṣṇa, there are symptoms of jubilation, pride and perseverance, and when he is feeling great separation from Kṛṣṇa, the symptoms of ghastliness, disease and the signs of death become prominent.
 
-It is stated in the First Canto of *Śrīmad-Bhāgavatam,* 11th Chapter, 4th verse, that when Lord Kṛṣṇa returned from the battlefield of Kurukṣetra to His home at Dvārakā, all the residents of Dvārakā began to talk with Him, as a child talks lovingly to his father after the father's return from foreign countries. This is an example of jubilation.
+It is stated in the First Canto of *Śrīmad-Bhāgavatam,* 11th Chapter, 9th verse, that when Lord Kṛṣṇa returned from the battlefield of Kurukṣetra to His home at Dvārakā, all the residents of Dvārakā began to talk with Him, as a child talks lovingly to his father after the father's return from foreign countries. This is an example of jubilation.
 
 When Bahulāśva, the King of Mithilā, saw Kṛṣṇa at his palace, he decided to offer his respects by bowing down before Him at least a hundred times, but he was so overcome by feelings of love that, after bowing down only once, he forgot his position and could not rise up again.
 

@@ -17,7 +17,7 @@ If one regularly chants 333,333 times daily for a month and then chants one time
 > śvādo 'pi sadyaḥ savanāya kalpate
 > kutaḥ punas te bhagavan nu darśanāt
 
-Even if a devotee comes from a family of dog-eaters, if he surrenders to the personality of Godhead he immediately becomes a qualified *brāhmaṇa* and is immediately fit to perform *yajña,* whereas a person born in a family of *brāhmaṇas* has to wait until completing the reformatory processes before he may be called *saṁskṛta,* purified. It is further said in *Śrīmad-Bhāgavatam* (12.1.40):
+Even if a devotee comes from a family of dog-eaters, if he surrenders to the personality of Godhead he immediately becomes a qualified *brāhmaṇa* and is immediately fit to perform *yajña,* whereas a person born in a family of *brāhmaṇas* has to wait until completing the reformatory processes before he may be called *saṁskṛta,* purified. It is further said in *Śrīmad-Bhāgavatam* (12.1.42):
 
 > asaṁskṛtāḥ kriyā-hīnā
 > rajasā tamasāvṛtāḥ

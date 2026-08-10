@@ -8,4 +8,4 @@
 
 *miśrera āvāsa*—the residence of Kāśī Miśra; *sei*—that; *haya*—is; *alpa sthāna*—insufficient place; *asaṅkhya*—unlimited; *vaiṣṇava*—devotees; *tāhāṅ*—there; *haila*—were; *parimāṇa*—overcrowded.
 
-**Since the residence of Kāśī Miśra was insufficient, all the assembled devotees were very much overcrowded.**
+**Since the residence of Kāśī Miśra was insufficient, all the assembled devotees were very overcrowded.**

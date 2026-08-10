@@ -12,4 +12,4 @@
 
 **The puruṣa incarnation lying on the Causal Ocean is called the original puruṣa in the material creations, and in His virāṭa form, in whom all the planets and their inhabitants live, He has many thousands of legs and hands.**
 
-The first *puruṣa* is Kāraṇodakaśāyī Viṣṇu, the second *puruṣa* is Garbhodakaśāyī Viṣṇu, and the third *puruṣa* is Kṣīrodakaśāyī Viṣṇu, in whom is contemplated the *virāṭ-puruṣa,* the gigantic form in which all the planets with their different developments and inhabitants are floating.
+The first *puruṣa* is Kāraṇodakaśāyī Viṣṇu, the second *puruṣa* is Garbhodakaśāyī Viṣṇu, and the third *puruṣa* is Kṣīrodakaśāyī Viṣṇu, in whom is contemplated the *virāṭa-puruṣa,* the gigantic form in which all the planets with their different developments and inhabitants are floating.

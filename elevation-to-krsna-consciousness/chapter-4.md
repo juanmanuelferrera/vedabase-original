@@ -282,7 +282,7 @@ sthita-dhūlī-sadṛśaṁ vicintaya
 
 
 
-"O son of Mahārāja Nanda, I am Your eternal servitor, and although I am so, somehow or other I have fallen in the ocean of birth and death. please, therefore, pick me up from this ocean of death and fix me as one of the atoms at Your lotus feet." (Śikṣāṣṭaka 5)
+"O son of Mahārāja Nanda, I am Your eternal servitor, and although I am so, somehow or other I have fallen in the ocean of birth and death. please, therefore, pick me up from this ocean of death and fix me as one of the atoms at Your lotus feet." (Śikṣāṣṭakamm 5)
 
 
 

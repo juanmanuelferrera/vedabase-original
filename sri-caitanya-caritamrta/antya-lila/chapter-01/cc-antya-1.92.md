@@ -16,7 +16,7 @@
 
 One's bodily luster and beauty, one's constitution, one's activities and one's qualities all depend on the law of cause and effect. There are three qualities in material nature, and as stated in *Bhagavad-gītā* [[bg/13/22|(Bg. 13.22)]], *kāraṇaṁ guṇa-saṅgo 'sya sad-asad-yoni-janmasu:* one takes birth in a good or bad family according to his previous association with the qualities of material nature. Therefore one seriously eager to achieve transcendental perfection, Kṛṣṇa consciousness, must eat Kṛṣṇa *prasāda.* Such food is *sāttvika,* or in the material quality of goodness, but when offered to Kṛṣṇa it becomes transcendental. Our Kṛṣṇa consciousness movement distributes Kṛṣṇa *prasāda,* and those who eat such transcendental food are sure to become devotees of the Lord. This is a very scientific method, as stated in this verse from *Nala-naiṣadha* (3.17): *kāryaṁ nidānād dhi guṇān adhīte.* If in all one's activities he strictly adheres to the mode of goodness, he will certainly develop his dormant Kṛṣṇa consciousness and ultimately become a pure devotee of Lord Kṛṣṇa.
 
-Unfortunately at the present moment the bodily constitutions of the leaders of society, especially the governmental leaders, are polluted. As described in *Śrīmad-Bhāgavatam* (12.1.40):
+Unfortunately at the present moment the bodily constitutions of the leaders of society, especially the governmental leaders, are polluted. As described in *Śrīmad-Bhāgavatam* (12.1.42):
 
 > asaṁskṛtāḥ kriyā-hīnā
 > rajasā tamasāvṛtāḥ

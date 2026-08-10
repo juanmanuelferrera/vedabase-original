@@ -12,4 +12,4 @@
 
 **When the demigods and presiding deities of the various senses were thus manifested, they wanted to wake their origin of appearance. But upon failing to do so, they reentered the body of the virāṭa-puruṣa one after another in order to wake Him.**
 
-In order to wake the sleeping Deity-controller within, one has to rechannel the sense activities from concentration on the outside to concentration inside. In the following verses, the sense activities which are required to wake the *virāṭ-puruṣa* will be explained very nicely.
+In order to wake the sleeping Deity-controller within, one has to rechannel the sense activities from concentration on the outside to concentration inside. In the following verses, the sense activities which are required to wake the *virāṭa-puruṣa* will be explained very nicely.
