@@ -10,7 +10,7 @@
 
 *titikṣuḥ*—tolerating; *yata*—controlling; *vāk*—words; *dāntaḥ*—controlling the senses; *ūrdhva-retāḥ*—without discharge of semen; *jita-anilaḥ*—controlling the life air; *ārirādhayiṣuḥ*—simply desiring; *kṛṣṇam*—Lord Kṛṣṇa; *acarat*—practice; *tapaḥ*—austerities; *uttamam*—the best.
 
-**Mahārāja Pṛthu underwent all these severe austerities in order to control his words and his senses, to refrain from discharging his semen and to control the life air within his body. All this he did for the satisfaction of Kṛṣṇa. He had no other purpose.**
+**Mahārāja Pṛthu underwent all these severe austerities in order to control his words and his senses, to refrain from discharging his semina and to control the life air within his body. All this he did for the satisfaction of Kṛṣṇa. He had no other purpose.**
 
 In Kali-yuga the following is recommended:
 

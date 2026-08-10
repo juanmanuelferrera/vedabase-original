@@ -10,7 +10,7 @@
 
 **"King Bhīṣmaka wanted to give his daughter, Rukmiṇī, in charity to Kṛṣṇa, but Rukmī, his eldest son, objected. Therefore he could not carry out his decision."**
 
-As stated in *Śrīmad-Bhāgavatam* (10.52.25):
+As stated in *Śrīmad-Bhāgavatam* (10.52.21):
 
 > bandhūnām icchatāṁ dātuṁ
 > kṛṣṇāya bhaginīṁ nṛpa

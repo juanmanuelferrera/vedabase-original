@@ -10,7 +10,7 @@
 
 *atha*—thereafter; *niryāya*—after coming out; *salilāt*—from the water; *pracetasaḥ*—all the Pracetās; *udanvataḥ*—of the sea; *vīkṣya*—having observed; *akupyan*—became very angry; *drumaiḥ*—by trees; *channām*—covered; *gām*—the world; *gām*—the heavenly planets; *roddhum*—to obstruct; *iva*—as if; *ucchritaiḥ*—very tall.
 
-**Thereafter all the Pracetās emerged from the waters of the sea. They then saw that all the trees on land had grown very tall, as if to obstruct the path to the heavenly planets. These trees had covered the entire surface of the world. At this time the Pracetās became very angry.**
+**Thereafter all the Pracetās emerged from the waters of the sea. They then saw that all the trees on land had grown very tall, as if to obstruct the path of the heavenly planets. These trees had covered the entire surface of the world. At this time the Pracetās became very angry.**
 
 King Prācīnabarhiṣat left his kingdom before his sons arrived after their execution of penance and austerity. The sons, the Pracetās, were ordered by the Supreme Personality of Godhead to come out of the water and go to the kingdom of their father in order to take care of that kingdom. However, when they came out, they saw that everything had been neglected due to the King's absence. They first observed that food grains were not being produced and that there were no agricultural activities. Indeed, the surface of the world was practically covered by very tall trees. It seemed as though the trees were determined to stop people from going into outer space to reach the heavenly kingdoms. The Pracetās became very angry when they saw the surface of the globe covered in this way. They desired that the land be cleared for crops.
 

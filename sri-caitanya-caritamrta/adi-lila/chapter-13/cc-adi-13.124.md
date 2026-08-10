@@ -23,4 +23,4 @@
 
 Sometimes *smārtas* consider Raghunātha dāsa Gosvāmī a *śūdra.* But Kṛṣṇadāsa Kavirāja Gosvāmī here especially mentions *svarūpa-rūpa-raghunāthadāsa.* Therefore one who considers the lotus feet of Raghunātha dāsa to be transcendental to all divisions of the caste system enjoys the riches of actual spiritual bliss.
 
-*Thus end the Bhaktivedanta purports to Śrī Caitanya-caritāmṛta, Ādi-līlā,  Thirteenth Chapter, describing the advent of Lord Śrī Caitanya Mahāprabhu.*
+*Thus end the Bhaktivedanta purports of the Śrī Caitanya-caritāmṛta, Ādi-līlā,  Thirteenth Chapter, describing the advent of Lord Śrī Caitanya Mahāprabhu.*
