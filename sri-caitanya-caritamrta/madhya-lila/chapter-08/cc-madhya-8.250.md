@@ -12,7 +12,7 @@
 
 **Rāmānanda Rāya replied, "That song describing the loving affairs of Śrī Rādhā and Kṛṣṇa is superior to all other songs."**
 
-As stated in *Śrīmad-Bhāgavatam* (10.33.36):
+As stated in *Śrīmad-Bhāgavatam* (10.33.37):
 
 > anugrahāya bhakūtānāṁ
 > mānuṣaṁ deham āsthitaḥ

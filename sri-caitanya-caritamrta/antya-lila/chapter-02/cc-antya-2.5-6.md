@@ -15,4 +15,4 @@
 
 **Śrī Caitanya Mahāprabhu delivered almost all the fallen souls by directly meeting them. He delivered others by entering the body of Nakula Brahmacārī and by appearing before Nṛsiṁhānanda Brahmacārī. "I shall deliver the fallen souls." This statement characterizes the Supreme Personality of Godhead.**
 
-The Lord always manifested His *āvirbhāva* appearance in the following four places: (1) the house of Śrīmatī Śacīmātā, (2) wherever Nityānanda Prabhu danced in ecstasy, (3) the house of Śrīvāsa (when *kīrtana* was performed), and (4) the house of Rāghava Paṇḍita. Lord Caitanya Himself appeared in these four places. On this connection, one may consult text 34.)
+The Lord always manifested His *āvirbhāva* appearance in the following four places: (1) the house of Śrīmatī Śacīmātā, (2) wherever Nityānanda Prabhu danced in ecstasy, (3) the house of Śrīvāsa (when *kīrtana* was performed), and (4) the house of Rāghava Paṇḍita. Lord Caitanya Himself appeared in these four places. In this connection, one may consult text 34.)

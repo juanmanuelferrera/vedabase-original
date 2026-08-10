@@ -21,4 +21,4 @@ While executing devotional service, one must be naturally inclined to serve Kṛ
 > āruhya kṛcchreṇa paraṁ padaṁ tataḥ
 > patanty adho 'nādṛta-yuṣmad-aṅghrayaḥ
 
-Because Māyāvādī philosophers have no information regarding the transcendental service of the Lord, even after attaining liberation from material activities and merging into the Brahman effulgence, they must come down again to this material world to open hospitals or schools or perform similar philanthropic activities.
+Because Māyāvādī philosophers have no information regarding the transcendental service of the Lord, even after attaining liberation from material activities and merging in the Brahman effulgence, they must come down again to this material world to open hospitals or schools or perform similar philanthropic activities.

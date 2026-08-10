@@ -10,7 +10,7 @@
 
 **Then the Bhaṭṭācārya asked Caitanya Mahāprabhu, "Which item is most important in the execution of devotional service?" The Lord replied that the most important item was the chanting of the holy name of the Lord.**
 
-There are nine items to be executed in devotional service. These are enumerated in the following verse from *Śrīmad-Bhāgavatam* (7.5.23):
+There are nine items to be executed in devotional service. These are enumerated in the following verse from *Śrīmad-Bhāgavatam* (7.5.32):
 
 > śravaṇaṁ kīrtanaṁ viṣṇoḥ
 > smaraṇaṁ pāda-sevanam

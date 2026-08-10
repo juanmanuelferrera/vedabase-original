@@ -116,7 +116,7 @@ Many so-called svamis who are so frequently attracted by the cities often seek a
 
 
 
-The real pleasure of variety exists in spirit without deluding relativity. On the other hand, inert matter, in association with dynamic spirit, manifests a false representation or a perverted reflection of that very spiritual variegatedness which is so adamantly denied by the monist class of so-called swamis.
+The real pleasure of variety exists in spirit without deluding relativity. On the other hand, inert matter, in association with dynamic spirit, manifests a false representation or a perverted reflection of that very spiritual variegatedness which is so adamantly denied by the monist class of so-called svāmīs.
 
 
 

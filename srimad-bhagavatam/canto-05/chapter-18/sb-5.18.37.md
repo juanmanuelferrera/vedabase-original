@@ -24,4 +24,4 @@ The objects of material enjoyment, the sensory activities, attachment to sensual
 > hetunānena kaunteya
 > jagad viparivartate
 
-"This material nature is working under My direction, O son of Kuntī, and it is producing all moving and unmoving beings. By its rule this manifestation is created and annihilated again and again."
+"This material nature is working under My direction, O son of Kuntī, and I is producing all moving and unmoving beings. By its rule this manifestation is created and annihilated again and again."

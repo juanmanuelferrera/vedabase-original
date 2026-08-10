@@ -12,7 +12,7 @@
 
 **“ 'The plants, creepers and trees were full of fruits and flowers due to ecstatic love of Kṛṣṇa. Indeed, being so full, they were bowing down. They were inspired by such deep love for Kṛṣṇa that they were constantly pouring showers of honey. In this way the gopīs saw all the forest of Vṛndāvana.' "**
 
-This verse (*Bhāg.* 10.35.9) is one of the songs the *gopīs* sang during Kṛṣṇa's absence. In Kṛṣṇa's absence the *gopīs* were always absorbed in thought of Him. Similarly, the *mahā-bhāgavata,* the advanced devotee, sees everything as potentially serving the Lord. Śrīla Rūpa Gosvāmī states:
+This verse (*Bhāg.* 10.35.9) is one of the songs the *gopīs* sang during Kṛṣṇa's absence. In Kṛṣṇa's absence the *gopīs* were always absorbed in thought of Him. Similarly, the *mahā-bhāgavata,* the advanced devotee, sees everything as potentially serving the Lord. Śrīla Rūpa Gosvāmī recommends:
 
 > prāpañcikatayā buddhyā
 > hari-sambandhi-vastunaḥ

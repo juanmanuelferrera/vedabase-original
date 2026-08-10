@@ -12,4 +12,4 @@
 
 **“ 'Increasing love is experienced in various tastes, one above another. But that love which has the highest taste in the gradual succession of desires manifests itself in the form of conjugal love.'**
 
-This verse is from Śrīla Rūpa Gosvāmī's *Bhakti-rasāmṛta-sindhu* (2.5.38), and it also appears in the *Ādi-līlā,* Chapter Four, verse 45.
+This verse is from Śrīla Rūpa Gosvāmī's *Bhakti-rasāmṛta-sindhu* (2.5.38), and it also appears in the *Ādi-līlā,* Chapter Four, verse forty-five.
