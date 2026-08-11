@@ -20,6 +20,6 @@ The purpose of the material creation by Brahmā is clearly described herein. Eve
 > nānyat tat-toṣa-kāraṇam
 > [[cc/madhya/8/58|[Cc. Madhya 8.58] ]]
 
-"One can worship the Supreme Personality of Godhead, Viṣṇu, by proper discharge of the principles of *varṇa* and *āśrama.* There is no alternative to pacifying the Lord by execution of the principles of the *varṇāśrama* system."
+"One can worship the Supreme Personality of Godhead, Viṣṇu, by proper discharge of the principles of *varṇa* and *āśrama.* There is no alternative to pacifying the Lord by execution of the principles of the *varṇāśrama* system." (*Viṣṇu Purāṇa* 3.8.9)
 
 Viṣṇu worship is the ultimate aim of human life. Those who take the license of married life for sense enjoyment must also take the responsibility to satisfy the Supreme Personality of Godhead, Viṣṇu, and the first stepping-stone is the *varṇāśrama-dharma* system. *Varṇāśrama-dharma* is the systematic institution for advancing in worship of Viṣṇu. However, if one directly engages in the process of devotional service to the Supreme Personality of Godhead, it may not be necessary to undergo the disciplinary system of *varṇāśrama-dharma.* The other sons of Brahmā, the Kumāras, directly engaged in devotional service, and thus they had no need to execute the principles of *varṇāśrama-dharma.*

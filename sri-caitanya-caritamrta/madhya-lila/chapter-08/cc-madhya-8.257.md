@@ -33,6 +33,6 @@ As stated in *Bhagavad-gītā* (9.20-21):
 > evaṁ trayī-dharmam anuprapannā
 > gatāgataṁ kāma-kāmā labhante
 
-"Those who study the *Vedas* and drink *soma* juice, seeking the heavenly planets, worship Me indirectly. They take birth on the planet of Indra, where they enjoy godly delights. When they have thus enjoyed heavenly sense pleasure, they return to this mortal planet again. Thus those who seek sense enjoyment by adhering to the principles of the three Vedas achieve only repeated birth and death."
+"Those who study the *Vedas* and drink *soma* juice, seeking the heavenly planets, worship Me indirectly. They take birth on the planet of Indra, where they enjoy godly delights. When they have thus enjoyed heavenly sense pleasure, they return to this mortal planet again. Thus, through the Vedic principles, they achieve only flickering happiness."
 
 Therefore after finishing the results of pious activities, the *karmīs* again return to this planet in the form of rain, and they begin their life as grass and plants in the evolutionary process.
