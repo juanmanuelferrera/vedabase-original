@@ -154,7 +154,7 @@ As Rūpa Gosvāmī points out, we have to serve Kṛṣṇa favorably. Generally
 
 
 
-Puruṣaḥ sa paraḥ: in the spiritual sky, the Supreme Lord is present as the Supreme Person. There are innumerable self-luminous planets there, and in each one an expansion of Kṛṣṇa resides. They are four-armed and have innumerable names. They are all persons-they are not impersonal. These puruṣas, or persons, can be approached by bhakti, not by challenge, philosophical speculation, or mental concoctions, or by physical exercises, but by devotion without the deviations of fruitive activity.
+Puruṣaḥ sa paraḥ: in the spiritual sky, the Supreme Lord is present as the Supreme Person. There are innumerable self-luminous planets there, and in each one an expansion of Kṛṣṇa resides. They are four-armed and have innumerable names. They are all persons-they are not impersonal. These puruṣaḥs, or persons, can be approached by bhakti, not by challenge, philosophical speculation, or mental concoctions, or by physical exercises, but by devotion without the deviations of fruitive activity.
 
 
 
@@ -186,7 +186,7 @@ sthita-dhūlī-sadṛśaṁ vicintaya
 
 
 
-"Oh, son of Mahārāja Nanda, I am Your eternal servitor, and although I am so, somehow or other I have fallen in the ocean of birth and death. Please, therefore, pick me up from this ocean of death and fix me as one of the atoms of Your lotus feet." (Śikṣāṣṭaka 5) The only hope for a man fallen in the middle of the ocean is that someone will come and pick him up. If someone just comes and hauls him but a few feet out of the water, he is immediately relieved. Similarly, if we are somehow lifted from the ocean of birth and death by the process of Kṛṣṇa consciousness, we are immediately relieved.
+"Oh, son of Mahārāja Nanda, I am Your eternal servitor, and although I am so, somehow or other I have fallen in the ocean of birth and death. Please, therefore, pick me up from this ocean of death and fix me as one of the atoms of Your lotus feet." (Śikṣāṣṭakam 5) The only hope for a man fallen in the middle of the ocean is that someone will come and pick him up. If someone just comes and hauls him but a few feet out of the water, he is immediately relieved. Similarly, if we are somehow lifted from the ocean of birth and death by the process of Kṛṣṇa consciousness, we are immediately relieved.
 
 
 

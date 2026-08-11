@@ -21,7 +21,7 @@ Kaivalya, oneness in the effulgence of Brahman, appears hellish to the devotee. 
 
 In the *Caitanya-candrāmṛta* there are many more verses illustrating this same principle.
 
-> dhik kurvanti ca brahma-yoga-viduṣas taṁ gauracandraṁ numaḥ
+> dhik kurvati ca brahma-yoga-viduṣas taṁ gauracandraṁ numaḥ
 
 > tāvad brahma-kathā vimukta-padavī tāvan na tiktī-bhavet
 > tāvac cāpi viśṛṅkhalatvam ayate no loka-veda-sthitiḥ

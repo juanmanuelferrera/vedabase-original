@@ -8,4 +8,4 @@
 
 *aneka-prakāra*—various kinds; *snehe*—in affection; *bhikṣā*—food; *karāila*—made Him eat; *gosāñira*—of Lord Caitanya Mahāprabhu; *śeṣa-anna*—remnants of food; *sa-vaṁśe*—with all the members of the family; *khāila*—ate.
 
-**With great affection and respect that Kūrma brāhmaṇa made Śrī Caitanya Mahāprabhu eat all kinds of food. After that, the remnants were shared by all the members of the family.**
+**That Kūrma brāhmaṇa with great affection and respect made Śrī Caitanya Mahāprabhu eat all kinds of food. After that, the remnants were shared by all the members of the family.**

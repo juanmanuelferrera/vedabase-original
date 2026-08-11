@@ -10,7 +10,7 @@
 
 **Vāsudeva, Saṅkarṣaṇa, Pradyumna and Aniruddha constitute this second quadruple. They are purely transcendental.**
 
-Śrīpāda Śaṅkarācārya has misleadingly explained the quadruple form (*catur-vyūha*) in his interpretation of the forty-second aphorism of the Second *Khaṇḍa* of Chapter Two of the *Vedānta-sūtras* (*utpatty-asambhavāt*). In verses forty-one through forty-seven of *Śrī Caitanya-caritāmṛta,* Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī answers Śrīpādṅkarācārya's misleading objections to the personal feature of the Absolute Truth.
+Śrīpād Śaṅkarācārya has misleadingly explained the quadruple form (*catur-vyūha*) in his interpretation of the forty-second aphorism of the Second *Khaṇḍa* of Chapter Two of the *Vedānta-sūtras* (*utpatty-asambhavāt*). In verses forty-one through forty-seven of *Śrī Caitanya-caritāmṛta,* Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī answers Śrīpādṅkarācārya's misleading objections to the personal feature of the Absolute Truth.
 
 The Supreme Personality of Godhead, the Absolute Truth, is not like a material object that can be known by experimental knowledge or sense perception. In the *Nārada-pañcarātra* this fact has been explained by Nārāyaṇa Himself to Lord Śiva. But Śaṅkarācārya, the incarnation of Śiva, under the order of Nārāyaṇa, his master, had to mislead the monists, who favor ultimate extinction. In the conditioned stage of existence, all living entities have four basic defects, of which one is the cheating propensity. Śaṅkarācārya has carried this cheating propensity to the extreme to mislead the monists.
 

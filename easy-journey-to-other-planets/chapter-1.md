@@ -290,7 +290,7 @@ The astronomer's view was seconded by Professor Vladimir Alpatov, a biologist, w
 
 
 
-It could be that life, similar to that on Earth, flourishes on such planets. Doctor of Chemistry Nikolai Zhirov, covering the problem of atmosphere on the planets, pointed out that the organism of a Martian, for instance, could very well adapt itself to normal existence with a low body temperature. He said that he felt that the gaseous composition of the atmosphere of Mars was quite suitable to sustain life of beings which have become adapted to it.
+It could be that life, similar to that on Earth, flourishes on such planets. Doctor of Chemistry Nikolat Zhirov, covering the problem of atmosphere on the planets, pointed out that the organism of a Martian, for instance, could very well adapt itself to normal existence with a low body temperature. He said that he felt that the gaseous composition of the atmosphere of Mars was quite suitable to sustain life of beings which have become adapted to it.
 
 
 

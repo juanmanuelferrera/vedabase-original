@@ -144,7 +144,7 @@ durdaivam īdṛśam ihājani nānurāgaḥ
 
 
 
-"O my Lord! Your holy name alone can render all benediction upon the living beings, and therefore You have hundreds and millions of names, like Kṛṣṇa and Govinda. In these transcendental names You have invested all Your transcendental energies, and there is no hard and fast rule for chanting these holy names. O my Lord! You have so kindly made approach to You easy by Your holy names, but unfortunate as I am, I have no attraction for them." (Śikṣāṣṭaka 2)
+"O my Lord! Your holy name alone can render all benediction upon the living beings, and therefore You have hundreds and millions of names, like Kṛṣṇa and Govinda. In these transcendental names You have invested all Your transcendental energies, and there is no hard and fast rule for chanting these holy names. O my Lord! You have so kindly made approach to You easy by Your holy names, but unfortunate as I am, I have no attraction for them." (Śikṣāṣṭakam 2)
 
 
 
