@@ -14,4 +14,4 @@
 
 **Dressing themselves as the wives of brāhmaṇas, all the celestial ladies, including the wives of Lord Brahmā, Lord Śiva, Lord Nṛsiṁhadeva, King Indra and Vasiṣṭha Ṛṣi, and Rambhā, a dancing girl of heaven, came there with varieties of gifts.**
 
-When Lord Caitanya Mahāprabhu was a newly born baby, He was visited by the neighboring ladies, most of whom were the wives of respectable *brāhmaṇas.* In the dress of *brāhmaṇas'* wives, celestial ladies like the wives of Lord Brahmā and Lord Śiva also came to see the newly born child. Ordinary people saw them as respectable *brāhmaṇa* ladies of the neighborhood, but actually they were all celestial ladies dressed in that way.
+When Lord Caitanya Mahāprabhu was a newly born baby, He was visited by the neighboring ladies, most of whom were the wives of respectable *brāhmaṇas.* In the dress of *brāhmaṇas'* wives, celestial ladies like the wives of Lord Brahmā and Lord Śiva also came to see the newly born child. Ordinary people saw them as neighborhood respectable *brāhmaṇa* ladies, but actually they were all celestial ladies dressed in that way.

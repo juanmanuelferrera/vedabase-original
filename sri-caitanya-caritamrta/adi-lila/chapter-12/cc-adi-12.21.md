@@ -8,4 +8,4 @@
 
 *nānā*—various; *bhāva-udgama*—ecstatic symptoms; *dehe*—in the body; *adbhuta*—wonderful; *nartana*—dancing; *duigosāñi*—the two *gosāñis* (Caitanya Mahāprabhu and Advaita Prabhu); *hari bale*—chant Hare Kṛṣṇa; *ānandita*—pleased; *mana*—mind.
 
-**While Lord Caitanya Mahāprabhu and Advaita Prabhu chanted the Hare Kṛṣṇa mantra and danced, there were various ecstatic symptoms in Their bodies, and Their minds were very pleased.**
+**While Lord Caitanya Mahāprabhu and Advaita Prabhu danced and chanted the Hare Kṛṣṇa mantra, there were various ecstatic symptoms in Their bodies, and Their minds were very pleased.**

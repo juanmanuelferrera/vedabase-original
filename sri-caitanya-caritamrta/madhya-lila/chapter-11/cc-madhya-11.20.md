@@ -8,4 +8,4 @@
 
 *tomāra*—Your; *nāma*—name; *śuni'*—hearing; *rājā*—the King; *ānandita*—very pleased; *haila*—became; *āsana haite*—from his throne; *uṭhi'*—standing; *more*—me; *āliṅgana kaila*—embraced.
 
-**"When I submitted this proposal, the King immediately became very much pleased upon hearing Your name, Indeed, he instantly arose from his throne and embraced me.**
+**"When I submitted this proposal, the King, immediately upon hearing Your name, was very pleased. Indeed, he instantly arose from his throne and embraced me.**

@@ -8,4 +8,4 @@
 
 *prema-āveśe*—in ecstatic love; *sārvabhauma*—Sārvabhauma; *karilā rodane*—cried; *sabā-saṅge*—with all of them; *āilā*—came; *prabhu*—Śrī Caitanya Mahāprabhu; *īśvara-daraśane*—to see the Jagannātha temple.
 
-**Sārvabhauma Bhaṭṭācārya cried in great ecstatic love. Then, the Lord, accompanied by them all, went to the temple of Jagannātha.**
+**Sārvabhauma Bhaṭṭācārya cried in great ecstatic love. Then, accompanied by them all, the Lord went to the temple of Jagannātha.**
