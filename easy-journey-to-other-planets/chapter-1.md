@@ -254,7 +254,7 @@ In addition, a February 21, 1960, Moscow news release reported:
 
 
 
-Russia's well-known professor of astronomy Boris Vorontsov-Veliaminov said that there must be an infinite number of planets in the universe inhabited by beings endowed with reason.
+Russia's well-known professor of astronomy Boris Vorontsov-Velianino said that there must be an infinite number of planets in the universe inhabited by beings endowed with reason.
 
 
 
