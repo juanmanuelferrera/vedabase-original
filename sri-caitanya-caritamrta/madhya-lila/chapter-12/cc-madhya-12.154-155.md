@@ -9,7 +9,7 @@
 > pañca-śata loka yata karaye bhojana
 
 > tata anna-piṭhā-pānā saba pāṭhāila\
-> dekhi' mahāprabhura mane saṅkoca ha-ila
+> dekhi' mahāprabhura mane santoṣa ha-ila
 
 *kāśī-miśra*—Kāśī Miśra; *tulasī-paḍichā*—Tulasī, the superintendent of the temple; *dui jana*—two persons; *pañca-śata loka*—five hundred men; *yata*—as much; *karaye bhojana*—eat; *tata*—so; *anna-piṭhā-pānā*—rice, cakes and sweet rice; *saba*—all; *pāṭhāila*—sent; *dekhi'*—seeing; *mahāprabhura*—of Śrī Caitanya Mahāprabhu; *mane*—in the mind; *santoṣa*—satisfaction; *ha-ila*—there was.
 
