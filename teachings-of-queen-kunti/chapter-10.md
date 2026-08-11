@@ -48,10 +48,10 @@ I have actual experience in this connection. I do not wish to narrate this whole
 
 So to lose material opulences for Kṛṣṇa's sake is not a loss. Rather, it is the greatest gain. When one becomes *akiñcana,* having nothing to possess, Kṛṣṇa becomes one's only riches. Expressing this understanding, Narottama dāsa Ṭhākura says:
 
-> hā hā prabhu nanda-suta,     vṛṣabhānu-sutā-yuta
+> hā hā prabhu nanda-suta     vṛṣabhānu-sutā-yuta
 > karuṇā karaha ei-bāra
-> narottama dāsa kaya,     nā ṭheliha rāṅgā-pāya
-> tomā vine ke āche āmāra
+> narottama dāsa kahe     na ṭheliyā raṅga-pāya
+> tumi vinā ke āche āmāra
 
 "Kṛṣṇa, but for You I have nothing to claim. I have no possessions. You are my only possession, so please don't neglect me."
 
