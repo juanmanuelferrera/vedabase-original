@@ -10,7 +10,9 @@
 > nāvindad abda-śatam apsu nimajjamāno\
 > jāte 'ṅkure katham uhopalabheta bījam
 
-*tat-sambhavaḥ*—who was generated from that lotus flower; *kaviḥ*—he who can understand the subtle cause of creation (Lord Brahmā); *ataḥ*—from that (lotus); *anyat*—anything else; *apaśyamānaḥ*—not able to see; *tvām*—Your Lordship; *bījam*—the cause of the lotus; *ātmani*—in himself; *tatam*—expanded; *saḥ*—he (Lord Brahmā); *bahiḥ vicintya*—considering to be external; *na*—not; *avindat*—understood (You); *abda-śatam*—for a hundred years according to the demigods; *apsu*—in the water; *nimajjamānaḥ*—diving; *jāte aṅkure*—when the seed fructifies and is manifested as a creeper; *katham*—how; *uha*—O my Lord; *upalabheta*—one can perceive; *bījam*—the seed that has already fructified.
+*tat-sambhavaḥ*—who was generated from that lotus flower; *kaviḥ*—he who can understand the subtle cause of creation (Lord Brahmā); *ataḥ*—from that (lotus); *anyat*—anything else; *apaśyamānaḥ*—not able to see; *tvām*—Your Lordship; *bījam*—the cause of the lotus; *ātmani*—in himself; *tatam*—expanded; *saḥ*—he (Lord Brahmā); *bahiḥ vicintya*—considering to be external; *na*—not; *avindat*—understood (You); *abda-śatam*—for a hundred years according to the demigods;\* *apsu*—in the water; *nimajjamānaḥ*—diving; *jāte aṅkure*—when the seed fructifies and is manifested as a creeper; *katham*—how; *uha*—O my Lord; *upalabheta*—one can perceive; *bījam*—the seed that has already fructified.
+
+\*One day for the demigods equals six of our months.
 
 **From that great lotus flower, Brahmā was generated, but Brahmā certainly could see nothing but the lotus. Therefore, thinking You to be outside, Lord Brahmā dove into the water and attempted to find the source of the lotus for one hundred years. He could find no trace of You, however, for when a seed fructifies, the original seed cannot be seen.**
 

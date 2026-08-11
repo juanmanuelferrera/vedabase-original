@@ -14,7 +14,7 @@
 
 **My dear King, I have now described for you this planet earth, other planetary systems, and their lands [varṣas], rivers and mountains. I have also described the sky, the oceans, the lower planetary systems, the directions, the hellish planetary systems and the stars. These constitute the virāṭa-rūpa, the gigantic material form of the Lord, on which all living entities repose. Thus I have explained the wonderful expanse of the external body of the Lord.**
 
-Thus end the Bhaktivedanta purports of the Fifth Canto, Twenty-sixth Chapter, of *Śrīmad-Bhāgavatam,* entitled "A Description of the Hellish Planets."
+Thus end the Bhaktivedanta purports of the Fifth Canto, Twenty-sixth Chapter, of *Śrīmad-Bhāgavatam,* entitled "A Description of the Hellish Planets."—Completed in the Honolulu temple of the Pañca-tattva, June 5, 1975
 
 There is a supplementary note written by His Divine Grace Bhaktisiddhānta Sarasvatī Gosvāmī Mahārāja Prabhupāda in his *Gauḍīya-bhāṣya.* Its translation is as follows. Learned scholars who have full knowledge of all the Vedic scriptures agree that the incarnations of the Supreme Personality of Godhead are innumerable. These incarnations are classified into two divisions, called *prābhava* and *vaibhava.* According to the scriptures, *prābhava* incarnations are also classified in two divisions—those which are called eternal and those which are not vividly described. In this Fifth Canto of *Śrīmad-Bhāgavatam,* in Chapters Three through Six, there is a description of Ṛṣabhadeva, but there is not an expanded description of His spiritual activities. Therefore He is considered to belong to the second group of *prābhava* incarnations. In *Śrīmad-Bhāgavatam,* First Canto, Chapter Three, verse 13. it is said:
 
