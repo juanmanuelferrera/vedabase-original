@@ -26,6 +26,6 @@ Mahārāja Pratāparudra had firm faith in Bhaṭṭācārya, who declared Śrī
 > mām evaiṣyasi yuktvaivam
 > ātmānaṁ mat-parāyaṇaḥ
 
-"Engage your mind always in thinking of Me, become My devotee, offer obeisances to Me and worship Me. Being completely absorbed in Me, surely you will come to Me."
+"Engage your mind always in thinking of Me, become My devotee, offer obeisances and worship Me. Being completely absorbed in Me, surely you will come to Me."
 
 This process is very simple. One need only be firmly convinced by the spiritual master that Kṛṣṇa is the Supreme Personality of Godhead. If one decides this, he can make further progress by thinking of Kṛṣṇa, chanting of Kṛṣṇa and glorifying Him. There is then no doubt that such a fully surrendered devotee will receive the blessings of Lord Kṛṣṇa. Śrīla Sārvabhauma Bhaṭṭācārya explains this further.

@@ -12,7 +12,7 @@
 
 At Puruṣottama-kṣetra, or Jagannātha Purī, there is a temple of Ṭoṭā-gopīnātha. If one goes from there to the sea, he can discover the tomb of Haridāsa Ṭhākura still existing. Every year on the date of Ananta-caturdaśī there is a festival to commemorate the passing away of Haridāsa Ṭhākura. At the same place, three Deities of Nityānanda, Kṛṣṇa Caitanya and Advaita Prabhu were established about one hundred years ago. A gentleman named Bhramaravara from Kendrāpāḍā in the province of Orissa contributed funds to establish these Deities in the temple. The management of the temple was under the Ṭoṭā-gopīnātha *gosvāmīs.*
 
-This temple was later sold to someone else, and this party is now maintaining the *sevā-pūjā* of the temple. Near this temple and the tomb of Haridāsa Ṭhākura, Śrīla Bhaktivinoda Ṭhākura constructed a small house, called Bhakti-kuṭī. In the Bengali year 1329 (A.D. 1922), Puruṣottama-maṭha, a branch of the Gauḍīya Maṭha, was established there. in the *Bhakti-ratnākara* it is stated:
+This temple was later sold to someone else, and this party is now maintaining the *sevā-pūjā* of the temple. Near this temple and the tomb of Haridāsa Ṭhākura, Śrīla Bhaktivinoda Ṭhākura constructed a small house, called Bhakti-kuṭī. In the Bengali year 1329, Puruṣottama-maṭha, a branch of the Gauḍīya Maṭha, was established there. in the *Bhakti-ratnākara* it is stated:
 
 > śrīnivāsa śīghra samudrera kūle gelā
 > haridāsa-ṭhākurera samādhi dekhilā

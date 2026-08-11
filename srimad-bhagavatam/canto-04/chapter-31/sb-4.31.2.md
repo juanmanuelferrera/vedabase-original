@@ -16,7 +16,7 @@ The word brahma-satra means cultivation of spiritual knowledge. Actually, both t
 
 brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati samaḥ sarveṣu bhūteṣu mad-bhaktiṁ labhate parām
 
-"One who is thus transcendentally situated at once realizes the Supreme Brahman and becomes fully joyful. He never laments nor desires to have anything; he is equally disposed to every living entity. In that state he attains pure devotional service unto Me." (Bg. 18.54)
+"One who is thus transcendentally situated at once realizes the Supreme Brahman. He never laments nor desires to have anything; he is equally disposed to every living entity. In that state he attains pure devotional service unto Me." (Bg. 18.54)
 
 When one actually becomes spiritually advanced, he does not see the difference between one living entity and another. This platform is attained by determination. When perfect knowledge is expanded, one ceases to see the outward covering of the living entity. He sees, rather, the spirit soul within the body. Thus he does not make distinctions between a human being and an animal, a learned brāhmaṇa and a caṇḍāla.
 

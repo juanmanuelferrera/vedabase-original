@@ -8,7 +8,7 @@
 
 *kṣīra laha*—take the pot of sweet rice; *ei*—this; *yāra*—whose; *nāma*—name; *mādhava-purī*—Mādhavendra Purī; *tomā lāgi'*—for you only; *gopīnātha*—the Deity of Lord Gopīnātha; *kṣīra*—the pot of sweet rice; *kaila*—did; *curi*—steal.
 
-**Holding the pot of sweet rice, the priest called, "Will he whose name is Mādhavendra Purī please come and take this pot! Gopīnātha has stolen this pot of sweet rice for you!"**
+**Holding the pot of sweet rice, the priest called, "Will he whose name is Mādhavendra Purī please come and take this pot! Gopīnātha has stolen this pot for you!"**
 
 The difference between the Absolute Truth and relative truth is explained here. Lord Gopīnātha has openly declared herein that He is a thief. He had stolen the pot of sweet rice, and this was not kept a secret because His act of stealing is a source of great transcendental bliss. In the material world, theft is criminal, but in the spiritual world the Lord's stealing is a source of transcendental bliss. Mundane rascals, who cannot understand the absolute nature of the Personality of Godhead, sometimes call Lord Śrī Kṛṣṇa immoral, but they do not know that His seemingly immoral activities, which are not kept secret, afford pleasure to the devotees. Not understanding the transcendental behavior of the Supreme Personality of Godhead, these rascals slur His character and immediately fall into the category of miscreants (rascals, lowest among men, demons and those whose knowledge is taken away by the illusory energy). Kṛṣṇa explains in *Bhagavad-gītā* [[bg/7/15|(Bg. 7.15)]]:
 

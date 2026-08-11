@@ -8,7 +8,7 @@
 
 *caudda-śata sāta-śake*—in 1407 of the Śaka Era; *māsa*—month; *ye*—which; *phālguna*—of the name Phālguna; *paurṇamāsira*—of the full moon; *sandhyā-kāle*—in the evening; *haile*—there was; *śubha-kṣaṇa*—an auspicious constellation.
 
-**Thus in the year 1407 of the Śaka Era (A.D. 1486), in the month of Phālguna [March-April], on the evening of the full moon, the desired auspicious moment appeared.**
+**Thus in the year 1407 of the Śaka Era, in the month of Phālguna [March-April], on the evening of the full moon, the desired auspicious moment appeared.**
 
 Śrīla Bhaktivinoda Ṭhākura, in his *Amṛta-pravāha-bhāṣya,* has presented the horoscope of Śrī Caitanya Mahāprabhu as follows:
 

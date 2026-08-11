@@ -8,4 +8,4 @@
 
 *caudda-śata*—1400; *sāta*—and seven; *śake*—in the Śaka Era; *janmera*—of birth; *pramāṇa*—evidence; *caudda-śata pañcānne*—in the year 1455; *ha-ila*—became; *antardhāna*—disappearance.
 
-**In the year 1407 of the Śaka Era (A.D. 1486), Lord Śrī Caitanya Mahāprabhu appeared, and in the year 1455 (A.D. 1534) He disappeared from this world.**
+**In the year 1407 of the Śaka Era, Lord Śrī Caitanya Mahāprabhu appeared, and in the year 1455 (A.D. 1534) He disappeared from this world.**

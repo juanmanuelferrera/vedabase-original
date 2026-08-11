@@ -10,7 +10,7 @@
 
 *jīvaḥ*—the living entity; *hi*—indeed; *asya*—of him; *anugaḥ*—suitable; *dehaḥ*—body; *bhūta*—gross material elements; *indriya*—senses; *manaḥ*—mind; *mayaḥ*—made of; *tat*—of the body; *nirodhaḥ*—destruction; *asya*—of the living entity; *maraṇam*—death; *āvirbhāvaḥ*—manifestation; *tu*—but; *sambhavaḥ*—birth.
 
-**In this way the living entity gets a suitable body with a material mind and senses, according to his fruitive activities. When the reaction of his particular activity comes to an end, that end is called death, and when a particular type of reaction begins, that beginning is called birth.**
+**In this way the living entity gets a suitable body with a material mind and senses, according to his fruitive activities. When the reaction of his particular activity comes to an end, that end is called death, and when a particular type of reaction begins, that is called birth.**
 
 From time immemorial, the living entity travels in the different species of life and the different planets, almost perpetually. This process is explained in *Bhagavad-gītā. Bhrāmayan sarva-bhūtāni yantrārūḍhāni māyayā:* [[bg/18/61|[Bg. 18.61] ]] under the spell of *māyā,* everyone is wandering throughout the universe on the carriage of the body offered by the material energy. Materialistic life involves a series of actions and reactions. It is a long film spool of actions and reactions, and one life-span is just a flash in such a reactionary show. When a child is born, it is to be understood that his particular type of body is the beginning of another set of activities, and when an old man dies, it is to be understood that one set of reactionary activities is finished.
 

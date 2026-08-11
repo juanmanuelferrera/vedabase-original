@@ -10,7 +10,7 @@
 
 **“ 'All glories to Nṛsiṁhadeva! All glories to Nṛsiṁhadeva, who is the Lord of Prahlāda Mahārāja and, like the honeybee, is always engaged in beholding the lotuslike face of the goddess of fortune.**
 
-The goddess of fortune is always embraced by Lord Nṛsiṁhadeva. This is mentioned in the commentary on *Śrīmad-Bhāgavatam* in the First and Tenth Cantos by the great commentator Śrīla Śrīdhara Svāmī. The following verse was composed by Śrīdhara Svāmī in his commentary on *Śrīmad-Bhāgavatam* (10.87.1):
+The goddess of fortune is always embraced by Lord Nṛsiṁhadeva. This is mentioned in *Śrīmad-Bhāgavatam* in the First and Tenth Cantos by the great commentator Śrīla Śrīdhara Svāmī. The following verse was composed by Śrīdhara Svāmī in his commentary on *Śrīmad-Bhāgavatam* (10.87.1):
 
 > vāg-īśā yasya vadane
 > lakṣmīr yasya ca vakṣasi

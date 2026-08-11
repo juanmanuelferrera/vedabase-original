@@ -10,4 +10,4 @@
 
 **Although this is true, this is but the external reason for the Lord's incarnation. Please hear one other reason—the confidential reason-for the Lord's appearance.**
 
-In the Third Chapter, fourth verse, it has been clearly said that Lord Caitanya appeared in order to distribute love of Kṛṣṇa and the chanting of His transcendental holy name, Hare Kṛṣṇa. That was the secondary purpose of Lord Caitanya's appearance. The real reason is different, as we shall see in this chapter.
+In the Third Chapter, fourth verse, it has been clearly said that Lord Caitanya appeared to distribute love of Kṛṣṇa and the chanting of His transcendental holy name, Hare Kṛṣṇa. That was the secondary purpose of Lord Caitanya's appearance. The real reason is different, as we shall see in this chapter.

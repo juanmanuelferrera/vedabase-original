@@ -12,7 +12,7 @@
 
 **The two doors named Nalinī and Nālinī should be known as the two nostrils, and the city named Saurabha represents aroma. The companion spoken of as Avadhūta is the sense of smell. The door called Mukhyā is the mouth, and Vipaṇa is the faculty of speech. Rasajña is the sense of taste.**
 
-The word avadhūta means "most free." A person is not under the rules and regulations of any injunction when he has attained the stage of avadhūta. In other words, he can act as he likes. This avadhūta stage is exactly like air, which does not care for any obstruction. In Bhagavad-gītā it is said:
+The word avadhūta means "most free." A person is not under the rules and regulations of any injunction when he has attained the stage of avadhūta. In other words, he can act as he likes. This avadhūta is exactly like air, which does not care for any obstruction. In Bhagavad-gītā it is said:
 
 cañcalaṁ hi manaḥ kṛṣṇa pramāthi balavad dṛḍham tasyāhaṁ nigrahaṁ manye vāyor iva suduṣkaram
 

@@ -16,7 +16,7 @@
 
 The Supreme Personality of Godhead is not anything of material creation. Everything material must change from one form to another—for example, from earth to earthen pot and from earthen pot to earth again. All our creations are temporary, impermanent. The Supreme Personality of Godhead, however, is eternal, and similarly the living entities, who are parts of Him, are also eternal (*mamaivāṁśo jīva-loke jīva-bhūtaḥ sanātanaḥ* [[bg/15/7|[Bg. 15.7] ]]). The Supreme Personality of Godhead is *sanātana,* eternal, and the individual living entities are also eternal. The difference is that Kṛṣṇa, or God, is the supreme eternal, whereas the individual souls are minute, fragmental eternals. As stated in *Bhagavad-gītā* [[bg/13/3|(Bg. 13.3)]], *kṣetra-jñaṁ cāpi māṁ viddhi sarva-kṣetreṣu bhārata.* Although the Lord is a living being and the individual souls are living beings, the Supreme Lord, unlike the individual souls, is *vibhu,* all-pervading, and *ananta,* unlimited. The Lord is the cause of everything. The living entities are innumerable, but the Lord is one. No one is greater than Him, and no one is equal to Him. Thus the Lord is the supreme worshipable object, as understood from the Vedic *mantras* (*na tat-samaś cābhyadhikaś ca dṛśyate*). The Lord is supreme because no one can evaluate Him by mental speculation or jugglery of words. The Lord can travel more quickly than the mind. In the *śruti-mantras* of *Īśopaniṣad* it is said:
 
-The Demigods Appeal to the Lord anejad ekaṁ manaso javīyo
+Anejad ekaṁ manaso javīyo
 The Demigods Appeal to the Lord nainad devā āpnuvan pūrvam arṣat
 The Demigods Appeal to the Lord tad dhāvato 'nyān atyeti tiṣṭhat
 The Demigods Appeal to the Lord tasminn apo mātariśvā dadhāti
