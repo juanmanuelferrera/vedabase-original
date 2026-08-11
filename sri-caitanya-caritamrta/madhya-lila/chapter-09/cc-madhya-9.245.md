@@ -8,7 +8,7 @@
 
 *madhva-ācārya-sthāne*—at the place of Madhvācārya; *āilā*—arrived; *yāṅhā*—where; *tattva-vādī*—philosophers known as Tattvavādīs; *uḍupīte*—at the place known as Uḍupī; *kṛṣṇa*—the Deity of Lord Kṛṣṇa; *dekhi*—seeing; *tāhāṅ*—there; *haila*—became; *prema-unmādī*—mad in ecstasy.
 
-**Caitanya Mahāprabhu next arrived at the place of Madhvācārya, where the philosophers known as Tattvavādīs resided. There He saw the Deity of Lord Kṛṣṇa and became mad with ecstasy.**
+**Caitanya Mahāprabhu next arrived at the place of Madhvācārya, where the philosophers known as Tattvavādīs resided. He stayed there at a place known as Uḍupī, where he saw the Deity of Lord Kṛṣṇa and became mad with ecstasy.**
 
 Śrīpāda Madhvācārya took his birth at Uḍupī, which is situated in the South Kānāḍā district of South India, just west of Sahyādri. This is the chief city of the South Kānāḍā province and is near the city of Mangalore, which is situated to the south of Uḍupī. In the city of Uḍupī is a place called Pājakā-kṣetra, where Madhvācārya took his birth in a Śivāllī-brāhmaṇa dynasty as the son of Madhyageha Bhaṭṭa, in the year 1040 of Śakābda. According to some, he was born in the year 1160 Śakābda.
 

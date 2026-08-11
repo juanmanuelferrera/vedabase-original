@@ -399,7 +399,7 @@ No disliking, no liking. Whatever Kṛṣṇa likes, that's all right.
 Yes. But say someone prepares something, like some *prasāda* for Kṛṣṇa, but he does not make it so good, and it is—
 
 **Śrīla Prabhupāda:**
-No, if made sincerely with devotion, then Kṛṣṇa will like it. Just like Vidura. Vidura was feeding Kṛṣṇa bananas, but he was so absorbed in thought that he was throwing away the real bananas and he was giving Kṛṣṇa the skin, and Kṛṣṇa was eating. [*All laugh*] Kṛṣṇa knew that he was giving in devotion, and Kṛṣṇa can eat anything, provided there is devotion. It does not matter whether it is materially tasteful or not. Similarly, a devotee also takes Kṛṣṇa *prasāda,* whether it is materially tasteful or not. We should accept everything.
+No, if made sincerely with devotion, then Kṛṣṇa will like it. Just like Vidu. Vidu was feeding Kṛṣṇa bananas, but he was so absorbed in thought that he was throwing away the real bananas and he was giving Kṛṣṇa the skin, and Kṛṣṇa was eating. [*All laugh*] Kṛṣṇa knew that he was giving in devotion, and Kṛṣṇa can eat anything, provided there is devotion. It does not matter whether it is materially tasteful or not. Similarly, a devotee also takes Kṛṣṇa *prasāda,* whether it is materially tasteful or not. We should accept everything.
 
 **A devotee:**
 But if the devotion is not there, like in India...

@@ -14,4 +14,4 @@
 
 **“ 'If by chance the transcendental form of Kṛṣṇa comes before My path of vision, My heart, injured from being beaten, will be stolen away by Cupid, happiness personified. Because I could not see the beautiful form of Kṛṣṇa to My heart's content, when I again see His form I shall decorate the phases of time with many jewels.' "**
 
-This verse is spoken by Śrīmatī Rādhārāṇī in the *Jagannātha-vallabha-nāṭaka* (3.11), by Rāmānanda Rāya.
+This verse is spoken by Śrīmatī Rādhārāṇī in the *Jagannātha-vallabha-nāṭaka* (3.11) of Rāmānanda Rāya.

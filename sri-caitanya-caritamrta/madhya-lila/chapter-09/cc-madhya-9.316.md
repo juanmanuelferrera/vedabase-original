@@ -10,4 +10,4 @@
 
 **Eventually Śrī Caitanya Mahāprabhu arrived at a lake known as Pampā, where He took His bath. He then went to a place called Pañcavaṭī, where He rested.**
 
-According to some, the old name of the Tuṅgabhadrā River was Pambā. According to others, Vijaya-nagara, the capital of the state, was known as Pampātīrtha. Yet according to others, the lake near Anāguṇḍi, in the direction of Hyderabad. is Pampā-sarovara. The river Tuṅgabhadrā also flows through there. There are many different opinions about the lake called Pampā-sarovara.
+According to some, the old name of the Tuṅgabhadrā River was Pambā. According to others, Vijaya-nagara, the capital of the state, was known as Pampātīrtha. Yet according to others, there is a lake near Anāguṇḍi in the direction of Hyderabad. The river Tuṅgabhadrā also flows through there. There are many different opinions about the lake called Pampā-sarovara.

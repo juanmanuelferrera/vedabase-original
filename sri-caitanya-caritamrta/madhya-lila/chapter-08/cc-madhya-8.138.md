@@ -29,7 +29,7 @@ The spiritual realm of Vṛndāvana is always spiritual. The goddess of fortune 
 
 "When will Lord Nityānanda have mercy upon me so that I can realize the uselessness of material pleasure?"
 
-> viṣaya chāḍiyā kabe śuddha habe mana
+> viṣaya-chāḍiyā kabe śuddha ha'be mana
 > kabe hāma heraba śrī-vṛndāvana
 
 "When will my mind be cleansed of all material dirt so that I will be able to feel the presence of spiritual Vṛndāvana?"

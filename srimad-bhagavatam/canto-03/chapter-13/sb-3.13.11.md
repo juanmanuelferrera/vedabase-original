@@ -12,7 +12,7 @@
 
 **Since you are my very obedient son, I ask you to beget children qualified like yourself in the womb of your wife. Rule the world in pursuance of the principles of devotional service unto the Supreme Personality of Godhead, and thus worship the Lord by performances of yajña.**
 
-The purpose of the material creation by Brahmā is clearly described herein. Every human being should beget nice children in the womb of his wife, as a sacrifice for the purpose of worshiping the Supreme Personality of Godhead in devotional service. In the *Viṣṇu Purāṇa* (3.8.9) it is stated:
+The purpose of the material creation by Brahmā is clearly described herein. Every human being should beget nice children in the womb of his wife, as a sacrifice for the purpose of worshiping the Supreme Personality of Godhead in devotional service. In the *Viṣṇu Purāṇa* it is stated:
 
 > varṇāśramācāravatā
 > puruṣeṇa paraḥ pumān

@@ -310,7 +310,7 @@ That upon which a person meditates at the time of death, quitting his body absor
 
 
 
-Mahārāja Bharata, despite a life of severe penances, thought of a stag at the time of his death and thus became a stag after death. However, he did retain a clear consciousness of his past life and realized his mistake. It is important to realize that one's thoughts at the time of death are influenced by the actual deeds which one performs during his life.
+Mahārāj Bharata, despite a life of severe penances, thought of a stag at the time of his death and thus became a stag after death. However, he did retain a clear consciousness of his past life and realized his mistake. It is important to realize that one's thoughts at the time of death are influenced by the actual deeds which one performs during his life.
 
 
 

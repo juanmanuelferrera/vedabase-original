@@ -8,4 +8,4 @@
 
 *prabhu kahe*—the Lord replied; *kara*—do; *tumi*—you; *dainya*—humility; *saṁvaraṇa*—checking; *tomāra*—your; *dainyete*—by humility; *mora*—My; *vyākula*—agitated; *haya*—becomes; *mana*—the mind.
 
-**The Lord replied to Haridāsa Ṭhākura, "Please check your humility. Just seeing your humility, very much agitates My mind."**
+**The Lord replied to Haridāsa Ṭhākura, "Please check your humility. Just by seeing your humility, my mind becomes very much agitated."**
