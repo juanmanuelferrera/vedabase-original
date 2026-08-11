@@ -28,7 +28,7 @@ The second *nāmāparādha* is described as follows:
 
 In this material world, the holy name of Viṣṇu is all-auspicious. Viṣṇu's name, form, qualities and pastimes are all transcendental, absolute knowledge. Therefore, if one tries to separate the Absolute Personality of Godhead from His holy name or His transcendental form, qualities and pastimes, thinking them to be material, that is offensive. Similarly, to think the names of demigods such as Lord Śiva to be as good as the name of Lord Viṣṇu-or, in other words, to think Lord Śiva and the other demigods to be other forms of God and therefore equal to Viṣṇu-is also blasphemous. This is the second offense at the lotus feet of the Lord.
 
-The third offense at the lotus feet of the holy name, which is called *guror avajñā,* is to consider the spiritual master to be material and therefore envy his exalted position. The fourth offense (*śruti-śāstra-nindanam*) is to blaspheme Vedic scriptures such as the four *Vedas* and the *Puraṇas.* The fifth offense (*artha-vādaḥ*) is to consider the glories of the holy name to be exaggerations. Similarly, the sixth offense (*hari-nāmni kalpanam*) is to consider the holy name of the Lord to be imaginary.
+The third offense at the lotus feet of the holy name, which is called *guror avajñā,* is to consider the spiritual master to be material and therefore envy his exalted position. The fourth offense (*śruti-śāstra-nindanam*) is to blaspheme Vedic scriptures such as the four *Vedas* and the *Puraṇas.* The fifth offense (*tathārtha-vādaḥ*) is to consider the glories of the holy name to be exaggerations. Similarly, the sixth offense (*hari-nāmni kalpanam*) is to consider the holy name of the Lord to be imaginary.
 
 The seventh offense is described as follows:
 
