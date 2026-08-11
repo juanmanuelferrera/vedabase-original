@@ -12,4 +12,4 @@
 
 **"Knowing me to be performing austerities with the desire to touch His feet, He came with His friend Arjuna and accepted my hand. Yet I am but a maidservant engaged in sweeping the floor of the house of Śrī Kṛṣṇa."**
 
-Like the previous verse, this verse appears in *Śrīmad-Bhāgavatam* (10.83.11) in connection with the meeting of the family ladies of the Kuru and Yadu dynasties at Samanta-pañcaka. At the time of that meeting, the queen of Kṛṣṇa named Kālindī spoke to Draupadī in this way.
+This verse appears in *Śrīmad-Bhāgavatam* (10.83.11) in connection with the meeting of the family ladies of the Kuru and Yadu dynasties at Samanta-pañcaka. At the time of that meeting, the queen of Kṛṣṇa named Kālindī spoke to Draupadī in this way.

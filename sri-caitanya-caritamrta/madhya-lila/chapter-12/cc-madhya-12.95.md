@@ -8,4 +8,4 @@
 
 *āra*—other; *śata jana*—about one hundred men; *śata ghaṭe*—in a hundred waterpots; *jala*—water; *bhari'*—filling; *prathamei*—in the first instance; *lañā*—taking; *āche*—were; *kāla*—the time; *apekṣā kari'*—awaiting.
 
-**While the temple was being swept, about a hundred men stood ready with filled waterpots, and they simply awaited the Lord's order to throw the water from them.**
+**While the temple was being swept, about a hundred men stood ready with filled waterpots, and they simply awaited the Lord's order to throw them.**

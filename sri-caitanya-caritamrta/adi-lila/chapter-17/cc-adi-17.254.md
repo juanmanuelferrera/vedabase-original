@@ -8,4 +8,4 @@
 
 *śuni'*—hearing; *krodha*—angry; *kaila*—became; *saba*—all; *paḍuyāra*—of students; *gaṇa*—the groups; *sabe*—all; *meli'*—joining to gether; *kare*—do; *tabe*—then; *prabhura*—of the Lord; *nindana*—accusation.
 
-**Hearing of the incident, all the students became greatly angry, joined together in criticizing the Lord.**
+**Hearing of the incident, all the students, greatly angry, joined together in criticizing the Lord.**

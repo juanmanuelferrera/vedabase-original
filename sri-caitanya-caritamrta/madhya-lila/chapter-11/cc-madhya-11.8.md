@@ -23,6 +23,6 @@ Unfortunately, the general populace does not know anything about spiritual life 
 > yaḥ sa sarveṣu bhūteṣu
 > naśyatsu na vinaśyati
 
-"Yet there is another unmanifest nature, which is eternal and is transcendental to this manifested and unmanifested matter. It is supreme and is never annihilated. When all in this world is annihilated, that part remains as it is."
+"Yet there is another nature, which is eternal and is transcendental to this manifested and unmanifested matter. It is supreme and is never annihilated. When all in this world is annihilated, that part remains as it is."
 
 Thus there is a spiritual nature beyond this material world, and that spiritual nature exists eternally. Spiritual advancement means stopping material activities and entering into spiritual activities. This is the process of *bhakti-yoga.* In the material world, the via media for sense gratification is mainly a woman. One who is seriously interested in spiritual life should strictly avoid women. A *sannyāsī* should never see a man or a woman for material benefit. In addition, talks with materialistic men and women are also dangerous, and they are compared to drinking poison. Śrī Caitanya Mahāprabhu was very strict on this point. He therefore refused to see King Pratāparudra, who was naturally always engaged in political and economic affairs. The Lord even refused to see the King despite the request of a personality like Sārvabhauma Bhaṭṭācārya, who was the Lord's intimate friend and devotee.

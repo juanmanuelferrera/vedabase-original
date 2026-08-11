@@ -10,7 +10,7 @@
 
 **The Lord told Sārvabhauma Bhaṭṭācārya, "I have traveled to many holy places, but I could not find a Vaiṣṇava as good as you anywhere."**
 
-In the *Śrī Caitanya-candrodaya-nāṭaka* (eighth part) Śrī Caitanya Mahāprabhu said, "Sārvabhauma, I have traveled to many holy places, but I cannot find a Vaiṣṇava as good as you anywhere. However, I must admit that Rāmānanda Rāya is wonderful."
+In the *Śrī Caitanya-candrodaya* (eighth part) Śrī Caitanya Mahāprabhu said, "Sārvabhauma, I have traveled to many holy places, but I cannot find a Vaiṣṇava as good as you anywhere. However, I must admit that Rāmānanda Rāya is wonderful."
 
 Sārvabhauma Bhaṭṭācārya replied, "Therefore, my Lord, I requested that You see him."
 

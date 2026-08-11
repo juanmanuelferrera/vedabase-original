@@ -19,4 +19,4 @@ According to *Śrīmad-Bhāgavatam* (11.2.30):
 > saṁsāre 'smin kṣaṇārdho 'pi
 > sat-saṅgaḥ śevadhir nṛṇām
 
-"We are asking you to tell us what is the most perfect welfare activity from you. I think that in this material world, association with devotees-even if it be for a moment-is the greatest treasure house for mankind."
+"We are asking the most perfect welfare activity from you. I think that in this material world, association with devotees-even if it be for a moment-is the greatest treasure house for mankind."

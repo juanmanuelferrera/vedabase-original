@@ -18,7 +18,7 @@ The Supreme Personality of Godhead is not anything of material creation. Everyth
 
 Anejad ekaṁ manaso javīyo
 The Demigods Appeal to the Lord nainad devā āpnuvan pūrvam arṣat
-The Demigods Appeal to the Lord tad dhāvato 'nyān atyeti tiṣṭhat
+Tad dhāvato 'nyān atyeti tiṣṭhat
 The Demigods Appeal to the Lord tasminn apo mātariśvā dadhāti
 
 "Although fixed in His abode, the Personality of Godhead is swifter than the mind and can overcome all others running. The powerful demigods cannot approach Him. Although in one place, He controls those who supply the air and rain. He surpasses all in excellence." (*Īśopaniṣad* 4) Thus the Supreme is never to be equaled by the subordinate living entities.

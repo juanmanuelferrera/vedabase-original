@@ -12,4 +12,4 @@
 
 **You have already been informed about the nine daughters of Kardama Muni, who were handed over to nine different sages. I shall now describe the descendants of those nine daughters. Please hear from me.**
 
-The Third Canto it is already described how Kardama Muni begot nine daughters in Devahūti and later on all the daughters were later handed over to great sages like Marīci, Atri and Vasiṣṭha.
+The Third Canto it is already described how Kardama Muni begot nine daughters in Devahūti and later on all the daughters were handed over to great sages like Marīci, Atri and Vasiṣṭha.

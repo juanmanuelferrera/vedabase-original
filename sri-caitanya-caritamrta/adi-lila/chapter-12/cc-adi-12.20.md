@@ -10,4 +10,4 @@
 
 **When Lord Caitanya personally cleansed the Guṇḍicā-mandira in Jagannātha Purī, Gopāla danced in front of the Lord with great love and happiness.**
 
-The Guṇḍicā-mandira is situated in Jagannātha Purī, and every year Jagannātha, Balabhadra and Subhadrā come there from the Jagannātha temple to stay for eight days. When Lord Caitanya Mahāprabhu lived at Jagannātha Purī, every year He personally cleansed this temple with His principal devotees. The *Guṇḍicā-mārjana* chapter of *Caitanya-caritāmṛta* (Madhya 12) describes this vividly.
+The Guṇḍicā-mandira is situated in Jagannātha Purī, and every year Jagannātha, Balabhadra and Subhadrā come there from the Jagannātha temple to stay for eight days. When Lord Caitanya Mahāprabhu lived at Jagannātha Purī, every year He personally cleansed this temple with His principal devotees. The *Guṇḍicā-mārjana* chapter of *Caitanya-caritāmṛta* describes this vividly.

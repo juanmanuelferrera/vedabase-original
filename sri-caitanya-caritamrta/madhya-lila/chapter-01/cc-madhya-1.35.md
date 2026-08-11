@@ -8,7 +8,7 @@
 
 *hari-bhakti-vilāsa*—the scripture named *Hari-bhakti-vilāsa*; *āra*—and; *bhāgavata-amṛta*—the scripture named *Bhāgavatāmṛta*; *daśama-ṭippanī*—comments on the Tenth Canto of *Śrīmad-Bhāgavatam*; *āra*—and; *daśama-carita*—poetry about the Tenth Canto of *Śrīmad-Bhāgavatam.*
 
-**Some of the books compiled by Śrīla Sanātana Gosvāmī were Hari-bhakti-vilāsa, Bṛhad-bhāgavatāmṛta, Daśama-ṭippanī and Daśama-carita.**
+**Some of the books compiled by Śrīla Sanātana Gosvāmī were Hari-bhakti-vilāsa, Bhāgavatāmṛta, Daśama-ṭippanī and Daśama-carita.**
 
 In the First Wave of the book known as *Bhakti-ratnākara,* it is said that Sanātana Gosvāmī understood *Śrīmad-Bhāgavatam* by thorough study and explained it in his commentary known as *Vaiṣṇava-toṣaṇī* All the knowledge that Śrī Sanātana Gosvāmī and Rūpa Gosvāmī directly acquired from Śrī Caitanya Mahāprabhu was broadcast all over the world by their expert service. Sanātana Gosvāmī gave his *Vaiṣṇava-toṣaṇī* commentary to Śrīla Jīva Gosvāmī for editing, and Śrīla Jīva Gosvāmī edited this under the name of *Laghu-toṣaṇī.* Whatever he immediately put down in writing was finished in the year 1476 Śaka. Śrīla Jīva Gosvāmī completed *Laghu-toṣaṇī* in the year Śakābda 1504.
 

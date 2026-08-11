@@ -10,4 +10,4 @@
 
 *advaita-aṅghri*—the lotus feet of Advaita Ācārya; *abja*—lotus flower; *bhṛṅgān*—bumblebees; *tān*—all of them; *sāra-asāra*—real and not real; *bhṛtaḥ*—accepting; *akhilān*—all of them; *hitvā*—giving up; *asārān*—not real; *sāra-bhṛtaḥ*—those who are real; *naumi*—offer my obeisances; *caitanya-jīvanān*—whose life and soul were Lord Caitanya Mahāprabhu.
 
-**The followers of Śrī Advaita Prabhu were of two kinds. Some were real followers, and the others were false. Rejecting the false followers, I offer my respectful obeisances to the real followers of Śrī Advaita Ācārya Śrī Advaita Ācārya's real followers, whose life and soul were Śrī Caitanya Mahāprabhu.**
+**The followers of Śrī Advaita Prabhu were of two kinds. Some were real followers, and the others were false. Rejecting the false followers, I offer my respectful obeisances to the real followers of Śrī Advaita Ācārya whose life and soul were Śrī Caitanya Mahāprabhu.**

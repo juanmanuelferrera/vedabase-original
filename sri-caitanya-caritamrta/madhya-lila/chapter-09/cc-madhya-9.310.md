@@ -10,7 +10,7 @@
 
 **Śrī Caitanya Mahāprabhu next arrived at the banks of the river Tāpī. After bathing there, He went to Māhiṣmatī-pura. While there, He saw many holy places on the banks of the river Narmadā.**
 
-The river Tāpī is presently known as Tāpti. The river's source is a mountain called Multāi, and the river flows westward through the state of Saurāṣṭra and into the Arabian Sea. Māhiṣmatī-pura is mentioned in *Mahābhārata* in connection with Sahadeva's victory. Sahadeva, the youngest brother of the Pāṇḍavas, conquered that part of the country. As stated in the *Mahābhārata:*
+The river Tāpī is presently known as Tāpti. The river's source is a mountain called Multāi, and the river flows through the state of Saurāṣṭra and into the western Arabian Sea. Māhiṣmatī-pura is mentioned in *Mahābhārata* in connection with Sahadeva's victory. Sahadeva, the youngest brother of the Pāṇḍavas, conquered that part of the country. As stated in the *Mahābhārata:*
 
 > tato ratnāny upādāya
 > purīṁ māhiṣmatīṁ yayau

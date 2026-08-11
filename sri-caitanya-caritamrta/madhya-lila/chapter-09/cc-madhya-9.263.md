@@ -31,6 +31,6 @@ One cannot be elevated to the highest platform of devotional service by *karma-k
 > kutaḥ punaḥ śaśvad abhadram īśvare
 > na cārpitaṁ karma yad apy akāraṇam
 
-"Knowledge of self-realization, even though freed from all material affinity, does not look well if devoid of a conception of the Infallible [God]. What, then, is the use of fruitive activities, which are naturally painful from the very beginning and transient by nature, if they are not utilized for the devotional service of the Lord?" This means that even knowledge, which is superior to fruitive activity, is not successful if it is devoid of devotional service. In all scriptures—in the beginning, middle and end—*karma-kāṇḍa* and *jñāna-kāṇḍa* are condemned. For example, in *Śrīmad-Bhāgavatam* 1.1.2 it is said: *dharmaḥ projjhita-kaitavo 'tra.*
+"Knowledge of self-realization, even though freed from all material affinity, does not look well if devoid of a conception of the Infallible [God]. What, then, is the use of fruitive activities, which are naturally painful from the very beginning and transient by nature, if they are not utilized for the devotional service of the Lord?" This means that even knowledge, which is superior to fruitive activity, is not successful if it is devoid of devotional service. In all scriptures—in the beginning, middle and end—*karma-kāṇḍa* and *jñāna-kāṇḍa* are condemned. In *Śrīmad-Bhāgavatam* it is said: *dharmaḥ projjhita-kaitavo 'tra.*
 
 This is explained in the following verses taken from *Śrīmad-Bhāgavatam* (11.11.32) and *Bhagavad-gītā* [[bg/18/66|(Bg. 18.66)]].
