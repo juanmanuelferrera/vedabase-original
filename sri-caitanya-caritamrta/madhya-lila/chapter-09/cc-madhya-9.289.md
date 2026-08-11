@@ -4,7 +4,7 @@
 > তাহা বিনা অন্যত্র নাহি এই প্রেমার গন্ধ ॥২৮৯॥
 
 > śrīpāda, dhara mora gosāñira sambandha\
-> tāhā vinā anyatra nāhi ek premāra gandha
+> tāhā vinā anyatra nāhi ei premāra gandha
 
 *śrī-pāda*—O Your Holiness; *dhara*—You hold; *mora*—my; *gosāñira*—with Śrī Mādhavendra Purī; *sambandha*—relationship; *tāhā vinā*—without him; *anyatra*—elsewhere; *nāhi*—there is not; *ei*—this; *premāra*—of ecstasy; *gandha*—fragrance.
 
