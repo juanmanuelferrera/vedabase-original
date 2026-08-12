@@ -10,7 +10,7 @@
 
 **If one is infested with the ten offenses in the chanting of the Hare Kṛṣṇa mahā-mantra, despite his endeavor to chant the holy name for many births, he will not get the love of Godhead which is the ultimate goal of this chanting.**
 
-Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura says in this connection that unless one accepts Śrī Caitanya Mahāprabhu, although one goes on chanting the Hare Kṛṣṇa *mantra* for many, many years, there is no possibility of his attaining the platform of devotional service. One must follow strictly the instruction of Śrī Caitanya Mahāprabhu given in the *Śikṣāṣṭaka* (3):
+Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura says in this connection that unless one accepts Śrī Caitanya Mahāprabhu, although one goes on chanting the Hare Kṛṣṇa *mantra* for many, many years, there is no possibility of his attaining the platform of devotional service. One must follow strictly the instruction of Śrī Caitanya Mahāprabhu given in the *Śikṣāṣṭaka*:
 
 > tṛṇād api sunīcena
 > taror iva sahiṣṇunā

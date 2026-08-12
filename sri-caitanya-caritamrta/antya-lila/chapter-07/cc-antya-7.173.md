@@ -10,4 +10,4 @@
 
 **Praying at the lotus feet of Śrī Rūpa and Śrī Raghunātha, always desiring their mercy, I, Kṛṣṇadāsa, narrate Śrī Caitanya-caritāmṛta, following in their footsteps.**
 
-*Thus end the Bhaktivedanta purports to Śrī Caitanya-caritāmṛta, Antya-līlā,  Seventh Chapter, describing the meeting of Vallabha Bhaṭṭa with Śrī Caitanya Mahāprabhu.*
+*Thus end the Bhaktivedanta purports to the Śrī Caitanya-caritāmṛta, Antya-līlā,  Seventh Chapter, describing the meeting of Vallabha Bhaṭṭa with Śrī Caitanya Mahāprabhu.*
