@@ -4,7 +4,7 @@
 > বিস্তারি’ বর্ণিয়াছেন তাহা দাস-বৃন্দাবন ॥৪৭॥
 
 > sei, anusāre likhi līlā-sūtragaṇa\
-> vistāri' varṇiāchena tāhā dāsa-vṛndāvana
+> vistāri' varṇiyāchena tāhā dāsa-vṛndāvana
 
 *sei*—that; *anusāre*—following; *likhi*—I write; *līlā*—pastimes; *sūtra-gaṇa*—codes; *vistāri'*—very explicitly; *varṇiyāchena*—has described; *tāhā*—that; *dāsa-vṛndāvana*—Vṛndāvana dāsa Ṭhākura.
 

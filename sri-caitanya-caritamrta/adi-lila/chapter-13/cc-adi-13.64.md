@@ -3,7 +3,7 @@
 > গীতা-ভাগবত কহে আচার্য-গোসাঞি ।\
 > জ্ঞান-কর্ম নিন্দি’ করে ভক্তির বড়াই ॥৬৪॥
 
-> gītā-bhhāgavata kahe ācārya-gosāñi\
+> gītā-bhāgavata kahe ācārya-gosāñi\
 > jñāna-karma nindi' kare bhaktira baḍāi
 
 *gītā*—*Bhagavad-gītā*; *bhāgavata*—*Śrīmad-Bhāgavatam*; *kahe*—recites; *ācārya-gosāñi*—Advaita Ācārya; *jñāna*—the path of philosophical speculation; *karma*—fruitive activity; *nindi'*—decrying; *kare*—establishes; *bhaktira*—of devotional service; *baḍāi*—excellence.
