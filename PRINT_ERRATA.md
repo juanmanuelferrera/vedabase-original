@@ -14,7 +14,7 @@ gloss that says the opposite of what the word means. **Those are reproduced too.
 What the reader gets is the book as it was printed, not the book as it should
 have been printed.
 
-So: **the 77 entries below are deliberate.** If you are editing this repository
+So: **the 76 entries below are deliberate.** If you are editing this repository
 and find `conquerer`, `harrassed` or `Janamcjaya`, do not fix them. They are what
 the page says, verified against the image — in most cases at 400–600 dpi — before
 being written.
@@ -28,7 +28,7 @@ copy, not a reading, and is not reproduced.
 This list is what the collation *found*, and the method has a blind spot worth
 stating: it can only surface an errata where the digital text and the scan
 **differ**. An errata that the digital text had carried from the start produces
-no divergence, so it never comes up. These 77 are the print's errors that someone
+no divergence, so it never comes up. These 76 are the print's errors that someone
 had silently corrected and we have put back — not every error in the print.
 The list grows as the audit continues.
 
@@ -40,7 +40,7 @@ The ones most likely to mislead: a reader learning Sanskrit takes away the meani
 | Reference | Digital text had | Print reads — and this is what we serve | Page |
 |---|---|---|---|
 | CC Ādi 1.97 | paṭa-ādi—plates, etc.; | **paṭa-ādi—space, etc.;** <br><sub>The word-for-word glosses paṭa-ādi as “space”; the sense is cloth and plates.</sub> | — |
-| CC Madhya 3.28 | sun | **son** | p. 282 |
+| CC Madhya 3.28 | daughter of the sun-god | **daughter of the son-god** | p. 282 |
 | CC Madhya 8.173 | adhara—lips; | **adhara—lies;** <br><sub>The word-for-word glosses adhara as “lies”; the word means lips.</sub> | — |
 
 ## Factual error (1)
@@ -49,7 +49,7 @@ The ones most likely to mislead: a reader learning Sanskrit takes away the meani
 |---|---|---|---|
 | SB — Introduction | (formerly known as Sākara Mallika) | **(formerly known as Dabir Khās)** <br><sub>Dabir Khās was Rūpa Gosvāmī’s name in government service; Sanātana’s was Sākara Mallika.</sub> | p. 33 |
 
-## Proper names and Sanskrit terms deformed in print (18)
+## Proper names and Sanskrit terms deformed in print (17)
 
 Where it helps, the note gives the form used elsewhere in these books.
 
@@ -63,7 +63,6 @@ Where it helps, the note gives the form used elsewhere in these books.
 | EJ 1 | Śrīpāda Rāmānujācārya defines | **Śrīman Rāmānujācārya defines** | — |
 | EKC 4 | Śikṣāṣṭaka | **Śikṣāṣṭakam** | p. 53 |
 | NOD 21 | Yudhiṣṭhira | **Yushiṣṭhira** | p. 210 |
-| SB 1.2.20 | sattva | **sattra** | p. 133 |
 | SB 1.9.6-7 | Janamejaya | **Janamcjaya** | p. 96 |
 | SB 5.14.13 | Cakravartī | **Cakravatī** | p. 59 |
 | SB 5.14.41 | Personality | **Personalty** | p. 96 |
