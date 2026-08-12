@@ -70,7 +70,7 @@ It was Lord Śiva who said: "I do not know the truth about Kṛṣṇa, but a de
 
 Above Prahlāda, the Pāṇḍavas are supposedly more advanced. Above the Pāṇḍavas are the members of the Yadu dynasty, who are even more advanced. In the Yadu dynasty, Uddhava is the furthest advanced, and above Uddhava are the damsels of Vraja-dhāma, the *gopīs* themselves.
 
-In the *Bṛhad-vāmana Purāṇa,* Lord Brahmā tells Bhṛgu:
+In the *Bṛhad-vāmana Purāṇa,* Bhṛgu is told by Lord Brahmā:
 
 > ṣaṣṭi-varṣa-sahasrāṇi
 > mayā taptaṁ tapaḥ purā

@@ -8,4 +8,4 @@
 
 *sama-dṛśaḥ*—*samadṛśaḥ*; *śabde*—by this word; *kahe*—it says; *sei*—that; *bhāve*—in the emotion; *anugati*—following; *samāḥ*—*samāḥ*; *śabde*—by this word; *kahe*—it says; *śrutira*—of the persons known as the *śrutis*; *gopī-deha*—the bodies of *gopīs*; *prāpti*—attainment.
 
-**"The word 'sama-dṛśaḥ,' mentioned in the fourth line of the previous verse, means 'following the mood of the gopīs.' The word 'samāḥ' means 'attaining a body like those of the gopīs.'**
+**"The word 'samadṛśaḥ,' mentioned in the fourth line of the previous verse, means 'following the mood of the gopīs.' The word 'samāḥ' means 'attaining a body like those of the gopīs.'**

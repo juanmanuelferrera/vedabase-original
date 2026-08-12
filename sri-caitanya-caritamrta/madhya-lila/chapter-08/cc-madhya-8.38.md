@@ -10,7 +10,7 @@
 
 **"You have come here specifically to deliver me. You are so merciful that You alone can deliver all fallen souls.**
 
-Śrīla Narottama dāsa Ṭhākura sings in his *Prārthanā* (39):
+Śrīla Narottama dāsa Ṭhākura sings in his *Prārthanā* (40):
 
 > śrī-kṛṣṇa-caitanya-prabhu dayā kara more,
 > tomā vinā ke dayālu jagat-saṁsāre
