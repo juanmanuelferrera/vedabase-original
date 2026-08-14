@@ -26,7 +26,7 @@ māṁ ca yo 'vyabhicāreṇa
 
 bhakti-yogena sevate
 
-sa guṇān samatītyai'tan
+sa guṇān samatītyai 'tan
 
 brahma-bhūyāya kalpate
 

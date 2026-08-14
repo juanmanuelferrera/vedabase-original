@@ -12,4 +12,4 @@
 
 **The Supreme indestructible Lord is ascertained through the performance of ritualistic sacrifices and is therefore known as Yajñeśvara. In His incarnation as Lord Boar, He raised the planet earth from the water at the bottom of the universe and kept it on His pointed tusks. May that Lord protect me from rogues on the street. May Paraśurāma protect me on the tops of mountains, and may the elder brother of Bharata, Lord Rāmacandra, along with His brother Lakṣmaṇa, protect me in foreign countries.**
 
-There are three Rāmas. One Rāma is Paraśurāma (Jāmadāgnya), another Rāma is Lord Rāmacandra, and a third Rāma is Lord Balarāma. In this verse the words *rāmo'dri-kūṭeṣv atha* indicate Lord Paraśurāma. The brother of Bharata Mahārāja and Lakṣmaṇa is Lord Rāmacandra.
+There are three Rāmas. One Rāma is Paraśurāma (Jāmadāgnya), another Rāma is Lord Rāmacandra, and a third Rāma is Lord Balarāma. In this verse the words *rāmo 'dri-kūṭeṣv atha* indicate Lord Paraśurāma. The brother of Bharata Mahārāja and Lakṣmaṇa is Lord Rāmacandra.

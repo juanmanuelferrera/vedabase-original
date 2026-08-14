@@ -40,7 +40,7 @@ Therefore even the great scientists, the great philosophers, the great mental sp
 
 na māṁ duṣkṛtino mūḍhāḥ prapadyante narādhamāḥ
 
-māyayā'pahṛta-jñānā āsuraṁ bhāvam āśritāḥ (Bg. 7.15)
+māyayā 'pahṛta-jñānā āsuraṁ bhāvam āśritāḥ (Bg. 7.15)
 
 The so-called great leaders of human society, because they are ignorant of this great knowledge of bhakti-yoga and are always engaged in the ignoble acts of sense gratification, bewildered by the external energy of the Lord, are stubborn rebels against the supremacy of the Supreme Personality of Godhead, and they never agree to surrender unto Him because they are fools, miscreants and the lowest type of human beings. Such faithless nonbelievers may be highly educated in the material sense of the term, but factually they are the greatest fools of the world because by the influence of the external material nature all their so-called acquisition of knowledge has been made null and void. Therefore all advancement of knowledge in the present context of things is being misused in terms of the cats and dogs fighting with one another for sense gratification, and all acquisition of knowledge in science, philosophy, fine arts, nationality, economic development, religiousness and great activities are being spoiled by being used as dresses for dead men. There is no utility in the dresses used for covering a coffin of the dead body save getting a false applause from the ignorant public. The Śrīmad-Bhāgavatam therefore says again and again that without attainment of the status of bhakti-yoga, all activities of the human society are to be considered as absolute failures only. It is said:
 
