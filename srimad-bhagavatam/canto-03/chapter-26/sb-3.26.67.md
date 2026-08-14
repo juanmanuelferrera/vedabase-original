@@ -8,6 +8,6 @@
 > nāḍīr nadyo lohitena\
 > nodatiṣṭhat tadā virāṭ
 
-*viṣṇuḥ*—Lord Viṣṇu; *gatyā*—with the faculty of locomotion; *eva*—indeed; *caraṇau*—His two feet; *na*—not; *udatiṣṭhat*—did arise; *tadā*—even then; *virāṭ*—the *virāṭ-puruṣa*; *nāḍīḥ*—His blood vessels; *nadyaḥ*—the rivers or river-gods; *lohitena*—with the blood, with the power of circulation; *na*—not; *udatiṣṭhat*—did stir; *tadā*—even then; *virāṭ*—the *virāṭ-puruṣa.*
+*viṣṇuḥ*—Lord Viṣṇu; *gatyā*—with the faculty of locomotion; *eva*—indeed; *caraṇau*—His two feet; *na*—not; *udatiṣṭhat*—did arise; *tadā*—even then; *virāṭ*—the *virāṭa-puruṣa*; *nāḍīḥ*—His blood vessels; *nadyaḥ*—the rivers or river-gods; *lohitena*—with the blood, with the power of circulation; *na*—not; *udatiṣṭhat*—did stir; *tadā*—even then; *virāṭ*—the *virāṭa-puruṣa.*
 
 **Lord Viṣṇu entered His feet with the faculty of locomotion, but the virāṭa-puruṣa refused to stand up even then. The rivers entered His blood vessels with the blood and the power of circulation, but still the Cosmic Being could not be made to stir.**

@@ -8,7 +8,7 @@
 > yas tūnmukhatvād varṇānāṁ\
 > mukhyo 'bhūd brāhmaṇo guruḥ
 
-*mukhataḥ*—from the mouth; *avartata*—generated; *brahma*—the Vedic wisdom; *puruṣasya*—of the *virāṭ-puruṣa,* the gigantic form; *kuru-udvaha*—O chief of the Kuru dynasty; *yaḥ*—who are; *tu*—due to; *unmukhatvāt*—inclined to; *varṇānām*—of the orders of society; *mukhyaḥ*—the chief; *abhūt*—so became; *brāhmaṇaḥ*—called the *brāhmaṇas*; *guruḥ*—the recognized teacher or spiritual master.
+*mukhataḥ*—from the mouth; *avartata*—generated; *brahma*—the Vedic wisdom; *puruṣasya*—of the *virāṭa-puruṣa,* the gigantic form; *kuru-udvaha*—O chief of the Kuru dynasty; *yaḥ*—who are; *tu*—due to; *unmukhatvāt*—inclined to; *varṇānām*—of the orders of society; *mukhyaḥ*—the chief; *abhūt*—so became; *brāhmaṇaḥ*—called the *brāhmaṇas*; *guruḥ*—the recognized teacher or spiritual master.
 
 **O chief of the Kuru dynasty, the Vedic wisdom became manifested from the mouth of the virāṭa, the gigantic form. Those who are inclined to this Vedic knowledge are called brāhmaṇas, and they are the natural teachers and spiritual masters of all the orders of society.**
 

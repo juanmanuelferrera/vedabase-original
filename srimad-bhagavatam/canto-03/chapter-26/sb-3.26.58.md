@@ -12,4 +12,4 @@
 
 **Thereafter the two hands of the universal form of the Lord became manifested, and with them the power of grasping and dropping things, and after that Lord Indra appeared. Next the legs became manifested, and with them the process of movement, and after that Lord Viṣṇu appeared.**
 
-The deity presiding over the hands is Indra, and the presiding deity of movement is the Supreme Personality of Godhead, Viṣṇu. Viṣṇu appeared on the appearance of the legs of the *virāṭ-puruṣa.*
+The deity presiding over the hands is Indra, and the presiding deity of movement is the Supreme Personality of Godhead, Viṣṇu. Viṣṇu appeared on the appearance of the legs of the *virāṭa-puruṣa.*

@@ -8,7 +8,7 @@
 > tāvat sthavīyaḥ puruṣasya rūpaṁ\
 > kriyāvasāne prayataḥ smareta
 
-*yāvat*—as long as; *na*—does not; *jāyeta*—develop; *para*—transcendental; *avare*—mundane; *asmin*—in this form of; *viśva-īśvare*—the Lord of all worlds; *draṣṭari*—unto the seer; *bhakti-yogaḥ*—devotional service; *tāvat*—so long; *sthavīyaḥ*—the gross materialist; *puruṣasya*—of the *virāṭ-puruṣa*; *rūpam*—universal form; *kriyā-avasāne*—at the end of one's prescribed duties; *prayataḥ*—with proper attention; *smareta*—one should remember.
+*yāvat*—as long as; *na*—does not; *jāyeta*—develop; *para*—transcendental; *avare*—mundane; *asmin*—in this form of; *viśva-īśvare*—the Lord of all worlds; *draṣṭari*—unto the seer; *bhakti-yogaḥ*—devotional service; *tāvat*—so long; *sthavīyaḥ*—the gross materialist; *puruṣasya*—of the *virāṭa-puruṣa*; *rūpam*—universal form; *kriyā-avasāne*—at the end of one's prescribed duties; *prayataḥ*—with proper attention; *smareta*—one should remember.
 
 **Unless the gross materialist develops a sense of loving service unto the Supreme Lord, the seer of both the transcendental and material worlds, he should remember or meditate upon the universal form of the Lord at the end of his prescribed duties.**
 

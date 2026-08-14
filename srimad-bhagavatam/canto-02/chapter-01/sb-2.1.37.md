@@ -8,7 +8,7 @@
 > nānābhidhābhījya-gaṇopapanno\
 > dravyātmakaḥ karma vitāna-yogaḥ
 
-*brahma*—the *brāhmaṇas*; *ānanam*—face; *kṣatra*—the *kṣatriyas*; *bhujaḥ*—the arms; *mahātmā*—the *virāṭ-puruṣa*; *viṭ*—the *vaiśyas*; *ūruḥ*—the thighs; *aṅghri-śrita*—under the protection of His feet; *kṛṣṇa-varṇaḥ*—the *śūdras*; *nānā*—various; *abhidhā*—by names; *abhījya-gaṇa*—the demigods; *upapannaḥ*—being overtaken; *dravya-ātmakaḥ*—with feasible goods; *karma*—activities; *vitāna-yogaḥ*—performances of sacrifice.
+*brahma*—the *brāhmaṇas*; *ānanam*—face; *kṣatra*—the *kṣatriyas*; *bhujaḥ*—the arms; *mahātmā*—the *virāṭa-puruṣa*; *viṭ*—the *vaiśyas*; *ūruḥ*—the thighs; *aṅghri-śrita*—under the protection of His feet; *kṛṣṇa-varṇaḥ*—the *śūdras*; *nānā*—various; *abhidhā*—by names; *abhījya-gaṇa*—the demigods; *upapannaḥ*—being overtaken; *dravya-ātmakaḥ*—with feasible goods; *karma*—activities; *vitāna-yogaḥ*—performances of sacrifice.
 
 **The virāṭa puruṣa's face is the brāhmaṇas, His arms are the kṣatriyas, His thighs are the vaiśyas, and the śūdras are under the protection of His feet. All the demigods who are worshipable are also overtaken by Him, and it is the duty of everyone to perform sacrifices with feasible goods to appease the Lord.**
 

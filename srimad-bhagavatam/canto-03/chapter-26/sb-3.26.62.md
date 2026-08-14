@@ -8,7 +8,7 @@
 > punar āviviśuḥ khāni\
 > tam utthāpayituṁ kramāt
 
-*ete*—these; *hi*—indeed; *abhyutthitāḥ*—manifested; *devāḥ*—demigods; *na*—not; *eva*—at all; *asya*—of the *virāṭ-puruṣa*; *utthāpane*—in waking; *aśakan*—were able; *punaḥ*—again; *āviviśuḥ*—they entered; *khāni*—the apertures of the body; *tam*—Him; *utthāpayitum*—to awaken; *kramāt*—one after another.
+*ete*—these; *hi*—indeed; *abhyutthitāḥ*—manifested; *devāḥ*—demigods; *na*—not; *eva*—at all; *asya*—of the *virāṭa-puruṣa*; *utthāpane*—in waking; *aśakan*—were able; *punaḥ*—again; *āviviśuḥ*—they entered; *khāni*—the apertures of the body; *tam*—Him; *utthāpayitum*—to awaken; *kramāt*—one after another.
 
 **When the demigods and presiding deities of the various senses were thus manifested, they wanted to wake their origin of appearance. But upon failing to do so, they reentered the body of the virāṭa-puruṣa one after another in order to wake Him.**
 
