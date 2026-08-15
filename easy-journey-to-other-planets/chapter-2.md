@@ -2,7 +2,6 @@
 
 Varieties of Planetary Systems
 
-Varieties of Planetary Systems
 
 
 

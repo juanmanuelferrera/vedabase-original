@@ -2,7 +2,6 @@
 
 Toward a Peaceful Society
 
-Toward a Peaceful Society
 
 
 

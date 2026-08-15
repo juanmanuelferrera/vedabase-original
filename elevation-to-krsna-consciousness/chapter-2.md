@@ -2,7 +2,6 @@
 
 Hard Struggle for Happiness
 
-Hard Struggle for Happiness
 
 
 

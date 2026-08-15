@@ -2,7 +2,6 @@
 
 The Sky Beyond the Universe
 
-The Sky Beyond the Universe
 
 
 

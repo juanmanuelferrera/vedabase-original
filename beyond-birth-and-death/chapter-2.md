@@ -2,7 +2,6 @@
 
 Elevation at Death
 
-Elevation at Death
 
 
 

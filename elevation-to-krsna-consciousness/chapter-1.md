@@ -2,7 +2,6 @@
 
 Choosing Human and Animal Lives
 
-Choosing Human and Animal Lives
 
 
 
