@@ -6,7 +6,7 @@
 > tāra madhye mokṣa-vāñchā kaitava-pradhāna\
 > yāhā haite kṛṣṇa-bhakti haya antardhāna
 
-*tāra*—of them; *madhye*—in the midst; *mokṣa-vāñchā*—the desire to merge in the Supreme; *kaitava*—of cheating processes; *pradhāna*—the chief; *yāhā haite*—from which; *kṛṣṇa-bhakti*—devotion to Lord Kṛṣṇa; *haya*—becomes; *antardhāna*—disappearance.
+*tāra*—of them; *madhye*—in the midst; *mokṣa-vāñchā*—the desire to merge into the Supreme; *kaitava*—of cheating processes; *pradhāna*—the chief; *yāhā haite*—from which; *kṛṣṇa-bhakti*—devotion to Lord Kṛṣṇa; *haya*—becomes; *antardhāna*—disappearance.
 
 **The foremost process of cheating is to desire to achieve liberation by merging in the Supreme, for this causes the permanent disappearance of loving service to Kṛṣṇa.**
 
