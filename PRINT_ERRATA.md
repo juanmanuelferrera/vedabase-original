@@ -14,7 +14,7 @@ gloss that says the opposite of what the word means. **Those are reproduced too.
 What the reader gets is the book as it was printed, not the book as it should
 have been printed.
 
-So: **the 77 entries below are deliberate.** If you are editing this repository
+So: **the 76 entries below are deliberate.** If you are editing this repository
 and find `conquerer`, `harrassed` or `Janamcjaya`, do not fix them. They are what
 the page says, verified against the image — in most cases at 400–600 dpi — before
 being written.
@@ -28,7 +28,7 @@ copy, not a reading, and is not reproduced.
 This list is what the collation *found*, and the method has a blind spot worth
 stating: it can only surface an errata where the digital text and the scan
 **differ**. An errata that the digital text had carried from the start produces
-no divergence, so it never comes up. These 77 are the print's errors that someone
+no divergence, so it never comes up. These 76 are the print's errors that someone
 had silently corrected and we have put back — not every error in the print.
 The list grows as the audit continues.
 
@@ -90,7 +90,7 @@ Where it helps, the note gives the form used elsewhere in these books.
 | TLC 8 | known as vaikarika, taijasa and tamasa. | **known as Baikrik, Taijsa and Tamasa.** | p. 126 |
 | TLC 24 | a verse from the Skanda Purana | **a verse from the Bhobishya Purana** <br><sub>The verse is from the Skanda Purāṇa. Not a spelling variant: a different scripture.</sub> | p. 227 |
 
-## Misspellings (43)
+## Misspellings (42)
 
 No reader is misled by these; the first printings had their typos and the typos remain.
 
@@ -131,7 +131,6 @@ No reader is misled by these; the first printings had their typos and the typos 
 | SB 4.30.18 | takes | **take** | p. 387 |
 | SB 5.3.3 | conqueror | **conquerer** | p. 142 |
 | SB 7.7.21 | mineralogist | **minerologist** | p. 92 |
-| SB 8.11.11 | beaten | **beated** | p. 101 |
 | SB 8.19.13 | enmity | **emnity** | p. 90 |
 | TLC 11 | deity | **diety** | p. 153 |
 | TLC 19 | possessor | **possesser** | p. 235 |
