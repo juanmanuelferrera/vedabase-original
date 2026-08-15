@@ -8,8 +8,8 @@
 > niścinto dhīra-lalitaḥ\
 > syāt prāyaḥ preyasī-vaśaḥ
 
-*vidagdhaḥ*—clever; *nava-tāruṇyaḥ*—always freshly youthful; *parihāsa*—in joking; *viśāradaḥ*—expert; *niścintaḥ*—without anxiety; *dhīra-lalitaḥ*—a hero in loving affairs; *syāt*—is; *prāyaḥ*—almost always; *preyasī-vaśaḥ*—one who keeps His girlfriends subjugated.
+*vidagdhaḥ*—clever; *nava-tāruṇyaḥ*—always freshly youthful; *parihāsa*—in joking; *viśāradaḥ*—expert; *niścintaḥ*—without anxiety; *dhīra-lalitaḥ*—a hero in loving affairs; *syāt*—is; *prāyaḥ*—almost always; *preyasī-vaśaḥ*—one who keeps His girl friends subjugated.
 
-**“ 'A person who is very cunning and always youthful, expert in joking and without anxiety, and who can keep his girlfriends always subjugated, is called dhīra-lalita.'**
+**“ 'A person who is very cunning and always youthful, expert in joking and without anxiety, and who can keep his girl friends always subjugated, is called dhīra-lalita.'**
 
 This verse is from *Bhakti-rasāmṛta-sindhu* (2.1.230).
