@@ -30,4 +30,4 @@ mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram
 
 "This material nature is working under My direction, O son of Kuntī, and producing all moving and unmoving beings." (Bg. 9.10)
 
-The Supreme Lord casts His glance over material energy, and His glance agitates the three modes of nature. Creation then take place. The conclusion is that nature is not the cause of the material manifestation. The Supreme Lord is the cause of all causes.
+The Supreme Lord casts His glance over material energy, and His glance agitates the three modes of nature. Creation then takes place. The conclusion is that nature is not the cause of the material manifestation. The Supreme Lord is the cause of all causes.
