@@ -10,6 +10,6 @@
 
 **From there Śrī Caitanya Mahāprabhu went to Pāṇḍarapura, where He happily saw the temple of Viṭhṭhala Ṭhākura.**
 
-This city of Pāṇḍarapura is situated on the river Bhīmā. It is said that Śrī Caitanya Mahāprabhu initiated Tukārāma when He visited Pāṇḍarapura. This Tukārāma Ācārya became very famous in the Maharastraprovince, and he spread the *saṅkīrtana* movement all over the province. The *saṅkīrtana* party belonging to Tukārāma is still very popular in Bombay in the province of Maharastra. Tukārāma was a disciple of Śrī Caitanya Mahāprabhu, and his book is known as *Abhaṅga.* His *saṅkīrtana* party exactly resembles the Gauḍīya-Vaiṣṇava *saṅkīrtana* parties, for they chant the holy name of the Lord with *mṛdaṅga* and *karatālas.*
+This city of Pāṇḍarapura is situated on the river Bhīmā. It is said that Śrī Caitanya Mahāprabhu initiated Tukārāma when He visited Pāṇḍarapura. This Tukārāma Ācārya became very famous in the Mahārāṣṭra province, and he spread the *saṅkīrtana* movement all over the province. The *saṅkīrtana* party belonging to Tukārāma is still very popular in Bombay in the province of Maharastra. Tukārāma was a disciple of Śrī Caitanya Mahāprabhu, and his book is known as *Abhaṅga.* His *saṅkīrtana* party exactly resembles the Gauḍīya-Vaiṣṇava *saṅkīrtana* parties, for they chant the holy name of the Lord with *mṛdaṅga* and *karatālas.*
 
 The Lord Viṭhṭhaladeva mentioned in this verse is a form of Lord Viṣṇu with four hands. He is Nārāyaṇa.
