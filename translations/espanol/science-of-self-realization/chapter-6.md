@@ -93,7 +93,7 @@ Teniente Mozee: Señor, permítame agradecerle su tiempo. Entregaré esta grabac
 
 > Śrīla Prabhupāda: Muchas gracias.
 
-¿Podemos evitar que la sociedad animal?
+¿Podemos evitar que la sociedad se degrade?
 
 En una entrevista con el Bhavan's Journal de la India en agosto de 1976, Śrīla Prabhupāda preguntó: «¿Cómo puede haber felicidad o paz en una sociedad animal? Quieren mantener a la gente como animales y están creando unas Naciones Unidas... simplemente una carrera de perros. El perro corre en cuatro patas, y ustedes corren en cuatro ruedas, eso es todo. ¡Y piensan que la carrera de cuatro ruedas es el progreso de la civilización!».
 

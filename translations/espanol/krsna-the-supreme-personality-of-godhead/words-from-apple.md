@@ -2,9 +2,9 @@ Palabras de Apple
 
 Palabras de Apple Todo el mundo está buscando a Kṛṣṇa.
 Algunos no se dan cuenta de que lo buscan, pero lo buscan.
-KṚṢṆA es DIOS, la fuente de todo lo que existe, la causa de todo lo que es, fue o será.
+KṚṢṆA es DIOS, la Fuente de todo lo que existe, la Causa de todo lo que es, fue o será.
 Como DIOS es ilimitado, ÉL tiene muchos nombres.
-Allah-Buddha-Jehová-Rāma: TODOS son KṚṢṆA, todos son UNO.
+Allah-Buddha-Jehová-Rāma: Todos son KṚṢṆA, todos son UNO.
 
 Dios no es abstracto; Su personalidad, que es SUPREMA, ETERNA, BIENAVENTURADA y plena de CONOCIMIENTO, tiene tanto el aspecto impersonal como el personal. Así como una sola gota de agua tiene las mismas cualidades que un océano de agua, así nuestra conciencia tiene las cualidades de la conciencia de DIOS... pero debido a nuestra identificación y nuestro apego a la energía material (el cuerpo físico, los placeres de los sentidos, las posesiones materiales, el ego, etc.), nuestra verdadera CONCIENCIA TRASCENDENTAL se ha contaminado y, como un espejo sucio, es incapaz de reflejar una imagen pura.
 
@@ -16,7 +16,7 @@ Kṛṣṇa dice en el Bhagavad-gītā: «Estable en el Ser, libre de toda conta
 
 El YOGA (un método científico para la comprensión de DIOS (del SER)) es el proceso mediante el cual purificamos nuestra conciencia, detenemos toda contaminación ulterior y llegamos al estado de perfección: CONOCIMIENTO pleno, BIENAVENTURANZA plena.
 
-Si hay un Dios, quiero verlo. Es inútil creer en algo sin pruebas, y la conciencia de Kṛṣṇa le dice a Arjuna que tanto Él. como Arjuna habían pasado por muchos senderos del yoga —rāja, jñāna, haṭha, kriyā, karma, bhakti—, todos ellos aclamados por los MAESTROS de cada método.
+Si hay un Dios, quiero verlo. Es inútil creer en algo sin pruebas, y la conciencia de Kṛṣṇa y la meditación son métodos con los que se puede obtener realmente la percepción de DIOS Uno puede realmente ver a Dios y oírlo y jugar con Él. Puede sonar a locura pero Él está realmente ahí realmente contigo Hay muchos senderos del yoga —rāja, jñāna, haṭha, kriyā, karma, bhakti—, todos ellos aclamados por los MAESTROS de cada método.
 
 SWAMI BHAKTIVEDANTA es, como indica su título, un yogī BHAKTI que sigue el sendero de la DEVOCIÓN. Sirviendo a DIOS con cada pensamiento, cada palabra y cada ACTO, y cantando SUS santos nombres, el devoto desarrolla rápidamente la conciencia de Dios. Cantando
 
@@ -27,7 +27,7 @@ Te pido que aproveches este libro, KṚṢṆA, y entres en su comprensión. Te 
 (escrito a mano)
 
 Todo lo que necesitas es amor (Kṛṣṇa). Hari Bol.
-George Harrison 31/3/70Apple Corps Ltd 3 Savile Row London W1 Gerrard 2771/3993 Telex Apcore London
+George Harrison 31/3/70 Apple Corps Ltd 3 Savile Row London W1 Gerrard 2772/3993 Telex Apcore London
 
 Copyright 1970 Sede de
 

@@ -29,7 +29,7 @@ Apple की ओर से कुछ शब्द — प्रत्येक �
 (हस्तलिखित)
 
 तुम्हें केवल प्रेम (कृष्ण) की आवश्यकता है। हरि बोल।
-जॉर्ज हैरिसन 31/3/70 Apple Corps Ltd 3 Savile Row London W1 Gerrard 2771/3993 Telex Apcore London
+जॉर्ज हैरिसन 31/3/70 Apple Corps Ltd 3 Savile Row London W1 Gerrard 2772/3993 Telex Apcore London
 
 कॉपीराइट 1970 ए. सी. भक्तिवेदान्त स्वामी
 

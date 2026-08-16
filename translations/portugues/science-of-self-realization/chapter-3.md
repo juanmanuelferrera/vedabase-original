@@ -69,7 +69,7 @@ Do *Mahābhārata*.
 
 
 
-Significado
+SIGNIFICADO
 
 
 
@@ -122,7 +122,7 @@ Da ambrosia do *Gītā*.
 
 
 
-Significado
+SIGNIFICADO
 
 
 
@@ -157,7 +157,7 @@ De intelecto purificado
 
 
 
-Significado
+SIGNIFICADO
 
 
 
@@ -184,7 +184,7 @@ A Ti, ó Kṛṣṇa, eu saúdo.
 
 
 
-Significado
+SIGNIFICADO
 
 
 
@@ -291,7 +291,7 @@ E os coxos escalam montanhas —
 
 A Ele eu saúdo!
 
-Significado
+SIGNIFICADO
 
 
 
@@ -339,7 +339,7 @@ A Ele saudamos! A Ele saudamos! A Ele saudamos!
 
 
 
-Significado
+SIGNIFICADO
 
 
 

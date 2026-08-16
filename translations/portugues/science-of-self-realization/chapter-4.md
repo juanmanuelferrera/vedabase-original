@@ -2,7 +2,7 @@
 
 4. Compreendendo Kṛṣṇa e Cristo
 
-Kṛṣṇa, Christos, Cristo
+Kṛṣṇa, ou, Cristo
 
 
 Em 1974, perto do centro da ISKCON em Frankfurt am Main, na Alemanha Ocidental, Śrīla Prabhupāda e vários de seus discípulos deram uma caminhada matinal com o padre Emmanuel Jungclaussen, um monge beneditino do Mosteiro de Niederalteich. Notando que Śrīla Prabhupāda carregava contas de meditação semelhantes ao rosário, o padre Emmanuel explicou que ele também cantava uma oração constante: "Senhor Jesus Cristo, tende misericórdia de nós." Seguiu-se a seguinte conversa.
