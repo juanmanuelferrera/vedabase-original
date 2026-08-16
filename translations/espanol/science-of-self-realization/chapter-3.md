@@ -1,6 +1,6 @@
 ### 3
 
-3. Descubriendo las raíces
+III Observando el trasfondo cultural
 
 El néctar inmortal del *Bhagavad-gītā*
 
@@ -144,7 +144,7 @@ Al recitar el noveno verso de su meditación, citado del *Śrīmad-Bhāgavatam*,
 
 La base escritural de la conciencia de Kṛṣṇa
 
-El 11 de enero de 1970, un artículo en el Los Angeles Times informaba que miembros del cuerpo docente de la Universidad de California en Berkeley, incluyendo al Dr. J. F. Staal, profesor de filosofía y lenguas del sur de Asia, habían rechazado una solicitud para conceder créditos por un curso experimental sobre conciencia de Kṛṣṇa que sería impartido por Hans Kary, presidente del centro del movimiento Hare Kṛṣṇa en Berkeley. Al rechazar el curso propuesto, el Dr. Staal sugirió que los devotos «pasan demasiado tiempo cantando como para desarrollar una filosofía». Cuando el artículo llegó a la atención de Śrīla Prabhupāda, el fundador y maestro espiritual del movimiento Hare Kṛṣṇa, él inició una inusual correspondencia con el renombrado profesor.
+El 11 de enero de 1970, un artículo en el Los Angeles Times informaba que miembros del cuerpo docente de la Universidad de California en Berkeley, incluyendo al Dr. J. F. Staal, profesor de Filosofía y de Lenguas del Sur de Asia, habían rechazado una solicitud para conceder créditos por un curso experimental sobre conciencia de Kṛṣṇa que sería impartido por Hans Kary, presidente del centro del movimiento Hare Kṛṣṇa en Berkeley. Al rechazar el curso propuesto, el Dr. Staal sugirió que los devotos «pasan demasiado tiempo cantando como para desarrollar una filosofía». Cuando el artículo llegó a la atención de Śrīla Prabhupāda, el fundador y maestro espiritual del movimiento Hare Kṛṣṇa, él inició una inusual correspondencia con el renombrado profesor.
 
 Extracto del artículo del Los Angeles Times
 
@@ -318,7 +318,7 @@ Se dice que Mahārāja Parīkṣit alcanzó la salvación simplemente por escuch
 > utpātāyaiva kalpate
 > [BRS 1.2.101]
 
-Es decir, sin referencias a śruti, smṛti, *Purāṇas* y Pañcarātras, el servicio devocional puro nunca se alcanza. Por eso, cualquiera que muestre un éxtasis devocional sin referencia a las śāstras [escrituras Védicas] simplemente crea perturbaciones. Por otra parte, si simplemente nos aferramos a las śrutīs, entonces nos convertimos en veda-vāda-ratāḥ,* que no son muy apreciados en el *Bhagavad-gītā*.
+Es decir, sin referencias a śruti, smṛti, *Purāṇas* y Pañcarātras, el servicio devocional puro nunca se alcanza. Por eso, cualquiera que muestre un éxtasis devocional sin referencia a las śāstras [escrituras Védicas] simplemente crea perturbaciones. Por otra parte, si simplemente nos aferramos a las śrutis, entonces nos convertimos en veda-vāda-ratāḥ,* que no son muy apreciados en el *Bhagavad-gītā*.
 
 Así pues, el *Bhagavad-gītā*, aunque es smṛti, es la esencia de toda la escritura Védica, sarvopaniṣado gāvaḥ.* Es como una vaca que entrega la leche, o la esencia de todos los *Vedas* y *Upaniṣads*, y todos los ācāryas, incluyendo Śaṅkarācārya, aceptan el *Bhagavad-gītā* como tal. Por eso no se puede negar la autoridad del *Bhagavad-gītā* porque sea smṛti; ese punto de vista es śruti-smṛti-virodhaḥ, «en conflicto con la smṛti y la śruti», como usted ha dicho correctamente.
 

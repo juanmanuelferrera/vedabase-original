@@ -1,8 +1,6 @@
 ### 1
 
-1. Aprendiendo la ciencia del ser
-
-Descubriendo el ser
+1. Aprendiendo la ciencia del alma Viendo el objetivo de la vida humana
 
 ¿Quién eres?... ¿Eres tu cuerpo? ¿O tu mente? ¿O eres algo superior? ¿Sabes quién eres, o simplemente crees que lo sabes? ¿Y acaso importa en verdad? Nuestra sociedad materialista, con su liderazgo no iluminado, ha convertido prácticamente en tabú el indagar sobre nuestro verdadero ser superior. En lugar de ello, empleamos nuestro valioso tiempo en mantener, decorar y mimar el cuerpo por sí mismo. ¿Podría haber una alternativa?
 
@@ -157,7 +155,7 @@ Sra. Nixon: Muchas gracias.
 
 Śrīla Prabhupāda: ¡Hare Kṛṣṇa!
 
-Una definición de Dios
+El verdadero progreso significa conocer a Dios
 
 Los conceptos del hombre moderno acerca de Dios son muchos y variados. Los niños tienden a imaginar a un anciano con barba blanca. Muchos adultos consideran a Dios como una fuerza invisible o un concepto mental, o como toda la humanidad, el universo, o incluso uno mismo. En esta conferencia, Śrīla Prabhupāda describe en detalle el concepto de la conciencia de Kṛṣṇa: una visión de Dios sorprendentemente íntima.
 
@@ -478,7 +476,7 @@ Los mundanos no saben que la entidad espiritual total es la persona hermosa que 
 
 Aunque escrita por el más grande poeta o intelectual mundano, toda literatura que no describe la verdad y la belleza últimas es simplemente un almacén de heces sueltas y vómito de la verdad relativa. La verdadera literatura es aquella que describe la verdad y la belleza últimas del Absoluto.
 
-El arte de morir
+Preguntas pertinentes
 
 Aunque los medios de comunicación están generalmente obsesionados con la violencia y la muerte, nuestra percepción de la muerte y el morir es superficial. Śrīla Prabhupāda observa: «Mientras el hombre está en pleno vigor de la vida, olvida la verdad desnuda de la muerte, que tiene que enfrentar». ¿Cómo podemos lidiar eficazmente con nuestra propia muerte? En este ensayo (que apareció por primera vez en el antiguo tabloide De vuelta al Supremo, 20 de abril de 1960) Śrīla Prabhupāda explica cómo las antiguas enseñanzas del *Śrīmad-Bhāgavatam* proporcionan una respuesta práctica.
 

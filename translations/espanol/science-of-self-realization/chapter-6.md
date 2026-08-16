@@ -1,6 +1,6 @@
 ### 6
 
-6. Soluciones espirituales a los problemas materiales
+VI Encontrando la cura para los males sociales de hoy
 
 El crimen: ¿Por qué se produce y qué hacer?
 
@@ -93,7 +93,7 @@ Teniente Mozee: Señor, permítame agradecerle su tiempo. Entregaré esta grabac
 
 > Śrīla Prabhupāda: Muchas gracias.
 
-¿Sociedad humana o sociedad animal?
+¿Podemos evitar que la sociedad animal?
 
 En una entrevista con el Bhavan's Journal de la India en agosto de 1976, Śrīla Prabhupāda preguntó: «¿Cómo puede haber felicidad o paz en una sociedad animal? Quieren mantener a la gente como animales y están creando unas Naciones Unidas... simplemente una carrera de perros. El perro corre en cuatro patas, y ustedes corren en cuatro ruedas, eso es todo. ¡Y piensan que la carrera de cuatro ruedas es el progreso de la civilización!».
 
@@ -257,7 +257,7 @@ Entrevistador: ¿Cómo podemos remediar la situación?
 
 Śrīla Prabhupāda: Kṛṣṇa es la Suprema Personalidad de Dios. Si no aceptas que Kṛṣṇa es la entidad suprema, entonces intenta comprenderlo. Eso es educación: hay alguien supremo; Kṛṣṇa no es indio; Él es Dios. El sol sale primero en la India, pero eso no significa que el sol sea indio; de modo similar, aunque Kṛṣṇa apareció en la India, ahora ha venido a los países occidentales, a través de este movimiento de conciencia de Kṛṣṇa.
 
-Altruismo: temporal y eterno
+La suprema obra de bienestar
 
 En 1972, el estado del sur de la India, Andhra Pradesh, fue azotado por una severa sequía que afectó a millones de personas. Con la esperanza de que la Sociedad Internacional para la Conciencia de Kṛṣṇa proporcionara asistencia, T. L. Katidia, secretario del Comité del Fondo de Ayuda de Andhra Pradesh, escribió a Śrīla Prabhupāda. Śrīla Prabhupāda respondió con esta sorprendente y edificante carta.
 

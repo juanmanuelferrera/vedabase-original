@@ -16,9 +16,7 @@ Kṛṣṇa dice en el Bhagavad-gītā: «Estable en el Ser, libre de toda conta
 
 El YOGA (un método científico para la comprensión de DIOS (del SER)) es el proceso mediante el cual purificamos nuestra conciencia, detenemos toda contaminación ulterior y llegamos al estado de perfección: CONOCIMIENTO pleno, BIENAVENTURANZA plena.
 
-Si hay un Dios, quiero verlo. Es inútil creer en algo sin pruebas, y la conciencia de Kṛṣṇa y la meditación son métodos con los que se puede obtener realmente la percepción de DIOS. Uno puede realmente ver a Dios, y oírlo, y jugar con Él. Puede sonar a locura, pero Él está realmente ahí, realmente contigo.
-
-Hay muchos senderos del yoga —rāja, jñāna, haṭha, kriyā, karma, bhakti—, todos ellos aclamados por los MAESTROS de cada método.
+Si hay un Dios, quiero verlo. Es inútil creer en algo sin pruebas, y la conciencia de Kṛṣṇa le dice a Arjuna que tanto Él. como Arjuna habían pasado por muchos senderos del yoga —rāja, jñāna, haṭha, kriyā, karma, bhakti—, todos ellos aclamados por los MAESTROS de cada método.
 
 SWAMI BHAKTIVEDANTA es, como indica su título, un yogī BHAKTI que sigue el sendero de la DEVOCIÓN. Sirviendo a DIOS con cada pensamiento, cada palabra y cada ACTO, y cantando SUS santos nombres, el devoto desarrolla rápidamente la conciencia de Dios. Cantando
 
@@ -31,7 +29,7 @@ Te pido que aproveches este libro, KṚṢṆA, y entres en su comprensión. Te 
 Todo lo que necesitas es amor (Kṛṣṇa). Hari Bol.
 George Harrison 31/3/70Apple Corps Ltd 3 Savile Row London W1 Gerrard 2771/3993 Telex Apcore London
 
-Copyright 1970 A.C. Bhaktivedanta Swami
+Copyright 1970 Sede de
 
 ISKCON Press
 

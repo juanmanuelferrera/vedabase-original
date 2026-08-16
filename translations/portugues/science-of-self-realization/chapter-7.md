@@ -1,6 +1,6 @@
 ### 7
 
-7. Explorando a Fronteira Espiritual
+VII Retornando à Religião Eterna
 
 Śrīla Prabhupāda Chega à América
 
@@ -84,7 +84,7 @@ datado de 18 de setembro de 1965
 
 
 
-Construa sua Nação na Plataforma Espiritual
+Construam Suas Nações na Plataforma Espiritual
 
 Convidado a falar na Universidade de Nairobi em setembro de 1972, Śrīla Prabhupāda dirigiu-se a uma multidão lotada de estudantes e funcionários do governo no Taifla (Independência) Hall do campus. Em sua palestra, ele aconselhou os cidadãos da nação em desenvolvimento do Quênia: "... por favor, desenvolvam-se espiritualmente, pois o desenvolvimento espiritual é o desenvolvimento sólido. Não imitem os americanos e europeus, que estão vivendo como cães e gatos. A bomba atômica já está aí, e, assim que a próxima guerra estourar, todos os arranha-céus deles e todo o resto estarão acabados...."
 
@@ -300,7 +300,7 @@ Por isso, convidamos os homens mais inteligentes do mundo a compreender esta fil
 
 
 
-Compaixão dos Santos
+Compaixão pelo Sofrimento Alheio
 
 Toda religião tem seus próprios santos, mas todos os santos compartilham uma qualidade espiritual transcendente: a compaixão. Śrīla Prabhupāda explica....
 

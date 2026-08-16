@@ -1,6 +1,6 @@
 ### 3
 
-3. Descobrindo as Raízes
+III Observando o Contexto Cultural
 
 O Néctar Imortal do *Bhagavad-gītā*
 
@@ -348,10 +348,10 @@ Mediante a recitação do nono verso de sua meditação, citado do *Śrīmad-Bh�
 
 
 
-A Base Escritural da Consciência de Kṛṣṇa
+O Movimento da Consciência de Kṛṣṇa
 
 
-Em 11 de janeiro de 1970, um artigo no Los Angeles Times noticiou que membros do corpo docente da Universidade da Califórnia em Berkeley, incluindo o Dr. J. F. Staal, professor de filosofia e línguas do sul da Ásia, haviam rejeitado um pedido de concessão de crédito para um curso experimental em consciência de Kṛṣṇa que seria ministrado por Hans Kary, presidente do centro do movimento Hare Kṛṣṇa em Berkeley. Ao rejeitarem o curso proposto, o Dr. Staal sugeriu que os devotos "passam tempo demais cantando para desenvolver uma filosofia". Quando o artigo chegou à atenção de Śrīla Prabhupāda, fundador e mestre espiritual do movimento Hare Kṛṣṇa, ele iniciou uma incomum correspondência com o renomado professor.
+É o Genuíno Caminho Védico Após ler, um artigo no Los Angeles Times noticiou que membros do corpo docente da Universidade da Califórnia em Berkeley, incluindo o Dr. J. F. Staal, professor de Filosofia e de Línguas do Sul da Ásia, haviam rejeitado um pedido de concessão de crédito para um curso experimental em consciência de Kṛṣṇa que seria ministrado por Hans Kary, presidente do centro do movimento Hare Kṛṣṇa em Berkeley. Ao rejeitarem o curso proposto, o Dr. Staal sugeriu que os devotos "passam tempo demais cantando para desenvolver uma filosofia". Quando o artigo chegou à atenção de Śrīla Prabhupāda, fundador e mestre espiritual do movimento Hare Kṛṣṇa, ele iniciou uma incomum correspondência com o renomado professor.
 
 
 
@@ -660,7 +660,7 @@ utpātāyaiva kalpate
 
 
 
-Ou seja, sem referências à śruti, à smṛti, aos *Purāṇas* e aos Pañcarātras, o serviço devocional inadulterado jamais se alcança. Por conseguinte, quem demonstra um êxtase devocional sem referência aos śāstras [escrituras Védicas] simplesmente cria distúrbios. Por outro lado, se nos atemos apenas às śrutīs, então nos tornamos veda-vāda-ratāḥ,* os quais não são muito apreciados no *Bhagavad-gītā*.
+Ou seja, sem referências à śruti, à smṛti, aos *Purāṇas* e aos Pañcarātras, o serviço devocional inadulterado jamais se alcança. Por conseguinte, quem demonstra um êxtase devocional sem referência aos śāstras [escrituras Védicas] simplesmente cria distúrbios. Por outro lado, se nos atemos apenas às śrutis, então nos tornamos veda-vāda-ratāḥ,* os quais não são muito apreciados no *Bhagavad-gītā*.
 
 
 

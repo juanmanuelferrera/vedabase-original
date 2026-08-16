@@ -1,6 +1,6 @@
 ### 19
 
-20. A Meta do Estudo do Vedanta
+19. A Meta do Estudo do Vedanta
 
 O apego transcendental e extático por Krishna, ao compreender perfeitamente que Krishna, a pessoa, e Krishna, o nome, são idênticos, chama-se bhāva. Aquele que alcançou tal bhāva certamente não está na contaminação da natureza material. Ele de fato desfruta de prazer transcendental a partir de tal bhāva; e, quando o bhāva se intensifica mais, chama-se amor a Deus. O santo nome de Krishna chama-se o Maha-mantra (o grande cantar). Por isso, o Senhor Chaitanya explicou a Prakasananda Saraswati que o santo nome de Krishna tem uma influência específica sobre todo aquele que o canta, e ele pode atingir a etapa do amor a Deus, ou do bhāva intensificado. Tal amor a Deus é a meta derradeira da necessidade humana. Quando se compara este amor a Deus com as outras necessidades da sociedade humana, a saber, a religiosidade, o desenvolvimento econômico, a gratificação dos sentidos e a liberação, elas se mostram como as mais insignificantes.
 

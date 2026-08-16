@@ -1,6 +1,6 @@
 ### 20
 
-21. Os Filósofos Mayavadis São Convertidos
+20. Os Filósofos Mayavadis São Convertidos
 
 Conclui-se que o Senhor Krishna, ou Vishnu, não pertence a este mundo material, mas ao mundo espiritual. Qualquer um que O considere um dos semideuses do mundo material é um grande ofensor. Isso se chama blasfêmia. O Senhor Vishnu, portanto, não está sujeito à percepção pelos sentidos materiais, nem pode ser compreendido pela especulação mental. Não há diferença entre o corpo e a alma do Senhor Supremo Vishnu. No mundo material, há sempre a diferença entre o corpo e a alma. Tudo o que é material é desfrutado pelas entidades vivas, pois as entidades vivas são superiores em natureza, ao passo que a natureza material é de qualidade inferior. Por conseguinte, a qualidade superior da natureza, as entidades vivas, pode desfrutar a qualidade inferior da natureza, a matéria.
 

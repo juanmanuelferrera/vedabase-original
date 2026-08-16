@@ -104,7 +104,7 @@ Aqueles que adotaram este sublimíssimo sistema de bhakti-yoga, esta prática de
 A consciência de Kṛṣṇa não é fabricada por nós através de especulação mental. Ela é prescrita no *Bhagavad-gītā*, que diz que, quando pensamos em Kṛṣṇa, cantamos sobre Kṛṣṇa, vivemos em Kṛṣṇa, comemos em Kṛṣṇa, falamos em Kṛṣṇa, esperamos em Kṛṣṇa e nos sustentamos em Kṛṣṇa, retornamos a Kṛṣṇa, sem dúvida alguma. E esta é a essência da consciência de Kṛṣṇa.
 
 
-O Aparecimento do Senhor Caitanya
+A Encarnação do Senhor Caitanya
 
 
 Há apenas quinhentos anos, o Senhor Caitanya Mahāprabhu, um grande santo e místico, profetizou que o mantra Hare Kṛṣṇa ressoaria por toda cidade e aldeia do mundo. Numa época em que o homem ocidental dirigia seu espírito explorador para o estudo do universo físico e a circum-navegação do globo, na Índia Śrī Caitanya inaugurava e dirigia uma revolução voltada para dentro. Seu movimento varreu o subcontinente, conquistou milhões de seguidores e influenciou profundamente o futuro do pensamento religioso e filosófico, tanto na Índia quanto no Ocidente. Na palestra a seguir, apresentada em novembro de 1969 no Conway Hall, em Londres, Śrīla Prabhupāda descreve o divino aparecimento de Śrī Caitanya.

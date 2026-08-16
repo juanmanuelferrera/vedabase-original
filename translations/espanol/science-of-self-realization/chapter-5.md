@@ -1,6 +1,6 @@
 ### 5
 
-5. Practicar yoga en la era moderna
+V Practicando el yoga en la era moderna
 
 Superconciencia
 

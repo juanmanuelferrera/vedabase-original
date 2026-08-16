@@ -1,6 +1,6 @@
 ### 7
 
-7. Explorando la frontera espiritual
+VII Regresando a la religión eterna
 
 Śrīla Prabhupāda llega a América
 
@@ -48,7 +48,7 @@ Boston, Massachusetts, EE. UU.,
 
 con fecha 18 de septiembre de 1965
 
-Construye tu nación sobre la plataforma espiritual
+Construyan sus naciones sobre la plataforma espiritual
 
 Invitado a hablar en la Universidad de Nairobi en septiembre de 1972, Śrīla Prabhupāda se dirigió a una multitud desbordante de estudiantes y funcionarios del gobierno en el Salón Taifla (Independencia) del campus. En su conferencia, aconsejó a los ciudadanos de la nación en desarrollo de Kenia: «... por favor, desarróllense espiritualmente, pues el desarrollo espiritual es un desarrollo sólido. No imiten a los americanos y europeos, que viven como gatos y perros. La bomba atómica ya está ahí, y en cuanto estalle la próxima guerra, todos sus rascacielos y todo lo demás quedará acabado...».
 
@@ -160,7 +160,7 @@ Dios es el propietario supremo, y todos nosotros somos Sus hijos, o sirvientes. 
 
 Por consiguiente, invitamos a los hombres más inteligentes del mundo a que entiendan esta filosofía de la conciencia de Kṛṣṇa e intenten distribuirla por todo el mundo. Ahora hemos venido a estos países africanos, e invito a todos los africanos inteligentes a que vengan, entiendan esta filosofía y la distribuyan. Ustedes están tratando de desarrollarse, así que por favor desarróllense espiritualmente, pues el desarrollo espiritual es un desarrollo sólido. No imiten a los americanos y europeos, que viven como gatos y perros. Tales civilizaciones construidas sobre la conciencia de la complacencia de los sentidos no pueden sostenerse. La bomba atómica ya está ahí, y en cuanto estalle la próxima guerra, todos sus rascacielos y todo lo demás quedará acabado. Traten de entender esto desde el verdadero punto de vista de la vida humana, el punto de vista espiritual. De esto se trata este movimiento de conciencia de Kṛṣṇa. Por eso les pedimos que traten de entender esta filosofía. Muchas gracias.
 
-Compasión de los santos
+Un devoto siempre siente compasión por el sufrimiento ajeno
 
 Cada religión tiene sus propios santos, pero todos los santos comparten una cualidad espiritual trascendente: la compasión. Śrīla Prabhupāda explica...
 

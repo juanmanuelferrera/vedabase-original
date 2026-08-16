@@ -1,8 +1,6 @@
 ### 1
 
-1. Aprendendo a Ciência do Eu
-
-Descobrindo o Eu
+1. Aprendendo a Ciência da Alma Vendo o Objetivo da Vida Humana
 
 
 Quem é você?... Você é o seu corpo? Ou a sua mente? Ou é algo superior? Sabe quem é, ou apenas pensa que sabe? E isso realmente importa? Nossa sociedade materialista, com sua liderança não esclarecida, tornou praticamente um tabu indagar sobre nosso verdadeiro eu superior. Em vez disso, gastamos nosso valioso tempo mantendo, decorando e mimando o corpo por ele mesmo. Será que haveria uma alternativa?
@@ -65,7 +63,7 @@ Embora todo lugar na criação esteja dentro do reino de Deus, porque o Senhor �
 O movimento da consciência de Kṛṣṇa procura levar essa existência espiritual à humanidade em geral. Em nossa presente consciência material, estamos apegados à concepção sensual e material da vida, mas essa concepção pode ser removida de imediato pelo serviço devocional a Kṛṣṇa, ou consciência de Kṛṣṇa. Se adotarmos os princípios do serviço devocional, poderemos tornar-nos transcendentais às concepções materiais da vida e ficar liberados dos modos da bondade, da paixão e da ignorância, mesmo em meio a várias ocupações materiais. Todos os que estão ocupados em assuntos materiais podem extrair o benefício máximo das páginas da revista Back to Godhead e das outras obras deste movimento da consciência de Kṛṣṇa. Estas obras ajudam todas as pessoas a cortar as raízes da indômita figueira-de-bengala da existência material. Estas obras são autorizadas a nos treinar a renunciar a tudo o que se relaciona com a concepção material da vida e a saborear o néctar espiritual em todo objeto. Esse estágio é obtido somente pelo serviço devocional e por nada mais. Ao prestar tal serviço, a pessoa pode imediatamente obter a liberação (mukti) mesmo nesta vida presente. A maioria dos esforços espirituais está tingida pelas cores do materialismo, mas o serviço devocional puro é transcendental a toda contaminação material. Os que desejam voltar ao Supremo precisam apenas adotar os princípios deste movimento da consciência de Kṛṣṇa e simplesmente dirigir sua consciência aos pés de lótus do Senhor Supremo, a Personalidade de Deus, Kṛṣṇa.
 
 
-O Que É a Consciência de Kṛṣṇa?
+Sua Consciência Original É a Consciência de Kṛṣṇa?
 
 
 A entrevista a seguir, com a repórter freelance Sandy Nixon, ocorreu em julho de 1975, nos aposentos de Śrīla Prabhupāda, no centro de Kṛṣṇa em Filadélfia. Esta conversa serve como soberba introdução à consciência de Kṛṣṇa e abrange tópicos básicos como o Hare Kṛṣṇa mantra, a relação entre o mestre espiritual e Deus, a diferença entre gurus genuínos e falsos, o papel das mulheres na consciência de Kṛṣṇa, o sistema indiano de castas e a relação entre a consciência de Cristo e a consciência de Kṛṣṇa.
@@ -238,7 +236,7 @@ Srta. Nixon: Muito obrigada.
 Śrīla Prabhupāda: Hare Kṛṣṇa!
 
 
-Uma Definição de Deus
+O Verdadeiro Avanço Significa Conhecer Deus
 
 
 As concepções de Deus do homem moderno são muitas e variadas. As crianças tendem a imaginar um homem idoso de barba branca. Muitos adultos consideram Deus uma força invisível, ou um conceito mental, ou ainda toda a humanidade, o universo ou até mesmo o próprio eu. Nesta palestra, Śrīla Prabhupāda descreve detalhadamente a concepção da consciência de Kṛṣṇa — uma visão de Deus surpreendentemente íntima.
@@ -843,7 +841,7 @@ Os mundanos não sabem que toda a entidade espiritual é a bela pessoa que atrai
 
 Embora escrita pelo maior poeta ou intelectual mundano, qualquer literatura que não descreva a verdade e a beleza últimas é apenas um depósito de fezes líquidas e vômito da verdade relativa. A verdadeira literatura é aquela que descreve a verdade e a beleza últimas do Absoluto.
 
-A Arte de Morrer
+Perguntas Pertinentes
 
 
 

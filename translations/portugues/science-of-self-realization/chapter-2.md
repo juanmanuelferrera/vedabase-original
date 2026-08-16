@@ -535,7 +535,7 @@ Repórter: Muitíssimo obrigado.
 
 
 
-A Absoluta Necessidade de um Mestre Espiritual
+Com Toda a Humildade de Que Sou Capaz
 
 
 Em fevereiro de 1936, em Bombaim, Índia, os membros de uma renomada sociedade religiosa, o Gauḍīya Maṭha, ficaram atônitos com as poderosas e eloquentes palavras de um jovem membro que falou em honra de seu mestre espiritual, Śrīla Bhaktisiddhānta Sarasvatī Gosvāmī. Três décadas depois, o jovem orador se tornaria o mundialmente renomado fundador e mestre espiritual do movimento da consciência de Kṛṣṇa. A exposição de Śrīla Prabhupāda é uma declaração memorável sobre a importância do guru na vida espiritual.

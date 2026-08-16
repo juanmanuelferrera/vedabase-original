@@ -1,6 +1,6 @@
 ### 21
 
-19. Mais Conversas com Prakasananda
+21. Mais Conversas com Prakasananda
 
 Sripad Sankar Acharya obscureceu de modo descortês a consciência de Krishna descrita no Vedanta Sūtra purusa, fabricando uma interpretação indireta e abandonando a interpretação direta. Mas, a menos que tomemos todas as afirmações do Vedanta Sūtra como evidentes por si mesmas, não há necessidade de estudar o Vedanta Sūtra. Interpretar os versos do Vedanta Sūtra conforme o próprio capricho é o maior desserviço aos Vedas, que são evidentes por si mesmos. No que tange ao oṁkāra praṇava, Ele é considerado a encarnação sonora da Suprema Personalidade de Deus; sendo assim, o oṁkāra é eterno, ilimitado, transcendental, supremo e indestrutível. Ele não tem princípio, e Ele é o princípio, o meio e o fim. Quando a pessoa compreende o oṁkāra dessa forma, então se torna imortal.
 
