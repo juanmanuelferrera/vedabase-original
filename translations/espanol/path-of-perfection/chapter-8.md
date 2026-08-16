@@ -392,7 +392,7 @@ sthita-dhūlī-sadṛśaṁ vicintaya
 
 
 
-El amoroso servicio devocional solo puede prestarse a la forma personal de Kṛṣṇa, Śyāmasundara. Los impersonalistas enfatizan la virāṭ-rūpa, la forma universal exhibida en el Capítulo Undécimo del *Bhagavad-gītā*, pero ahí se declara (11.21) que los semidioses le tienen mucho miedo a esta forma, y Arjuna dice:
+El amoroso servicio devocional solo puede prestarse a la forma personal de Kṛṣṇa, Śyāmasundara. Los impersonalistas enfatizan la viśva-rūpa, la forma universal exhibida en el Capítulo Undécimo del *Bhagavad-gītā*, pero ahí se declara (11.21) que los semidioses le tienen mucho miedo a esta forma, y Arjuna dice:
 
 
 
@@ -406,7 +406,7 @@ prasīda deveśa jagan-nivāsa
 
 
 
-«Después de ver esta forma universal, que nunca antes había visto, me siento jubiloso, pero al mismo tiempo mi mente está perturbada de miedo. Ten a bien concederme Tu gracia y revélame de nuevo Tu forma como la Personalidad de Dios [Kṛṣṇa, o Śyāmasundara], ¡oh, Señor de señores!, ¡oh, morada del universo!» (Bg. 11.45) No hay cuestión de amar a la virāṭ-rūpa. Si Kṛṣṇa viene ante ti en la forma de la virāṭ-rūpa, estarás tan lleno de temor que olvidarás tu amor. Así que no estés ansioso, como los impersonalistas, de ver la forma de la virāṭ-rūpa; simplemente presta amoroso servicio a Śyāmasundara, Kṛṣṇa.
+«Después de ver esta forma universal, que nunca antes había visto, me siento jubiloso, pero al mismo tiempo mi mente está perturbada de miedo. Ten a bien concederme Tu gracia y revélame de nuevo Tu forma como la Personalidad de Dios [Kṛṣṇa, o Śyāmasundara], ¡oh, Señor de señores!, ¡oh, morada del universo!» (Bg. 11.45) No hay cuestión de amar a la viśva-rūpa. Si Kṛṣṇa viene ante ti en la forma de la viśva-rūpa, estarás tan lleno de temor que olvidarás tu amor. Así que no estés ansioso, como los impersonalistas, de ver la forma de la viśva-rūpa; simplemente presta amoroso servicio a Śyāmasundara, Kṛṣṇa.
 
 
 

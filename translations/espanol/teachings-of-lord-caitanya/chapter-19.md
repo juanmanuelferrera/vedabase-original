@@ -1,6 +1,6 @@
 ### 19
 
-20. La meta del estudio del Vedanta
+19. La meta del estudio del Vedanta
 
 El apego extático trascendental por Krishna que surge de comprender perfectamente que Krishna la persona y Krishna el nombre son idénticos se llama bhava. Aquel que ha alcanzado tal bhava ciertamente no está en la contaminación de la naturaleza material. En realidad disfruta de placer trascendental a partir de ese bhava y, cuando el bhava se intensifica más, se llama amor por Dios. El santo nombre de Krishna se llama el Maha-mantra (el gran canto). Por lo tanto, el Señor Chaitanya explicó a Prakasananda Saraswati que el santo nombre de Krishna tiene una influencia específica sobre cualquiera que lo canta, y este puede alcanzar la etapa del amor por Dios, o el bhava intensificado. Tal amor por Dios es la meta última de la necesidad humana.
 

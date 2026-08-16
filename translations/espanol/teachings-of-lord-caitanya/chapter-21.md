@@ -1,6 +1,6 @@
 ### 21
 
-19. Más conversaciones con Prakasananda
+21. Más conversaciones con Prakasananda
 
 Sripad Sankar Acharya ha oscurecido sin ceremonias la conciencia de Krishna descrita en el Purusa Vedanta Sutra al fabricar una interpretación indirecta y abandonar la interpretación directa. Pero, a menos que tomemos todas las afirmaciones del Vedanta Sutra como evidentes por sí mismas, no hay necesidad de estudiar el Vedanta Sutra. Interpretar los versos del Vedanta Sutra según el propio capricho es el mayor perjuicio para los Vedas, que son evidentes por sí mismos. En lo que respecta a Omkara pranava, se le considera la encarnación sonora de la Suprema Personalidad de Dios; de este modo, Omkara es eterno, ilimitado, trascendental, supremo e indestructible. Él es el que no tiene principio, y es el principio, el medio y el fin.
 
