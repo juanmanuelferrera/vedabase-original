@@ -8,7 +8,7 @@
 > na sammumohorubhayād\
 > bhagavaty arpitāśayaḥ
 
-*brahma-kopa*—fury of a *brāhmaṇa*; *utthitāt*—caused by; *yaḥ*—what was; *tu*—but; *takṣakāt*—by the snake-bird; *prāṇa-viplavāt*—from dissolution of life; *na*—never; *sammumoha*—was overwhelmed; *uru-bhayāt*—great fear; *bhagavati*—unto the Personality of Godhead; *arpita*—surrendered; *āśayaḥ*—consciousness.
+*brahma-kopa*—fury of a *brāhmaṇa*; *utthitāt*—caused by; *yaḥ*—what was; *tu*—but; *takṣakāt*—by the snake-bird; *prāṇa-viplavāt*—from dissolution of life; *na*—never; *sammumoha*—became overwhelmed; *uru-bhayāt*—great fear; *bhagavati*—unto the Personality of Godhead; *arpita*—surrendered; *āśayaḥ*—consciousness.
 
 **Furthermore, Mahārāja Parīkṣit was always consciously surrendered to the Personality of Godhead, and therefore he was neither afraid nor overwhelmed by fear due to a snake-bird which was to bite him because of the fury of a brāhmaṇa boy.**
 

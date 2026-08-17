@@ -8,7 +8,7 @@
 > mahatsu yāṁ yām upayāmi sṛṣṭiṁ\
 > maitry astu sarvatra namo dvijebhyaḥ
 
-*punaḥ*—again; *ca*—and; *bhūyāt*—let it be; *bhagavati*—unto Lord Śrī Kṛṣṇa; *anante*—who has unlimited potency; *ratiḥ*—attracting; *prasaṅgaḥ*—association; *ca*—also; *tat*—His; *āśrayeṣu*—with those who are His devotees; *mahatsu*—within the material creation; *yām yām*—wherever; *upayāmi*—I may take; *sṛṣṭim*—my birth; *maitrī*—friendly relation; *astu*—let it be; *sarvatra*—everywhere; *namaḥ*—my obeisances; *dvijebhyaḥ*—unto the *brāhmaṇas.*
+*punaḥ*—again; *ca*—and; *bhūyāt*—let it be; *bhagavati*—unto Lord Śrī Kṛṣṇa; *anante*—who has unlimited potency; *ratiḥ*—attracting; *prasaṅgaḥ*—association; *ca*—also; *tat*—His; *āśrayeṣu*—with those who are His devotees; *mahatsu*—within the material creation; *yām yām*—whichever; *upayāmi*—I may take; *sṛṣṭim*—my birth; *maitrī*—friendly relation; *astu*—let it be; *sarvatra*—everywhere; *namaḥ*—my obeisances; *dvijebhyaḥ*—unto the *brāhmaṇas.*
 
 **Again, offering obeisances unto all you brāhmaṇas, I pray that if I should again take my birth in the material world I will have complete attachment to the unlimited Lord Kṛṣṇa, association with His devotees and friendly relations with all living beings.**
 
