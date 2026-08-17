@@ -8,7 +8,7 @@
 > vrajanti tat pārama-haṁsyam antyaṁ\
 > yasminn ahiṁsopaśamaḥ sva-dharmaḥ
 
-*yatra*—unto whom; *anuraktāḥ*—firmly attached; *sahasā*—all of a sudden; *eva*—certainly; *dhīrāḥ*—self-controlled; *vyapohya*—leaving aside; *deha*—the gross body and subtle mind; *ādiṣu*—relating to; *saṅgam*—attachment; *ūḍham*—taken to; *vrajanti*—go away; *tat*—that; *pārama-haṁsyam*—the highest stage of perfection; *antyam*—and beyond that; *yasmin*—in which; *ahiṁsā*—nonviolence; *upaśamaḥ*—and renunciation; *sva-dharmaḥ*—consequential occupation.
+*yatra*—unto whom; *anuraktāḥ*—firmly attached; *sahasā*—all of a sudden; *eva*—certainly; *dhīrāḥ*—self-controlled; *vyapohya*—leaving aside; *deha*—the gross and subtle mind; *ādiṣu*—relating to; *saṅgam*—attachment; *ūḍham*—taken to; *vrajanti*—go away; *tat*—that; *pārama-haṁsyam*—the highest stage of perfection; *antyam*—and beyond that; *yasmin*—in which; *ahiṁsā*—nonviolence; *upaśamaḥ*—and renunciation; *sva-dharmaḥ*—consequential occupation.
 
 **Self-controlled persons who are attached to the Supreme Lord Śrī Kṛṣṇa can all of a sudden give up the world of material attachment, including the gross body and subtle mind, and go away to attain the highest perfection of the renounced order of life, by which nonviolence and renunciation are consequential.**
 

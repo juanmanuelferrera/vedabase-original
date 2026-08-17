@@ -8,7 +8,7 @@
 > sādhūnāṁ bhadram eva syād\
 > asādhu-damane kṛte
 
-*jane*—to the living beings; *anāgasi*—those who are offenseless; *agham*—sufferings; *yuñjan*—by applying; *sarvataḥ*—anywhere and everywhere; *asya*—of such offenders; *ca*—and; *mat-bhayam*—fear me; *sādhūnām*—of the honest persons; *bhadram*—good fortune; *eva*—certainly; *syāt*—will take place; *asādhu*—dishonest miscreants; *damane*—curbed; *kṛte*—being so done.
+*jane*—to the living beings; *anāgasi*—those who are offenseless; *agham*—sufferings; *yuñjan*—by applying; *sarvataḥ*—anywhere and everywhere; *asya*—of such offenders; *ca*—and; *mat-bhayam*—fear me; *sādhūnām*—of the honest persons; *bhadram*—good fortune; *eva*—certainly; *syāt*—will take place; *asādhu*—dishonest miscreants; *damane*—curbed down; *kṛte*—being so done.
 
 **Whoever causes offenseless living beings to suffer must fear me anywhere and everywhere in the world. By curbing dishonest miscreants, one automatically benefits the offenseless.**
 

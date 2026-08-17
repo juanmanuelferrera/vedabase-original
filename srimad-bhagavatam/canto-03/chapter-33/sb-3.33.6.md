@@ -8,7 +8,7 @@
 > śvādo 'pi sadyaḥ savanāya kalpate\
 > kutaḥ punas te bhagavan nu darśanāt
 
-*yat*—of whom (the Supreme Personality of Godhead); *nāmadheya*—the name; *śravaṇa*—hearing; *anukīrtanāt*—by chanting; *yat*—to whom; *prahvaṇāt*—by offering obeisances; *yat*—whom; *smaraṇāt*—by remembering; *api*—even; *kvacit*—at any time; *śva-adaḥ*—a dog-eater; *api*—even; *sadyaḥ*—immediately; *savanāya*—for performing Vedic sacrifices; *kalpate*—becomes eligible; *kutaḥ*—what to speak of; *punaḥ*—again; *te*—You; *bhagavan*—O Supreme Personality of Godhead; *nu*—then; *darśanāt*—by seeing face to face.
+*yat*—of whom (the Supreme Personality of Godhead); *nāmadheya*—the name; *śravaṇa*—hearing; *anukīrtanāt*—by chanting; *yat*—to whom; *prahvaṇāt*—by offering obeisances; *yat*—whom; *smaraṇāt*—by remembering; *api*—even; *kvacit*—at any time; *śva-adaḥ*—a dog-eater; *api*—even; *sadyaḥ*—immediately; *savanāya*—for performing Vedic sacrifices; *kalpate*—becomes eligible; *kutaḥ*—what to speak of; *punaḥ*—again; *te*—You; *bhagavan*—O Supreme Personality of Godhead; *nu*—then; *darśanāt*—by seeing eye to eye.
 
 **To say nothing of the spiritual advancement of persons who see the Supreme Person eye to eye, even a person born in a family of dog-eaters immediately becomes eligible to perform Vedic sacrifices if he once utters the holy name of the Supreme Personality of Godhead or chants about Him, hears about His pastimes, offers Him obeisances or even remembers Him.**
 

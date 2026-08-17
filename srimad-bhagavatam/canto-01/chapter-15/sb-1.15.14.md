@@ -8,7 +8,7 @@
 > pratyāhṛtaṁ bahu dhanaṁ ca mayā pareṣāṁ\
 > tejāspadaṁ maṇimayaṁ ca hṛtaṁ śirobhyaḥ
 
-*yat-bāndhavaḥ*—by whose friendship only; *kuru-bala-abdhim*—the ocean of the military strength of the Kurus; *ananta-pāram*—which was insurmountable; *ekaḥ*—alone; *rathena*—being seated on the chariot; *tatare*—was able to cross over; *aham*—myself; *atīrya*—invincible; *sattvam*—existence; *pratyāhṛtam*—drew back; *bahu*—very large quantity; *dhanam*—wealth; *ca*—also; *mayā*—by my; *pareṣām*—of the enemy; *teja-āspadam*—source of brilliance; *maṇi-mayam*—bedecked with jewels; *ca*—also; *hṛtam*—taken by force; *śirobhyaḥ*—from their heads.
+*yat-bāndhavaḥ*—by whose friendship only; *kuru-bala-abdhim*—the ocean of the military strength of the Kurus; *ananta-pāram*—which was insurmountable; *ekaḥ*—alone; *rathena*—being seated on the chariot; *tatare*—was able to cross over; *aham*—myself; *atīrya*—invincible; *sattvam*—existence; *pratyāhṛtam*—drew back; *bahu*—very large quantity; *dhanam*—wealth; *ca*—also; *mayā*—by me; *pareṣām*—of the enemy; *teja-āspadam*—source of brilliance; *maṇi-mayam*—bedecked with jewels; *ca*—also; *hṛtam*—taken by force; *śirobhyaḥ*—from their heads.
 
 **The military strength of the Kauravas was like an ocean in which there dwelled many invincible existences, and thus it was insurmountable. But because of His friendship, I, seated on the chariot, was able to cross over it. And only by His grace was I able to regain the cows and also collect by force many helmets of the kings which were bedecked with jewels that were sources of all brilliance.**
 

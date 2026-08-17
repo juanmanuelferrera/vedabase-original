@@ -8,7 +8,7 @@
 > rasa-mātram abhūt tasmād\
 > ambho jihvā rasa-grahaḥ
 
-*rūpa-mātrāt*—which evolves from the subtle element form; *vikurvāṇāt*—undergoing transformation; *tejasaḥ*—from fire; *daiva-coditāt*—under a superior arrangement; *rasa-mātram*—the subtle element taste; *abhūt*—became manifested; *tasmāt*—from that; *ambhaḥ*—water; *jihvā*—the sense of taste; *rasa-grahaḥ*—which perceives taste.
+*rūpa-mātrāt*—which evolves from the subtle element form; *vikurvāṇāt*—undergoing transformation; *tejasaḥ*—from fire; *daiva-coditāt*—under a superior arrangement; *rasa-mātram*—the subtle element taste; *abhūt*—became manifested; *tasmāt*—from that; *ambhaḥ*—water; *jihvā*—the sense of taste; *rasa-grahaḥ*—which perceive taste.
 
 **By the interaction of fire and the visual sensation, the subtle element taste evolves under a superior arrangement. From taste, water is produced, and the tongue, which perceives taste, is also manifested.**
 

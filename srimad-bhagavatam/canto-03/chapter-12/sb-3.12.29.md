@@ -8,7 +8,7 @@
 > marīci-mukhyā munayo\
 > viśrambhāt pratyabodhayan
 
-*tam*—unto him; *adharme*—in the matter of immortality; *kṛta-matim*—the mind being so given; *vilokya*—seeing thus; *pitaram*—unto the father; *sutāḥ*—sons; *marīci-mukhyāḥ*—headed by Marīci; *munayaḥ*—sages; *viśrambhāt*—with due respect; *pratyabodhayan*—submitted as follows.
+*tam*—unto him; *adharme*—in the matter of immorality; *kṛta-matim*—the mind being so given; *vilokya*—seeing thus; *pitaram*—unto the father; *sutāḥ*—sons; *marīci-mukhyāḥ*—headed by Marīci; *munayaḥ*—sages; *viśrambhāt*—with due respect; *pratyabodhayan*—submitted as follows.
 
 **Thus, finding their father so deluded in an act of immorality, the sages headed by Marīci, all sons of Brahmā, spoke as follows with great respect.**
 

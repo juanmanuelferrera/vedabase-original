@@ -8,7 +8,7 @@
 > harṣa-śoka-yutas tasmād\
 > gantā tīrtha-niṣevakaḥ
 
-*viduraḥ*—Vidura also; *tu*—but; *tat*—that incident; *āścaryam*—wonderful; *niśāmya*—seeing; *kuru-nandana*—O son of the Kuru dynasty; *harṣa*—delight; *śoka*—grief; *yutaḥ*—affected by; *tasmāt*—from that place; *gantā*—will go away; *tīrtha*—place of pilgrimage; *niṣevakaḥ*—for being enlivened.
+*viduraḥ*—Vidura also; *tu*—but; *tat*—that incidence; *āścaryam*—wonderful; *niśāmya*—seeing; *kuru-nandana*—O son of the Kuru dynasty; *harṣa*—delight; *śoka*—grief; *yutaḥ*—affected by; *tasmāt*—from that place; *gantā*—went away; *tīrtha*—place of pilgrimage; *niṣevakaḥ*—for being enlivened.
 
 **Vidura, being affected with delight and grief, will then leave that place of sacred pilgrimage.**
 

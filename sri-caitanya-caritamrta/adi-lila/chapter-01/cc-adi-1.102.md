@@ -6,7 +6,7 @@
 > ei candra sūrya dui parama sadaya\
 > jagatera bhāgye gauḍe karilā udaya
 
-*ei*—these; *candra*—moon; *sūrya*—sun; *dui*—two; *parama*—very; *sa-daya*—kind; *jagatera*—of the people of the world; *bhāgye*—for the fortune; *gauḍe*—in the land of Gauḍa; *karilā*—did; *udaya*—appearance.
+*ei*—these; *candra*—moon; *sūrya*—sun; *dui*—two; *parama*—very much; *sa-daya*—kind; *jagatera*—of the people of the world; *bhāgye*—for the fortune; *gauḍe*—in the land of Gauḍa; *karilā*—did; *udaya*—appearance.
 
 **These two, the sun and moon, are very kind to the people of the world. Thus for the good fortune of all, They have appeared on the horizon of Bengal.**
 

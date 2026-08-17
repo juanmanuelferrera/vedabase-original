@@ -10,7 +10,7 @@
 > puṣpāṇi ca sphīta-madhu-vratāni\
 > madhu-vratāś ca śruti-hāri-gītāḥ
 
-*vṛndāvanam*—the forest of Vṛndāvana; *divya-latā-parītam*—surrounded by transcendental creepers; *latāḥ ca*—and the creepers; *puṣpa*—by flowers; *sphurita*—distinguished; *agra-bhājaḥ*—possessing ends; *puṣpāṇi*—the flowers; *ca*—and; *sphīta-madhu-vratāni*—having many maddened bumblebees; *madhu-vratāḥ*—the bumblebees; *ca*—and; *śruti-hāri-gītāḥ*—whose songs defeat the Vedic hymns and are pleasing to the ear.
+*vṛndāvanam*—the forest of Vṛndāvana; *divya-latā-parītam*—surrounded by transcendental creepers; *latāḥ ca*—and the creepers; *puṣpa*—by flowers; *sphurita*—distinguished; *agra-bhājaḥ*—possessing ends; *puṣpāṇi*—the flowers; *ca*—and; *sphīta-madhu-vratāni*—having maddened bumblebees; *madhu-vratāḥ*—the bumblebees; *ca*—and; *śruti-hāri-gītāḥ*—whose songs defeat the Vedic hymns and are pleasing to the ear.
 
 **'My dear friend, see how this forest of Vṛndāvana is full of transcendental creepers and trees. The tops of the creepers are full of flowers, and intoxicated bumblebees are buzzing around them, humming songs that please the ear and surpass even the Vedic hymns.'**
 

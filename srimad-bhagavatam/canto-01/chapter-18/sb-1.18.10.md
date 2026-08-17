@@ -8,7 +8,7 @@
 > guṇa-karmāśrayāḥ pumbhiḥ\
 > saṁsevyās tā bubhūṣubhiḥ
 
-*yāḥ*—whatever; *yāḥ*—and whatsoever; *kathāḥ*—topics; *bhagavataḥ*—about the Personality of Godhead; *kathanīya*—were to be spoken by me; *uru-karmaṇaḥ*—of Him who acts wonderfully; *guṇa*—transcendental qualities; *karma*—uncommon deeds; *āśrayāḥ*—involving; *pumbhiḥ*—by persons; *saṁsevyāḥ*—ought to be heard; *tāḥ*—all of them; *bubhūṣubhiḥ*—by those who want their own welfare.
+*yāḥ*—and whatsoever; *yāḥ*—and whatsoever; *kathāḥ*—topics; *bhagavataḥ*—about the Personality of Godhead; *kathanīya*—were to be spoken by me; *uru-karmaṇaḥ*—of Him who acts wonderfully; *guṇa*—transcendental qualities; *karma*—uncommon deeds; *āśrayāḥ*—involving; *pumbhiḥ*—by persons; *saṁsevyāḥ*—ought to be heard by; *tāḥ*—all of them; *bubhūṣubhiḥ*—by those who want their own welfare.
 
 **Those who are desirous of achieving complete perfection in life must submissively hear all topics that are connected with the transcendental activities and qualities of the Personality of Godhead, who acts wonderfully.**
 

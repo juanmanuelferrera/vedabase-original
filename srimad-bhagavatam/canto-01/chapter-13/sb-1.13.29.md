@@ -8,7 +8,7 @@
 > chittvā sveṣu sneha-pāśān draḍhimno\
 > niścakrāma bhrātṛ-sandarśitādhvā
 
-*evam*—thus; *rājā*—King Dhṛtarāṣṭra; *vidureṇa anujena*—by his younger brother Vidura; *prajñā*—introspective knowledge; *cakṣuḥ*—eyes; *bodhitaḥ*—being understood; *ājamīḍhaḥ*—Dhṛtarāṣṭra, scion of the family of Ajamīḍha; *chittvā*—by breaking; *sveṣu*—regarding kinsmen; *sneha-pāśān*—strong network of affection; *draḍhimnaḥ*—because of steadfastness; *niścakrāma*—got out; *bhrātṛ*—by his brother; *sandarśita*—direction to; *adhvā*—the path of liberation.
+*evam*—thus; *rājā*—King Dhṛtarāṣṭra; *vidureṇa anujena*—by his younger brother Vidura; *prajñā*—introspective knowledge; *cakṣuḥ*—eyes; *bodhitaḥ*—being understood; *ājamīḍhaḥ*—Dhṛtarāṣṭra, scion of the family of Ajamīḍha; *chittvā*—by breaking; *sveṣu*—regarding kinsmen; *sneha-pāśān*—strong network of affection; *draḍhimnaḥ*—because of steadfastness; *niścakrāma*—got out; *bhrātṛ*—brother; *sandarśita*—direction to; *adhvā*—the path of liberation.
 
 **Thus Mahārāja Dhṛtarāṣṭra, the scion of the family of Ājamīḍha, firmly convinced by introspective knowledge [prajñā], broke at once the strong network of familial affection by his resolute determination. Thus he immediately left home to set out on the path of liberation, as directed by his younger brother Vidura.**
 

@@ -10,7 +10,7 @@
 > na vartitavyaṁ bhavatā kathañcana\
 > kṣetre madīye tvam adharma-bandhuḥ
 
-*rājā uvāca*—the King said; *na*—not; *te*—your; *guḍākeśa*—Arjuna; *yaśaḥ-dharāṇām*—of us who inherited the fame; *baddha-añjaleḥ*—one with folded hands; *vai*—certainly; *bhayam*—fear; *asti*—there is; *kiñcit*—even a slight; *na*—neither; *vartitavyam*—can be allowed to live; *bhavatā*—by you; *kathañcana*—by all means; *kṣetre*—in the land; *madīye*—in my kingdom; *tvam*—you; *adharma-bandhuḥ*—the friend of irreligion.
+*rājā uvāca*—the King said; *na*—not; *te*—your; *guḍākeśa*—Arjuna; *yaśaḥ-dharāṇām*—of you who inherited the fame; *baddha-añjaleḥ*—one with folded hands; *vai*—certainly; *bhayam*—fear; *asti*—there is; *kiñcit*—even a slight; *na*—neither; *vartitavyam*—can be allowed to live; *bhavatā*—by you; *kathañcana*—by all means; *kṣetre*—in the land; *madīye*—in my kingdom; *tvam*—you; *adharma-bandhuḥ*—the friend of irreligion.
 
 **The King thus said: We have inherited the fame of Arjuna; therefore since you have surrendered yourself with folded hands you need not fear for your life. But you cannot remain in my kingdom, for you are the friend of irreligion.**
 

@@ -8,7 +8,7 @@
 > rakṣā-kāmaḥ puṇya-janān\
 > ojas-kāmo marud-gaṇān
 
-*dharma-arthaḥ*—for spiritual advancement; *uttama-ślokam*—the Supreme Lord or persons attached to the Supreme Lord; *tantuḥ*—for offspring; *tanvan*—and for their protection; *pitṝn*—the residents of Pitṛloka; *yajet*—must worship; *rakṣā-kāmaḥ*—one who desires protection; *puṇya-janān*—pious persons; *ojaḥ-kāmaḥ*—one who desires strength should worship; *marut-gaṇān*—the demigods.
+*dharma-arthaḥ*—for spiritual advancement; *uttama-ślokam*—the Supreme Lord or persons attached to the Supreme Lord; *tantuḥ*—for offspring; *tanvan*—and for their protection; *pitṝn*—the residents of the Pitṛloka; *yajet*—must worship; *rakṣā-kāmaḥ*—one who desires protection; *puṇya-janān*—pious persons; *ojaḥ-kāmaḥ*—one who desires strength should worship; *marut-gaṇān*—the demigods.
 
 **One should worship Lord Viṣṇu or His devotee for spiritual advancement of knowledge, and for protection of heredity and advancement of the dynasty one should worship the different demigods.**
 

@@ -8,7 +8,7 @@
 > agrecaro mama vibho ratha-yūthapānām\
 > āyur manāṁsi ca dṛśā saha oja ārcchat
 
-*yaḥ*—it is He only; *bhīṣma*—Bhīṣma; *karṇa*—Karṇa; *guru*—Droṇācārya; *śalya*—Śalya; *camūṣu*—in the midst of the military phalanx; *adabhra*—immense; *rājanya-varya*—great royal princes; *ratha-maṇḍala*—chain of chariots; *maṇḍitāsu*—being decorated with; *agre caraḥ*—going forward; *mama*—of mine; *vibho*—O great King; *ratha-yūtha-pānām*—all the charioteers; *āyuḥ*—duration of life or fruitive activities; *manāṁsi*—mental upsurges; *ca*—also; *dṛśā*—by glance; *sahaḥ*—power; *ojaḥ*—strength; *ārcchat*—withdrew.
+*yaḥ*—it is He only; *bhīṣma*—Bhīṣma; *karṇa*—Karṇa; *guru*—Droṇācārya; *śalya*—Śalya; *camūṣu*—in the midst of the military phalanx; *adabhra*—immense; *rājanya-varya*—great royal princes; *ratha-maṇḍala*—chain of chariots; *maṇḍitāsu*—being decorated with; *agre caraḥ*—going forward; *mama*—of mine; *vibho*—O great King; *ratha-yūtha-pānām*—all the charioteers; *āyuḥ*—duration of life or fruitive activities; *manāṁsi*—mental upsurges; *ca*—also; *dṛśā*—by glance; *sahaḥ*—along with; *ojaḥ*—strength; *ārcchat*—withdrew.
 
 **It was He only who withdrew the duration of life from everyone and who, in the battlefield, withdrew the speculative power and strength of enthusiasm from the great military phalanx made by the Kauravas headed by Bhīṣma, Karṇa, Droṇa, Śalya, etc. Their arrangement was expert and more than adequate, but He [Lord Śrī Kṛṣṇa], while going forward, did all this.**
 

@@ -8,7 +8,7 @@
 > ye 'dhyāsanaṁ rāja-kirīṭa-juṣṭaṁ\
 > sadyo jahur bhagavat-pārśva-kāmāḥ
 
-*na*—neither; *vā*—like this; *idam*—this; *rājarṣi*—saintly king; *varya*—the chief; *citram*—astonishing; *bhavatsu*—unto all of you; *kṛṣṇam*—Lord Kṛṣṇa; *samanuvrateṣu*—unto those who are strictly in the line of; *ye*—who; *adhyāsanam*—seated on the throne; *rāja-kirīṭa*—helmets of kings; *juṣṭam*—decorated; *sadyaḥ*—immediately; *jahuḥ*—gave up; *bhagavat*—the Personality of Godhead; *pārśva-kāmāḥ*—desiring to achieve association.
+*na*—neither; *vā*—like this; *idam*—this; *rājarṣi*—saintly king; *varya*—the chief; *citram*—astonishing; *bhavatsu*—unto you all; *kṛṣṇam*—Lord Kṛṣṇa; *samanuvrateṣu*—unto those who are strictly in the line of; *ye*—who; *adhyāsanam*—seated on the throne; *rāja-kirīṭa*—helmets of kings; *juṣṭam*—decorated; *sadyaḥ*—immediately; *jahuḥ*—gave up; *bhagavat*—the Personality of Godhead; *pārśva-kāmāḥ*—desiring to achieve association.
 
 **[The sages said: ] O chief of all the saintly kings of the Pāṇḍu dynasty who are strictly in the line of Lord Śrī Kṛṣṇa! It is not at all astonishing that you give up your throne, which is decorated with the helmets of many kings, to achieve eternal association with the Personality of Godhead.**
 

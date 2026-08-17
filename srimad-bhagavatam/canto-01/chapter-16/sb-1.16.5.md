@@ -13,7 +13,7 @@
 > tat kathyatāṁ mahā-bhāga\
 > yadi kṛṣṇa-kathāśrayam
 
-*śaunakaḥ uvāca*—Śaunaka Ṛṣi said; *kasya*—for what; *hetoḥ*—reason; *nijagrāha*—sufficiently punished; *kalim*—the master of the age of Kali; *digvijaye*—during the time of his world tour; *nṛpaḥ*—the King; *nṛ-deva*—royal person; *cihna-dhṛk*—decorated like; *śūdrakaḥ*—lowest of the *śūdras*; *asau*—he; *gām*—cow; *yaḥ*—one who; *padā ahanat*—struck on the leg; *tat*—all that; *kathyatām*—please describe; *mahā-bhāga*—O greatly fortunate one; *yadi*—if, however; *kṛṣṇa*—about Kṛṣṇa; *kathā-āśrayam*—related with His topics.
+*śaunakaḥ uvāca*—Śaunaka Ṛṣi said; *kasya*—for what; *hetoḥ*—reason; *nijagrāha*—sufficiently punished; *kalim*—the master of the age of Kali; *digvijaye*—during the time of his world tour; *nṛpaḥ*—a King; *nṛ-deva*—royal person; *cihna-dhṛk*—decorated like; *śūdrakaḥ*—lowest of the *śūdras*; *asau*—he; *gām*—cow; *yaḥ*—one who; *padā ahanat*—struck on the leg; *tat*—all that; *kathyatām*—please describe; *mahā-bhāga*—O greatly fortunate one; *yadi*—if, however; *kṛṣṇa*—about Kṛṣṇa; *kathā-āśrayam*—related with His topics.
 
 **Śaunaka Ṛṣi inquired: Why did Mahārāja Parīkṣit simply punish him, since he was the lowest of the śūdras, having dressed as a king and harmed the legs of a cow? Please describe all these incidences as they relate to the topics of Lord Kṛṣṇa.**
 

@@ -8,7 +8,7 @@
 > āsthito ramate jantus\
 > tamo viśati pūrvavat
 
-*yadi*—if; *asadbhiḥ*—with the unrighteous; *pathi*—on the path; *punaḥ*—again; *śiśna*—for the genitals; *udara*—for the stomach; *kṛta*—done; *udyamaiḥ*—whose endeavors; *āsthitaḥ*—associating; *ramate*—enjoys; *jantuḥ*—the living entity; *tamaḥ*—darkness; *viśati*—enters; *pūrva-vat*—as before.
+*yadi*—if; *asadbhiḥ*—with the unrighteous; *pathi*—on the path; *punaḥ*—again; *śiśna*—for the genital; *udara*—for the stomach; *kṛta*—done; *udyamaiḥ*—whose endeavors; *āsthitaḥ*—associating; *ramate*—enjoys; *jantuḥ*—the living entity; *tamaḥ*—darkness; *viśati*—enters; *pūrva-vat*—as before.
 
 **If, therefore, the living entity again associates with the path of unrighteousness, influenced by sensually minded people engaged in the pursuit of sexual enjoyment and the gratification of the palate, he again goes to hell as before.**
 

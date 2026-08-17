@@ -8,7 +8,7 @@
 > vinirgacchan dhanuṣ-koṭyā\
 > nidhāya puram āgataḥ
 
-*saḥ*—the King; *tu*—however; *brahma-ṛṣeḥ*—of the *brāhmaṇa* sage; *aṁse*—on the shoulder; *gata-asum*—lifeless; *uragam*—snake; *ruṣā*—in anger; *vinirgacchan*—while leaving; *dhanuḥ-koṭyā*—with the front of the bow; *nidhāya*—by placing it; *puram*—palace; *āgataḥ*—returned.
+*saḥ*—the King; *tu*—however; *brahma-ṛṣeḥ*—of the *brāhmaṇa* sage; *aṁse*—on the shoulder; *gata-asum*—lifeless; *uragam*—snake; *ruṣā*—in anger; *vinirgacchan*—while leaving; *dhanuḥ-koṭyā*—with the front part of the bow; *nidhāya*—by placing it; *puram*—palace; *āgataḥ*—returned.
 
 **While leaving, the King, being so insulted, picked up a lifeless snake with his bow and angrily placed it on the shoulder of the sage. Then he returned to his palace.**
 

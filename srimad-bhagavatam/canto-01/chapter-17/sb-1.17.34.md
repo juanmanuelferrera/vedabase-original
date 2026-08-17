@@ -8,7 +8,7 @@
 > kāmān amoghān sthira-jaṅgamānām\
 > antar bahir vāyur ivaiṣa ātmā
 
-*yasmin*—in such sacrificial ceremonies; *hariḥ*—the Supreme Lord; *bhagavān*—the Personality of Godhead; *ijyamānaḥ*—being worshiped; *ijya-ātma*—the soul of all worshipable deities; *mūrtiḥ*—in the forms; *yajatām*—those who worship; *śam*—welfare; *tanoti*—spreads; *kāmān*—desires; *amoghān*—inviolable; *sthira-jaṅgamānām*—of all the moving and nonmoving; *antaḥ*—within; *bahiḥ*—outside; *vāyuḥ*—air; *iva*—like; *eṣaḥ*—of all of them; *ātmā*—spirit soul.
+*yasmin*—in such sacrificial ceremonies; *hariḥ*—the Supreme Lord; *bhagavān*—the Personality of Godhead; *ijyamānaḥ*—being worshiped; *ijya-ātma*—the soul of all worshipable deities; *mūrtiḥ*—in the forms; *yajatām*—those who worship; *śam*—welfare; *tanoti*—spreads; *kāmān*—desires; *amoghān*—inviolable; *sthira-jaṅgamānām*—of all the moving and the unmoving; *antaḥ*—within; *bahiḥ*—outside; *vāyuḥ*—air; *iva*—like; *eṣaḥ*—of all of them; *ātmā*—spirit soul.
 
 **In all sacrificial ceremonies, although sometimes a demigod is worshiped, the Supreme Lord Personality of Godhead is worshiped because He is the Supersoul of everyone, and exists both inside and outside like the air. Thus it is He only who awards all welfare to the worshiper.**
 

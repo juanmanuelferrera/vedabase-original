@@ -8,7 +8,7 @@
 > kathaṁ tv anāthāḥ kṛpaṇā\
 > varteraṁs te ca māṁ vinā
 
-*tasmāt*—therefore; *jahi*—give up; *aṅga*—O King; *vaiklavyam*—mental disparity; *ajñāna*—ignorance; *kṛtam*—due to; *ātmanaḥ*—of yourself; *katham*—how; *tu*—but; *anāthāḥ*—helpless; *kṛpaṇāḥ*—poor creatures; *varteran*—be able to survive; *te*—they; *ca*—also; *mām*—me; *vinā*—without.
+*tasmāt*—therefore; *jahi*—give up; *aṅga*—O King; *vaiklavyam*—disparity of the mind; *ajñāna*—ignorance; *kṛtam*—due to; *ātmanaḥ*—of yourself; *katham*—how; *tu*—but; *anāthāḥ*—helpless; *kṛpaṇāḥ*—poor creatures; *varteran*—be able to survive; *te*—they; *ca*—also; *mām*—me; *vinā*—without.
 
 **Therefore give up your anxiety due to ignorance of the self. You are now thinking of how they, who are helpless, poor creatures, will exist without you.**
 

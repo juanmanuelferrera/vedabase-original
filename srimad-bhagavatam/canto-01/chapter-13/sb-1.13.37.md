@@ -10,7 +10,7 @@
 > gāndhāryā vā mahā-bāho\
 > muṣito 'smi mahātmabhiḥ
 
-*sañjayaḥ uvāca*—Sañjaya said; *na*—not; *aham*—I; *veda*—know; *vyavasitam*—determination; *pitroḥ*—of your uncles; *vaḥ*—your; *kula-nandana*—O descendant of the Kuru dynasty; *gāndhāryāḥ*—of Gāndhārī; *vā*—or; *mahā-bāho*—O great King; *muṣitaḥ*—cheated; *asmi*—I have been; *mahā-ātmabhiḥ*—by those great souls.
+*sañjayaḥ uvāca*—Sañjaya said; *na*—not; *aham*—myself; *veda*—in knowledge; *vyavasitam*—determination; *pitroḥ*—of your uncles; *vaḥ*—your; *kula-nandana*—O descendant of the Kuru dynasty; *gāndhāryāḥ*—by Gāndhārī; *vā*—or; *mahā-bāho*—O great King; *muṣitaḥ*—cheated; *asmi*—I have been; *mahā-ātmabhiḥ*—by those great souls.
 
 **Sañjaya said: My dear descendant of the Kuru dynasty, I have no information of the determination of your two uncles and Gāndhārī. O King, I have been cheated by those great souls.**
 

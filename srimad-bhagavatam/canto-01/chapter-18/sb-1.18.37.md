@@ -8,7 +8,7 @@
 > daṅkṣyati sma kulāṅgāraṁ\
 > codito me tata-druham
 
-*iti*—thus; *laṅghita*—surpassing; *maryādam*—etiquette; *takṣakaḥ*—snake-bird; *saptame*—on the seventh; *ahani*—day; *daṅkṣyati*—will bite; *sma*—certainly; *kula-aṅgāram*—the wretched of the dynasty; *coditaḥ*—having done; *me*—my; *tata-druham*—enmity towards the father.
+*iti*—thus; *laṅghita*—surpassing; *maryādam*—etiquette; *takṣakaḥ*—snake-bird; *saptame*—on the seventh; *ahani*—day; *daṅkṣyati*—will bite; *sma*—certainly; *kula-aṅgāram*—the wretched of the dynasty; *coditaḥ*—having done; *me*—by; *tata-druham*—enmity towards the father.
 
 **The brāhmaṇa’s son cursed the King thus: On the seventh day from today a snake-bird will bite the most wretched one of that dynasty [Mahārāja Parīkṣit] because of his having broken the laws of etiquette by insulting my father.**
 

@@ -8,7 +8,7 @@
 > yatredaṁ vyajyate viśvaṁ\
 > bhūtaṁ bhavyaṁ bhavac ca sat
 
-*viśeṣaḥ*—personal; *tasya*—His; *dehaḥ*—body; *ayam*—this; *sthaviṣṭhaḥ*—grossly material; *ca*—and; *sthavīyasām*—of all matter; *yatra*—wherein; *idam*—all these phenomenall; *vyajyate*—is experienced; *viśvam*—universe; *bhūtam*—past; *bhavyam*—future; *bhavat*—present; *ca*—and; *sat*—resultant.
+*viśeṣaḥ*—personal; *tasya*—His; *dehaḥ*—body; *ayam*—this; *sthaviṣṭhaḥ*—grossly material; *ca*—and; *sthavīyasām*—of all matter; *yatra*—wherein; *idam*—all these phenomenal; *vyajyate*—is experienced; *viśvam*—universe; *bhūtam*—past; *bhavyam*—future; *bhavat*—present; *ca*—and; *sat*—resultant.
 
 **This gigantic manifestation of the phenomenal material world as a whole is the personal body of the Absolute Truth, wherein the universal resultant past, present and future of material time is experienced.**
 
