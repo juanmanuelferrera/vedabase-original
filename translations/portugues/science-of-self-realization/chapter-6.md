@@ -1,8 +1,8 @@
 ### 6
 
-6. Encontrando a Cura para os Males Sociais de Hoje
+VI. Encontrando a Cura para os Males Sociais de Hoje
 
-Crime: Por Quê e o Que Fazer?
+## Crime: Por Quê e o Que Fazer?
 
 
 A cada ano, o mundo gasta mais dinheiro em prevenção e controle do crime. Contudo, apesar desses esforços, as taxas de criminalidade estão disparando, e notavelmente nas escolas públicas americanas o crime atingiu níveis quase incontroláveis. Nesta conversa de julho de 1975 com o tenente David Mozee, oficial de relações com a mídia do Departamento de Polícia de Chicago, Śrīla Prabhupāda propôs uma solução incrivelmente simples, mas prática, para o problema aparentemente intransponível do crime.
@@ -186,7 +186,7 @@ Tenente Mozee: Senhor, permita-me agradecer-lhe por seu tempo. Entregarei esta g
 
 
 
-Sociedade Degenere?
+## Podemos Impedir Que a Sociedade Degenere?
 
 
 Numa entrevista ao Bhavan's Journal da Índia em agosto de 1976, Śrīla Prabhupāda perguntou: "Como pode haver felicidade ou paz na sociedade animal? Eles querem manter as pessoas como animais, e estão fazendo uma Organização das Nações Unidas... simplesmente uma corrida de cães. O cão corre sobre quatro pernas, e você corre sobre quatro rodas — isso é tudo. E você pensa que a corrida sobre quatro rodas é o avanço da civilização!"
@@ -511,7 +511,7 @@ Entrevistador: Como podemos remediar a situação?
 
 Śrīla Prabhupāda: Kṛṣṇa é a Suprema Personalidade de Deus. Se você não aceita que Kṛṣṇa é a entidade suprema, então procure compreender. Isso é educação: há alguém supremo; Kṛṣṇa não é indiano; Ele é Deus. O sol nasce primeiro na Índia, mas isso não significa que o sol seja indiano; de modo semelhante, embora Kṛṣṇa tenha aparecido na Índia, agora Ele veio aos países ocidentais, através deste movimento da consciência de Kṛṣṇa.
 
-A Suprema Obra de Bem Estar
+## A Suprema Obra de Bem-Estar
 
 
 Em 1972, o Estado sul-indiano de Andhra Pradesh foi atingido por uma severa seca que afetou milhões de pessoas. Esperando que a Sociedade Internacional para a Consciência de Krishna prestasse assistência, T. L. Katidia, secretário do Comitê do Fundo de Auxílio de Andhra Pradesh, escreveu a Śrīla Prabhupāda. Śrīla Prabhupāda respondeu com esta surpreendente e edificante carta.
@@ -591,7 +591,7 @@ A. C. Bhaktivedanta Swami
 
 
 
-Declarando Nossa Dependência de Deus
+## Declarando Nossa Dependência de Deus
 
 
 Para muitos, o bicentenário americano foi uma grande ocasião de celebração. Em março de 1976, em Māyāpur, Índia, os editores da De Volta ao Supremo conduziram uma entrevista especial com Śrīla Prabhupāda, que examinou com olhar crítico lemas americanos como "Todos os homens são criados iguais", "Em Deus confiamos" e "Uma nação sob Deus".
@@ -827,7 +827,7 @@ DVS: Então, bom governo significa, antes de tudo, aceitar o Ser Supremo como o 
 
 
 
-A Fórmula da Paz
+## A Fórmula da Paz
 
 
 Em meio aos protestos antiguerra do final de 1966, Śrīla Prabhupāda publicou um folheto mimeografado (entre as primeiras de suas publicações na América) a partir de seu pequeno templo de fachada de loja na Segunda Avenida de Nova Iorque. Os seguidores e simpatizantes de Śrīla Prabhupāda distribuíram este folheto aos milhares pelas ruas de Nova Iorque e, mais tarde, em São Francisco, Montreal e outras cidades. Sua "Fórmula da Paz" foi uma abordagem inteiramente nova à questão antiguerra e, para milhares de americanos, ofereceu a solução perfeita.
@@ -855,7 +855,7 @@ Isto é prático, simples e sublime. Há quatrocentos e oitenta anos esta fórmu
 
 
 
-Comunismo Espiritual
+## Comunismo Espiritual
 
 
 Em 1971, durante sua histórica visita à União Soviética, Śrīla Prabhupāda foi apresentado ao professor Grigoriy Kotovsky, chefe do Departamento de Índia na Academia de Ciências da U.R.S.S. e presidente do departamento de estudos indianos da Universidade de Moscou. Enquanto se sentavam informalmente no escritório do Dr. Kotovsky, o líder espiritual e o erudito comunista discutiram vigorosamente temas de mútua preocupação, e Śrīla Prabhupāda propôs uma reforma radical dentro do comunismo moderno.
@@ -1424,7 +1424,7 @@ te 'pi yānti parāṁ gatim
 
 "Mesmo aqueles que são de nascimento humilde [pāpa-yonayaḥ] — strī, vaiśyas e śūdras — são também incluídos por aceitarem-Me. Por aceitarem Meu refúgio, eles também são elevados à posição transcendental." (Bg. 9.32) Ora, por que as classes superiores da sociedade hindu negligenciaram esta injunção do *Bhagavad-gītā*? Suponha que alguém seja pāpa-yonayaḥ, de nascimento humilde. Kṛṣṇa diz que ele pode ser "elevado à posição transcendental se Me aceitar." Por que esta mensagem não foi propagada pela classe superior de pessoas para que os ditos de nascimento humilde pudessem ser elevados? Por que os rejeitaram? O resultado foi que, em vez de aceitar os maometanos, os indianos os rejeitaram, e agora estão separados por uma partição. Tornaram-se inimigos eternos da Índia. Assim, pela primeira vez, estamos tentando elevar pessoas à posição superior da consciência de Kṛṣṇa, mesmo que alguém seja de nascimento humilde. Pois a alma é pura. Nos *Vedas* se diz que a alma é intocada por qualquer contaminação material; está simplesmente coberta temporariamente. Esta cobertura deveria ser removida. Então a pessoa torna-se pura. Essa é a missão da vida humana — descobrir-nos deste ambiente material, chegar à compreensão espiritual e render-nos a Kṛṣṇa. Então a vida é perfeita.
 
-O Pequeno Mundo da Ciência Moderna
+## O Pequeno Mundo da Ciência Moderna
 
 
 Em abril de 1973, durante uma longa caminhada matinal em Venice Beach, em Los Angeles, Śrīla Prabhupāda voltou-se para o tema da ciência e dos cientistas modernos. Com rigor filosófico, profundo bom senso e franqueza desarmante, ele expôs a estreiteza mental e a falta de lógica por trás das teorias comumente aceitas pelos cientistas acerca da origem da vida. Entre os estudantes presentes estava o Dr. Thoudam Singh, um químico orgânico, que registrou o diálogo em fita.

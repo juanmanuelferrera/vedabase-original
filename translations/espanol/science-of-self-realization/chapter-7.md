@@ -1,8 +1,8 @@
 ### 7
 
-VII Regresando a la religión eterna
+VII. Regresando a la religión eterna
 
-Śrīla Prabhupāda llega a América
+## Śrīla Prabhupāda llega a América
 
 Varios años después de que Śrīla Prabhupāda llegara por primera vez a América, un discípulo descubrió el diario que había llevado durante su travesía desde la India en el barco de vapor Jaladuta. Dentro había un poema, escrito a mano en bengalí, que Śrīla Prabhupāda había compuesto a bordo del barco justo después de que este llegara al puerto de Boston. El poema captura hermosamente las primeras impresiones de Śrīla Prabhupāda sobre la civilización occidental y revela su sincera determinación de cambiar la conciencia de América.
 
@@ -48,7 +48,7 @@ Boston, Massachusetts, EE. UU.,
 
 con fecha 18 de septiembre de 1965
 
-Construyan sus naciones sobre la plataforma espiritual
+## «Construyan sus naciones sobre la plataforma espiritual»
 
 Invitado a hablar en la Universidad de Nairobi en septiembre de 1972, Śrīla Prabhupāda se dirigió a una multitud desbordante de estudiantes y funcionarios del gobierno en el Salón Taifla (Independencia) del campus. En su conferencia, aconsejó a los ciudadanos de la nación en desarrollo de Kenia: «... por favor, desarróllense espiritualmente, pues el desarrollo espiritual es un desarrollo sólido. No imiten a los americanos y europeos, que viven como gatos y perros. La bomba atómica ya está ahí, y en cuanto estalle la próxima guerra, todos sus rascacielos y todo lo demás quedará acabado...».
 
@@ -160,7 +160,7 @@ Dios es el propietario supremo, y todos nosotros somos Sus hijos, o sirvientes. 
 
 Por consiguiente, invitamos a los hombres más inteligentes del mundo a que entiendan esta filosofía de la conciencia de Kṛṣṇa e intenten distribuirla por todo el mundo. Ahora hemos venido a estos países africanos, e invito a todos los africanos inteligentes a que vengan, entiendan esta filosofía y la distribuyan. Ustedes están tratando de desarrollarse, así que por favor desarróllense espiritualmente, pues el desarrollo espiritual es un desarrollo sólido. No imiten a los americanos y europeos, que viven como gatos y perros. Tales civilizaciones construidas sobre la conciencia de la complacencia de los sentidos no pueden sostenerse. La bomba atómica ya está ahí, y en cuanto estalle la próxima guerra, todos sus rascacielos y todo lo demás quedará acabado. Traten de entender esto desde el verdadero punto de vista de la vida humana, el punto de vista espiritual. De esto se trata este movimiento de conciencia de Kṛṣṇa. Por eso les pedimos que traten de entender esta filosofía. Muchas gracias.
 
-Un devoto siempre siente compasión por el sufrimiento ajeno
+## «Un devoto siempre siente compasión por el sufrimiento ajeno»
 
 Cada religión tiene sus propios santos, pero todos los santos comparten una cualidad espiritual trascendente: la compasión. Śrīla Prabhupāda explica...
 
@@ -322,7 +322,7 @@ Cada uno de nosotros está abandonando su cuerpo a cada momento. La última fase
 
 ¿Qué le sucede a esa persona? Mām eti: regresa a Kṛṣṇa. Si vas a ir a Kṛṣṇa, entonces tienes que preparar tu cuerpo espiritual. Eso es la conciencia de Kṛṣṇa. Si te mantienes en conciencia de Kṛṣṇa, entonces gradualmente preparas tu próximo cuerpo, un cuerpo espiritual, que te llevará inmediatamente a Kṛṣṇaloka, la morada de Kṛṣṇa, y te volverás feliz. Vivirás allí perpetua y bienaventuradamente.
 
-Protegiéndose de la ilusión
+## «Lo han dado todo a Kṛṣṇa, y eso nunca es un error»
 
 En 1973, Śrīla Prabhupāda recibió una carta inusual de una mujer en California que se había encontrado con dos de sus jóvenes discípulos. Ella se quejó de que tenían «una perspectiva muy negativa hacia las personas que conocen». Conmovido por su genuina preocupación, Śrīla Prabhupāda se tomó tiempo de su apretada agenda para escribirle esta meditada carta.
 
@@ -405,7 +405,7 @@ Tu eterno bienqueriente,
 
 A. C. Bhaktivedanta Swami
 
-Una conciencia de lo que es mejor y más hermoso
+## Una conciencia de lo que es mejor y más hermoso
 
 Durante mayo de 1974, el notable poeta irlandés Desmond James Bernard O'Grady visitó a Śrīla Prabhupāda en sus aposentos en Roma, y los dos tuvieron una larga y animada discusión. Entre otras cosas, el líder espiritual y el poeta discutieron sobre la identidad personal y el deber individual, cómo poner fin a la guerra, la educación moderna y sus problemas, la vida más allá del tiempo y la naturaleza esencial del amor.
 

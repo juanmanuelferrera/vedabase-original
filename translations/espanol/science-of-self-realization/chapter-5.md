@@ -1,8 +1,8 @@
 ### 5
 
-V Practicando el yoga en la era moderna
+V. Practicando el yoga en la era de la riña
 
-Superconciencia
+## Superconciencia
 
 Las metas de los entusiastas occidentales del yoga de hoy en día quedan empequeñecidas por los logros de los antiguos yogīs de la India, quienes, según los relatos históricos, podían hacerse más pequeños que los átomos y más ligeros que el aire, y podían viajar sin ayuda a cualquier lugar del universo. Sin embargo, incluso esos superlogros, dice Śrīla Prabhupāda, son «solo un paso adelante». Cómo es posible alcanzar la verdadera cima de la conciencia humana, la superconciencia —aquí y ahora—, es revelado por Śrīla Prabhupāda en la siguiente charla ofrecida en 1967.
 
@@ -70,7 +70,7 @@ Aquellos que se han acogido a este sublimísimo sistema de bhakti-yoga, esta pr�
 
 La conciencia de Kṛṣṇa no es algo fabricado por nosotros mediante especulación mental. Está prescrita en el *Bhagavad-gītā*, que dice que cuando pensamos en Kṛṣṇa, cantamos en Kṛṣṇa, vivimos en Kṛṣṇa, comemos en Kṛṣṇa, hablamos en Kṛṣṇa, esperamos en Kṛṣṇa y nos mantenemos en Kṛṣṇa, regresamos a Kṛṣṇa, sin duda alguna. Y esa es la sustancia de la conciencia de Kṛṣṇa.
 
-La encarnación del Señor Caitanya
+## La encarnación del amor por Dios
 
 Hace solo quinientos años, el Señor Caitanya Mahāprabhu, un gran santo y místico, profetizó que el mantra Hare Kṛṣṇa resonaría en cada pueblo y aldea del mundo. En una época en que el hombre occidental dirigía su espíritu explorador hacia el estudio del universo físico y la circunnavegación del globo, en la India Śrī Caitanya estaba inaugurando y dirigiendo una revolución orientada hacia el interior. Su movimiento barrió el subcontinente, ganó millones de seguidores e influyó profundamente en el futuro del pensamiento religioso y filosófico, tanto en la India como en Occidente. En la siguiente charla, presentada en noviembre de 1969 en el Conway Hall de Londres, Śrīla Prabhupāda describe la aparición divina de Śrī Caitanya.
 
@@ -178,7 +178,7 @@ Por ende, aquellos que son devotos conscientes de Kṛṣṇa han tomado refugio
 
 No piensen que este movimiento para la conciencia de Kṛṣṇa es un nuevo tipo de religión. ¿Dónde está la religión que no reconoce a Dios? Uno puede llamar a Dios «Alá» o «Kṛṣṇa» o de alguna otra manera, pero ¿dónde está esa religión que no reconoce a Dios? Estamos enseñando que simplemente se debe intentar amar a Dios. Nos sentimos atraídos por tantas cosas, pero si nuestro amor se deposita en Dios, seremos felices. No hay que aprender a amar cualquier otra cosa; todo lo demás se incluye automáticamente. Simplemente intenten amar a Dios. No intenten amar solo árboles o plantas o insectos. Eso nunca satisfará. Aprendan a amar a Dios. Esa es la misión de Caitanya Mahāprabhu; esa es nuestra misión.
 
-El canto del mantra Hare Kṛṣṇa
+## El canto del *mahā-mantra* Hare Kṛṣṇa
 
 Aunque «Hare Kṛṣṇa» se ha convertido en una expresión de uso cotidiano, prácticamente nadie sabe lo que significa. ¿Es simplemente un encantamiento repetitivo diseñado para hipnotizar a quienes lo practican? ¿Es una forma de escapismo? ¿O es una meditación genuina que puede realmente invocar una conciencia más elevada? En este breve ensayo, grabado en su primer LP a finales de 1966, Śrīla Prabhupāda ilumina el significado interno del mantra Hare Kṛṣṇa.
 
@@ -198,7 +198,7 @@ Estas tres palabras —Hare, Kṛṣṇa y Rāma— son las semillas trascendent
 
 Ningún otro medio de realización espiritual es tan eficaz en esta era de riñas e hipocresía como el canto del mahā-mantra: Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
 
-La conciencia de Kṛṣṇa: el yoga para la era moderna
+## La conciencia de Kṛṣṇa: el yoga para la era moderna
 
 Hoy en día vemos que el yoga se enseña en numerosos cursos y se promueve en libros de consumo masivo como medio para lograr salud, perder peso, desarrollar poderes mentales sobre otros, alcanzar el éxito en ganar dinero o aumentar la potencia sexual. Pero el verdadero yoga es algo completamente diferente. Aquí, Śrīla Prabhupāda nos revela algunos secretos antiguos sobre lo auténtico.
 
@@ -304,7 +304,7 @@ La vida espiritual significa vida humana, y la vida material significa vida anim
 
 A menos que uno se libere de las garras de estas tres modalidades de la naturaleza material, no puede comprender a Dios. Prasanna-manasaḥ. Uno debe ser un alma que ha realizado el Brahman. Brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati (Bg. 18.54). Estas instrucciones están allí, así que uno debe aprovechar estos śāstras y predicar. Esa es la responsabilidad de los hombres inteligentes. La masa de la gente sabe que Dios es grande, pero no sabe cuán grande es Dios en realidad. Eso lo encontraremos en la literatura Védica. Ese es nuestro deber en esta era de hierro. Eso es hari-kīrtana, paraṁ vijayate śrī-kṛṣṇa-saṅkīrtanam: la glorificación del Supremo.
 
-La meditación y el ser interior
+## La meditación y el ser interior
 
 ¿Puede la meditación resolver nuestros problemas cotidianos? ¿Hay vida después de la muerte? ¿Pueden las drogas ayudarnos a alcanzar la autorrealización? Durante una visita a Sudáfrica en 1976, Śrīla Prabhupāda respondió a estas y otras preguntas para el entrevistador Bill Faill del Durban Natal Mercury.
 

@@ -1,8 +1,8 @@
 ### 2
 
-2. Cómo escoger a un maestro espiritual
+II. Cómo escoger a un maestro espiritual
 
-¿Qué es un guru?
+## ¿Qué es un guru?
 
 Al escuchar la palabra guru, solemos evocar una imagen caricaturesca: un viejo de aspecto estrafalario con una barba larga y enredada y túnicas ondulantes, meditando sobre verdades esotéricas y remotas. O bien pensamos en un estafador cósmico que saca provecho de la credulidad espiritual de los jóvenes buscadores. Pero ¿qué es en realidad un guru? ¿Qué sabe él que nosotros no sabemos? ¿Cómo nos ilumina? En una charla ofrecida en Inglaterra en 1973, Śrīla Prabhupāda ofrece algunas respuestas esclarecedoras.
 
@@ -102,7 +102,7 @@ Cualquier posición que tengamos en este mundo material debe ser abandonada. Pod
 
 ¿Existe alguna ciencia que nos dé el conocimiento mediante el cual podamos volvernos inmortales? Sí, podemos volvernos inmortales, pero no en el sentido material. No podemos recibir este conocimiento en las supuestas universidades. Sin embargo, hay conocimiento contenido en las Escrituras Védicas mediante el cual podemos volvernos inmortales. Esa inmortalidad es nuestra mejor posición. No más nacimiento, no más muerte, no más vejez, no más enfermedad. De este modo, el guru asume una responsabilidad muy grande. Debe guiar a su discípulo y capacitarlo para que se convierta en un candidato elegible para la posición perfecta: la inmortalidad. El guru debe ser competente para llevar a su discípulo de vuelta al hogar, de vuelta a Dios.
 
-Distinguiendo a los santos de los estafadores
+## Distinguiendo a los santos de los estafadores
 
 Cada día el número de personas interesadas en practicar yoga y meditación aumenta en miles. Por desgracia, quien busca un guía adecuado probablemente se encontrará con una desconcertante variedad de magos, gurus autoproclamados y supuestos dioses. En una entrevista con el London Times, Śrīla Prabhupāda explica cómo un buscador sincero puede distinguir entre un guía espiritual falso y uno genuino.
 
@@ -270,7 +270,7 @@ Reportero: Muchas gracias.
 
 > Śrīla Prabhupāda: Hare Kṛṣṇa.
 
-Con toda la humildad de que soy capaz
+## «Con toda la humildad de que soy capaz»
 
 En febrero de 1936, en Bombay, India, los miembros de una reconocida sociedad religiosa, la Gauḍīya Maṭha, quedaron asombrados por las poderosas y elocuentes palabras de un joven miembro que habló en honor a su maestro espiritual, Śrīla Bhaktisiddhānta Sarasvatī Gosvāmī. Tres décadas más tarde, el joven orador se convertiría en el mundialmente renombrado fundador y maestro espiritual del movimiento de conciencia de Kṛṣṇa. La presentación de Śrīla Prabhupāda es una memorable declaración sobre la importancia del guru en la vida espiritual.
 

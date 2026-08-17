@@ -1,8 +1,8 @@
 ### 7
 
-VII Retornando à Religião Eterna
+VII. Retornando à Religião Eterna
 
-Śrīla Prabhupāda Chega à América
+## Śrīla Prabhupāda Chega à América
 
 Vários anos depois que Śrīla Prabhupāda chegou pela primeira vez à América, um discípulo descobriu o diário que ele havia mantido durante sua passagem da Índia no navio a vapor Jaladuta. Dentro havia um poema, escrito à mão em bengali, que Śrīla Prabhupāda havia composto a bordo do navio logo após este chegar ao porto de Boston. O poema capta belamente as primeiras impressões de Śrīla Prabhupāda sobre a civilização Ocidental e revela sua sincera determinação de mudar a consciência da América.
 
@@ -84,7 +84,7 @@ datado de 18 de setembro de 1965
 
 
 
-Construam Suas Nações na Plataforma Espiritual
+## "Construam Suas Nações na Plataforma Espiritual"
 
 Convidado a falar na Universidade de Nairobi em setembro de 1972, Śrīla Prabhupāda dirigiu-se a uma multidão lotada de estudantes e funcionários do governo no Taifla (Independência) Hall do campus. Em sua palestra, ele aconselhou os cidadãos da nação em desenvolvimento do Quênia: "... por favor, desenvolvam-se espiritualmente, pois o desenvolvimento espiritual é o desenvolvimento sólido. Não imitem os americanos e europeus, que estão vivendo como cães e gatos. A bomba atômica já está aí, e, assim que a próxima guerra estourar, todos os arranha-céus deles e todo o resto estarão acabados...."
 
@@ -300,7 +300,7 @@ Por isso, convidamos os homens mais inteligentes do mundo a compreender esta fil
 
 
 
-Compaixão pelo Sofrimento Alheio
+## "Um Devoto Sempre Sente Compaixão pelo Sofrimento Alheio"
 
 Toda religião tem seus próprios santos, mas todos os santos compartilham uma qualidade espiritual transcendente: a compaixão. Śrīla Prabhupāda explica....
 
@@ -604,7 +604,7 @@ O que acontece a tal pessoa? Mām eti — ela retorna a Kṛṣṇa. Se você fo
 
 
 
-Protegendo-se da Ilusão
+## "Eles Deram Tudo a Kṛṣṇa — E Isso Nunca É um Erro"
 
 Em 1973, Śrīla Prabhupāda recebeu uma carta inusitada de uma mulher na Califórnia que havia encontrado dois de seus jovens discípulos. Ela se queixava de que eles tinham "uma visão muito negativa das pessoas que encontram". Comovido por sua sincera preocupação, Śrīla Prabhupāda separou tempo de sua agenda atarefada para escrever-lhe esta carta atenciosa.
 
@@ -746,7 +746,7 @@ A. C. Bhaktivedanta Swami
 
 
 
-Uma Percepção do Que É Melhor e Mais Belo
+## Uma Percepção do Que É Melhor e Mais Belo
 
 Em maio de 1974, o renomado poeta irlandês Desmond James Bernard O'Grady visitou Śrīla Prabhupāda em seus aposentos em Roma, e os dois tiveram uma discussão longa e animada. Entre outros temas, o líder espiritual e o poeta discutiram a identidade pessoal e o dever individual, o fim da guerra, a educação moderna e seus problemas, a vida além do tempo e a natureza essencial do amor.
 

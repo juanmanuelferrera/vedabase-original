@@ -14,7 +14,7 @@ Cuando hay manifestaciones de síntomas extáticos en el cuerpo de un no devoto,
 
 Hay ocho síntomas de amor extático existencial: quedarse atónito, transpirar, erizamiento de los vellos del cuerpo, vacilación de la voz, temblor del cuerpo, cambio de colores corporales, derramamiento de lágrimas y devastación.
 
-La explicación científica de estos ocho síntomas es dada por Rūpa Gosvāmī de la siguiente manera. Cuando la fuerza vital de la vida está en contacto con la tierra, se denomina aturdimiento. Cuando la misma fuerza entra en contacto con el agua, se produce el derramamiento de lágrimas. Cuando la misma fuerza entra en contacto con el fuego, se produce la transpiración. Cuando la fuerza entra en contacto con el cielo, se produce la devastación completa. Y cuando esa fuerza entra en contacto con el aire, se produce temblor, vacilación de la voz y erizamiento de los vellos del cuerpo.
+La explicación científica de estos ocho síntomas es dada por Rūpa Gosvāmī de la siguiente manera. Cuando la fuerza vital de la vida está en contacto con la tierra, se denomina aturdimiento. Cuando la misma fuerza entra en contacto con el agua, se produce el derramamiento de lágrimas. Cuando la misma fuerza entra en contacto con el fuego, se produce la transpiración. Cuando la misma fuerza entra en contacto con el cielo, se produce la devastación completa. Y cuando esa fuerza entra en contacto con el aire, se produce temblor, vacilación de la voz y erizamiento de los vellos del cuerpo.
 
 Estos síntomas a veces se manifiestan internamente y a veces externamente. El devoto puro siente siempre tales expresiones sintomáticas dentro de sí, pero por temor a los extraños, generalmente no las manifiesta externamente.
 

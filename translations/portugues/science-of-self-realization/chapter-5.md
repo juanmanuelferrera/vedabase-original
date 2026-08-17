@@ -1,8 +1,8 @@
 ### 5
 
-5. Praticando Yoga na Era da Discórdia
+V. Praticando Yoga na Era da Discórdia
 
-Superconsciência
+## Superconsciência
 
 
 Os objetivos dos modernos entusiastas ocidentais do yoga são empequenecidos pelas realizações dos antigos yogīs da Índia, que, segundo os relatos históricos, podiam tornar-se menores que átomos e mais leves que o ar e podiam viajar, sem auxílio, a qualquer lugar do universo. Contudo, mesmo essas superconquistas, diz Śrīla Prabhupāda, são "apenas um passo adiante". Como o verdadeiro ápice da consciência humana, a superconsciência, é obtenível — aqui e agora — é revelado por Śrīla Prabhupāda na palestra a seguir, proferida em 1967.
@@ -104,7 +104,7 @@ Aqueles que adotaram este sublimíssimo sistema de bhakti-yoga, esta prática de
 A consciência de Kṛṣṇa não é fabricada por nós através de especulação mental. Ela é prescrita no *Bhagavad-gītā*, que diz que, quando pensamos em Kṛṣṇa, cantamos sobre Kṛṣṇa, vivemos em Kṛṣṇa, comemos em Kṛṣṇa, falamos em Kṛṣṇa, esperamos em Kṛṣṇa e nos sustentamos em Kṛṣṇa, retornamos a Kṛṣṇa, sem dúvida alguma. E esta é a essência da consciência de Kṛṣṇa.
 
 
-A Encarnação do Amor a Deus
+## A Encarnação do Amor a Deus
 
 
 Há apenas quinhentos anos, o Senhor Caitanya Mahāprabhu, um grande santo e místico, profetizou que o mantra Hare Kṛṣṇa ressoaria por toda cidade e aldeia do mundo. Numa época em que o homem ocidental dirigia seu espírito explorador para o estudo do universo físico e a circum-navegação do globo, na Índia Śrī Caitanya inaugurava e dirigia uma revolução voltada para dentro. Seu movimento varreu o subcontinente, conquistou milhões de seguidores e influenciou profundamente o futuro do pensamento religioso e filosófico, tanto na Índia quanto no Ocidente. Na palestra a seguir, apresentada em novembro de 1969 no Conway Hall, em Londres, Śrīla Prabhupāda descreve o divino aparecimento de Śrī Caitanya.
@@ -257,7 +257,7 @@ Portanto, aqueles que são devotos conscientes de Kṛṣṇa abrigaram-se em K�
 Não pensem que este movimento da consciência de Kṛṣṇa é um novo tipo de religião. Onde está a religião que não reconhece Deus? Pode-se chamar Deus de "Alá", ou "Kṛṣṇa", ou algo mais, mas onde está aquela religião que não reconhece Deus? Estamos ensinando que se deve simplesmente tentar amar a Deus. Somos atraídos por tantas coisas, mas, se o nosso amor é depositado em Deus, então seremos felizes. Não temos de aprender a amar nenhuma outra coisa; tudo o mais está automaticamente incluído. Apenas tentem amar a Deus. Não tentem amar apenas árvores, plantas ou insetos. Isso nunca satisfará. Aprendam a amar a Deus. Essa é a missão de Caitanya Mahāprabhu; essa é a nossa missão.
 
 
-Cantando o Mantra Hare Kṛṣṇa
+## Cantando o *Mahā-mantra* Hare Kṛṣṇa
 
 
 Embora "Hare Kṛṣṇa" tenha se tornado uma palavra familiar, praticamente ninguém sabe o que ela significa. Será apenas um encantamento repetitivo destinado a hipnotizar quem o pratica? Será uma forma de escapismo? Ou será uma genuína meditação capaz de realmente convocar uma percepção mais elevada? Neste breve ensaio, gravado em seu primeiro LP no final de 1966, Śrīla Prabhupāda ilumina o significado interior do mantra Hare Kṛṣṇa.
@@ -287,7 +287,7 @@ Estas três palavras, a saber, Hare, Kṛṣṇa e Rāma, são as sementes trans
 Nenhum outro meio de percepção espiritual é tão eficaz nesta era de disputa e hipocrisia quanto o canto do mahā-mantra: Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
 
 
-Consciência de Kṛṣṇa — o Yoga para a Era Moderna
+## Consciência de Kṛṣṇa — o Yoga para a Era Moderna
 
 
 Hoje em dia, encontramos o yoga sendo ensinado em numerosos cursos e propagandeado em livros de grande circulação como um meio de alcançar saúde, perder peso, desenvolver poderes mentais sobre os outros, alcançar êxito em ganhar dinheiro ou aumentar a potência sexual. Mas o verdadeiro yoga é algo inteiramente diferente. Aqui, Śrīla Prabhupāda nos revela alguns segredos antigos sobre a coisa verdadeira.
@@ -471,7 +471,7 @@ A menos que alguém esteja libertado das garras destes três modos da natureza m
 
 
 
-Meditação e o Eu Interior
+## Meditação e o Eu Interior
 
 
 Pode a meditação solucionar nossos problemas cotidianos? Há vida após a morte? Podem as drogas ajudar-nos a alcançar a autorrealização? Durante uma visita à África do Sul em 1976, Śrīla Prabhupāda respondeu a estas e outras perguntas para o entrevistador Bill Faill, do Durban Natal Mercury.

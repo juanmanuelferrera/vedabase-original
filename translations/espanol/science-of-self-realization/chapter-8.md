@@ -1,8 +1,8 @@
 ### 8
 
-8. Alcanzando la perfección
+VIII. Alcanzando la perfección de la vida
 
-Conociendo el propósito de la vida
+## «La forma humana de vida está destinada a la comprensión de Dios»
 
 Todo ser humano reflexivo se hace la pregunta fundamental: «¿Cuál es el propósito de la vida?». Por desgracia, nuestra dificultad para encontrar un significado último se ve agravada por el hecho de que miles de filosofías, religiones e ideologías contradictorias y sus proponentes compiten por nuestra lealtad. Aquí Śrīla Prabhupāda proporciona una guía simple e iluminadora.
 
@@ -55,7 +55,7 @@ No podemos tener nada que no esté en Dios. Eso no es posible. Por eso en el *Ve
 
 Un tornillo que está conectado con una máquina es valioso porque está trabajando con toda la máquina. Y si el tornillo se saca de la máquina, o si está defectuoso, no tiene valor. Mi dedo vale millones de dólares mientras esté unido a este cuerpo y esté sirviendo al cuerpo. Y si se corta de este cuerpo, ¿cuánto vale? Nada. De manera similar, nuestra relación es que somos partículas muy pequeñas de Dios; por eso nuestro deber es ensamblar nuestras energías con Él y cooperar con Él. Esa es nuestra relación. De lo contrario, no tenemos valor. Estamos cortados. Cuando el dedo se vuelve inútil, el médico dice: «Oh, amputen este dedo. De lo contrario, el cuerpo se envenenará». De manera similar, cuando nos volvemos sin Dios, somos cortados de nuestra relación con Dios y sufrimos en este mundo material. Si tratamos de unirnos de nuevo al Señor Supremo, entonces nuestra relación se revive.
 
-El amor más elevado
+## El amor más elevado
 
 «AMOR». Los cantantes cantan sobre él, los poetas lo exaltan, los novelistas tejen complejas historias acerca de él. Las películas y la televisión están saturadas de él. Pero, ¿es real? En este lúcido ensayo, Śrīla Prabhupāda argumenta que el amor que experimentamos en este mundo material se basa en una ilusión y es, como todo lo demás aquí, temporal. Sin embargo, existe un «amor más elevado», uno que jamás es imaginado por los mundanos romanticistas.
 
@@ -125,7 +125,7 @@ Entonces Sanātana dijo: «Esa muchacha bonita es Rādhārāṇī. Has aceptado 
 
 Este es el mundo trascendental. En el plano absoluto no hay explotación. Todos quieren servir; nadie quiere recibir servicio. En el mundo trascendental, todos quieren dar servicio. Tú quieres darme servicio a mí, y yo quiero darte servicio a ti. ¡Es una actitud tan hermosa! Este mundo material significa que yo quiero robarte, y tú quieres robarme a mí. Eso es todo. Este es el mundo material. Debemos tratar de entenderlo. En el mundo material, todos quieren explotar a su amigo, a su padre, a su madre, a todos. Pero en el mundo trascendental, todos quieren servir. Todos tienen a Kṛṣṇa como el punto central de servicio, y todos los devotos, ya sea como amigos o sirvientes o padres o amantes de Kṛṣṇa, todos quieren servirlo. Y al mismo tiempo, Kṛṣṇa también quiere servirlos a ellos. Esta es una relación trascendental; la función principal es el servicio, aunque no hay necesidad de servicio, pues todos están plenos. No hay hambre, no hay necesidad de comer, pero aun así todos ofrecen cosas agradables para comer. Este es el mundo trascendental. A menos que alcancemos la etapa de simplemente servir a Kṛṣṇa o a Su devoto, no podemos saborear el placer trascendental del servicio. Si tenemos algún motivo, entonces ese sentido nunca se despertará. Sin motivo, sin deseo de complacencia personal de los sentidos, se debe prestar servicio al Señor Supremo y a Sus devotos.
 
-La perfección de la autorrealización
+## Acercándose a Kṛṣṇa con amor
 
 En este capítulo final, Śrīla Prabhupāda analiza la meta última de la ciencia de la autorrealización: la plena comprensión del Ser Supremo, Kṛṣṇa. El desarrollo de la autorrealización comienza con el entendimiento de que el ser no es material —no es un cuerpo físico—, sino energía espiritual pura. A continuación, uno comprende que el ser puro y espiritual es eternamente parte del Ser Supremo, Kṛṣṇa. Finalmente uno aprende a vivir plenamente en esa relación eterna, bienaventurada y trascendental. Aquel que ha alcanzado este estado ha alcanzado la perfección suprema de la vida.
 

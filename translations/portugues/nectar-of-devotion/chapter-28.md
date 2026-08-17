@@ -26,7 +26,7 @@ Há oito sintomas de amor extático existencial: ficar atônito, transpirar, arr
 
 
 
-A explicação científica destes oito sintomas é dada por Rūpa Gosvāmī da seguinte forma. Quando a força vital da vida está em contato com a terra, isso se chama ficar atônito. Quando a mesma força entra em contato com a água, há o derramamento de lágrimas. Quando a mesma força entra em contato com o fogo, há a transpiração. Quando a força entra em contato com o céu, há a completa devastação. E quando aquela força entra em contato com o ar, há o tremor, o embargar-se da voz e o arrepiar-se dos pelos do corpo.
+A explicação científica destes oito sintomas é dada por Rūpa Gosvāmī da seguinte forma. Quando a força vital da vida está em contato com a terra, isso se chama ficar atônito. Quando a mesma força entra em contato com a água, há o derramamento de lágrimas. Quando a mesma força entra em contato com o fogo, há a transpiração. Quando a mesma força entra em contato com o céu, há a completa devastação. E quando aquela força entra em contato com o ar, há o tremor, o embargar-se da voz e o arrepiar-se dos pelos do corpo.
 
 
 

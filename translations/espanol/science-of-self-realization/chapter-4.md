@@ -1,8 +1,8 @@
 ### 4
 
-4. Comprender a Kṛṣṇa y a Cristo
+IV. Comprender a Kṛṣṇa y a Cristo
 
-> Kṛṣṇa, Christos, Cristo
+## Kṛṣṇa o Cristo: el nombre es el mismo
 
 En 1974, cerca del centro de ISKCON en Fráncfort del Meno, Alemania Occidental, Śrīla Prabhupāda y varios de sus discípulos dieron un paseo matutino con el padre Emmanuel Jungclaussen, un monje benedictino del monasterio de Niederalteich. Al observar que Śrīla Prabhupāda llevaba cuentas de meditación similares al rosario, el padre Emmanuel explicó que él también entonaba una oración constante: «Señor Jesucristo, ten piedad de nosotros». La siguiente conversación tuvo lugar entonces.
 
@@ -132,7 +132,7 @@ Padre Emmanuel: Le agradezco mucho.
 
 > Śrīla Prabhupāda: Hare Kṛṣṇa.
 
-Jesucristo era un guru
+## Cristo, los cristianos y Kṛṣṇa
 
 El líder espiritual del movimiento Hare Kṛṣṇa aquí reconoce al Señor Jesucristo como «el hijo de Dios, el representante de Dios... nuestro guru... nuestro maestro espiritual», pero tiene algunas palabras severas para quienes actualmente afirman ser seguidores de Cristo...
 
@@ -156,7 +156,7 @@ Una vez, en Melbourne, un grupo de ministros cristianos vino a visitarme. Pregun
 
 En realidad, cualquiera que esté predicando las glorias de Dios debe ser aceptado como guru. Jesucristo es una de tales grandes personalidades. No debemos pensar en él como un hombre ordinario. Las Escrituras dicen que cualquiera que considere al maestro espiritual un hombre ordinario tiene una mentalidad infernal. Si Jesucristo fuera un hombre ordinario, no habría podido difundir la conciencia de Dios.
 
-«No matarás» o «No asesinarás»
+## «No matarás»
 
 En un retiro monástico cerca de París, en julio de 1973, Śrīla Prabhupāda conversó con el cardenal Jean Daniélou: «... la Biblia no dice simplemente "No matéis al ser humano". Dice de manera amplia: "No matarás"... ¿por qué interpretan esto para acomodarlo a su propia conveniencia?»
 

@@ -1,8 +1,8 @@
 ### 4
 
-4. Compreendendo Kṛṣṇa e Cristo
+IV. Compreendendo Kṛṣṇa e Cristo
 
-Kṛṣṇa, ou, Cristo
+## Kṛṣṇa ou Cristo — O Nome É o Mesmo
 
 
 Em 1974, perto do centro da ISKCON em Frankfurt am Main, na Alemanha Ocidental, Śrīla Prabhupāda e vários de seus discípulos deram uma caminhada matinal com o padre Emmanuel Jungclaussen, um monge beneditino do Mosteiro de Niederalteich. Notando que Śrīla Prabhupāda carregava contas de meditação semelhantes ao rosário, o padre Emmanuel explicou que ele também cantava uma oração constante: "Senhor Jesus Cristo, tende misericórdia de nós." Seguiu-se a seguinte conversa.
@@ -254,7 +254,7 @@ Padre Emmanuel: Agradeço-lhe muito.
 
 
 
-Jesus Cristo Era um Guru
+## Cristo, os Cristãos e Kṛṣṇa
 
 
 O líder espiritual do movimento Hare Kṛṣṇa, aqui, reconhece o Senhor Jesus Cristo como "o filho de Deus, o representante de Deus... nosso guru... nosso mestre espiritual", mas tem algumas palavras incisivas para aqueles que atualmente afirmam ser seguidores de Cristo...
@@ -302,7 +302,7 @@ Na verdade, qualquer pessoa que esteja pregando as glórias de Deus deve ser ace
 
 
 
-"Não Matarás" ou "Não Assassinarás"?
+## "Não Matarás"
 
 
 Em um retiro monástico perto de Paris, em julho de 1973, Śrīla Prabhupāda conversou com o cardeal Jean Danielou: "... a Bíblia não diz simplesmente: 'Não mate o ser humano.' Diz amplamente: 'Não matarás.'... por que você interpreta isto conforme sua própria conveniência?"

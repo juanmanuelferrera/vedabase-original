@@ -1,8 +1,8 @@
 ### 8
 
-8. Alcançando a Perfeição
+VIII. Alcançando a Perfeição da Vida
 
-Conhecendo o Propósito da Vida
+## "A Forma Humana de Vida Destina-se à Compreensão de Deus"
 
 Todo ser humano reflexivo formula a pergunta fundamental: "Qual é o propósito da vida?" Infelizmente, nossa dificuldade em encontrar um sentido último é agravada pelo fato de que milhares de filosofias, religiões e ideologias conflitantes, e seus proponentes, competem por nossa lealdade. Aqui Śrīla Prabhupāda oferece uma orientação simples e esclarecedora.
 
@@ -56,7 +56,7 @@ Não podemos ter nada que não esteja em Deus. Isso não é possível. Por isso,
 
 Um parafuso conectado a uma máquina é valioso porque está trabalhando com a máquina inteira. E, se o parafuso é retirado da máquina, ou se está com defeito, não vale nada. Meu dedo vale milhões de dólares enquanto está ligado a este corpo e está servindo ao corpo. E, se for cortado deste corpo, então quanto vale? Nada. De modo semelhante, nossa relação é que somos partículas muito pequenas de Deus; portanto, nosso dever é acoplar nossas energias com as Dele e cooperar com Ele. Esta é nossa relação. De outro modo, não valemos nada. Estamos cortados. Quando o dedo se torna inútil, o médico diz: "Oh, amputem este dedo. De outro modo, o corpo será envenenado." De modo semelhante, quando nos tornamos sem Deus, somos cortados de nossa relação com Deus e sofremos neste mundo material. Se tentarmos reunir-nos novamente ao Senhor Supremo, então nossa relação é revivida.
 
-O Amor Supremo
+## O Amor Supremo
 
 "AMOR." Cantores entoam canções a respeito dele, poetas exultam com ele, romancistas tecem histórias complexas sobre ele. Cinema e televisão estão saturados dele. Mas será que é real? Neste ensaio lúcido, Śrīla Prabhupāda argumenta que o amor que experimentamos neste mundo material baseia-se numa ilusão e é, como tudo o mais aqui, temporário. Contudo, existe um "amor superior" — um que jamais é imaginado pelos romancistas mundanos.
 
@@ -126,7 +126,7 @@ Então Sanātana disse: "Esta bela moça é Rādhārāṇī. Aceitaste serviço 
 
 Este é o mundo transcendental. Na plataforma absoluta, não há exploração. Todos querem servir; ninguém quer receber serviço. No mundo transcendental, todos querem dar serviço. Vocês querem dar serviço a mim, e eu quero dar serviço a vocês. Esta é uma atitude tão bonita. Este mundo material significa que eu quero roubar vocês, e vocês querem roubar a mim. Isso é tudo. Este é o mundo material. Devemos tentar compreendê-lo. No mundo material, todos querem explorar seu amigo, seu pai, sua mãe, todos. Mas, no mundo transcendental, todos querem servir. Todos têm Kṛṣṇa como o ponto central de servir e todos os devotos, quer como amigos, servos, pais ou amantes de Kṛṣṇa, querem servi-Lo. E, ao mesmo tempo, Kṛṣṇa também quer servi-los. Esta é uma relação transcendental; a função principal é o serviço, embora não haja necessidade de serviço, pois todos estão plenos. Não há fome, não há necessidade de comer, mas, ainda assim, todos oferecem coisas gostosas para comer. Este é o mundo transcendental. Enquanto não alcançarmos o estágio de simplesmente servir a Kṛṣṇa ou a Seu devoto, não podemos saborear o prazer transcendental do serviço. Se tivermos algum motivo, então esse sentido nunca despertará. Sem um motivo, sem desejo de gratificação pessoal dos sentidos, deve-se prestar serviço ao Senhor Supremo e a Seus devotos.
 
-A Perfeição da Autorrealização
+## Aproximando-se de Kṛṣṇa com Amor
 
 Neste capítulo final, Śrīla Prabhupāda discute o objetivo derradeiro da ciência da autorrealização — a plena realização do Eu Supremo, Kṛṣṇa. O desenvolvimento da autorrealização começa com a compreensão de que o eu não é material — não é um corpo físico — mas energia espiritual pura. A seguir, a pessoa percebe que o eu puro e espiritual é eternamente uma parte do Eu Supremo, Kṛṣṇa. Finalmente, aprende a viver plenamente nessa relação eterna, bem-aventurada e transcendental. Aquele que alcançou este estado alcançou a perfeição suprema da vida.
 

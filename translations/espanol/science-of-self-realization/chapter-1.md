@@ -1,6 +1,8 @@
 ### 1
 
-1. Aprendiendo la ciencia del alma Viendo el objetivo de la vida humana
+I. Aprendiendo la ciencia del alma
+
+## Viendo el objetivo de la vida humana
 
 ¿Quién eres?... ¿Eres tu cuerpo? ¿O tu mente? ¿O eres algo superior? ¿Sabes quién eres, o simplemente crees que lo sabes? ¿Y acaso importa en verdad? Nuestra sociedad materialista, con su liderazgo no iluminado, ha convertido prácticamente en tabú el indagar sobre nuestro verdadero ser superior. En lugar de ello, empleamos nuestro valioso tiempo en mantener, decorar y mimar el cuerpo por sí mismo. ¿Podría haber una alternativa?
 
@@ -42,7 +44,7 @@ Aunque cada lugar de la creación está dentro del reino de Dios porque el Seño
 
 El movimiento de conciencia de Kṛṣṇa está tratando de llevar esa existencia espiritual a la humanidad en general. En nuestra conciencia material presente, estamos apegados a la concepción material sensual de la vida, pero esta concepción puede eliminarse de inmediato mediante el servicio devocional a Kṛṣṇa, o conciencia de Kṛṣṇa. Si adoptamos los principios del servicio devocional, podemos volvernos trascendentales a las concepciones materiales de la vida y liberarnos de las modalidades de la bondad, la pasión y la ignorancia, incluso en medio de diversos compromisos materiales. Todos los que están ocupados en asuntos materiales pueden obtener el mayor beneficio de las páginas de De vuelta al Supremo y de las demás literaturas de este movimiento de conciencia de Kṛṣṇa. Estas literaturas ayudan a todas las personas a cortar las raíces del infatigable árbol baniano de la existencia material. Estas literaturas están autorizadas para entrenarnos a renunciar a todo lo relacionado con la concepción material de la vida y a saborear néctar espiritual en cada objeto. Esta etapa es alcanzable solo mediante el servicio devocional y nada más. Al prestar tal servicio, uno puede obtener de inmediato la liberación (mukti) incluso durante esta vida presente. La mayoría de los esfuerzos espirituales están teñidos de los colores del materialismo, pero el servicio devocional puro es trascendental a toda contaminación material. Aquellos que desean volver a Dios solo necesitan adoptar los principios de este movimiento de conciencia de Kṛṣṇa y simplemente dirigir su conciencia a los pies de loto del Señor Supremo, la Personalidad de Dios, Kṛṣṇa.
 
-¿Qué es la conciencia de Kṛṣṇa?
+## «Tu conciencia original es conciencia de Kṛṣṇa»
 
 La siguiente entrevista con la periodista independiente Sandy Nixon tuvo lugar en julio de 1975, en los aposentos de Śrīla Prabhupāda en el centro de Kṛṣṇa en Filadelfia. Esta conversación sirve como una magnífica introducción a la conciencia de Kṛṣṇa y abarca temas tan básicos como el mahā-mantra Hare Kṛṣṇa, la relación entre el maestro espiritual y Dios, la diferencia entre los gurús genuinos y los falsos, el papel de la mujer en la conciencia de Kṛṣṇa, el sistema de castas indio y la relación entre la conciencia de Cristo y la conciencia de Kṛṣṇa.
 
@@ -155,7 +157,7 @@ Sra. Nixon: Muchas gracias.
 
 Śrīla Prabhupāda: ¡Hare Kṛṣṇa!
 
-El verdadero progreso significa conocer a Dios
+## «El verdadero progreso significa conocer a Dios»
 
 Los conceptos del hombre moderno acerca de Dios son muchos y variados. Los niños tienden a imaginar a un anciano con barba blanca. Muchos adultos consideran a Dios como una fuerza invisible o un concepto mental, o como toda la humanidad, el universo, o incluso uno mismo. En esta conferencia, Śrīla Prabhupāda describe en detalle el concepto de la conciencia de Kṛṣṇa: una visión de Dios sorprendentemente íntima.
 
@@ -232,7 +234,7 @@ El movimiento de conciencia de Kṛṣṇa está destinado a dar conocimiento pe
 
 El verdadero avance significa conocer a Dios. Si carecemos de conocimiento de Dios, no estamos realmente avanzados. Muchos bribones niegan la existencia de Dios porque si no hay Dios pueden continuar con sus actividades pecaminosas. Puede que les resulte muy agradable pensar que no hay Dios, pero Dios no morirá simplemente porque Lo neguemos. Dios está ahí, y Su administración está ahí. Por Sus órdenes el sol sale, la luna sale, el agua fluye y el océano obedece a la marea. De este modo, todo funciona bajo Su orden. Puesto que todo está marchando muy bien, ¿cómo puede uno pensar de forma realista que Dios está muerto? Si hay mala administración, podemos decir que no hay gobierno, pero si hay buena administración, ¿cómo podemos decir que no hay gobierno? Solo porque la gente no conoce a Dios, dicen que Dios está muerto, que no hay Dios, o que Dios no tiene forma. Pero nosotros estamos firmemente convencidos de que hay un Dios y de que Kṛṣṇa es Dios. En consecuencia, Lo estamos adorando. Ese es el proceso de la conciencia de Kṛṣṇa. Traten de entenderlo. Muchas gracias.
 
-Reencarnación y más allá
+## Reencarnación y más allá
 
 En agosto de 1976, Śrīla Prabhupāda pasó unas semanas en Bhaktivedanta Manor, a veinticinco kilómetros al norte de Londres. Durante ese tiempo, Mike Robinson, de la London Broadcasting Company, lo entrevistó en sus aposentos. En su conversación, que fue transmitida poco después, Śrīla Prabhupāda reveló que la conciencia de Kṛṣṇa «no es un ritual de "yo creo, tú crees"», sino un profundo sistema filosófico en el que la ciencia de la reencarnación se explica con claridad y concisión.
 
@@ -446,7 +448,7 @@ Mike Robinson: Muchas gracias por hablar conmigo. Ha sido un placer hablar con u
 
 > Śrīla Prabhupāda: Hare Kṛṣṇa.
 
-Verdad y belleza
+## Verdad y belleza
 
 Śrīla Prabhupāda publicó este ensayo por primera vez en la India, en la antigua versión tabloide de su entonces revista quincenal De vuelta al Supremo (20 de noviembre de 1958). Contiene la inolvidable historia de la «belleza líquida», en la que Śrīla Prabhupāda expone dramáticamente el principio subyacente de la sexualidad humana. Esta iluminadora exposición sobre la naturaleza de la verdad y la belleza es atemporal y sorprendentemente relevante para quienes buscan el «ser interior».
 
@@ -476,7 +478,7 @@ Los mundanos no saben que la entidad espiritual total es la persona hermosa que 
 
 Aunque escrita por el más grande poeta o intelectual mundano, toda literatura que no describe la verdad y la belleza últimas es simplemente un almacén de heces sueltas y vómito de la verdad relativa. La verdadera literatura es aquella que describe la verdad y la belleza últimas del Absoluto.
 
-Preguntas pertinentes
+## Preguntas pertinentes
 
 Aunque los medios de comunicación están generalmente obsesionados con la violencia y la muerte, nuestra percepción de la muerte y el morir es superficial. Śrīla Prabhupāda observa: «Mientras el hombre está en pleno vigor de la vida, olvida la verdad desnuda de la muerte, que tiene que enfrentar». ¿Cómo podemos lidiar eficazmente con nuestra propia muerte? En este ensayo (que apareció por primera vez en el antiguo tabloide De vuelta al Supremo, 20 de abril de 1960) Śrīla Prabhupāda explica cómo las antiguas enseñanzas del *Śrīmad-Bhāgavatam* proporcionan una respuesta práctica.
 
@@ -533,7 +535,7 @@ En un vehículo público como un vagón de tren, nos encontramos y nos sentamos 
 
 Śrī Śukadeva Gosvāmī ha utilizado particularmente cuatro palabras respecto a la Personalidad Absoluta de Dios. Estas palabras distinguen a la Persona Absoluta, o Parabrahman, de otras personas, que son cualitativamente uno con Él. A la Personalidad Absoluta de Dios se Le dirige como sarvātmā, o que todo lo impregna, porque nadie está apartado de Él, aunque no todos tienen esta comprensión. La Personalidad de Dios, mediante Su representación plenaria, reside en el corazón de todos como Paramātmā, la Superalma, junto con cada alma individual. De ahí que cada alma individual tenga una relación íntima con Él. El olvido de esta relación íntima eternamente existente con Él es la causa de la vida condicionada desde tiempo inmemorial. Pero debido a que Él es Bhagavān, o la personalidad suprema, puede de inmediato reciprocar la llamada responsiva de un devoto. Además, debido a que Él es la persona perfecta, Su belleza, opulencia, fama, fuerza, conocimiento y renunciación son todas fuentes ilimitadas de dicha trascendental para el alma individual. El alma individual se siente atraída por todas estas diferentes opulencias cuando son representadas imperfectamente por otras almas condicionadas, pero el alma individual no se satisface con tales representaciones imperfectas, y por ende busca perpetuamente al ser perfecto. La belleza de la Personalidad de Dios no tiene comparación, ni tampoco Su conocimiento y renunciación. Pero por encima de todo, Él es īśvara, o el controlador supremo. Estamos siendo controlados en este momento por la acción policial de este gran rey. Este control policial se nos impone debido a nuestra desobediencia a la ley. Pero debido a que el Señor es Hari, Él es capaz de hacer desaparecer nuestra vida condicionada dándonos plena libertad en la existencia espiritual. Por lo tanto, es deber de todo hombre hacer indagaciones relevantes acerca de Él y así volver a Dios.
 
-Investigación del alma
+## Investigación del alma
 
 En 1972, un distinguido panel se reunió en Windsor, Ontario, para discutir «problemas asociados con los intentos de definir el momento exacto de la muerte». Los miembros del panel incluían al mundialmente famoso cirujano cardíaco Dr. Wilfred G. Bigelow, al juez Edson L. Haines de la Corte Suprema de Ontario y a J. Francis Leddy, presidente de la Universidad de Windsor. El Dr. Bigelow defendió la existencia del alma e instó a una investigación sistemática para determinar qué es el alma y de dónde viene. Los comentarios del Dr. Bigelow y de otros panelistas fueron publicados posteriormente en la Montreal Gazette. Cuando el artículo llegó a la atención de Śrīla Prabhupāda, escribió una carta al Dr. Bigelow ofreciendo un sustancial conocimiento Védico de la ciencia del alma y sugirió un método práctico para comprenderla científicamente. El artículo de la Gazette y la respuesta de Śrīla Prabhupāda se presentan a continuación.
 

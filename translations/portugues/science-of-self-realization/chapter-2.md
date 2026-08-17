@@ -1,8 +1,8 @@
 ### 2
 
-2. Escolhendo um Mestre Espiritual
+II. Escolhendo um Mestre Espiritual
 
-O Que É um Guru?
+## O Que É um Guru?
 
 
 Ao ouvir a palavra guru, tendemos a imaginar uma imagem caricatural: um velho de aparência estranha, com uma longa barba esfiapada e vestes esvoaçantes, meditando sobre verdades distantes e esotéricas. Ou pensamos num charlatão cósmico que lucra com a ingenuidade espiritual de jovens buscadores. Mas o que é, na verdade, um guru? O que ele sabe que nós não sabemos? Como ele nos ilumina? Numa palestra proferida na Inglaterra em 1973, Śrīla Prabhupāda fornece algumas respostas esclarecedoras.
@@ -199,7 +199,7 @@ Existe alguma ciência que nos dê o conhecimento por meio do qual possamos nos 
 
 
 
-Santos e Embusteiros
+## Separando os Santos dos Embusteiros
 
 
 
@@ -535,7 +535,7 @@ Repórter: Muitíssimo obrigado.
 
 
 
-Com Toda a Humildade de Que Sou Capaz
+## "Com Toda a Humildade de Que Sou Capaz"
 
 
 Em fevereiro de 1936, em Bombaim, Índia, os membros de uma renomada sociedade religiosa, o Gauḍīya Maṭha, ficaram atônitos com as poderosas e eloquentes palavras de um jovem membro que falou em honra de seu mestre espiritual, Śrīla Bhaktisiddhānta Sarasvatī Gosvāmī. Três décadas depois, o jovem orador se tornaria o mundialmente renomado fundador e mestre espiritual do movimento da consciência de Kṛṣṇa. A exposição de Śrīla Prabhupāda é uma declaração memorável sobre a importância do guru na vida espiritual.

@@ -1,6 +1,8 @@
 ### 1
 
-1. Aprendendo a Ciência da Alma Vendo o Objetivo da Vida Humana
+I. Aprendendo a Ciência da Alma
+
+## Vendo o Objetivo da Vida Humana
 
 
 Quem é você?... Você é o seu corpo? Ou a sua mente? Ou é algo superior? Sabe quem é, ou apenas pensa que sabe? E isso realmente importa? Nossa sociedade materialista, com sua liderança não esclarecida, tornou praticamente um tabu indagar sobre nosso verdadeiro eu superior. Em vez disso, gastamos nosso valioso tempo mantendo, decorando e mimando o corpo por ele mesmo. Será que haveria uma alternativa?
@@ -63,7 +65,7 @@ Embora todo lugar na criação esteja dentro do reino de Deus, porque o Senhor �
 O movimento da consciência de Kṛṣṇa procura levar essa existência espiritual à humanidade em geral. Em nossa presente consciência material, estamos apegados à concepção sensual e material da vida, mas essa concepção pode ser removida de imediato pelo serviço devocional a Kṛṣṇa, ou consciência de Kṛṣṇa. Se adotarmos os princípios do serviço devocional, poderemos tornar-nos transcendentais às concepções materiais da vida e ficar liberados dos modos da bondade, da paixão e da ignorância, mesmo em meio a várias ocupações materiais. Todos os que estão ocupados em assuntos materiais podem extrair o benefício máximo das páginas da revista Back to Godhead e das outras obras deste movimento da consciência de Kṛṣṇa. Estas obras ajudam todas as pessoas a cortar as raízes da indômita figueira-de-bengala da existência material. Estas obras são autorizadas a nos treinar a renunciar a tudo o que se relaciona com a concepção material da vida e a saborear o néctar espiritual em todo objeto. Esse estágio é obtido somente pelo serviço devocional e por nada mais. Ao prestar tal serviço, a pessoa pode imediatamente obter a liberação (mukti) mesmo nesta vida presente. A maioria dos esforços espirituais está tingida pelas cores do materialismo, mas o serviço devocional puro é transcendental a toda contaminação material. Os que desejam voltar ao Supremo precisam apenas adotar os princípios deste movimento da consciência de Kṛṣṇa e simplesmente dirigir sua consciência aos pés de lótus do Senhor Supremo, a Personalidade de Deus, Kṛṣṇa.
 
 
-Sua Consciência Original É a Consciência de Kṛṣṇa?
+## "Sua Consciência Original É a Consciência de Kṛṣṇa"
 
 
 A entrevista a seguir, com a repórter freelance Sandy Nixon, ocorreu em julho de 1975, nos aposentos de Śrīla Prabhupāda, no centro de Kṛṣṇa em Filadélfia. Esta conversa serve como soberba introdução à consciência de Kṛṣṇa e abrange tópicos básicos como o Hare Kṛṣṇa mantra, a relação entre o mestre espiritual e Deus, a diferença entre gurus genuínos e falsos, o papel das mulheres na consciência de Kṛṣṇa, o sistema indiano de castas e a relação entre a consciência de Cristo e a consciência de Kṛṣṇa.
@@ -236,7 +238,7 @@ Srta. Nixon: Muito obrigada.
 Śrīla Prabhupāda: Hare Kṛṣṇa!
 
 
-O Verdadeiro Avanço Significa Conhecer Deus
+## "O Verdadeiro Avanço Significa Conhecer Deus"
 
 
 As concepções de Deus do homem moderno são muitas e variadas. As crianças tendem a imaginar um homem idoso de barba branca. Muitos adultos consideram Deus uma força invisível, ou um conceito mental, ou ainda toda a humanidade, o universo ou até mesmo o próprio eu. Nesta palestra, Śrīla Prabhupāda descreve detalhadamente a concepção da consciência de Kṛṣṇa — uma visão de Deus surpreendentemente íntima.
@@ -358,7 +360,7 @@ O movimento da consciência de Kṛṣṇa destina-se a dar conhecimento perfeit
 
 O verdadeiro avanço significa conhecer Deus. Se nos falta o conhecimento de Deus, não estamos realmente avançados. Muitos canalhas negam a existência de Deus, porque, se não há Deus, eles podem continuar suas atividades pecaminosas. Pode ser muito agradável para eles pensar que não há Deus, mas Deus não morrerá simplesmente porque O negamos. Deus está aí, e Sua administração está aí. Por Suas ordens, o sol nasce, a lua nasce, a água flui e o oceano obedece à maré. Assim, tudo funciona sob Sua ordem. Visto que tudo está ocorrendo muito bem, como pode alguém pensar realisticamente que Deus está morto? Se há má administração, podemos dizer que não há governo, mas, se há boa administração, como podemos dizer que não há governo? Apenas porque as pessoas não conhecem Deus, dizem que Deus está morto, que não há Deus, ou que Deus não tem forma. Mas estamos firmemente convencidos de que há Deus e de que Kṛṣṇa é Deus. Por isso, estamos adorando-O. Esse é o processo da consciência de Kṛṣṇa. Tentem compreendê-lo. Muito obrigado.
 
-Reencarnação e Além
+## Reencarnação e Além
 
 
 Em agosto de 1976, Śrīla Prabhupāda passou algumas semanas em Bhaktivedanta Manor, vinte e quatro quilômetros ao norte de Londres. Durante esse tempo, Mike Robinson, da London Broadcasting Company, entrevistou-o em seus aposentos. Em sua conversa, transmitida pouco depois, Śrīla Prabhupāda revelou que a consciência de Kṛṣṇa "não é alguma cerimônia ritualística de 'eu acredito, tu acreditas'", mas um profundo sistema filosófico no qual a ciência da reencarnação é explicada de modo claro e conciso.
@@ -784,7 +786,7 @@ Mike Robinson: Muito obrigado por conversar comigo. Foi um prazer falar com o se
 
 
 
-Verdade e Beleza
+## Verdade e Beleza
 
 
 Śrīla Prabhupāda publicou este ensaio pela primeira vez na Índia, na antiga versão em formato tabloide de sua então quinzenal revista Back to Godhead (20 de novembro de 1958). Ele contém a inesquecível história da "beleza líquida", na qual Śrīla Prabhupāda expõe dramaticamente o princípio subjacente da sexualidade humana. Esta exposição esclarecedora sobre a natureza da verdade e da beleza é atemporal e surpreendentemente relevante para aqueles que buscam o "eu interior".
@@ -841,7 +843,7 @@ Os mundanos não sabem que toda a entidade espiritual é a bela pessoa que atrai
 
 Embora escrita pelo maior poeta ou intelectual mundano, qualquer literatura que não descreva a verdade e a beleza últimas é apenas um depósito de fezes líquidas e vômito da verdade relativa. A verdadeira literatura é aquela que descreve a verdade e a beleza últimas do Absoluto.
 
-Perguntas Pertinentes
+## Perguntas Pertinentes
 
 
 
@@ -957,7 +959,7 @@ smartavyaś cecchatābhayam
 
 
 
-Pesquisa sobre a Alma
+## Pesquisa sobre a Alma
 
 
 
