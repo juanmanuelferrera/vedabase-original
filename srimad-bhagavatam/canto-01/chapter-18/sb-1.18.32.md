@@ -8,7 +8,7 @@
 > rājñāghaṁ prāpitaṁ tātaṁ\
 > śrutvā tatredam abravīt
 
-*tasya*—his (the sage's); *putraḥ*—son; *ati*—extremely; *tejasvī*—powerful; *viharan*—while playing; *bālakaḥ*—with boys; *arbhakaiḥ*—who were all childish; *rājñā*—by the King; *agham*—distress; *prāpitam*—made to have; *tātam*—the father; *śrutvā*—by hearing; *tatra*—then and there; *idam*—this; *abravīt*—spoke.
+*tasya*—his (the sage's); *putraḥ*—son; *ati*—extremely; *tejasvī*—powerful; *viharan*—while playing; *bālakaḥ*—with boys; *arbhakaiḥ*—who were all childish; *rājñā*—by the King; *agham*—distress; *prāpitam*—made to have; *tātam*—the father; *śrutvā*—by hearing; *tatra*—then and there; *idam*—all these; *abravīt*—spoke.
 
 **The sage had a son who was very powerful, being a brāhmaṇa’s son. While he was playing with inexperienced boys, he heard of his father’s distress, which was occasioned by the King. Then and there the boy spoke as follows.**
 

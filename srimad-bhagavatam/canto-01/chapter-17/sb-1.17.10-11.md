@@ -15,7 +15,7 @@
 > ata enaṁ vadhiṣyāmi\
 > bhūta-druham asattamam
 
-*yasya*—one whose; *rāṣṭre*—in the state; *prajāḥ*—living beings; *sarvāḥ*—one and all; *trasyante*—are terrified; *sādhvi*—O chaste one; *asādhubhiḥ*—by the miscreants; *tasya*—his; *mattasya*—of the illusioned; *naśyanti*—vanishes; *kīrtiḥ*—fame; *āyuḥ*—duration of life; *bhagaḥ*—fortune; *gatiḥ*—good rebirth; *eṣaḥ*—these are; *rājñām*—of the kings; *paraḥ*—superior; *dharmaḥ*—occupation; *hi*—certainly; *ārtānām*—of the sufferers; *ārti*—sufferings; *nigrahaḥ*—subduing; *ataḥ*—therefore; *enam*—this man; *vadhiṣyāmi*—I shall kill; *bhūta-druham*—revolter against other living beings; *asat-tamam*—the most wretched.
+*yasya*—one whose; *rāṣṭre*—in the state; *prajāḥ*—living beings; *sarvāḥ*—one and all; *trasyante*—are terrified; *sādhvi*—O chaste one; *asādhubhiḥ*—by the miscreants; *tasya*—his; *mattasya*—of the illusioned; *naśyanti*—vanishes; *kīrtiḥ*—fame; *āyuḥ*—duration of life; *bhagaḥ*—fortune; *gatiḥ*—good rebirth; *eṣaḥ*—these are; *rājñām*—of the kings; *paraḥ*—superior; *dharmaḥ*—occupation; *hi*—certainly; *ārtānām*—of the sufferers; *ārti*—sufferings; *nigrahaḥ*—subdual; *ataḥ*—therefore; *enam*—this man; *vadhiṣyāmi*—I shall kill; *bhūta-druham*—revolter against other living beings; *asat-tamam*—the most wretched.
 
 **O chaste one, the king’s good name, duration of life and good rebirth vanish when all kinds of living beings are terrified by miscreants in his kingdom. It is certainly the prime duty of the king to subdue first the sufferings of those who suffer. Therefore I must kill this most wretched man because he is violent against other living beings.**
 

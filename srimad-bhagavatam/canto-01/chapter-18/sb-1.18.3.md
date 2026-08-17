@@ -8,7 +8,7 @@
 > vaiyāsaker jahau śiṣyo\
 > gaṅgāyāṁ svaṁ kalevaram
 
-*utsṛjya*—after leaving aside; *sarvataḥ*—all around; *saṅgam*—association; *vijñāta*—being understood; *ajita*—one who is never conquered (the Personality of Godhead); *saṁsthitiḥ*—actual position; *vaiyāsakeḥ*—unto the son of Vyāsa; *jahau*—gave up; *śiṣyaḥ*—as a disciple; *gaṅgāyām*—on the bank of the Ganges; *svam*—his own; *kalevaram*—material body.
+*utsṛjya*—after leaving aside; *sarvataḥ*—all around; *saṅgam*—association; *vijñāta*—being understood; *ajita*—one who is never conquered (the Personality of Godhead); *saṁsthitiḥ*—actual position; *vaiyāsakeḥ*—unto the son of Vyāsa; *jahau*—gave up; *śiṣyaḥ*—as a disciple; *gaṅgāyām*—on the bank of the Ganges; *svam*—his son; *kalevaram*—material body.
 
 **Furthermore, after leaving all his associates, the King surrendered himself as a disciple to the son of Vyāsa [Śukadeva Gosvāmī], and thus he was able to understand the actual position of the Personality of Godhead.**
 

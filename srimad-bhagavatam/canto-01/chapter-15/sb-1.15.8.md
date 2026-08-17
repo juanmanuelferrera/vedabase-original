@@ -8,7 +8,7 @@
 > labdhā sabhā maya-kṛtādbhuta-śilpa-māyā\
 > digbhyo 'haran nṛpatayo balim adhvare te
 
-*yat*—whose; *sannidhau*—being nearby; *aham*—myself; *u*—note of astonishment; *khāṇḍavam*—the protected forest of Indra, King of heaven; *agnaye*—unto the fire-god; *adām*—delivered; *indram*—Indra; *ca*—also; *sa*—along with; *amara-gaṇam*—the demigods; *tarasā*—with all dexterity; *vijitya*—having conquered; *labdhā*—having obtained; *sabhā*—assembly house; *maya-kṛtā*—built by Maya; *adbhuta*—very wonderful; *śilpa*—art and workmanship; *māyā*—potency; *digbhyaḥ*—from all directions; *aharan*—collected; *nṛpatayaḥ*—all princes; *balim*—presentations; *adhvare*—brought; *te*—your.
+*yat*—whose; *sannidhau*—being nearby; *aham*—myself; *u*—note of astonishment; *khāṇḍavam*—the protected forest of Indra, King of heaven; *agnaye*—unto the fire-god; *adām*—delivered; *indram*—Indra; *ca*—also; *sa*—along with; *amara-gaṇam*—the demigods; *tarasā*—with all dexterity; *vijitya*—having conquered; *labdhā*—having obtained; *sabhā*—assembly house; *maya-kṛtā*—built by Maya; *adbhuta*—very wonderful; *śilpa*—art and workmanship; *māyā*—potency; *digbhyaḥ*—from all directions; *aharan*—collecting; *nṛpatayaḥ*—all princes; *balim*—presentations; *adhvare*—brought; *te*—unto you.
 
 **Because He was near me, it was possible for me to conquer with great dexterity the powerful King of heaven, Indradeva, along with his demigod associates and thus enable the fire-god to devastate the Khāṇḍava forest. And by His grace only the demon named Maya was saved from the blazing Khāṇḍava forest, and thus we could build our assembly house of wonderful architectural workmanship where all the princes assembled during the performance of Rājasūya yajña and paid you tributes.**
 

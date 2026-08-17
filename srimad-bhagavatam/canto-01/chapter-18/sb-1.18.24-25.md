@@ -15,7 +15,7 @@
 > dadarśa munim āsīnaṁ\
 > śāntaṁ mīlita-locanam
 
-*ekadā*—once upon a time; *dhanuḥ*—arrows and bow; *udyamya*—taking firmly; *vicaran*—following; *mṛgayām*—hunting excursion; *vane*—in the forest; *mṛgān*—stags; *anugataḥ*—while following; *śrāntaḥ*—fatigued; *kṣudhitaḥ*—hungry; *tṛṣitaḥ*—being thirsty; *bhṛśam*—extremely; *jala-āśayam*—reservoir of water; *acakṣāṇaḥ*—while searching for; *praviveśa*—entered into; *tam*—that famous; *āśramam*—hermitage of Śamīka Ṛṣi; *dadarśa*—saw; *munim*—the sage; *āsīnam*—seated; *śāntam*—all silent; *mīlita*—closed; *locanam*—eyes.
+*ekadā*—once upon a time; *dhanuḥ*—arrows and bow; *udyamya*—taking firmly; *vicaran*—following; *mṛgayām*—hunting excursion; *vane*—in the forest; *mṛgān*—stags; *anugataḥ*—while following; *śrāntaḥ*—fatigued; *kṣudhitaḥ*—hungry; *tṛṣitaḥ*—being thirsty; *bhṛśam*—extremely; *jala-āśayam*—reservoir of water; *acakṣāṇaḥ*—while finding out; *praviveśa*—entered into; *tam*—that famous; *āśramam*—hermitage of Śamīka Ṛṣi; *dadarśa*—saw; *munim*—the sage; *āsīnam*—seated; *śāntam*—all silent; *mīlita*—closed; *locanam*—eyes.
 
 **Once upon a time Mahārāja Parīkṣit, while engaged in hunting in the forest with bow and arrows, became extremely fatigued, hungry and thirsty while following the stags. While searching for a reservoir of water, he entered the hermitage of the well-known Śamīka Ṛṣi and saw the sage sitting silently with closed eyes.**
 

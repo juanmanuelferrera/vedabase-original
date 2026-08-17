@@ -8,7 +8,7 @@
 > icchayā krīḍituḥ syātāṁ\
 > tathaiveśecchayā nṛṇām
 
-*yathā*—as much as; *krīḍa-upaskarāṇām*—playthings; *saṁyoga*—union; *vigamau*—disunion; *iha*—in this world; *icchayā*—by the will of; *krīḍituḥ*—just to play a part; *syātām*—takes place; *tathā*—so also; *eva*—certainly; *īśa*—the Supreme Lord; *icchayā*—by the will of; *nṛṇām*—of the human beings.
+*yathā*—as much as; *krīḍa-upaskarāṇām*—playthings; *saṁyoga*—union; *vigamau*—disunion; *iha*—as much as; *icchayā*—by the will of; *krīḍituḥ*—just to play a part; *syātām*—takes place; *tathā*—so also; *eva*—certainly; *īśa*—the Supreme Lord; *icchayā*—by the will of; *nṛṇām*—of the human being.
 
 **As a player sets up and disperses his playthings according to his own sweet will, so the supreme will of the Lord brings men together and separates them.**
 
