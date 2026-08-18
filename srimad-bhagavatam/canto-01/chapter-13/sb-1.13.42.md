@@ -8,7 +8,7 @@
 > vāk-tantyāṁ nāmabhir baddhā\
 > vahanti balim īśituḥ
 
-*yathā*—as much as; *gāvaḥ*—cow; *nasi*—by the nose; *protāḥ*—strung; *tantyām*—by the thread; *baddhāḥ*—bound by; *ca*—also; *dāmabhiḥ*—by ropes; *vāk-tantyām*—in the network of Vedic hymns; *nāmabhiḥ*—by nomenclatures; *baddhāḥ*—conditioned; *vahanti*—carry on; *balim*—orders; *īśituḥ*—for being controlled by the Supreme Lord.
+*yathā*—as much as; *gāvaḥ*—cow; *nasi*—by the nose; *protāḥ*—women; *tantyām*—by the thread; *baddhāḥ*—bound by; *ca*—also; *dāmabhiḥ*—by ropes; *vāk-tantyām*—in the network of Vedic hymns; *nāmabhiḥ*—by nomenclatures; *baddhāḥ*—conditioned; *vahanti*—carry on; *balim*—orders; *īśituḥ*—for being controlled by the Supreme Lord.
 
 **As a cow, bound through the nose by a long rope, is conditioned, so also human beings are bound by different Vedic injunctions and are conditioned to obey the orders of the Supreme.**
 

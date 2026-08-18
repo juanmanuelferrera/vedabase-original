@@ -10,7 +10,7 @@
 > kṛpayātithi-rūpeṇa\
 > bhavadbhis tīrthakāḥ kṛtāḥ
 
-*parīkṣit uvāca*—the fortunate Mahārāja Parīkṣit said; *aho*—ah; *adya*—today; *vayam*—we; *brahman*—O *brāhmaṇas*; *sat-sevyāḥ*—eligible to serve the devotee; *kṣatra*—the ruling class; *bandhavaḥ*—friends; *kṛpayā*—by your mercy; *atithi-rūpeṇa*—in the manner of a guest; *bhavadbhiḥ*—by your good self; *tīrthakāḥ*—qualified for being places of pilgrimage; *kṛtāḥ*—done by you.
+*parīkṣit uvāca*—the fortunate Mahārāja Parīkṣit said; *aho*—ah; *adya*—today; *vayam*—we; *brahman*—O *brāhmaṇas*; *sat-sevyāḥ*—eligible to serve the devotee; *kṣatra*—the ruling class; *bandhavaḥ*—friends; *kṛpayā*—by your mercy; *atithi-rūpeṇa*—in the manner of the great; *bhavadbhiḥ*—by your good self; *tīrthakāḥ*—qualified for being places of pilgrimage; *kṛtāḥ*—done by you.
 
 **The fortunate King Parīkṣit said: O brāhmaṇa, by your mercy only you have sanctified us, making us like unto places of pilgrimage, all by your presence here as my guest. By your mercy, we, who are but unworthy royalty, become eligible to serve the devotee.**
 

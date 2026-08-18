@@ -10,7 +10,7 @@
 > ālakṣaye bhavatīm antar-ādhiṁ\
 > dūre bandhuṁ śocasi kañcanāmba
 
-*dharmaḥ uvāca*—Dharma inquired; *kaccit*—whether; *bhadre*—madam; *anāmayam*—quite hale and hearty; *ātmanaḥ*—self; *te*—unto you; *vicchāyā asi*—appear to be covered with the shadow of grief; *mlāyatā*—which darkens; *īṣat*—slightly; *mukhena*—by the face; *ālakṣaye*—you look; *bhavatīm*—unto yourself; *antarādhim*—some disease within; *dūre*—long distant; *bandhum*—friend; *śocasi*—thinking of; *kañcana*—someone; *amba*—O mother.
+*dharmaḥ uvāca*—Dharma inquired; *kaccit*—whether; *bhadre*—madam; *anāmayam*—quite hail and hearty; *ātmanaḥ*—self; *te*—unto you; *vicchāyā asi*—appear to be covered with the shadow of grief; *mlāyatā*—which darkens; *īṣat*—slightly; *mukhena*—by the face; *ālakṣaye*—you look; *bhavatīm*—unto yourself; *antarādhim*—some disease within; *dūre*—long distant; *bandhum*—friend; *śocasi*—thinking of; *kañcana*—someone; *amba*—O mother.
 
 **Dharma [in the form of a bull] asked: Madam, are you not hail and hearty? Why are you covered with the shadow of grief? It appears by your face that you have become black. Are you suffering from some internal disease, or are you thinking of some relative who is away in a distant place?**
 
