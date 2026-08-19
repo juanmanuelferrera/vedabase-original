@@ -8,7 +8,7 @@
 > āsthito ramate jantus\
 > tamo viśati pūrvavat
 
-*yadi*—si; *asadbhiḥ*—con el deshonesto; *pathi*—en el sendero; *punaḥ*—de nuevo; *śiśna*—por los genitales; *udara*—por el estómago; *kṛta*—hecho; *udyamaiḥ*—cuyos esfuerzos; *āsthitaḥ*—relacionándose; *ramate*—disfruta; *jantuḥ*—la entidad viviente; *tamaḥ*—oscuridad; *viśati*—entra; *pūrva-vat*—como antes.
+*yadi*—si; *asadbhiḥ*—con el deshonesto; *pathi*—en el sendero; *punaḥ*—de nuevo; *śiśna*—por el genital; *udara*—por el estómago; *kṛta*—hecho; *udyamaiḥ*—cuyos esfuerzos; *āsthitaḥ*—relacionándose; *ramate*—disfruta; *jantuḥ*—la entidad viviente; *tamaḥ*—oscuridad; *viśati*—entra; *pūrva-vat*—como antes.
 
 **Por lo tanto, si vuelve a caminar por senderos deshonestos, influenciada por personas de inclinaciones sensuales ocupadas en la búsqueda de disfrute sexual y en la complacencia del paladar, la entidad viviente vuelve de nuevo al infierno, como antes.**
 

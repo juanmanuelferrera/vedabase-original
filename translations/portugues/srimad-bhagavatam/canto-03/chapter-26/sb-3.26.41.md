@@ -11,7 +11,7 @@
 
 *ambho jihvā rasa*-grahaḥ
 
-*rūpa-mātrāt*—que evolui do elemento sutil forma; *vikurvāṇāt*—sofrendo transformação; *tejasaḥ*—do fogo; *daiva-coditāt*—sob disposição superior; *rasa-mātram*—o elemento sutil sabor; *abhūt*—manifestou-se; *tasmāt*—disso; *ambhaḥ*—água; *jihvā*—o sentido do paladar; *rasa-grahaḥ*—que percebe o sabor.
+*rūpa-mātrāt*—que evolui do elemento sutil forma; *vikurvāṇāt*—sofrendo transformação; *tejasaḥ*—do fogo; *daiva-coditāt*—sob disposição superior; *rasa-mātram*—o elemento sutil sabor; *abhūt*—manifestou-se; *tasmāt*—disso; *ambhaḥ*—água; *jihvā*—o sentido do paladar; *rasa-grahaḥ*—que percebem o sabor.
 
 **Pela interação do fogo e da sensação visual, o elemento sutil sabor evolui sob disposição superior. Do sabor produz-se a água, e a língua — que percebe o sabor — também se manifesta.**
 

@@ -11,7 +11,7 @@ yady asadbhiḥ pathi punaḥ
 
 tamo viśati pūrvavat
 
-*yadi*—se; *asadbhiḥ*—com os iníquos; *pathi*—no caminho; *punaḥ*—novamente; *śiśna*—para os genitais; *udara*—para o estômago; *kṛta*—feitos; *udyamaiḥ*—cujos esforços; *āsthitaḥ*—associando-se; *ramate*—goza; *jantuḥ*—a entidade viva; *tamaḥ*—trevas; *viśati*—entra; *pūrva-vat*—como antes.
+*yadi*—se; *asadbhiḥ*—com os iníquos; *pathi*—no caminho; *punaḥ*—novamente; *śiśna*—para o genital; *udara*—para o estômago; *kṛta*—feitos; *udyamaiḥ*—cujos esforços; *āsthitaḥ*—associando-se; *ramate*—goza; *jantuḥ*—a entidade viva; *tamaḥ*—trevas; *viśati*—entra; *pūrva-vat*—como antes.
 
 **Se, portanto, a entidade viva se associa novamente com o caminho da impiedade, influenciada por pessoas de mentalidade sensual que se dedicam à busca do prazer sexual e à gratificação do paladar, volta ao inferno como antes.**
 

@@ -11,7 +11,7 @@ icchayā krīḍituḥ syātāṁ
 
 tathaiveśecchayā nṛṇām
 
-*yathā*—assim como; *krīḍa-upaskarāṇām*—de brinquedos; *saṁyoga*—união; *vigamau*—separação; *iha*—tanto quanto; *icchayā*—pela vontade de; *krīḍituḥ*—apenas para brincar; *syātām*—acontece; *tathā*—da mesma forma; *eva*—certamente; *īśa*—o Senhor Supremo; *icchayā*—pela vontade de; *nṛṇām*—dos seres humanos.
+*yathā*—assim como; *krīḍa-upaskarāṇām*—de brinquedos; *saṁyoga*—união; *vigamau*—separação; *iha*—tanto quanto; *icchayā*—pela vontade de; *krīḍituḥ*—apenas para brincar; *syātām*—acontece; *tathā*—da mesma forma; *eva*—certamente; *īśa*—o Senhor Supremo; *icchayā*—pela vontade de; *nṛṇām*—do ser humano.
 
 **Assim como um jogador dispõe e dispersa seus brinquedos segundo sua própria vontade, da mesma forma a vontade suprema do Senhor reúne os homens e os separa.**
 
