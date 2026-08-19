@@ -6,6 +6,6 @@
 pañcame 'śrī-nityānanda'-tattva nirūpaṇa
 nityānanda hailā rāma rohiṇī-nandana
 
-*pañcame*—no Quinto Capítulo; *śrī-nityānanda*—do Senhor Nityānanda Prabhu; *tattva*—a verdade; *nirūpaṇa*—descrição; *nityānanda*—o Senhor Nityānanda Prabhu; *hailā*—era; *rāma*—Balarāma; *rohiṇī-nandana*—o filho de Rohiṇī.
+*pañcame*—no Quinto Capítulo; *śrī-nityānanda*—do Senhor Nityānanda Prabhu; *tattva*—a verdade; *nirūpaṇa*—determinação; *nityānanda*—o Senhor Nityānanda Prabhu; *hailā*—era; *rāma*—Balarāma; *rohiṇī-nandana*—o filho de Rohiṇī.
 
 **O Quinto Capítulo descreve a verdade do Senhor Nityānanda Prabhu, que não é outro senão Balarāma, o filho de Rohiṇī.**

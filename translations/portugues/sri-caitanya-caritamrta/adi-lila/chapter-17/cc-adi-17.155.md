@@ -7,7 +7,7 @@ kājī kahe,--tomāra yaiche veda-purāṇa
 
 taiche āmāra śāstra--ketāva 'korāṇa'
 
-*kājī kahe*—o Kazi respondeu; *tomāra*—Tuas; *yaiche*—assim como; *veda-purāṇa*—os Vedas e Purāṇas; *taiche*—de modo semelhante; *āmāra*—nossa; *śāstra*—escritura; *ketāva*—o livro sagrado; *korāṇa*—o Alcorão.
+*kājī kahe*—o Kazi responde; *tomāra*—Tuas; *yaiche*—assim como; *veda-purāṇa*—os Vedas e Purāṇas; *taiche*—de modo semelhante; *āmāra*—nossa; *śāstra*—escritura; *ketāva*—o livro sagrado; *korāṇa*—o Alcorão.
 
 **O Kazi respondeu: "Assim como Tu tens Tuas escrituras chamadas *Vedas* e *Purāṇas*, nós temos nossa escritura, conhecida como o sagrado Alcorão.**
 

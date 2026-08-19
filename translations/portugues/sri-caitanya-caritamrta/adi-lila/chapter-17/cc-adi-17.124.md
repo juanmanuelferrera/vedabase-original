@@ -7,7 +7,7 @@
 
 kājī-pāśe āsi' sabe kaila nivedana
 
-*śuniyā*—ao ouvir; *ye*—aquilo; *kruddha*—irados; *haila*—tornaram-se; *sakala*—todos; *yavana*—muçulmanos; *kājī-pāśe*—na corte do Kazi, ou magistrado; *āsi'*—vindo; *sabe*—todos; *kaila*—fizeram; *nivedana*—petição.
+*śuniyā*—ao ouvir; *ye*—aquilo; *kruddha*—irados; *haila*—tornaram-se; *sakala*—todos; *yavana*—maometanos; *kājī-pāśe*—na corte do Kazi, ou magistrado; *āsi'*—vindo; *sabe*—todos; *kaila*—fizeram; *nivedana*—petição.
 
 **Ao ouvirem a vibração ressonante do mantra Hare Kṛṣṇa, os muçulmanos locais, grandemente irados, apresentaram uma queixa ao Kazi.**
 

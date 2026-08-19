@@ -7,7 +7,7 @@ prabhu ājñā dila--yāha karaha kīrtana
 
 muñi saṁhārimu āji sakala yavana
 
-*prabhu*—o Senhor; *ājñā dila*—ordenou; *yāha*—ide; *karaha*—e realizai; *kīrtana*—saṅkīrtana, canto do Hare Kṛṣṇa mahā-mantra; *muñi*—eu; *saṁhārimu*—matarei; *āji*—hoje; *sakala*—todos; *yavana*—os muçulmanos.
+*prabhu*—o Senhor; *ājñā dila*—ordenou; *yāha*—ide; *karaha*—e realizai; *kīrtana*—saṅkīrtana, canto do Hare Kṛṣṇa mahā-mantra; *muñi*—eu; *saṁhārimu*—matarei; *āji*—hoje; *sakala*—todos; *yavana*—os maometanos.
 
 **O Senhor Caitanya ordenou: "Ide realizar saṅkīrtana! Hoje matarei todos os muçulmanos!"**
 

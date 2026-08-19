@@ -7,6 +7,6 @@
 
 aṭṭa aṭṭa hāse, kare danta-kaḍamaḍi
 
-*śayane*—enquanto dormia; *āmāra*—de mim; *upara*—sobre; *lāpha diyā*—saltando; *caḍi'*—montando; *aṭṭa aṭṭa*—áspera e duramente; *hāse*—ri; *kare*—faz; *danta*—dentes; *kaḍamaḍi*—rangendo.
+*śayane*—enquanto dormia; *āmāra*—de mim; *upara*—sobre; *lāpha diyā*—saltando; *caḍi'*—montando; *aṭṭa aṭṭa*—áspera e duramente; *hāse*—sorri; *kare*—faz; *danta*—dentes; *kaḍamaḍi*—trituração.
 
 **"Enquanto eu dormia, o leão saltou sobre meu peito, rindo ferozmente e rangendo os dentes.**

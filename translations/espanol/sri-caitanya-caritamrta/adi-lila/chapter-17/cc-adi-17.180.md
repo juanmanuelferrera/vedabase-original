@@ -6,6 +6,6 @@
 > śayane āmāra upara lāpha diyā caḍi'\
 > aṭṭa aṭṭa hāse, kare danta-kaḍamaḍi
 
-*śayane*—mientras dormía; *āmāra*—mí; *upara*—sobre; *lāpha diyā*—saltando; *caḍi'*—montándose; *aṭṭa aṭṭa*—áspera y fuertemente; *hāse*—ríe; *kare*—hace; *danta*—dientes; *kaḍamaḍi*—rechinamiento.
+*śayane*—mientras dormía; *āmāra*—mí; *upara*—sobre; *lāpha diyā*—saltando; *caḍi'*—montándose; *aṭṭa aṭṭa*—áspera y fuertemente; *hāse*—sonríe; *kare*—hace; *danta*—dientes; *kaḍamaḍi*—trituración.
 
 **»Mientras dormía, el león saltó sobre mi pecho, riendo fieramente y rechinando Sus dientes.**

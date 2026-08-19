@@ -6,6 +6,6 @@
 āmāke praṇati kare, haya pāpa-kṣaya
 tabe se ihāre bhakti laoyāile laya
 
-*āmāke*—a Mim; *praṇati*—reverências; *kare*—eles oferecem; *haya*—torna-se; *pāpa-kṣaya*—destruição das reações pecaminosas; *tabe*—então; *se*—eles; *ihāre*—a eles; *bhakti*—serviço devocional; *laoyāile*—se fizer com que aceitem; *laya*—aceitarão.
+*āmāke*—a Mim; *praṇati*—reverências; *kare*—eles oferecem; *haya*—torna-se; *pāpa-kṣaya*—destruição das reações pecaminosas; *tabe*—então; *se*—ele; *ihāre*—a eles; *bhakti*—serviço devocional; *laoyāile*—se fizer com que aceitem; *laya*—aceitarão.
 
 **"Se esses patifes Me oferecerem reverências, as reações de suas atividades pecaminosas serão anuladas. Então, se Eu os induzir, eles adotarão o serviço devocional.**

@@ -6,7 +6,7 @@
 gaṅgādāsa paṇḍita-sthāne paḍena vyākaraṇa
 śravaṇa-mātre kaṇṭhe kaila sūtra-vṛtti-gaṇa
 
-*gaṅgādāsa*—de nome Gaṅgādāsa; *paṇḍita-sthāne*—no local do mestre; *paḍena*—estuda; *vyākaraṇa*—gramática; *śravaṇa-mātre*—simplesmente por ouvir; *kaṇṭhe*—entre o pescoço e o coração; *kaila*—fez; *sūtra-vṛtti-gaṇa*—os aforismos e suas definições.
+*gaṅgādāsa*—de nome Gaṅgādāsa; *paṇḍita-sthāne*—no local do mestre; *paḍena*—estuda; *vyākaraṇa*—gramática; *śravaṇa-mātre*—simplesmente por ouvir; *kaṇṭhe*—entre o pescoço e o coração; *kaila*—fez; *sūtra-vṛtti-gaṇa*—os códigos e suas definições.
 
 **Quando o Senhor estudava gramática na casa de Gaṅgādāsa Paṇḍita, Ele aprendia de imediato as regras e definições gramaticais de cor, simplesmente por ouvi-las uma única vez.**
 

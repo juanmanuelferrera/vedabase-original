@@ -6,7 +6,7 @@
 > kājī kahe,--mora vaṁśe yata upajibe\
 > tāhāke 'tālāka' diba,--kīrtana nā bādhibe
 
-*kājī kahe*—el Kazi dijo; *mora*—mi; *vaṁśe*—en la dinastía; *yata*—todos (los descendientes); *upajibe*—que nazcan; *tāhāke*—a ellos; *tālāka*—severa advertencia; *diba*—les daré; *kīrtana*—el movimiento de saṅkīrtana; *nā*—nunca; *bādhibe*—se opondrán.
+*kājī kahe*—el Kazi dijo; *mora*—mi; *vaṁśe*—en la dinastía; *yata*—todos (los descendientes); *upajibe*—que nazcan; *tāhāke*—a ellos; *tālāka*—severa garantía; *diba*—les daré; *kīrtana*—el movimiento de saṅkīrtana; *nā*—nunca; *bādhibe*—se opondrán.
 
 **El Kazi dijo: «A cuantos descendientes nazcan en mi dinastía en el futuro, les doy esta severa advertencia: nadie debe obstaculizar el movimiento de *saṅkīrtana*».**
 

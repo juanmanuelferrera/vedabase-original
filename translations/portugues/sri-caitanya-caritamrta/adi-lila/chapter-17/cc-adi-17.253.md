@@ -7,7 +7,7 @@ paḍuyā sahasra yāhāṅ paḍe eka-ṭhāñi
 
 prabhura vṛttānta dvija kahe tāhāṅ yāi
 
-*paḍuyā*—estudantes; *sahasra*—mil; *yāhāṅ*—onde; *paḍe*—estudam; *eka-ṭhāñi*—num só lugar; *prabhura*—do Senhor; *vṛttānta*—o incidente; *dvija*—o brāhmaṇa; *kahe*—conta; *tāhāṅ*—ali; *yāi*—ele vai.
+*paḍuyā*—estudantes; *sahasra*—mil; *yāhāṅ*—onde; *paḍe*—estudam; *eka-ṭhāñi*—num só lugar; *prabhura*—do Senhor; *vṛttānta*—o incidente; *dvija*—um brāhmaṇa; *kahe*—conta; *tāhāṅ*—ali; *yāi*—ele vai.
 
 **O estudante brāhmaṇa correu para um lugar onde mil estudantes estudavam juntos. Ali, ele lhes descreveu o incidente.**
 

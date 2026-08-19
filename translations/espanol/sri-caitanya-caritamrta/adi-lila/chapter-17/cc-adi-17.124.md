@@ -6,7 +6,7 @@
 > śuniyā ye kruddha haila sakala yavana\
 > kājī-pāśe āsi' sabe kaila nivedana
 
-*śuniyā*—al oír; *ye*—que; *kruddha*—iracundos; *haila*—se pusieron; *sakala*—todos; *yavana*—los musulmanes; *kājī-pāśe*—ante el tribunal del Kazi, o magistrado; *āsi'*—acudiendo; *sabe*—todos; *kaila*—presentaron; *nivedana*—petición.
+*śuniyā*—al oír; *ye*—que; *kruddha*—iracundos; *haila*—se pusieron; *sakala*—todos; *yavana*—los mahometanos; *kājī-pāśe*—ante el tribunal del Kazi, o magistrado; *āsi'*—acudiendo; *sabe*—todos; *kaila*—presentaron; *nivedana*—petición.
 
 **Al oír la resonante vibración del mantra Hare Kṛṣṇa, los musulmanes del lugar, sumamente enfurecidos, presentaron una queja ante el Kazi.**
 
