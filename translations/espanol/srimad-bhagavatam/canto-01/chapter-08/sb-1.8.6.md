@@ -8,7 +8,7 @@
 > tad-yaśaḥ pāvanaṁ dikṣu\
 > śata-manyor ivātanot
 
-*yājayitvā*—por ejecutar; *aśvamedhaiḥ*—*yajña* en el que se sacrifica un caballo; *tam*—a él (el rey Yudhiṣṭhira); *tribhiḥ*—tres; *uttama*—mejores; *kalpakaiḥ*—abastecidos con ingredientes adecuados y ejecutados por sacerdotes capaces; *tat*—esa; *yaśaḥ*—fama; *pāvanam*—virtuosa; *dikṣu*—en todas las direcciones; *śata-manyoḥ*—Indra, quien ejecutó cien de tales sacrificios; *iva*—como; *atanot*—propagada.
+*yājayitvā*—por ejecutar; *aśvamedhaiḥ*—*yajña* en el que se sacrifica un caballo; *tam*—a él (el rey Yudhiṣṭhira); *tribhiḥ*—tres; *uttama*—mejores; *kalpakaiḥ*—abastecidos con ingredientes adecuados y ejecutados por sacerdotes capaces; *tat*—esa; *yaśaḥ*—fama; *pāvanam*—virtuosa; *dikṣu*—en todas las direcciones; *śata-manyoḥ*—como aquel que ejecutó cien de tales sacrificios; *iva*—como; *atanot*—ejecutó.
 
 **El Señor Śrī Kṛṣṇa hizo que Mahārāja Yudhiṣṭhira dirigiera tres *aśvamedha-yajñas* [sacrificios de caballos] bien ejecutados, y con ello hizo que en todas las direcciones se glorificara la virtuosa fama de este, tal como la de Indra, quien había ejecutado cien de tales sacrificios.**
 

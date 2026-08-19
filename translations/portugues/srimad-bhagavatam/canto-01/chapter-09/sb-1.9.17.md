@@ -11,7 +11,7 @@ tasyānuvihito 'nāthā
 
 nātha pāhi prajāḥ prabho
 
-*tasmāt*—portanto; *idam*—isso; *daiva-tantram*—encantamento da providência apenas; *vyavasya*—determinando; *bharata-ṛṣabha*—ó melhor entre os descendentes de Bharata; *tasya*—por Ele; *anuvihitaḥ*—conforme desejado; *anāthāḥ*—desamparados; *nātha*—ó senhor; *pāhi*—simplesmente cuida; *prajāḥ*—dos súditos; *prabho*—ó Senhor.
+*tasmāt*—portanto; *idam*—tudo isso; *daiva-tantram*—encantamento da providência apenas; *vyavasya*—determinando; *bharata-ṛṣabha*—o melhor entre os descendentes de Bharata; *tasya*—Sua; *anuvihitaḥ*—conforme desejado; *anāthāḥ*—desamparados; *nātha*—ó senhor; *pāhi*—simplesmente cuida; *prajāḥ*—dos súditos; *prabho*—ó Senhor.
 
 **Ó melhor entre os descendentes de Bharata [Yudhiṣṭhira], afirmo, portanto, que tudo isto está dentro do plano do Senhor. Aceitando o inconcebível plano do Senhor, deves segui-lo. És agora o chefe administrativo designado e, meu senhor, deves agora cuidar daqueles súditos que agora ficaram desamparados.**
 

@@ -8,7 +8,7 @@
 > hṛdi-sthaṁ pūjayām āsa\
 > māyayopātta-vigraham
 
-*kṛṣṇam*—al Señor Śrī Kṛṣṇa; *ca*—también; *tat*—de Él; *prabhāva-jñaḥ*—el conocedor de las glorias (Bhīṣma); *āsīnam*—sentado; *jagat-īśvaram*—el Señor del universo; *hṛdi-stham*—situado en el corazón; *pūjayām āsa*—adorado; *māyayā*—mediante la potencia interna; *upātta*—manifiesta; *vigraham*—una forma.
+*kṛṣṇam*—al Señor Śrī Kṛṣṇa; *ca*—también; *tat*—Su; *prabhāva-jñaḥ*—el conocedor de las glorias; *āsīnam*—sentado; *jagat-īśvaram*—el Señor del universo; *hṛdi-stham*—situado en el corazón; *pūjayām āsa*—adorado; *māyayā*—mediante la potencia interna; *upātta*—hecha de; *vigraham*—una forma.
 
 **El Señor Śrī Kṛṣṇa está situado en el corazón de todos, y aun así manifiesta Su forma trascendental mediante Su potencia interna. Este mismo Señor estaba sentado ante Bhīṣmadeva y, como este conocía Sus glorias, Lo adoró debidamente.**
 

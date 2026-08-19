@@ -8,7 +8,7 @@
 > yuṣmat-kṛte bahūn kleśān\
 > prāptā tokavatī muhuḥ
 
-*saṁsthite*—después de la muerte; *ati-rathe*—del gran general; *pāṇḍau*—Pāṇḍu; *pṛthā*—Kuntī; *bāla-prajā*—teniendo hijos jóvenes; *vadhūḥ*—mi nuera; *yuṣmat-kṛte*—por ustedes; *bahūn*—múltiples; *kleśān*—aflicciones; *prāptā*—soportó; *toka-vatī*—a pesar de tener hijos adultos; *muhuḥ*—constantemente.
+*saṁsthite*—después de la muerte; *ati-rathe*—del gran general; *pāṇḍau*—Pāṇḍu; *pṛthā*—Kuntī; *bāla-prajā*—teniendo hijos jóvenes; *vadhūḥ*—nuera; *yuṣmat-kṛte*—por ustedes; *bahūn*—múltiples; *kleśān*—aflicciones; *prāptā*—soportó; *toka-vatī*—a pesar de tener hijos adultos; *muhuḥ*—constantemente.
 
 **En lo que concierne a mi nuera Kuntī, al morir el gran general Pāṇḍu ella se convirtió en una viuda con muchos hijos y, por consiguiente, sufrió mucho. Y cuando ustedes ya eran adultos, también sufrió mucho debido a sus acciones.**
 

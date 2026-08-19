@@ -11,7 +11,7 @@
 
 vāyor iva ghanāvaliḥ
 
-*sarvam*—tudo isso; *kāla-kṛtam*—feito pelo tempo inevitável; *manye*—penso; *bhavatām ca*—para vós também; *yat*—qualquer que seja; *apriyam*—detestável; *sa-pālaḥ*—com os governantes; *yat-vaśe*—sob o controle desse tempo; *lokaḥ*—todos em todos os planetas; *vāyoḥ*—o vento carrega; *iva*—como; *ghana-āvaliḥ*—uma fila de nuvens.
+*sarvam*—tudo isso; *kāla-kṛtam*—feito pelo tempo inevitável; *manye*—penso; *bhavatām ca*—para vós também; *yat*—qualquer que seja; *apriyam*—detestável; *sa-pālaḥ*—com os governantes; *yat-vaśe*—sob o controle desse tempo; *lokaḥ*—todos em todos os planetas; *vāyoḥ*—como o ar que carrega; *iva*—como; *ghana-āvaliḥ*—os aglomerados de nuvens.
 
 **Em minha opinião, tudo isso se deve ao tempo inevitável, sob cujo controle todos em todos os planetas são conduzidos, assim como as nuvens são levadas pelo vento.**
 

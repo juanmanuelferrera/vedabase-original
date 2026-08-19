@@ -8,7 +8,7 @@
 > dvaipāyanādibhir vipraiḥ\
 > pūjitaiḥ pratipūjitaḥ
 
-*āmantrya*—invitando; *pāṇḍu-putrān*—todos los hijos de Pāṇḍu; *ca*—también; *śaineya*—Sātyaki; *uddhava*—Uddhava; *saṁyutaḥ*—acompañado; *dvaipāyana-ādibhiḥ*—por los *ṛṣis* tales como Vedavyāsa; *vipraiḥ*—por los *brāhmaṇas*; *pūjitaiḥ*—siendo adorado; *pratipūjitaḥ*—el Señor también correspondió equitativamente.
+*āmantrya*—invitando; *pāṇḍu-putrān*—todos los hijos de Pāṇḍu; *ca*—también; *śaineya*—Sātyaki; *uddhava*—Uddhava; *saṁyutaḥ*—acompañado; *dvaipāyana-ādibhiḥ*—por los *ṛṣis* tales como Vedavyāsa, etc; *vipraiḥ*—por los *brāhmaṇas*; *pūjitaiḥ*—siendo adorado; *pratipūjitaḥ*—el Señor también correspondió equitativamente.
 
 **El Señor Śrī Kṛṣṇa se preparó entonces para Su partida. Él invitó a los hijos de Pāṇḍu, después de haber sido adorado por los *brāhmaṇas*, encabezados por Śrīla Vyāsadeva. El Señor también correspondió con los saludos.**
 

@@ -11,7 +11,7 @@ abhyācaṣṭānurāgāśrair
 
 andhībhūtena cakṣuṣā
 
-*pāṇḍu*—o falecido pai de Mahārāja Yudhiṣṭhira e seus irmãos; *putrān*—os filhos de; *upāsīnān*—sentados silenciosamente por perto; *praśraya*—tomados; *prema*—em sentimentos de amor; *saṅgatān*—tendo se reunido; *abhyācaṣṭa*—parabenizou; *anurāga*—com sentimento; *aśraiḥ*—por lágrimas de êxtase; *andhībhūtena*—tomados; *cakṣuṣā*—com os olhos.
+*pāṇḍu*—o falecido pai de Mahārāja Yudhiṣṭhira e seus irmãos; *putrān*—os filhos de; *upāsīnān*—sentados silenciosamente por perto; *praśraya*—tomados; *prema*—em sentimentos de amor; *saṅgatān*—tendo se reunido; *abhyācaṣṭa*—parabenizou; *anurāga*—com sentimento; *aśraiḥ*—lágrimas de êxtase; *andhībhūtena*—estando dominado por; *cakṣuṣā*—com os olhos.
 
 **Os filhos de Mahārāja Pāṇḍu estavam sentados silenciosamente por perto, tomados de afeição por seu avô moribundo. Ao ver isso, Bhīṣmadeva os parabenizou com emoção. Havia lágrimas de êxtase em seus olhos, pois estava tomado de amor e afeição.**
 

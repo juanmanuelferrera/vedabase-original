@@ -8,7 +8,7 @@
 > yad vijijñāsayā yuktā\
 > muhyanti kavayo 'pi hi
 
-*na*—nunca; *hi*—indudablemente; *asya*—Su; *karhicit*—sea lo que fuere; *rājan*—¡oh, rey!; *pumān*—cualquiera; *veda*—conoce; *vidhitsitam*—plan; *yat*—el cual; *vijijñāsayā*—con indagaciones exhaustivas; *yuktāḥ*—estando dedicados; *muhyanti*—confundidos; *kavayaḥ*—grandes filósofos; *api*—incluso; *hi*—indudablemente.
+*na*—nunca; *hi*—indudablemente; *asya*—Su; *karhicit*—sea lo que fuere; *rājan*—¡oh, rey!; *pumān*—cualquiera; *veda*—conoce; *vidhitsitam*—plan; *yat*—el cual; *vijijñāsayā*—incluso tras indagaciones exhaustivas; *yuktāḥ*—estando dedicados a; *muhyanti*—confundidos; *kavayaḥ*—grandes filósofos; *api*—incluso; *hi*—indudablemente.
 
 **¡Oh, rey!, nadie puede conocer el plan del Señor [Śrī Kṛṣṇa]. Aunque grandes filósofos indagan exhaustivamente, no obstante están confundidos.**
 

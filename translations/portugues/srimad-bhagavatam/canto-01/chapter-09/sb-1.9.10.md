@@ -11,7 +11,7 @@
 
 *māyayopātta*-vigraham
 
-*kṛṣṇam*—ao Senhor Śrī Kṛṣṇa; *ca*—também; *tat*—d'Ele; *prabhāva-jñaḥ*—o conhecedor das glórias (Bhīṣma); *āsīnam*—sentado; *jagat-īśvaram*—o Senhor do universo; *hṛdi-stham*—situado no coração; *pūjayām āsa*—adorou; *māyayā*—pela potência interna; *upātta*—manifestado; *vigraham*—uma forma.
+*kṛṣṇam*—ao Senhor Śrī Kṛṣṇa; *ca*—também; *tat*—Sua; *prabhāva-jñaḥ*—o conhecedor das glórias; *āsīnam*—sentado; *jagat-īśvaram*—o Senhor do universo; *hṛdi-stham*—situado no coração; *pūjayām āsa*—adorou; *māyayā*—pela potência interna; *upātta*—feita de; *vigraham*—uma forma.
 
 **O Senhor Śrī Kṛṣṇa está situado no coração de todos e, ainda assim, manifesta Sua forma transcendental por Sua potência interna. Este mesmo Senhor estava sentado diante de Bhīṣmadeva e, visto que ele conhecia Suas glórias, ele O adorou devidamente.**
 

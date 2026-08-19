@@ -11,7 +11,7 @@ kṛṣṇo 'strī gāṇḍivaṁ cāpaṁ
 
 suhṛt kṛṣṇas tato vipat
 
-*yatra*—onde há; *dharma-sutaḥ*—o filho de Dharmarāja; *rājā*—o rei; *gadā-pāṇiḥ*—com sua poderosa clava na mão; *vṛkodaraḥ*—Bhīma; *kṛṣṇaḥ*—Arjuna; *astrī*—portador da arma; *gāṇḍivam*—Gāṇḍīva; *cāpam*—arco; *suhṛt*—bem-querer; *kṛṣṇaḥ*—o Senhor Kṛṣṇa, a Personalidade de Deus; *tataḥ*—disso; *vipat*—revés.
+*yatra*—onde há; *dharma-sutaḥ*—o filho de Dharmarāja; *rājā*—o rei; *gadā-pāṇiḥ*—mãos com sua poderosa clava; *vṛkodaraḥ*—Bhīma; *kṛṣṇaḥ*—Arjuna; *astrī*—portador da arma; *gāṇḍivam*—Gāṇḍīva; *cāpam*—flechas; *suhṛt*—bem-querer; *kṛṣṇaḥ*—o Senhor Kṛṣṇa, a Personalidade de Deus; *tataḥ*—disso; *vipat*—revés.
 
 **Oh, quão maravilhosa é a influência do tempo inevitável! É irreversível — do contrário, como poderiam ocorrer reveses na presença do rei Yudhiṣṭhira, filho do semideus que controla a religião; de Bhīma, o grande lutador com a clava; do grande arqueiro Arjuna com sua poderosa arma Gāṇḍīva; e, acima de tudo, do Senhor, o bem-querer direto dos Pāṇḍavas?**
 

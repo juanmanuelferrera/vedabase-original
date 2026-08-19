@@ -11,7 +11,7 @@ saṁsthite 'tirathe pāṇḍau
 
 prāptā tokavatī muhuḥ
 
-*saṁsthite*—após o falecimento; *ati-rathe*—do grande general; *pāṇḍau*—Pāṇḍu; *pṛthā*—Kuntī; *bāla-prajā*—tendo filhos pequenos; *vadhūḥ*—minha nora; *yuṣmat-kṛte*—por causa de vós; *bahūn*—múltiplas; *kleśān*—aflições; *prāptā*—sofreu; *toka-vatī*—apesar de ter filhos já crescidos; *muhuḥ*—constantemente.
+*saṁsthite*—após o falecimento; *ati-rathe*—do grande general; *pāṇḍau*—Pāṇḍu; *pṛthā*—Kuntī; *bāla-prajā*—tendo filhos pequenos; *vadhūḥ*—nora; *yuṣmat-kṛte*—por causa de vós; *bahūn*—múltiplas; *kleśān*—aflições; *prāptā*—sofreu; *toka-vatī*—apesar de ter filhos já crescidos; *muhuḥ*—constantemente.
 
 **No que diz respeito à minha nora Kuntī, com a morte do grande general Pāṇḍu ela ficou viúva com muitos filhos pequenos e, por isso, sofreu muito. E quando vós crescestes, ela continuou a sofrer em grande medida por causa de vossas ações.**
 

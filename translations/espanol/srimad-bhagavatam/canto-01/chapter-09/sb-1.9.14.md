@@ -8,7 +8,7 @@
 > sapālo yad-vaśe loko\
 > vāyor iva ghanāvaliḥ
 
-*sarvam*—todo esto; *kāla-kṛtam*—realizado por el ineludible factor tiempo; *manye*—yo creo; *bhavatām ca*—para ustedes también; *yat*—cualquier cosa; *apriyam*—detestable; *sa-pālaḥ*—con los soberanos; *yat-vaśe*—bajo el control de ese tiempo; *lokaḥ*—todo el mundo en cada planeta; *vāyoḥ*—el viento transporta; *iva*—como; *ghana-āvaliḥ*—una hilera de nubes.
+*sarvam*—todo esto; *kāla-kṛtam*—realizado por el ineludible factor tiempo; *manye*—yo creo; *bhavatām ca*—para ustedes también; *yat*—cualquier cosa; *apriyam*—detestable; *sa-pālaḥ*—con los soberanos; *yat-vaśe*—bajo el control de ese tiempo; *lokaḥ*—todo el mundo en cada planeta; *vāyoḥ*—como el aire que transporta; *iva*—como; *ghana-āvaliḥ*—los cúmulos de nubes.
 
 **En mi opinión, todo esto se debe al ineludible factor tiempo, bajo cuyo control se conduce todo el mundo en cada planeta, tal como a las nubes las lleva el viento.**
 

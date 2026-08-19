@@ -11,7 +11,7 @@ yad vijijñāsayā yuktā
 
 muhyanti kavayo 'pi hi
 
-*na*—nunca; *hi*—certamente; *asya*—Seu; *karhicit*—de qualquer modo; *rājan*—ó rei; *pumān*—alguém; *veda*—conhece; *vidhitsitam*—plano; *yat*—o qual; *vijijñāsayā*—com indagações exaustivas; *yuktāḥ*—sendo dedicados; *muhyanti*—ficam perplexos; *kavayaḥ*—grandes filósofos; *api*—mesmo; *hi*—certamente.
+*na*—nunca; *hi*—certamente; *asya*—Seu; *karhicit*—de qualquer modo; *rājan*—ó rei; *pumān*—alguém; *veda*—conhece; *vidhitsitam*—plano; *yat*—o qual; *vijijñāsayā*—mesmo após indagações exaustivas; *yuktāḥ*—estando dedicados a; *muhyanti*—ficam perplexos; *kavayaḥ*—grandes filósofos; *api*—mesmo; *hi*—certamente.
 
 **Ó rei, ninguém pode conhecer o plano do Senhor [Śrī Kṛṣṇa]. Mesmo que grandes filósofos inquiram exaustivamente, ficam perplexos.**
 

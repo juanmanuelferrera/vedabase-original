@@ -11,7 +11,7 @@ uttarovāca
 nānyaṁ tvad abhayaṁ paśye
 yatra mṛtyuḥ parasparam
 
-*uttarā uvāca*—Uttarā disse; *pāhi pāhi*—protege, protege; *mahā-yogin*—o maior místico; *deva-deva*—o adorável dos adorados; *jagat-pate*—ó Senhor do universo; *na*—não; *anyam*—nenhum outro; *tvat*—além de Ti; *abhayam*—ausência de medo; *paśye*—vejo; *yatra*—onde há; *mṛtyuḥ*—morte; *parasparam*—no mundo da dualidade.
+*uttarā uvāca*—Uttarā disse; *pāhi pāhi*—protege, protege; *mahā-yogin*—o maior místico; *deva-deva*—o adorável dos adorados; *jagat-pate*—ó Senhor do universo; *na*—não; *anyam*—nenhum outro; *tvat*—Vossa; *abhayam*—ausência de medo; *paśye*—vejo; *yatra*—onde há; *mṛtyuḥ*—morte; *parasparam*—no mundo da dualidade.
 
 **Uttarā disse: Ó Senhor dos senhores, Senhor do universo! Sois o maior dos místicos. Por favor, protegei-me, pois não há mais ninguém que possa salvar-me das garras da morte neste mundo de dualidade.**
 
