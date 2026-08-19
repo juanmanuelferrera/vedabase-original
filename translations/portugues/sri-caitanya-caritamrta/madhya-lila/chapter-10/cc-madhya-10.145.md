@@ -11,7 +11,7 @@ pratyagṛhīd agraja-śāsanaṁ tad
 
 ājñā gurūṇāṁ hy avicāraṇīyā
 
-*saḥ*—Ele (Lakṣmaṇa, o irmão do Senhor Rāmacandra); *śuśruvān*—ouvindo; *mātari*—à mãe; *bhārgaveṇa*—por Paraśurāma; *pituḥ*—do pai; *niyogāt*—pela ordem; *prahṛtam*—matar; *dviṣat-vat*—como a um inimigo; *pratyagṛhīt*—aceitou; *agraja-śāsanam*—a ordem do irmão mais velho; *tat*—essa; *ājñā*—ordem; *gurūṇām*—de pessoas superiores, tais como o mestre espiritual ou o pai; *hi*—porque; *avicāraṇīyā*—a ser obedecida sem consideração.
+*saḥ*—Ele; *śuśruvān*—ouvindo; *mātari*—à mãe; *bhārgaveṇa*—por Paraśurāma; *pituḥ*—do pai; *niyogāt*—pela ordem; *prahṛtam*—matar; *dviṣat-vat*—como a um inimigo; *pratyagṛhīt*—aceitou; *agraja-śāsanam*—a ordem do irmão mais velho; *tat*—essa; *ājñā*—ordem; *gurūṇām*—de pessoas superiores, tais como o mestre espiritual ou o pai; *hi*—porque; *avicāraṇīyā*—a ser obedecida sem consideração.
 
 **" 'Ao ser ordenado por seu pai, Paraśurāma matou sua mãe, Reṇukā, como se ela fosse uma inimiga. Quando Lakṣmaṇa, o irmão mais novo do Senhor Rāmacandra, ouviu falar disso, imediatamente se ocupou no serviço de Seu irmão mais velho e aceitou Suas ordens. A ordem do mestre espiritual deve ser obedecida sem consideração.'**
 
