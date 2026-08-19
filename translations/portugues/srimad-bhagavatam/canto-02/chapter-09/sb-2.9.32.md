@@ -12,7 +12,7 @@
 *astu te mad*-anugrahāt
 
 *Sinônimos
-yāvān*—como Eu sou em forma eterna; *aham*—Eu mesmo; *yathā*—tanto quanto; *bhāvaḥ*—existência transcendental; *yat*—aquelas; *rūpa*—várias formas e cores; *guṇa*—qualidades; *karmakaḥ*—atividades; *tathā*—assim e assim; *eva*—certamente; *tattva-vijñānam*—realização factual; *astu*—que seja; *te*—a você; *mat*—Minha; *anugrahāt*—pela misericórdia incausável.
+yāvān*—como Eu sou em forma eterna; *aham*—Eu mesmo; *yathā*—tanto quanto; *bhāvaḥ*—existência transcendental; *yat*—aquelas; *rūpa*—várias formas e cores; *guṇa*—qualidades; *karmakaḥ*—atividades; *tathā*—assim e assim; *eva*—certamente; *tattva-vijñānam*—realização factual; *astu*—que seja para ti; *te*—a você; *mat*—Minha; *anugrahāt*—pela misericórdia incausável.
 
 **Tudo de Mim, a saber, Minha verdadeira forma eterna, Minha existência transcendental, cor, qualidades e atividades — que tudo isto seja despertado dentro de ti por realização efetiva, por Minha misericórdia imotivada.**
 

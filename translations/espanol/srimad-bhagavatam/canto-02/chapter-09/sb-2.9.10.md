@@ -8,7 +8,7 @@
 > na yatra māyā kim utāpare harer\
 > anuvratā yatra surāsurārcitāḥ
 
-*pravartate*—prevalecen; *yatra*—en el cual; *rajaḥ tamaḥ*—las modalidades de la pasión y la ignorancia; *tayoḥ*—de ambas; *sattvam*—la modalidad de la bondad; *ca*—y; *miśram*—mezcla; *na*—nunca; *ca*—y; *kāla*—tiempo; *vikramaḥ*—influencia; *na*—ni; *yatra*—ahí; *māyā*—energía externa e ilusoria; *kim*—qué; *uta*—hay; *apare*—otros; *hareḥ*—de la Personalidad de Dios; *anuvratāḥ*—devotos; *yatra*—en el cual; *sura*—por los semidioses; *asura*—y los demonios; *arcitāḥ*—adorado.
+*pravartate*—prevalecen; *yatra*—en el cual; *rajaḥ tamaḥ*—las modalidades de la ignorancia y la pasión; *tayoḥ*—de ambas; *sattvam*—la modalidad de la bondad; *ca*—y; *miśram*—mezcla; *na*—nunca; *ca*—y; *kāla*—tiempo; *vikramaḥ*—influencia; *na*—ni; *yatra*—ahí; *māyā*—energía externa e ilusoria; *kim*—qué; *uta*—hay; *apare*—otros; *hareḥ*—de la Personalidad de Dios; *anuvratāḥ*—devotos; *yatra*—en el cual; *sura*—los semidioses; *asura*—los demonios; *arcitāḥ*—adorado.
 
 **En esa morada personal del Señor, las modalidades materiales de la ignorancia y la pasión no prevalecen, ni hay influencia alguna de ellas en lo relativo a la bondad. No hay predominio de la influencia del tiempo, ¡qué decir entonces de la ilusoria energía externa, que no puede entrar en esa región! Sin discriminación, tanto los semidioses como los demonios adoran al Señor como devotos.**
 

@@ -11,7 +11,7 @@ dhunoti śamalaṁ kṛṣṇaḥ
 
 salilasya yathā śarat
 
-*praviṣṭaḥ*—assim tendo entrado; *karṇa-randhreṇa*—pelos orifícios dos ouvidos; *svānām*—conforme a posição liberada de alguém; *bhāva*—relacionamento constitucional; *saraḥ-ruham*—a flor de lótus; *dhunoti*—purifica; *śamalam*—qualidades materiais como luxúria, ira, avareza e anseio; *kṛṣṇaḥ*—o Senhor Kṛṣṇa, a Suprema Personalidade de Deus; *salilasya*—do reservatório de águas; *yathā*—como se fosse; *śarat*—a estação do outono.
+*praviṣṭaḥ*—assim tendo entrado; *karṇa-randhreṇa*—pelos orifícios dos ouvidos; *svānām*—conforme a posição liberada de alguém; *bhāva*—relacionamento constitucional; *saraḥ-ruham*—a flor de lótus; *dhunoti*—purifica; *śamalam*—qualidades materiais como luxúria, ira, avareza, anseio, etc; *kṛṣṇaḥ*—o Senhor Kṛṣṇa, a Suprema Personalidade de Deus; *salilasya*—do reservatório de águas; *yathā*—como se fosse; *śarat*—a estação do outono.
 
 **A encarnação sonora do Senhor Kṛṣṇa, a Alma Suprema [isto é, o Śrīmad-Bhāgavatam], entrando no coração de um devoto autorrealizado, senta-se na flor de lótus de sua relação amorosa e, assim, limpa a poeira da associação material, tal como a luxúria, a ira, os anseios, etc., e age como as chuvas outonais sobre os charcos de água lamacenta.**
 

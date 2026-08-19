@@ -12,7 +12,7 @@ na yatra māyā kim utāpare harer
 anuvratā yatra surāsurārcitāḥ
 
 *Sinônimos
-pravartate*—prevalecem; *yatra*—onde; *rajaḥ tamaḥ*—os modos de paixão e ignorância; *tayoḥ*—de ambos; *sattvam*—o modo de bondade; *ca*—e; *miśram*—mistura; *na*—jamais; *ca*—e; *kāla*—tempo; *vikramaḥ*—influência; *na*—nem; *yatra*—ali; *māyā*—energia ilusória e externa; *kim*—o que; *uta*—há; *apare*—outros; *hareḥ*—da Personalidade de Deus; *anuvratāḥ*—devotos; *yatra*—onde; *sura*—pelos semideuses; *asura*—e pelos demônios; *arcitāḥ*—adorado.
+pravartate*—prevalecem; *yatra*—onde; *rajaḥ tamaḥ*—os modos de ignorância e paixão; *tayoḥ*—de ambos; *sattvam*—o modo de bondade; *ca*—e; *miśram*—mistura; *na*—jamais; *ca*—e; *kāla*—tempo; *vikramaḥ*—influência; *na*—nem; *yatra*—ali; *māyā*—energia ilusória e externa; *kim*—o que; *uta*—há; *apare*—outros; *hareḥ*—da Personalidade de Deus; *anuvratāḥ*—devotos; *yatra*—onde; *sura*—os semideuses; *asura*—os demônios; *arcitāḥ*—adorado.
 
 **Naquela morada pessoal do Senhor, os modos materiais da ignorância e da paixão não prevalecem, tampouco há qualquer influência deles no que tange à bondade. Não há predominância da influência do tempo, o que dizer, então, da ilusória energia externa, que não pode entrar naquela região. Sem discriminação, tanto os semideuses quanto os demônios adoram o Senhor como devotos.**
 

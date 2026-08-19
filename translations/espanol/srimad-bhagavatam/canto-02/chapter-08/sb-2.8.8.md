@@ -11,7 +11,7 @@
 > tāvān asāv iti proktaḥ\
 > saṁsthāvayavavān iva
 
-*āsīt*—mientras crecía; *yat-udarāt*—de cuyo abdomen; *padmam*—flor de loto; *loka*—mundo; *samsthāna*—situación; *lakṣaṇam*—que posee; *yāvān*—como si fuera; *ayam*—esto; *vai*—ciertamente; *puruṣaḥ*—la Suprema Personalidad de Dios; *iyattā*—medida; *avayavaiḥ*—por los cuerpos; *pṛthak*—diferentes; *tāvān*—así; *asau*—eso; *iti proktaḥ*—así se dice; *saṁsthā*—situación; *avayavavān*—la situación constituida por el cuerpo; *iva*—como.
+*āsīt*—mientras crecía; *yat-udarāt*—de cuyo abdomen; *padmam*—flor de loto; *loka*—mundo; *samsthāna*—situación; *lakṣaṇam*—que posee; *yāvān*—como si fuera; *ayam*—esto; *vai*—ciertamente; *puruṣaḥ*—la Suprema Personalidad de Dios; *iyattā*—medida; *avayavaiḥ*—por el cuerpo; *pṛthak*—diferentes; *tāvān*—así; *asau*—eso; *iti proktaḥ*—así se dice; *saṁsthā*—situación; *avayavavān*—la situación constituida por el cuerpo; *iva*—como.
 
 **Si la Suprema Personalidad de Dios, de cuyo abdomen brotó el tallo de loto, posee un cuerpo gigantesco conforme a Su propia capacidad y medida, entonces ¿cuál es la diferencia específica entre el cuerpo del Señor y los de las demás entidades vivientes comunes?**
 

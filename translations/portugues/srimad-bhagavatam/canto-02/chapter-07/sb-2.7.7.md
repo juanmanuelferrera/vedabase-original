@@ -13,7 +13,7 @@ so 'yaṁ yad antaram alaṁ praviśan bibheti
 
 kāmaḥ kathaṁ nu punar asya manaḥ śrayeta
 
-*kāmam*—luxúria; *dahanti*—castigam; *kṛtinaḥ*—grandes figuras poderosas; *nanu*—mas; *roṣa-dṛṣṭyā*—pelo olhar colérico; *roṣam*—cólera; *dahantam*—sendo dominado por; *uta*—embora; *te*—eles; *na*—não conseguem; *dahanti*—subjugar; *asahyam*—intolerável; *saḥ*—esse; *ayam*—Ele; *yat*—porque; *antaram*—no interior; *alam*—contudo; *praviśan*—ao entrar; *bibheti*—fica com medo; *kāmaḥ*—a luxúria; *katham*—como; *nu*—de fato; *punaḥ*—de novo; *asya*—Sua; *manaḥ*—mente; *śrayeta*—tomar refúgio.
+*kāmam*—luxúria; *dahanti*—castiga; *kṛtinaḥ*—grandes figuras poderosas; *nanu*—mas; *roṣa-dṛṣṭyā*—pelo olhar colérico; *roṣam*—cólera; *dahantam*—sendo dominado por; *uta*—embora; *te*—eles; *na*—não conseguem; *dahanti*—subjugar; *asahyam*—intolerável; *saḥ*—esse; *ayam*—Ele; *yat*—porque; *antaram*—no interior; *alam*—contudo; *praviśan*—ao entrar; *bibheti*—fica com medo; *kāmaḥ*—a luxúria; *katham*—como; *nu*—de fato; *punaḥ*—de novo; *asya*—Sua; *manaḥ*—mente; *śrayeta*—tomar refúgio.
 
 **Grandes figuras como o Senhor Śiva podem, por seu olhar irado, dominar a luxúria e vencê-la, mas, ainda assim, não conseguem libertar-se dos avassaladores efeitos de sua própria ira. Tal ira jamais pode entrar no coração d'Ele [o Senhor], que está acima de tudo isso. Como, então, poderia a luxúria abrigar-se em Sua mente?**
 

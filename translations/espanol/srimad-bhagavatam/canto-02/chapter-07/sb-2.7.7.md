@@ -10,7 +10,7 @@
 > so 'yaṁ yad antaram alaṁ praviśan bibheti\
 > kāmaḥ kathaṁ nu punar asya manaḥ śrayeta
 
-*kāmam*—lujuria; *dahanti*—castigan; *kṛtinaḥ*—grandes personalidades; *nanu*—pero; *roṣa-dṛṣṭyā*—mediante una mirada furiosa; *roṣam*—ira; *dahantam*—estando dominado; *uta*—si bien; *te*—ellos; *na*—no pueden; *dahanti*—subyugar; *asahyam*—intolerable; *saḥ*—eso; *ayam*—Él; *yat*—debido; *antaram*—dentro; *alam*—sin embargo; *praviśan*—entrando; *bibheti*—siente temor de; *kāmaḥ*—lujuria; *katham*—cómo; *nu*—como un hecho cierto; *punaḥ*—de nuevo; *asya*—Su; *manaḥ*—mente; *śrayeta*—refugiarse en.
+*kāmam*—lujuria; *dahanti*—castiga; *kṛtinaḥ*—grandes personalidades; *nanu*—pero; *roṣa-dṛṣṭyā*—mediante una mirada furiosa; *roṣam*—ira; *dahantam*—estando dominado; *uta*—si bien; *te*—ellos; *na*—no pueden; *dahanti*—subyugar; *asahyam*—intolerable; *saḥ*—eso; *ayam*—Él; *yat*—debido; *antaram*—dentro; *alam*—sin embargo; *praviśan*—entrando; *bibheti*—siente temor de; *kāmaḥ*—lujuria; *katham*—cómo; *nu*—como un hecho cierto; *punaḥ*—de nuevo; *asya*—Su; *manaḥ*—mente; *śrayeta*—refugiarse en.
 
 **Grandes paladines como el Señor Śiva pueden, con su iracunda mirada, superar la lujuria y vencerla, mas no pueden liberarse de los avasalladores efectos de su propia ira. Esa ira jamás puede entrar en el corazón de Aquel [el Señor], que está por encima de todo esto. Así pues, ¿cómo puede la lujuria refugiarse en Su mente?**
 

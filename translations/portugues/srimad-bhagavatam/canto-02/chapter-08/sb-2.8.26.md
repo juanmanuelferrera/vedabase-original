@@ -11,7 +11,7 @@ brahmann anaśanād amī
 
 *tad vākyābdhi*-viniḥsṛtam
 
-*na*—jamais; *me*—meu; *asavaḥ*—a vida; *parāyanti*—se esgota; *brahman*—ó erudito *brāhmaṇa*; *anaśanāt amī*—por causa do jejum; *pibataḥ*—por causa de estar bebendo; *acyuta*—do infalível; *pīyūṣam*—néctar; *tat*—vosso; *vākya-abdhi*—oceano de discurso; *viniḥsṛtam*—fluindo de.
+*na*—jamais; *me*—meu; *asavaḥ*—a vida; *parāyanti*—se esgota; *brahman*—ó erudito *brāhmaṇa*; *anaśanāt amī*—por causa do jejum; *pibataḥ*—por causa de estar bebendo; *acyuta*—o infalível; *pīyūṣam*—néctar; *tat*—vosso; *vākya-abdhi*—oceano de discurso; *viniḥsṛtam*—fluindo de.
 
 **Ó erudito brāhmaṇa, por beber o néctar da mensagem da infalível Personalidade de Deus, que flui do oceano de teus discursos, não sinto nenhuma espécie de exaustão devido ao meu jejum.**
 

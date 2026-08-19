@@ -8,7 +8,7 @@
 > bibharmi tapasā viśvaṁ\
 > vīryaṁ me duścaraṁ tapaḥ
 
-*sṛjāmi*—Yo creo; *tapasā*—mediante la misma energía de la penitencia; *eva*—ciertamente; *idam*—este; *grasāmi tapasā*—Yo también retiro mediante la misma energía; *punaḥ*—otra vez; *bibharmi*—mantengo; *tapasā*—mediante la penitencia; *viśvam*—el cosmos; *vīryam*—potencia; *me*—Mi; *duścaram*—severa; *tapaḥ*—penitencia.
+*sṛjāmi*—Yo creo; *tapasā*—mediante la misma energía de la penitencia; *eva*—ciertamente; *idam*—este; *grasāmi tapasā*—Yo también retiro mediante la misma energía; *punaḥ*—otra vez; *bibharmi*—mantengo; *tapasā*—mediante la penitencia; *viśvam*—el cosmos; *vīryam*—potencia; *me*—Mío; *duścaram*—severa; *tapaḥ*—penitencia.
 
 **Yo creo este cosmos mediante dicha penitencia, Yo lo mantengo mediante la misma energía, y Yo lo retiro todo mediante la misma energía. Por lo tanto, solo la penitencia constituye el poder potencial.**
 

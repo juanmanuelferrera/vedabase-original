@@ -8,7 +8,7 @@
 > pibato 'cyuta-pīyūṣam\
 > tad vākyābdhi-viniḥsṛtam
 
-*na*—nunca; *me*—mía; *asavaḥ*—vida; *parāyanti*—queda agotada; *brahman*—¡oh, *brāhmaṇa* erudito!; *anaṣanāt amī*—por ayunar; *pibataḥ*—por mi acción de beber; *acyuta*—del Infalible; *pīyūṣam*—néctar; *tat*—tu; *vākya-abdhi*—océano de habla; *viniḥsṛtam*—fluyendo hacia abajo desde.
+*na*—nunca; *me*—mía; *asavaḥ*—vida; *parāyanti*—queda agotada; *brahman*—¡oh, *brāhmaṇa* erudito!; *anaṣanāt amī*—por ayunar; *pibataḥ*—por mi acción de beber; *acyuta*—el Infalible; *pīyūṣam*—néctar; *tat*—tu; *vākya-abdhi*—océano de habla; *viniḥsṛtam*—fluyendo hacia abajo desde.
 
 **¡Oh erudito brāhmaṇa!, debido a que bebo el néctar del mensaje de la infalible Personalidad de Dios, que fluye del océano de tus discursos, no siento ningún tipo de agotamiento a causa de mi ayuno.**
 

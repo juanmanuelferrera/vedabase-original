@@ -12,7 +12,7 @@
 pītāṁśukaṁ vakṣasi lakṣitaṁ śriyā
 
 *Sinônimos
-bhṛtya*—o servitor; *prasāda*—afeição; *abhimukham*—voltado favoravelmente; *dṛk*—a própria visão; *āsavam*—uma intoxicação; *prasanna*—muito satisfeito; *hāsa*—sorriso; *aruṇa*—avermelhado; *locana*—olhos; *ānanam*—face; *kirīṭinam*—com capacete; *kuṇḍalinam*—com brincos; *catuḥ-bhujam*—com quatro mãos; *pīta*—amarelo; *aṁśukam*—vestido; *vakṣasi*—no peito; *lakṣitam*—marcado; *śriyā*—com a deusa da fortuna.
+bhṛtya*—o servitor; *prasāda*—afeição; *abhimukham*—voltado favoravelmente; *dṛk*—a própria visão; *āsavam*—uma intoxicação; *prasanna*—muito satisfeito; *hāsa*—sorriso; *aruṇa*—avermelhado; *locana*—olhos; *ānanam*—face; *kirīṭinam*—com capacete; *kuṇḍalinam*—com brincos; *catuḥ-bhujam*—com quatro mãos; *pīta*—amarelo; *aṁśukam*—vestido; *vakṣasi*—no peito; *lakṣitam*—marcado com; *śriyā*—com a deusa da fortuna.
 
 **A Personalidade de Deus, vista inclinando-Se favoravelmente para com Seus amorosos servitores, Sua própria visão intoxicante e atraente, parecia estar muito satisfeita. Tinha um rosto sorridente decorado com um encantador tom avermelhado. Estava vestido com roupas amarelas e usava brincos e um capacete na cabeça. Tinha quatro mãos, e Seu peito estava marcado com as linhas da deusa da fortuna.**
 

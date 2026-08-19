@@ -8,7 +8,7 @@
 > sunanda-nanda-prabalārhaṇādibhiḥ\
 > sva-pārṣadāgraiḥ parisevitaṁ vibhum
 
-*dadarśa*—Brahmā vio; *tatra*—ahí (en Vaikuṇṭhaloka); *akhila*—entero; *sātvatām*—de los grandes devotos; *patim*—el Señor; *śriyaḥ*—la diosa de la fortuna; *patim*—el Señor; *yajña*—del sacrificio; *patim*—el Señor; *jagat*—del universo; *patim*—el Señor; *sunanda*—Sunanda; *nanda*—Nanda; *prabala*—Prabala; *arhaṇa*—Arhana; *ādibhiḥ*—por ellos; *sva-pārṣada*—asociados propios; *agraiḥ*—por los principales; *parisevitam*—siendo servido con amor trascendental; *vibhum*—el gran Todopoderoso.
+*dadarśa*—Brahmā vio; *tatra*—ahí (en Vaikuṇṭhaloka); *akhila*—entero; *sātvatām*—de los grandes devotos; *patim*—el Señor; *śriyaḥ*—la diosa de la fortuna; *patim*—el Señor; *yajña*—sacrificio; *patim*—el Señor; *jagat*—el universo; *patim*—el Señor; *sunanda*—Sunanda; *nanda*—Nanda; *prabala*—Prabala; *arhaṇa*—Arhana; *ādibhiḥ*—por ellos; *sva-pārṣada*—asociados propios; *agraiḥ*—por los principales; *parisevitam*—siendo servido con amor trascendental; *vibhum*—el gran Todopoderoso.
 
 **El Señor Brahmā vio en el planeta Vaikuṇṭha a la Personalidad de Dios, quien es el Señor de toda la comunidad de devotos, el Señor de la diosa de la fortuna, el Señor de todos los sacrificios y el Señor del universo, y a quien sirven los principales servidores, como Nanda, Sunanda, Prabala y Arhaṇa, Sus asociados más íntimos.**
 

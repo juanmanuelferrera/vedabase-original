@@ -8,7 +8,7 @@
 > kirīṭinaṁ kuṇḍalinaṁ catur-bhujaṁ\
 > pītāṁśukaṁ vakṣasi lakṣitaṁ śriyā
 
-*bhṛtya*—el servidor; *prasāda*—afecto; *abhimukham*—encarando favorablemente; *dṛk*—la sola vista; *āsavam*—una embriaguez; *prasanna*—muy complacido; *hāsa*—risa; *aruṇa*—rojiza; *locana*—ojos; *ānanam*—cara; *kirīṭinam*—con yelmo; *kuṇḍalinam*—con zarcillos; *catuḥ-bhujam*—con cuatro manos; *pīta*—amarilla; *aṁśukam*—vestimenta; *vakṣasi*—en el pecho; *lakṣitam*—marcado; *śriyā*—con la diosa de la fortuna.
+*bhṛtya*—el servidor; *prasāda*—afecto; *abhimukham*—encarando favorablemente; *dṛk*—la sola vista; *āsavam*—una embriaguez; *prasanna*—muy complacido; *hāsa*—risa; *aruṇa*—rojiza; *locana*—ojos; *ānanam*—cara; *kirīṭinam*—con yelmo; *kuṇḍalinam*—con zarcillos; *catuḥ-bhujam*—con cuatro manos; *pīta*—amarilla; *aṁśukam*—vestimenta; *vakṣasi*—en el pecho; *lakṣitam*—marcado con; *śriyā*—con la diosa de la fortuna.
 
 **La Personalidad de Dios, a quien se observa inclinándose favorablemente hacia Sus amorosos servidores y cuya sola vista es embriagante y atractiva, parecía estar muy satisfecho. Él tenía una cara sonriente, adornada con un encantador matiz rojizo, vestía prendas amarillas, y llevaba zarcillos y un yelmo en la cabeza. Él tenía cuatro manos, y Su pecho estaba marcado con las líneas de la diosa de la fortuna.**
 

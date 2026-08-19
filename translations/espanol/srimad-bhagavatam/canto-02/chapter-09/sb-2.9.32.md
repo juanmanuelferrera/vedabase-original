@@ -8,7 +8,7 @@
 > tathaiva tattva-vijñānam\
 > astu te mad-anugrahāt
 
-*yāvān*—tal como me encuentro en una forma eterna; *aham*—Yo; *yathā*—tanto como; *bhāvaḥ*—existencia trascendental; *yat*—esas; *rūpa*—diversas formas y colores; *guṇa*—cualidades; *karmakaḥ*—actividades; *tathā*—así; *eva*—ciertamente; *tattva-vijñānam*—comprensión verdadera; *astu*—que sea; *te*—a ti; *mat*—Mía; *anugrahāt*—por misericordia sin causa.
+*yāvān*—tal como me encuentro en una forma eterna; *aham*—Yo; *yathā*—tanto como; *bhāvaḥ*—existencia trascendental; *yat*—esas; *rūpa*—diversas formas y colores; *guṇa*—cualidades; *karmakaḥ*—actividades; *tathā*—así; *eva*—ciertamente; *tattva-vijñānam*—comprensión verdadera; *astu*—que sea para ti; *te*—a ti; *mat*—Mía; *anugrahāt*—por misericordia sin causa.
 
 **Todo lo que soy, a saber, Mi verdadera forma eterna, Mi existencia trascendental, color, cualidades y actividades, que todo ello despierte dentro de ti mediante la comprensión real, por Mi misericordia sin causa.**
 

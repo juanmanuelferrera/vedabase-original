@@ -8,7 +8,7 @@
 > nehamānaḥ prajā-sargaṁ\
 > badhyeyaṁ yad-anugrahāt
 
-*bhagavat*—por la personalidad de Dios; *śikṣitam*—enseñado; *aham*—yo; *karavāṇi*—por actuar; *hi*—ciertamente; *atandritaḥ*—instrumento; *na*—nunca; *ihamānaḥ*—a pesar de actuar; *prajā-sargam*—generación de las entidades vivientes; *badhyeyam*—estar condicionado; *yat*—como un hecho cierto; *anugrahāt*—por la misericordia de.
+*bhagavat*—por la personalidad de Dios; *śikṣitam*—enseñado; *aham*—yo; *karavāṇi*—esté actuando; *hi*—ciertamente; *atandritaḥ*—instrumento; *na*—nunca; *ihamānaḥ*—a pesar de actuar; *prajā-sargam*—generación de las entidades vivientes; *badhyeyam*—estar condicionado; *yat*—como un hecho cierto; *anugrahāt*—por la misericordia de.
 
 **Te ruego que me lo digas, para que la instrucción de la Personalidad de Dios me enseñe al respecto, y así pueda yo actuar de manera instrumental para generar entidades vivientes, sin quedar condicionado por tales actividades.**
 

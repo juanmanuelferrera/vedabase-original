@@ -12,7 +12,7 @@ taṁ prīyamāṇaṁ samupasthitaṁ kaviṁ
 *priyaḥ priyaṁ prīta*-manāḥ kare spṛśan
 
 *Sinônimos
-tam*—ao Senhor Brahmā; *prīyamāṇam*—digno de ser querido; *samupasthitam*—presente diante; *kavim*—o grande erudito; *prajā*—entidades vivas; *visarge*—na questão da criação; *nija*—Seu próprio; *śāsana*—controle; *arhaṇam*—exatamente adequado; *babhāṣe*—dirigiu-se; *īṣat*—levemente; *smita*—sorrindo; *śociṣā*—com iluminante; *girā*—palavras; *priyaḥ*—o amado; *priyam*—a contraparte do amor; *prīta-manāḥ*—estando muito satisfeito; *kare*—pela mão; *spṛśan*—apertando.
+tam*—ao Senhor Brahmā; *prīyamāṇam*—digno de ser querido; *samupasthitam*—presente diante; *kavim*—o grande erudito; *prajā*—entidades vivas; *visarge*—na questão da criação; *nija*—Seu próprio; *śāsana*—controle; *arhaṇam*—exatamente adequado; *babhāṣe*—dirigiu-se; *īṣat*—levemente; *smita*—sorrindo; *śociṣā*—iluminante; *girā*—palavras; *priyaḥ*—o amado; *priyam*—a contraparte do amor; *prīta-manāḥ*—estando muito satisfeito; *kare*—pela mão; *spṛśan*—apertando.
 
 **E vendo Brahmā presente diante Dele, o Senhor o aceitou como digno de criar entidades vivas, a serem controladas conforme Sua vontade, e assim, muito satisfeito com ele, o Senhor apertou a mão de Brahmā e, levemente sorrindo, dirigiu-se a ele desta forma.**
 

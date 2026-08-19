@@ -8,7 +8,7 @@
 > rameta gata-sammohas\
 > tyaktvodāste tadobhayam
 
-*yarhi*—en cualquier momento; *vāva*—ciertamente; *mahimni*—en la gloria; *sve*—de sí mismo; *parasmin*—en el Supremo; *kāla*—tiempo; *māyayoḥ*—de la energía material; *rameta*—disfruta; *gata-sammohaḥ*—liberándose de la errónea concepción; *tyaktvā*—abandonando; *udāste*—plenamente; *tadā*—entonces; *ubhayam*—ambas (las erróneas concepciones de yo y mío).
+*yarhi*—en cualquier momento; *vāva*—ciertamente; *mahimni*—en la gloria; *sve*—de sí mismo; *parasmin*—en el Supremo; *kāla*—tiempo; *māyayoḥ*—así como la energía material; *rameta*—disfruta; *gata-sammohaḥ*—liberándose de la errónea concepción; *tyaktvā*—abandonando; *udāste*—plenamente; *tadā*—eso; *ubhayam*—ambas (las erróneas concepciones de yo y mío).
 
 **Tan pronto como la entidad viviente se sitúa en su gloria constitucional y comienza a disfrutar de la trascendencia que está más allá del tiempo y la energía material, de inmediato abandona las dos concepciones erróneas de la vida [yo y mío] y, de ese modo, se manifiesta plenamente como el ser puro.**
 

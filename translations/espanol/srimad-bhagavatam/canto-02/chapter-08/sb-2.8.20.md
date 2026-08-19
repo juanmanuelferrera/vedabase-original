@@ -8,7 +8,7 @@
 > vedopaveda-dharmāṇām\
 > itihāsa-purāṇayoḥ
 
-*yoga-īśvara*—del amo de los poderes místicos; *aiśvarya*—opulencia; *gatiḥ*—avance; *liṅga*—cuerpo astral; *bhaṅgaḥ*—desapego; *tu*—pero; *yoginām*—de los místicos; *veda*—conocimiento trascendental; *upaveda*—conocimiento que sigue indirectamente el *Veda*; *dharmānām*—de las religiosidades; *itihāsa*—historia; *purāṇayoḥ*—de los *Purāṇas*.
+*yoga-īśvara*—el amo de los poderes místicos; *aiśvarya*—opulencia; *gatiḥ*—avance; *liṅga*—cuerpo astral; *bhaṅgaḥ*—desapego; *tu*—pero; *yoginām*—de los místicos; *veda*—conocimiento trascendental; *upaveda*—conocimiento que sigue indirectamente el *Veda*; *dharmānām*—de las religiosidades; *itihāsa*—historia; *purāṇayoḥ*—de los *Purāṇas*.
 
 **¿Cuáles son las opulencias de los grandes místicos, y cuál es la comprensión última de estos? ¿Cómo se desapega del cuerpo astral sutil el místico perfecto? ¿Cuál es el conocimiento básico de las Escrituras védicas, entre ellas, las ramas de la historia y los Purāṇas suplementarios?**
 

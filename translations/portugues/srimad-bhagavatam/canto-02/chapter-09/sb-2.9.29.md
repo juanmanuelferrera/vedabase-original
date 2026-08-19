@@ -12,7 +12,7 @@ karavāṇi hy atandritaḥ
 *badhyeyaṁ yad*-anugrahāt
 
 *Sinônimos
-bhagavat*—pela Personalidade de Deus; *śikṣitam*—ensinado; *aham*—eu mesmo; *karavāṇi*—ao agir; *hi*—certamente; *atandritaḥ*—instrumental; *na*—jamais; *ihamānaḥ*—embora agindo; *prajā-sargam*—geração das entidades vivas; *badhyeyam*—ser condicionado; *yat*—de fato; *anugrahāt*—pela misericórdia de.
+bhagavat*—pela Personalidade de Deus; *śikṣitam*—ensinado; *aham*—eu mesmo; *karavāṇi*—esteja agindo; *hi*—certamente; *atandritaḥ*—instrumental; *na*—jamais; *ihamānaḥ*—embora agindo; *prajā-sargam*—geração das entidades vivas; *badhyeyam*—ser condicionado; *yat*—de fato; *anugrahāt*—pela misericórdia de.
 
 **Por favor, fala-me, para que eu possa ser instruído na matéria pela instrução da Personalidade de Deus, e assim eu possa atuar instrumentalmente para gerar entidades vivas, sem ser condicionado por tais atividades.**
 

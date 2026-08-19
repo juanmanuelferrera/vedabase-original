@@ -12,7 +12,7 @@
 *praveka*-niṣkābharaṇāḥ suvarcasaḥ
 
 *Sinônimos
-śyāma*—azul-celeste; *avadātāḥ*—resplandecentes; *śata-patra*—flor de lótus; *locanāḥ*—olhos; *piśaṅga*—amarelado; *vastrāḥ*—vestimentas; *su-rucaḥ*—muito atraentes; *su-peśasaḥ*—com juventude crescente; *sarve*—todos eles; *catuḥ*—quatro; *bāhavaḥ*—mãos; *unmiṣan*—brilho crescente; *maṇi*—pérolas; *praveka*—qualidade superior; *niṣka-ābharaṇāḥ*—medalhões ornamentais; *su-varcasaḥ*—resplandecentes.
+śyāma*—azul-celeste; *avadātāḥ*—resplandecentes; *śata-patra*—flor de lótus; *locanāḥ*—olhos; *piśaṅga*—amarelado; *vastrāḥ*—vestimentas; *su-rucaḥ*—muito atraentes; *su-peśasaḥ*—com juventude crescente; *sarve*—todos eles; *catuḥ*—quatro; *bāhavaḥ*—mãos; *unmiṣan*—brilho crescente; *maṇi*—pérolas; *praveka*—qualidade superior; *niṣka-ābharaṇāḥ*—medalhão ornamental; *su-varcasaḥ*—resplandecentes.
 
 **Os habitantes dos planetas Vaikuṇṭha são descritos como tendo uma reluzente compleição azul-celeste. Seus olhos assemelham-se à flor de lótus, suas vestes são de cor amarelada e seus traços corporais muito atraentes. Estão exatamente na idade de jovens em crescimento, todos têm quatro mãos, estão todos primorosamente adornados com colares de pérolas com medalhões ornamentais, e todos parecem ser refulgentes.**
 

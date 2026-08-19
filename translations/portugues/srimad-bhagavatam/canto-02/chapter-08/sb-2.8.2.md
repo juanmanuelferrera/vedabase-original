@@ -11,7 +11,7 @@ etad veditum icchāmi
 
 *kathā loka*-sumaṅgalāḥ
 
-*etat*—isto; *veditum*—para compreender; *icchāmi*—desejo; *tattvam*—a verdade; *tattva-vidām*—daqueles que são versados na Verdade Absoluta; *vara*—ó melhor; *hareḥ*—do Senhor; *adbhuta-vīryasya*—daquele que possui potências maravilhosas; *kathāḥ*—narrações; *loka*—para todos os planetas; *su-maṅgalāḥ*—auspiciosas.
+*etat*—isto; *veditum*—para compreender; *icchāmi*—desejo; *tattvam*—a verdade; *tattva-vidām*—daqueles que são versados na Verdade Absoluta; *vara*—o grande; *hareḥ*—do Senhor; *adbhuta-vīryasya*—daquele que possui potências maravilhosas; *kathāḥ*—narrações; *loka*—para todos os planetas; *su-maṅgalāḥ*—auspiciosas.
 
 **O Rei disse: Desejo compreender. As narrações sobre o Senhor, que possui potências maravilhosas, são certamente auspiciosas para as entidades vivas em todos os planetas.**
 

@@ -12,7 +12,7 @@ yarhi vāva mahimni sve
 tyaktvodāste tadobhayam
 
 *Sinônimos
-yarhi*—em qualquer momento; *vāva*—certamente; *mahimni*—na glória; *sve*—de si mesmo; *parasmin*—no Supremo; *kāla*—tempo; *māyayoḥ*—da energia material; *rameta*—desfruta; *gata-sammohaḥ*—estando liberto da concepção equivocada; *tyaktvā*—abandonando; *udāste*—em plenitude; *tadā*—então; *ubhayam*—ambos (as concepções equivocadas de eu e meu).
+yarhi*—em qualquer momento; *vāva*—certamente; *mahimni*—na glória; *sve*—de si mesmo; *parasmin*—no Supremo; *kāla*—tempo; *māyayoḥ*—assim como a energia material; *rameta*—desfruta; *gata-sammohaḥ*—estando liberto da concepção equivocada; *tyaktvā*—abandonando; *udāste*—em plenitude; *tadā*—isso; *ubhayam*—ambos (as concepções equivocadas de eu e meu).
 
 **Tão logo a entidade viva se situa em sua glória constitucional e começa a desfrutar a transcendência além do tempo e da energia material, ela imediatamente abandona os dois equívocos da vida [eu e meu] e, assim, manifesta-se plenamente como o eu puro.**
 

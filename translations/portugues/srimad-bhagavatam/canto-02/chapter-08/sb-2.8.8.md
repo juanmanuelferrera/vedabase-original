@@ -16,7 +16,7 @@ tāvān asāv iti proktaḥ
 
 saṁsthāvayavavān iva
 
-*āsīt*—como cresceu; *yat-udarāt*—de cujo abdômen; *padmam*—a flor de lótus; *loka*—mundo; *saṁsthāna*—situação; *lakṣaṇam*—dotado de; *yāvān*—como se fosse; *ayam*—este; *vai*—certamente; *puruṣaḥ*—a Suprema Personalidade de Deus; *iyattā*—medida; *avayavaiḥ*—por encarnações; *pṛthak*—diferente; *tāvān*—assim; *asau*—aquele; *iti proktaḥ*—assim se diz; *saṁsthā*—situação; *avayavavān*—encarnação; *iva*—como.
+*āsīt*—como cresceu; *yat-udarāt*—de cujo abdômen; *padmam*—a flor de lótus; *loka*—mundo; *saṁsthāna*—situação; *lakṣaṇam*—dotado de; *yāvān*—como se fosse; *ayam*—este; *vai*—certamente; *puruṣaḥ*—a Suprema Personalidade de Deus; *iyattā*—medida; *avayavaiḥ*—por encarnação; *pṛthak*—diferente; *tāvān*—assim; *asau*—aquele; *iti proktaḥ*—assim se diz; *saṁsthā*—situação; *avayavavān*—encarnação; *iva*—como.
 
 **Se a Suprema Personalidade de Deus, de cujo abdômen brotou o caule de lótus, possui um corpo gigantesco, segundo Seu próprio calibre e medida, então qual é a diferença específica entre o corpo do Senhor e os das demais entidades vivas comuns?**
 
