@@ -10,7 +10,7 @@
 > kalita-śyāmā-lalito\
 > rādhā-preyān vidhur jayati
 
-*akhila-rasa-amṛta-mūrtiḥ*—el reservorio de todo placer, en el cual existen todos los rasas del servicio devocional, a saber, śānta, dāsya, sakhya, vātsalya y mādhurya; *prasṛmara*—que se expande; *ruci*—mediante Su resplandor corporal; *ruddha*—que ha subyugado; *tārakā*—la gopī llamada Tārakā; *pāliḥ*—la gopī llamada Pāli; *kalita*—que ha absorbido las mentes de; *śyāmā*—la gopī llamada Śyāmā; *lalitaḥ*—y la gopī llamada Lalitā; *rādhā-preyān*—el más querido de Śrīmatī Rādhārāṇī; *vidhuḥ*—Kṛṣṇa, la Suprema Personalidad de Dios; *jayati*—¡todas las glorias!.
+*akhila-rasa-amṛta-mūrtiḥ*—el reservorio de todo placer, en el cual existen todos los rasas del servicio devocional, a saber, śānta, dāsya, sakhya, vātsalya y mādhurya; *prasṛmara*—que se expande; *ruci*—mediante Su resplandor corporal; *ruddha*—que ha subyugado; *tārakā*—la gopī llamada Tārakā; *pāliḥ*—la gopī llamada Pāli; *kalita*—que ha absorbido; *śyāmā*—la gopī llamada Śyāmā; *lalitaḥ*—y la gopī llamada Lalitā; *rādhā-preyān*—el más querido de Śrīmatī Rādhārāṇī; *vidhuḥ*—Kṛṣṇa, la Suprema Personalidad de Dios; *jayati*—¡todas las glorias!.
 
 **«¡Que sea glorificado *Kṛṣṇa, la Suprema Personalidad de Dios*! En virtud de Sus rasgos atractivos en expansión, Él subyugó a las gopīs llamadas Tārakā y Pāli, y absorbió las mentes de Śyāmā y Lalitā. Él es el amante más atractivo de Śrīmatī Rādhārāṇī y es el reservorio de placer para los devotos en todos los rasas devocionales».**
 
