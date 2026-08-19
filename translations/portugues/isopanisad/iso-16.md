@@ -12,7 +12,7 @@ tejo yat te rūpaṁ kalyāṇa-tamaṁ
 
 tat te paśyāmi yo 'sāv asau puruṣaḥ so 'ham asmi
 
-*pūṣan*—ó sustentador!; *eka-ṛṣe*—o filósofo primordial; *yama*—o princípio regulador; *sūrya*—o destino dos sūris (grandes devotos); *prājāpatya*—o benquerente dos prajāpatis (progenitores da humanidade); *vyūha*—digna-Te a retirar; *raśmīn*—os raios; *samūha*—digna-Te a recolher; *tejaḥ*—refulgência; *yat*—de modo que; *te*—Tua; *rūpam*—forma; *kalyāṇa-tamam*—a mais auspiciosa; *tat*—essa; *te*—Tua; *paśyāmi*—possa eu contemplar; *yaḥ*—aquele que é; *asau*—como o sol; *asau*—essa; *puruṣaḥ*—Personalidade de Deus; *saḥ*—eu mesmo; *aham*—eu; *asmi*—sou.
+*pūṣan*—ó sustentador!; *eka-ṛṣe*—o filósofo primordial; *yama*—o princípio regulador; *sūrya*—o destino dos sūris (grandes devotos); *prājāpatya*—o benquerente dos prajāpatis (progenitores da humanidade); *vyūha*—digna-Te a dispor; *raśmīn*—os raios; *samūha*—recolhe; *tejaḥ*—refulgência; *yat*—de modo que; *te*—Tua; *rūpam*—forma; *kalyāṇa-tamam*—a mais auspiciosa; *tat*—essa; *te*—Tua; *paśyāmi*—possa eu contemplar; *yaḥ*—aquele que é; *asau*—o sol; *asau*—essa; *puruṣaḥ*—Personalidade de Deus; *saḥ*—eu mesmo; *aham*—eu; *asmi*—sou.
 
 **Ó meu Senhor, ó Filósofo primordial, Mantenedor do universo, ó Princípio regulador, Destino dos devotos puros, Benquerente dos progenitores da humanidade, por favor, remove a refulgência de Teus raios transcendentais, para que eu possa ver Tua Forma de Bem-aventurança. Tu és a eterna Suprema Personalidade de Deus, tal qual o Sol, assim como eu.**
 

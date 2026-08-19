@@ -8,7 +8,7 @@
 > tāṁs te pretyābhigacchanti\
 > ye ke cātma-hano janāḥ
 
-*asuryāḥ*—destinados a los asuras; *nāma*—célebres por ese nombre; *te*—esos; *lokāḥ*—planetas; *andhena*—por la ignorancia; *tamasā*—por la oscuridad; *āvṛtāḥ*—cubiertos; *tān*—esos planetas; *te*—ellos; *pretya*—después de la muerte; *abhigacchanti*—entran en; *ye*—quienquiera; *ke*—todos; *ca*—y; *ātma-hanaḥ*—los asesinos del alma; *janāḥ*—personas.
+*asuryāḥ*—destinados a los asuras; *nāma*—célebres por ese nombre; *te*—esos; *lokāḥ*—planetas; *andhena*—por la ignorancia; *tamasā*—por la oscuridad; *āvṛtāḥ*—cubiertos; *tān*—allí; *te*—ellos; *pretya*—después de la muerte; *abhigacchanti*—entran en; *ye*—quienquiera; *ke*—todos; *ca*—y; *ātma-hanaḥ*—el asesino del alma; *janāḥ*—personas.
 
 **El asesino del alma, quienquiera que sea, debe entrar en los planetas conocidos como los mundos de los infieles, llenos de oscuridad e ignorancia.**
 

@@ -8,7 +8,7 @@
 > tat tvaṁ pūṣann apāvṛṇu\
 > satya-dharmāya dṛṣṭaye
 
-*hiraṇmayena*—por una refulgencia dorada; *pātreṇa*—por una cubierta deslumbrante; *satyasya*—de la Verdad Suprema; *apihitam*—cubierto; *mukham*—el rostro; *tat*—esa cubierta; *tvam*—Tú mismo; *pūṣan*—¡oh sustentador!; *apāvṛṇu*—dígnate retirar; *satya*—puro; *dharmāya*—al devoto; *dṛṣṭaye*—para mostrar.
+*hiraṇmayena*—por una refulgencia de luz; *pātreṇa*—por una cubierta deslumbrante; *satyasya*—de la Verdad Suprema; *apihitam*—cubierto; *mukham*—el rostro; *tat*—esa cubierta; *tvam*—Tú mismo; *pūṣan*—¡oh sustentador!; *apāvṛṇu*—dígnate retirar; *satya*—puro; *dharmāya*—al devoto; *dṛṣṭaye*—para mostrar.
 
 **¡Oh mi Señor, sustentador de todo lo que vive! Tu verdadero rostro está cubierto por Tu deslumbrante refulgencia. Dígnate retirar esa cubierta y manifiéstate ante Tu devoto puro.**
 

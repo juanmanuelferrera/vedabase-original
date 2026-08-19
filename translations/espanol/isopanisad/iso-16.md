@@ -9,7 +9,7 @@
 > tejo yat te rūpaṁ kalyāṇa-tamaṁ\
 > tat te paśyāmi yo 'sāv asau puruṣaḥ so 'ham asmi
 
-*pūṣan*—¡oh sustentador!; *eka-ṛṣe*—el filósofo primigenio; *yama*—el principio regulador; *sūrya*—el destino de los sūris (grandes devotos); *prājāpatya*—el bienqueriente de los prajāpatis (progenitores de la humanidad); *vyūha*—dígnate retirar; *raśmīn*—los rayos; *samūha*—dígnate recoger; *tejaḥ*—refulgencia; *yat*—de modo que; *te*—Tu; *rūpam*—forma; *kalyāṇa-tamam*—la más auspiciosa; *tat*—esa; *te*—Tu; *paśyāmi*—pueda yo contemplar; *yaḥ*—aquel que es; *asau*—como el sol; *asau*—esa; *puruṣaḥ*—Personalidad de Dios; *saḥ*—yo mismo; *aham*—yo; *asmi*—soy.
+*pūṣan*—¡oh sustentador!; *eka-ṛṣe*—el filósofo primigenio; *yama*—el principio regulador; *sūrya*—el destino de los sūris (grandes devotos); *prājāpatya*—el bienqueriente de los prajāpatis (progenitores de la humanidad); *vyūha*—dígnate disponer; *raśmīn*—los rayos; *samūha*—recoge; *tejaḥ*—refulgencia; *yat*—de modo que; *te*—Tu; *rūpam*—forma; *kalyāṇa-tamam*—la más auspiciosa; *tat*—esa; *te*—Tu; *paśyāmi*—pueda yo contemplar; *yaḥ*—aquel que es; *asau*—el sol; *asau*—esa; *puruṣaḥ*—Personalidad de Dios; *saḥ*—yo mismo; *aham*—yo; *asmi*—soy.
 
 **¡Oh, mi Señor!, ¡oh, Filósofo primordial, Sustentador del universo!, ¡oh, Principio regulador, Destino de los devotos puros, Bienqueriente de los progenitores de la humanidad!, por favor, retira la refulgencia de Tus rayos trascendentales para que pueda ver Tu Forma de Bienaventuranza. Tú eres la eterna Suprema Personalidad de Dios, semejante al Sol, como lo soy yo.**
 

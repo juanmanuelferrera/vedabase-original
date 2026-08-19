@@ -8,7 +8,7 @@
 > tad dhāvato 'nyān atyeti tiṣṭhat\
 > tasminn apo mātariśvā dadhāti
 
-*anejat*—fijo; *ekam*—uno; *manasaḥ*—que la mente; *javīyaḥ*—más veloz; *na*—no; *enat*—este Señor Supremo; *devāḥ*—los semidioses como Indra, etc.; *āpnuvan*—pueden aproximarse; *pūrvam*—delante; *arṣat*—moviéndose rápidamente; *tat*—Él; *dhāvataḥ*—los que corren; *anyān*—a otros; *atyeti*—sobrepasa; *tiṣṭhat*—permaneciendo en un lugar; *tasmin*—en Él; *apaḥ*—la lluvia; *mātariśvā*—los dioses que controlan el viento y la lluvia; *dadhāti*—suministran.
+*anejat*—fijo; *ekam*—uno; *manasaḥ*—que la mente; *javīyaḥ*—más veloz; *na*—no; *enat*—este Señor Supremo; *devāḥ*—los semidioses como Indra, etc.; *āpnuvan*—pueden aproximarse; *pūrvam*—el primero de todos; *arṣat*—aquel que lo sabe todo; *tat*—Él; *dhāvataḥ*—los que corren; *anyān*—a otros; *atyeti*—sobrepasa; *tiṣṭhat*—aunque situado; *tasmin*—en un lugar; *apaḥ*—el agua; *mātariśvā*—los dioses que controlan el viento y la lluvia; *dadhāti*—ejecutan.
 
 **La Personalidad de Dios, aunque está fija en Su morada, es más veloz que la mente y puede vencer a todos los que corren. Los poderosos semidioses no pueden acercarse a Él. Aunque está en un solo lugar, Él controla a quienes abastecen el aire y la lluvia. Él supera a todos en excelencia.**
 
