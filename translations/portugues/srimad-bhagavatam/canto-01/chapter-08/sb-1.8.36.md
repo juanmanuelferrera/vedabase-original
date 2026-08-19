@@ -11,7 +11,7 @@ ta eva paśyanty acireṇa tāvakaṁ
 
 *bhava*-pravāhoparamaṁ padāmbujam
 
-*śṛṇvanti*—ouvem; *gāyanti*—cantam; *gṛṇanti*—tomam; *abhīkṣṇaśaḥ*—continuamente; *smaranti*—lembram; *nandanti*—se alegram; *tava*—Vossas; *īhitam*—atividades; *janāḥ*—as pessoas em geral; *te*—eles; *eva*—certamente; *paśyanti*—podem ver; *acireṇa*—muito em breve; *tāvakam*—Vossos; *bhava-pravāha*—a corrente dos renascimentos; *uparamam*—cessação; *pada-ambujam*—pés de lótus.
+*śṛṇvanti*—ouvem; *gāyanti*—cantam; *gṛṇanti*—tomam; *abhīkṣṇaśaḥ*—continuamente; *smaranti*—lembra; *nandanti*—se alegra; *tava*—Vossas; *īhitam*—atividades; *janāḥ*—as pessoas em geral; *te*—eles; *eva*—certamente; *paśyanti*—podem ver; *acireṇa*—muito em breve; *tāvakam*—Vossos; *bhava-pravāha*—a corrente dos renascimentos; *uparamam*—cessação; *pada-ambujam*—pés de lótus.
 
 **Ó Kṛṣṇa, aqueles que continuamente ouvem, cantam e repetem Vossas atividades transcendentais, ou se alegram com o fato de outros as realizarem, certamente verão Vossos pés de lótus, que sozinhos podem deter a repetição do nascimento e da morte.**
 

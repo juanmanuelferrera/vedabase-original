@@ -11,7 +11,7 @@ vṛtaḥ prāpto 'nasūyayā
 
 prahlādādibhya ūcivān
 
-*ṣaṣṭham*—o sexto; *atreḥ*—de Atri; *apatyatvam*—filiação; *vṛtaḥ*—sendo pedido por meio de oração; *prāptaḥ*—obtido; *anasūyayā*—por Anasūyā; *ānvīkṣikīm*—sobre o tema da transcendência; *alarkāya*—a Alarka; *prahlāda-ādibhyaḥ*—a Prahlāda e outros; *ūcivān*—falou.
+*ṣaṣṭham*—o sexto; *atreḥ*—de Atri; *apatyatvam*—filiação; *vṛtaḥ*—sendo pedido por meio de oração; *prāptaḥ*—obtido; *anasūyayā*—por Anasūyā; *ānvīkṣikīm*—sobre o tema da transcendência; *alarkāya*—a Alarka; *prahlāda-ādibhyaḥ*—a Prahlāda, etc; *ūcivān*—falou.
 
 **A sexta encarnação do puruṣa foi o filho do sábio Atri. Ele nasceu do ventre de Anasūyā, que orou por uma encarnação. Ele falou sobre o tema da transcendência a Alarka, Prahlāda e outros [Yadu, Haihaya, etc.].**
 

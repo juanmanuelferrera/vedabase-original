@@ -11,7 +11,7 @@ avicyuto 'rthaḥ kavibhir nirūpito
 
 *yad*-uttamaśloka-guṇānuvarṇanam
 
-*idam*—este; *hi*—certamente; *puṁsaḥ*—de todos; *tapasaḥ*—por força de austeridades; *śrutasya*—por força do estudo dos Vedas; *vā*—ou; *sviṣṭasya*—sacrifício; *sūktasya*—educação espiritual; *ca*—e; *buddhi*—cultura do conhecimento; *dattayoḥ*—caridade; *avicyutaḥ*—infalível; *arthaḥ*—interesse; *kavibhiḥ*—por pessoas eruditas reconhecidas; *nirūpitaḥ*—concluído; *yat*—o que; *uttamaśloka*—o Senhor, que é descrito por poesia selecionada; *guṇa-anuvarṇanam*—descrição das qualidades transcendentais de.
+*idam*—este; *hi*—certamente; *puṁsaḥ*—de todos; *tapasaḥ*—por força de austeridades; *śrutasya*—por força do estudo dos Vedas; *vā*—ou; *sviṣṭasya*—sacrifício; *sūktasya*—educação espiritual; *ca*—e; *buddhi*—cultura do conhecimento; *dattayoḥ*—caridade; *avicyutaḥ*—infalível; *arthaḥ*—interesse; *kavibhiḥ*—pela pessoa erudita reconhecida; *nirūpitaḥ*—concluído; *yat*—o que; *uttamaśloka*—o Senhor, que é descrito por poesia selecionada; *guṇa-anuvarṇanam*—descrição das qualidades transcendentais de.
 
 **Os círculos eruditos concluíram positivamente que o propósito infalível do avanço do conhecimento, a saber, as austeridades, o estudo dos *Vedas*, o sacrifício, o canto de hinos e a caridade, culmina nas descrições transcendentais do Senhor, que é definido em poesia selecionada.**
 

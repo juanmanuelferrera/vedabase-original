@@ -11,7 +11,7 @@ sṛjaty avaty atti na sajjate 'smin
 
 *ṣāḍ*-vargikaṁ jighrati ṣaḍ-guṇeśaḥ
 
-*saḥ*—o Senhor Supremo; *vā*—alternativamente; *idam*—este; *viśvam*—universos manifestados; *amogha-līlaḥ*—aquele cujas atividades são imaculadas; *sṛjati*—cria; *avati atti*—mantém e aniquila; *na*—não; *sajjate*—é afetado; *asmin*—neles; *bhūteṣu*—em todas as entidades vivas; *ca*—também; *antarhitaḥ*—vivendo dentro; *ātma-tantraḥ*—independente de Si mesmo; *ṣāṭ-vargikam*—dotado de todas as potências de Suas opulências; *jighrati*—superficialmente ligado, como ao farejar uma fragrância; *ṣaṭ-guṇa-īśaḥ*—senhor dos seis sentidos.
+*saḥ*—o Senhor Supremo; *vā*—alternativamente; *idam*—este; *viśvam*—universos manifestados; *amogha-līlaḥ*—aquele cujas atividades são imaculadas; *sṛjati*—cria; *avati atti*—mantém e aniquila; *na*—não; *sajjate*—é afetado; *asmin*—neles; *bhūteṣu*—em todas as entidades vivas; *ca*—também; *antarhitaḥ*—vivendo dentro; *ātma-tantraḥ*—independente de Si mesmo; *ṣāṭ-vargikam*—dotado de todas as potências das seis opulências; *jighrati*—superficialmente ligado, como ao farejar uma fragrância; *ṣaṭ-guṇa-īśaḥ*—senhor dos seis sentidos.
 
 **O Senhor, cujas atividades são sempre imaculadas, é o senhor dos seis sentidos e é onipotente, pleno das seis opulências. Ele cria os universos manifestos, mantém-nos e aniquila-os sem ser nem no mínimo afetado. Ele está dentro de cada ser vivo e é sempre independente.**
 

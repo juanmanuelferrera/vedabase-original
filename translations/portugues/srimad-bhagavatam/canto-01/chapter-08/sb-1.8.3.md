@@ -8,7 +8,7 @@ dhṛtarāṣṭraṁ sahānujam
 gāndhārīṁ putra-śokārtāṁ
 pṛthāṁ kṛṣṇāṁ ca mādhavaḥ
 
-*tatra*—ali; *āsīnam*—sentado; *kuru-patim*—o rei dos Kurus; *dhṛtarāṣṭram*—Dhṛtarāṣṭra; *saha-anujam*—com seus irmãos mais novos; *gāndhārīm*—Gāndhārī; *putra-śoka-ārtām*—dominada pelo luto pelo filho; *pṛthām*—Kuntī; *kṛṣṇām*—Draupadī; *ca*—também; *mādhavaḥ*—o Senhor Śrī Kṛṣṇa.
+*tatra*—ali; *āsīnam*—sentado; *kuru-patim*—o rei dos Kurus; *dhṛtarāṣṭram*—Dhṛtarāṣṭra; *saha-anujam*—com seu irmão mais novo; *gāndhārīm*—Gāndhārī; *putra-śoka-ārtām*—dominada pelo luto pelo filho; *pṛthām*—Kuntī; *kṛṣṇām*—Draupadī; *ca*—também; *mādhavaḥ*—o Senhor Śrī Kṛṣṇa.
 
 **Ali, o rei dos Kurus, Mahārāja Yudhiṣṭhira, juntamente com seus irmãos mais novos, Dhṛtarāṣṭra, Gāndhārī, Kuntī, Draupadī e também o Senhor Kṛṣṇa, sentaram-se todos, sobrecarregados de pesar.**
 

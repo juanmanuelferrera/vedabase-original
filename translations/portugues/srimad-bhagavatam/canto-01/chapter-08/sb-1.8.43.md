@@ -11,7 +11,7 @@
 
 *yogeśvarākhila*-guro bhagavan namas te
 
-*śrī-kṛṣṇa*—ó Śrī Kṛṣṇa; *kṛṣṇa-sakha*—ó amigo de Arjuna; *vṛṣṇi*—dos descendentes de Vṛṣṇi; *ṛṣabha*—ó chefe; *avani*—a terra; *dhruk*—rebelde; *rājanya-vaṁśa*—dinastias dos reis; *dahana*—ó aniquilador; *anapavarga*—sem deterioração de; *vīrya*—bravura; *govinda*—ó proprietário de Golokadhāma; *go*—das vacas; *dvija*—os *brāhmaṇas*; *sura*—os semideuses; *arti-hara*—para aliviar o sofrimento; *avatāra*—ó Senhor que desce; *yoga-īśvara*—ó mestre de todos os poderes místicos; *akhila*—universal; *guro*—ó preceptor; *bhagavan*—ó possuidor de todas as opulências; *namaḥ te*—minhas respeitosas reverências a Vós.
+*śrī-kṛṣṇa*—ó Śrī Kṛṣṇa; *kṛṣṇa-sakha*—ó amigo de Arjuna; *vṛṣṇi*—dos descendentes de Vṛṣṇi; *ṛṣabha*—o chefe; *avani*—a terra; *dhruk*—rebelde; *rājanya-vaṁśa*—dinastias dos reis; *dahana*—ó aniquilador; *anapavarga*—sem deterioração de; *vīrya*—bravura; *govinda*—ó proprietário de Golokadhāma; *go*—das vacas; *dvija*—os *brāhmaṇas*; *sura*—os semideuses; *arti-hara*—para aliviar o sofrimento; *avatāra*—ó Senhor que desce; *yoga-īśvara*—ó mestre de todos os poderes místicos; *akhila*—universal; *guro*—ó preceptor; *bhagavan*—ó possuidor de todas as opulências; *namaḥ te*—minhas respeitosas reverências a Vós.
 
 **Ó Kṛṣṇa, ó amigo de Arjuna, ó chefe entre os descendentes de Vṛṣṇi, sois o destruidor dos partidos políticos que são elementos perturbadores nesta terra. Vossa bravura nunca se deteriora. Sois o proprietário da morada transcendental, e desceis para aliviar os sofrimentos das vacas, dos *brāhmaṇas* e dos devotos. Possuís todos os poderes místicos e sois o preceptor de todo o universo. Sois o Deus todo poderoso, e Vos ofereço minhas respeitosas reverências.**
 

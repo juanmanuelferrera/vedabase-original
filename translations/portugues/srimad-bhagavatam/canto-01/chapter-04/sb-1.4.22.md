@@ -11,7 +11,7 @@ sumantur dāruṇo muniḥ
 
 pitā me romaharṣaṇaḥ
 
-*atharva*—o Atharva Veda; *aṅgirasām*—ao ṛṣi Aṅgirā; *āsīt*—foi confiado; *sumantuḥ*—também conhecido como Sumantu Muni; *dāruṇaḥ*—seriamente dedicado ao Atharva Veda; *muniḥ*—o sábio; *itihāsa-purāṇānām*—dos registros históricos e dos Purāṇas; *pitā*—pai; *me*—meu; *romaharṣaṇaḥ*—o ṛṣi Romaharṣaṇa.
+*atharva*—o Atharva Veda; *aṅgirasām*—ao ṛṣi Aṅgirā; *āsīt*—foi confiado; *sumantuḥ*—também conhecido como Sumantu Muni; *dāruṇaḥ*—seriamente dedicado ao Atharva Veda; *muniḥ*—o sábio; *itihāsa-purāṇānām*—dos registros históricos, tais como os Purāṇas; *pitā*—pai; *me*—meu; *romaharṣaṇaḥ*—o ṛṣi Romaharṣaṇa.
 
 **Ao Sumantu Muni Aṅgirā, que se ocupava com grande devoção, confiou-se o Atharva-veda. E a meu pai Romaharṣaṇa confiaram-se os Purāṇas e os registros históricos.**
 

@@ -11,7 +11,7 @@ bhuvo nāva ivodadhau
 
 *jāto hy ātma*-bhuvārthitaḥ
 
-*bhāra-avatāraṇāya*—apenas para reduzir o fardo do mundo; *anye*—outros; *bhuvaḥ*—do mundo; *nāvaḥ*—barco; *iva*—como; *udadhau*—no mar; *sīdantyāḥ*—angustiado; *bhūri*—extremamente; *bhāreṇa*—pelo fardo; *jātaḥ*—Vós nascestes; *hi*—certamente; *ātma-bhuvā*—por Brahmā; *arthitaḥ*—sendo rogado.
+*bhāra-avatāraṇāya*—apenas para reduzir o fardo do mundo; *anye*—outros; *bhuvaḥ*—do mundo; *nāvaḥ*—barco; *iva*—assim como; *udadhau*—no mar; *sīdantyāḥ*—angustiado; *bhūri*—extremamente; *bhāreṇa*—pelo fardo; *jātaḥ*—Vós nasceis; *hi*—pois; *ātma-bhuvā*—Brahmā; *arthitaḥ*—sendo rogado.
 
 **Outros dizem que o mundo, estando sobrecarregado como um barco no mar, está muito aflito, e que Brahmā, que é Teu filho, orou a Ti, e por isso apareceste para diminuir a aflição.**
 

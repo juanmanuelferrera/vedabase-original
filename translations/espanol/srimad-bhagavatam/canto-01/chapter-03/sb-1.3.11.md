@@ -8,7 +8,7 @@
 > ānvīkṣikīm alarkāya\
 > prahlādādibhya ūcivān
 
-*ṣaṣṭham*—la sexta; *atreḥ*—de Atri; *apatyatvam*—filiación; *vṛtaḥ*—quien fue pedido mediante oraciones; *prāptaḥ*—obtuvo; *anasūyayā*—en Anasūyā; *ānvīkṣikīm*—acerca del tema de la trascendencia; *alarkāya*—a Alarka; *prahlāda-ādibhyaḥ*—a Prahlāda y otros; *ūcivān*—habló.
+*ṣaṣṭham*—la sexta; *atreḥ*—de Atri; *apatyatvam*—filiación; *vṛtaḥ*—quien fue pedido mediante oraciones; *prāptaḥ*—obtuvo; *anasūyayā*—en Anasūyā; *ānvīkṣikīm*—acerca del tema de la trascendencia; *alarkāya*—a Alarka; *prahlāda-ādibhyaḥ*—a Prahlāda, etc; *ūcivān*—habló.
 
 **La sexta encarnación del puruṣa fue el hijo del sabio Atri. Nació en el vientre de Anasūyā, quien rezó por una encarnación. Habló sobre el tema de la trascendencia a Alarka, Prahlāda y otros [Yadu, Haihaya, etc.].**
 

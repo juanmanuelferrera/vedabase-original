@@ -8,7 +8,7 @@
 > ta eva paśyanty acireṇa tāvakaṁ\
 > bhava-pravāhoparamaṁ padāmbujam
 
-*śṛṇvanti*—oyen; *gāyanti*—cantan; *gṛṇanti*—adoptan; *abhīkṣṇaśaḥ*—continuamente; *smaranti*—recuerdan; *nandanti*—se complacen; *tava*—Tus; *īhitam*—actividades; *janāḥ*—la gente en general; *te*—ellos; *eva*—ciertamente; *paśyanti*—pueden ver; *acireṇa*—muy pronto; *tāvakam*—Tus; *bhava-pravāha*—la corriente del renacer; *uparamam*—cese; *pada-ambujam*—pies de loto.
+*śṛṇvanti*—oyen; *gāyanti*—cantan; *gṛṇanti*—adoptan; *abhīkṣṇaśaḥ*—continuamente; *smaranti*—recuerda; *nandanti*—se complace; *tava*—Tus; *īhitam*—actividades; *janāḥ*—la gente en general; *te*—ellos; *eva*—ciertamente; *paśyanti*—pueden ver; *acireṇa*—muy pronto; *tāvakam*—Tus; *bhava-pravāha*—la corriente del renacer; *uparamam*—cese; *pada-ambujam*—pies de loto.
 
 **¡Oh, Kṛṣṇa!, aquellos que continuamente oyen, cantan y repiten las narraciones de Tus actividades trascendentales o se complacen cuando otros lo hacen, ven ciertamente Tus pies de loto, que son lo único que puede detener la repetición del nacimiento y la muerte.**
 

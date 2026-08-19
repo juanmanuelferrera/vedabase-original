@@ -11,7 +11,7 @@ rucer yajño 'bhyajāyata
 
 apāt svāyambhuvāntaram
 
-*tataḥ*—depois disso; *saptame*—o sétimo na linhagem; *ākūtyām*—no ventre de Ākūti; *ruceḥ*—pelo Prajāpati Ruci; *yajñaḥ*—a encarnação do Senhor como Yajña; *abhyajāyata*—adveio; *saḥ*—Ele; *yāma-ādyaiḥ*—com Yāma e outros; *sura-gaṇaiḥ*—com semideuses; *apāt*—governou; *svāyambhuva-antaram*—a mudança do período de Svāyambhuva Manu.
+*tataḥ*—depois disso; *saptame*—o sétimo na linhagem; *ākūtyām*—no ventre de Ākūti; *ruceḥ*—pelo Prajāpati Ruci; *yajñaḥ*—a encarnação do Senhor como Yajña; *abhyajāyata*—adveio; *saḥ*—Ele; *yāma-ādyaiḥ*—com Yāma, etc; *sura-gaṇaiḥ*—com semideuses; *apāt*—governou; *svāyambhuva-antaram*—a mudança do período de Svāyambhuva Manu.
 
 **A sétima encarnação foi Yajña, o filho de Prajāpati Ruci e de sua esposa Ākūti. Ele controlou o período durante a mudança do Svāyambhuva Manu e foi auxiliado por semideuses, tais como Seu filho Yama e outros.**
 

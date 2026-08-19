@@ -11,7 +11,7 @@ ratim udvahatād addhā
 
 gaṅgevaugham udanvati
 
-*tvayi*—para Vós; *me*—minha; *ananya-viṣayā*—pura, sem desvios; *matiḥ*—atenção; *madhu-pate*—ó Senhor de Madhu; *asakṛt*—continuamente; *ratim*—atração; *udvahatāt*—possa transbordar; *addhā*—diretamente; *gaṅgā*—o Ganges; *iva*—como; *ogham*—flui; *udanvati*—até o mar.
+*tvayi*—para Vós; *me*—minha; *ananya-viṣayā*—pura, sem desvios; *matiḥ*—atenção; *madhu-pate*—ó Senhor de Madhu; *asakṛt*—continuamente; *ratim*—atração; *udvahatāt*—possa transbordar; *addhā*—diretamente; *gaṅgā*—o Ganges; *iva*—como; *ogham*—flui; *udanvati*—até os mares.
 
 **Ó Senhor de Madhu, assim como o Ganges flui para sempre rumo ao mar, sem obstáculos, que minha atração se dirija constantemente a Ti, sem ser desviada para ninguém mais.**
 

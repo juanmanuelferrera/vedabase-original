@@ -11,7 +11,7 @@
 
 hy edhante tava vīkṣitaiḥ
 
-*ime*—todos estes; *jana-padāḥ*—cidades e vilarejos; *svṛddhāḥ*—florescidos; *supakva*—maduros; *auṣadhi*—ervas; *vīrudhaḥ*—vegetais; *vana*—florestas; *adri*—colinas; *nadī*—rios; *udanvantaḥ*—mares; *hi*—certamente; *edhante*—crescendo; *tava*—por Vós; *vīkṣitaiḥ*—vistos.
+*ime*—todos estes; *jana-padāḥ*—cidades e vilarejos; *svṛddhāḥ*—florescidos; *supakva*—maduros; *auṣadhi*—ervas; *vīrudhaḥ*—vegetais; *vana*—florestas; *adri*—colinas; *nadī*—rios; *udanvantaḥ*—mares; *hi*—certamente; *edhante*—crescendo; *tava*—Vosso; *vīkṣitaiḥ*—vistos.
 
 **Todas essas cidades e vilarejos estão florescendo em todos os aspectos porque as ervas e os grãos são abundantes, as árvores estão cheias de frutos, os rios correm, as colinas estão plenas de minerais e os oceanos cheios de riquezas. E tudo isso se deve ao Vosso olhar sobre eles.**
 

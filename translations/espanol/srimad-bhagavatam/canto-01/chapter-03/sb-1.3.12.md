@@ -8,7 +8,7 @@
 > sa yāmādyaiḥ sura-gaṇair\
 > apāt svāyambhuvāntaram
 
-*tataḥ*—después de eso; *saptame*—la séptima en la línea; *ākūtyām*—en el vientre de Ākūti; *ruceḥ*—por el Prajāpati Ruci; *yajñaḥ*—la encarnación del Señor como Yajña; *abhyajāyata*—apareció; *saḥ*—Él; *yāma-ādyaiḥ*—con Yāma y otros; *sura-gaṇaiḥ*—con semidioses; *apāt*—gobernó; *svāyambhuva-antaram*—el cambio del período de Svāyambhuva Manu.
+*tataḥ*—después de eso; *saptame*—la séptima en la línea; *ākūtyām*—en el vientre de Ākūti; *ruceḥ*—por el Prajāpati Ruci; *yajñaḥ*—la encarnación del Señor como Yajña; *abhyajāyata*—apareció; *saḥ*—Él; *yāma-ādyaiḥ*—con Yāma, etc; *sura-gaṇaiḥ*—con semidioses; *apāt*—gobernó; *svāyambhuva-antaram*—el cambio del período de Svāyambhuva Manu.
 
 **La séptima encarnación fue Yajña, el hijo del Prajāpati Ruci y su esposa Ākūti. Él controló el período durante el cambio del Svāyambhuva Manu y fue asistido por semidioses tales como Su hijo Yama y otros.**
 

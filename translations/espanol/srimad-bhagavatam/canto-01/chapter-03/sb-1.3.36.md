@@ -8,7 +8,7 @@
 > bhūteṣu cāntarhita ātma-tantraḥ\
 > ṣāḍ-vargikaṁ jighrati ṣaḍ-guṇeśaḥ
 
-*saḥ*—el Señor Supremo; *vā*—alternadamente; *idam*—esto; *viśvam*—universos manifestados; *amogha-līlaḥ*—aquel cuyas actividades son inmaculadas; *sṛjati*—crea; *avati atti*—mantiene y aniquila; *na*—no; *sajjate*—es afectado por; *asmin*—en ellos; *bhūteṣu*—en todos los seres vivientes; *ca*—también; *antarhitaḥ*—viviendo dentro; *ātma-tantraḥ*—que depende solo de sí mismo; *ṣāṭ-vargikam*—dotado de todas las potencias de Sus opulencias; *jighrati*—apegado superficialmente, como oler la fragancia; *ṣaṭ-guṇa-īśaḥ*—amo de los seis sentidos.
+*saḥ*—el Señor Supremo; *vā*—alternadamente; *idam*—esto; *viśvam*—universos manifestados; *amogha-līlaḥ*—aquel cuyas actividades son inmaculadas; *sṛjati*—crea; *avati atti*—mantiene y aniquila; *na*—no; *sajjate*—es afectado por; *asmin*—en ellos; *bhūteṣu*—en todos los seres vivientes; *ca*—también; *antarhitaḥ*—viviendo dentro; *ātma-tantraḥ*—que depende solo de sí mismo; *ṣāṭ-vargikam*—dotado de todas las potencias de las seis opulencias; *jighrati*—apegado superficialmente, como oler la fragancia; *ṣaṭ-guṇa-īśaḥ*—amo de los seis sentidos.
 
 **El Señor, cuyas actividades son siempre inmaculadas, es el amo de los seis sentidos, y es omnipotente y está colmado de seis opulencias. Él crea los universos manifestados, los mantiene y los aniquila sin verse afectado en lo más mínimo. Está dentro de todo ser viviente y es siempre independiente.**
 
