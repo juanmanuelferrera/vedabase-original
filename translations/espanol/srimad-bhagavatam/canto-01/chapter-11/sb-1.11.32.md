@@ -8,7 +8,7 @@
 > niruddham apy āsravad ambu netrayor\
 > vilajjatīnāṁ bhṛgu-varya vaiklavāt
 
-*tam*—a Él (el Señor); *ātma-jaiḥ*—por los hijos; *dṛṣṭibhiḥ*—por la vista; *antara-ātmanā*—en lo más recóndito del corazón; *duranta-bhāvāḥ*—éxtasis insuperable; *parirebhire*—abrazaron; *patim*—esposo; *niruddham*—ahogaron; *api*—a pesar de; *āsravat*—lágrimas; *ambu*—como gotas de agua; *netrayoḥ*—de los ojos; *vilajjatīnām*—de aquellas que son tímidas; *bhṛgu-varya*—¡oh, tú, el principal de los Bhṛgus!; *vaiklavāt*—sin advertirlo.
+*tam*—a Él (el Señor); *ātma-jaiḥ*—por los hijos; *dṛṣṭibhiḥ*—por la vista; *antara-ātmanā*—en lo más recóndito del corazón; *duranta-bhāvāḥ*—éxtasis insuperable; *parirebhire*—abrazaron; *patim*—esposo; *niruddham*—ahogaron; *api*—a pesar de; *āsravat*—lágrimas; *ambu*—como gotas de agua; *netrayoḥ*—de los ojos; *vilajjatīnām*—de aquellas embargadas por la timidez; *bhṛgu-varya*—¡oh, tú, el principal de los Bhṛgus!; *vaiklavāt*—sin advertirlo.
 
 **El éxtasis era tan fuerte e insuperable, que, primero, las tímidas reinas abrazaron al Señor en lo más recóndito de sus corazones. Luego, lo abrazaron con la vista, y después enviaron a sus hijos a que lo abrazaran [lo cual es igual que un abrazo personal]. Pero, ¡oh, tú, el principal entre los Bhṛgus!, aunque trataron de reprimir sus sentimientos, derramaron lágrimas sin advertirlo.**
 

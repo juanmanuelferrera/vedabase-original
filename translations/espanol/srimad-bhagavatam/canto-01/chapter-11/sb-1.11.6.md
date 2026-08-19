@@ -8,7 +8,7 @@
 > parāyaṇaṁ kṣemam ihecchatāṁ paraṁ\
 > na yatra kālaḥ prabhavet paraḥ prabhuḥ
 
-*natāḥ*—postrados; *sma*—lo habíamos hecho; *te*—a Ti; *nātha*—¡oh, Señor!; *sadā*—siempre; *aṅghri-paṅkajam*—los pies de loto; *viriñca*—Brahmā, el primer ser viviente; *vairiñcya*—hijos de Brahmā tales como Sanaka y Sanātana; *sura-indra*—el rey del cielo; *vanditam*—adorado por; *parāyaṇam*—el supremo; *kṣemam*—bien; *iha*—en esta vida; *icchatām*—aquel que así lo desee; *param*—el máximo; *na*—nunca; *yatra*—donde; *kālaḥ*—el ineludible factor tiempo; *prabhavet*—puede ejercer su influencia; *paraḥ*—trascendental; *prabhuḥ*—el Señor Supremo.
+*natāḥ*—postrados; *sma*—lo habíamos hecho; *te*—a Ti; *nātha*—¡oh, Señor!; *sadā*—siempre; *aṅghri-paṅkajam*—los pies de loto; *viriñca*—Brahmā, el primer ser viviente; *vairiñcya*—hijos de Brahmā tales como Sanaka, Sanātana, etc; *sura-indra*—el rey del cielo; *vanditam*—adorado por; *parāyaṇam*—el supremo; *kṣemam*—bien; *iha*—en esta vida; *icchatām*—aquel que así lo desee; *param*—el máximo; *na*—nunca; *yatra*—donde; *kālaḥ*—el ineludible factor tiempo; *prabhavet*—puede ejercer su influencia; *paraḥ*—trascendental; *prabhuḥ*—el Señor Supremo.
 
 **Los ciudadanos dijeron: ¡Oh, Señor!, Tú eres adorado por todos los semidioses, tales como Brahmā, los cuatro Sanas e incluso el rey del cielo. Tú eres el reposo final de aquellos que verdaderamente están aspirando a alcanzar el máximo beneficio de la vida. Tú eres el trascendental Señor Supremo, y el ineludible factor tiempo no puede ejercer su influencia sobre Ti.**
 

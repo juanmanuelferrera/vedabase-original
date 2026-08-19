@@ -8,7 +8,7 @@
 > vidhāya vairaṁ śvasano yathānalaṁ\
 > mitho vadhenoparato nirāyudhaḥ
 
-*evam*—así pues; *nṛpāṇām*—de los reyes o administradores; *kṣiti-bhāra*—la carga de la Tierra; *janmanām*—nacidos de ese modo; *akṣauhiṇībhiḥ*—apoderados por una fuerza militar constituida por caballos, elefantes, cuadrigas e infantería; *parivṛtta*—engreídos por ese ambiente; *tejasām*—valentía; *vidhāya*—habiendo creado; *vairam*—hostilidad; *śvasanaḥ*—interacción del viento y las plantas tubulares; *yathā*—tal como es; *analam*—fuego; *mithaḥ*—entre sí; *vadhena*—matándolos; *uparataḥ*—alivió; *nirāyudhaḥ*—Él mismo, sin ser uno de los participantes de esa lucha.
+*evam*—así pues; *nṛpāṇām*—de los reyes o administradores; *kṣiti-bhāra*—la carga de la Tierra; *janmanām*—nacidos de ese modo; *akṣauhiṇībhiḥ*—apoderados por una fuerza militar constituida por caballos, elefantes, cuadrigas e infantería; *parivṛtta*—engreídos por ese ambiente; *tejasām*—valentía; *vidhāya*—habiendo creado; *vairam*—hostilidad; *śvasanaḥ*—interacción del aire y las plantas tubulares; *yathā*—tal como es; *analam*—fuego; *mithaḥ*—entre sí; *vadhena*—matándolos; *uparataḥ*—alivió; *nirāyudhaḥ*—Él mismo, sin ser uno de los participantes de esa lucha.
 
 **El Señor se tranquilizó después de matar a esos reyes que eran una carga para la Tierra. Ellos estaban engreídos de su fuerza militar, sus caballos, elefantes, cuadrigas, infantería, etc. Él Mismo no participó en la lucha, sino que simplemente creó la hostilidad entre los poderosos administradores, y estos lucharon entre sí. Él fue como el viento, el cual causa la fricción entre los bambúes, y origina así un incendio.**
 

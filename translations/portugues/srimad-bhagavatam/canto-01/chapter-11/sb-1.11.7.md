@@ -11,7 +11,7 @@
 
 yasyānuvṛttyā kṛtino babhūvima
 
-*bhavāya*—para o bem-estar; *naḥ*—para nós; *tvam*—Sua Senhoria; *bhava*—simplesmente torne-se; *viśva-bhāvana*—o criador do universo; *tvam*—Sua Senhoria; *eva*—certamente; *mātā*—mãe; *atha*—também; *suhṛt*—benquerente; *patiḥ*—esposo; *pitā*—pai; *tvam*—Sua Senhoria; *sat-guruḥ*—mestre espiritual; *naḥ*—nosso; *paramam*—o supremo; *ca*—e; *daivatam*—Deidade adorável; *yasya*—cujos; *anuvṛttyā*—seguindo os passos; *kṛtinaḥ*—bem-sucedidos; *babhūvima*—nos tornamos.
+*bhavāya*—para o bem-estar; *naḥ*—para nós; *tvam*—Sua Senhoria; *bhava*—simplesmente torne-se; *viśva-bhāvana*—o criador do universo; *tvam*—Sua Senhoria; *eva*—certamente; *mātā*—mãe; *atha*—também; *suhṛt*—benquerente; *patiḥ*—esposo; *pitā*—pai; *tvam*—Sua Senhoria; *sat-guruḥ*—mestre espiritual; *naḥ*—nosso; *paramam*—o supremo; *ca*—e; *daivatam*—Deidade adorável; *yasya*—cujos; *anuvṛttyā*—seguindo os passos; *kṛtinaḥ*—bem-sucedidos; *babhūvima*—acabamos de nos tornar.
 
 **Ó criador do universo, o Senhor é nossa mãe, benquerente, Senhor, pai, mestre espiritual e Deidade adorável. Seguindo Seus passos, tornamo-nos bem-sucedidos em todos os aspectos. Oramos, portanto, para que o Senhor continue a nos abençoar com Sua misericórdia.**
 

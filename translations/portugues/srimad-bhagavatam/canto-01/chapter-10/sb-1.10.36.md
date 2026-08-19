@@ -12,7 +12,7 @@ sāyaṁ bheje diśaṁ paścād
 gaviṣṭho gāṁ gatas tadā
 
 *Sinônimos
-tatra tatra*—em diferentes lugares; *ha*—assim aconteceu; *tatratyaiḥ*—pelos habitantes locais; *hariḥ*—a Personalidade de Deus; *pratyudyata-arhaṇaḥ*—sendo oferecidas apresentações e reverências adoráveis; *sāyam*—a noite; *bheje*—tendo alcançado; *diśam*—direção; *paścāt*—oriental; *gaviṣṭhaḥ*—o sol no céu; *gām*—para o oceano; *gataḥ*—tendo ido; *tadā*—naquele tempo.
+tatra tatra*—em diferentes lugares; *ha*—assim aconteceu; *tatratyaiḥ*—pelos habitantes locais; *hariḥ*—a Personalidade de Deus; *pratyudyata-arhaṇaḥ*—sendo oferecidas apresentações e reverências adoráveis; *sāyam*—a noite; *bheje*—tendo alcançado; *diśam*—direção; *paścāt*—oriental; *gaviṣṭhaḥ*—o sol no céu; *gām*—para a beira do oceano; *gataḥ*—tendo ido; *tadā*—naquele tempo.
 
 **Em Sua jornada por estas províncias, Ele foi recebido, adorado e presenteado com várias oferendas. À noite, em todos os lugares, o Senhor suspendia Sua jornada para realizar os ritos vespertinos. Isso era regularmente observado após o pôr do sol.**
 

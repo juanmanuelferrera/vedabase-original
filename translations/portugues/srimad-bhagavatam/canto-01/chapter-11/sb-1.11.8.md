@@ -11,7 +11,7 @@ aho sanāthā bhavatā sma yad vayaṁ
 
 *paśyema rūpaṁ tava sarva*-saubhagam
 
-*aho*—oh, é nossa boa sorte; *sa-nāthāḥ*—estar sob a proteção do mestre; *bhavatā*—por Sua boa pessoa; *sma*—como nos tornamos; *yat vayam*—como somos; *traiviṣṭa-pānām*—dos semideuses; *api*—também; *dūra-darśanam*—raramente visto; *prema-smita*—sorrindo com amor; *snigdha*—afetuoso; *nirīkṣaṇa-ānanam*—rosto olhando dessa maneira; *paśyema*—permitam-nos olhar; *rūpam*—beleza; *tava*—Sua; *sarva*—toda; *saubhagam*—auspiciosidade.
+*aho*—oh, é nossa boa sorte; *sa-nāthāḥ*—estar sob a proteção do mestre; *bhavatā*—por Sua boa pessoa; *sma*—como nos tornamos; *yat vayam*—como somos; *traiviṣṭa-pānām*—dos semideuses; *api*—também; *dūra-darśanam*—raramente visto; *prema-smita*—sorrindo com amor; *snigdha*—afetuoso; *nirīkṣaṇa-ānanam*—rosto olhando dessa maneira; *paśyema*—contemplando-Vos; *rūpam*—beleza; *tava*—Sua; *sarva*—toda; *saubhagam*—auspiciosidade.
 
 **Oh! É nossa boa sorte que tenhamos vindo novamente hoje sob Tua proteção, por Tua presença, pois Vossa Senhoria raramente visita até mesmo os habitantes do céu. Agora é possível para nós contemplar Teu rosto sorridente, que está cheio de olhares afetuosos. Podemos agora ver Tua forma transcendental, plena de toda auspiciosidade.**
 

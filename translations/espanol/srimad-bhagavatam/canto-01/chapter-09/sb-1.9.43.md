@@ -10,7 +10,7 @@
 > ātmany ātmānam āveśya\
 > so 'ntaḥśvāsa upāramat
 
-*sūtaḥ uvāca*—Sūta Gosvāmī dijo; *kṛṣṇe*—el Señor Kṛṣṇa, la Suprema Personalidad de Dios; *evam*—solo; *bhagavati*—a Él; *manaḥ*—con mente; *vāk*—habla; *dṛṣṭi*—vista; *vṛttibhiḥ*—actividades; *ātmani*—de la Superalma; *ātmānam*—el ser viviente; *āveśya*—habiéndose fundido en; *saḥ*—él; *antaḥ-śvāsaḥ*—inhalando; *upāramat*—calló.
+*sūtaḥ uvāca*—Sūta Gosvāmī dijo; *kṛṣṇe*—el Señor Kṛṣṇa, la Suprema Personalidad de Dios; *evam*—solo; *bhagavati*—a Él; *manaḥ*—mente; *vāk*—habla; *dṛṣṭi*—vista; *vṛttibhiḥ*—actividades; *ātmani*—de la Superalma; *ātmānam*—el ser viviente; *āveśya*—habiéndose fundido en; *saḥ*—él; *antaḥ-śvāsaḥ*—inhalando; *upāramat*—calló.
 
 **Sūta Gosvāmī dijo: Así pues, Bhīṣmadeva se fundió en la Superalma, el Señor Śrī Kṛṣṇa, la Suprema Personalidad de Dios, con la mente, el habla, la vista y las acciones, y de ese modo calló, y dejó de respirar.**
 

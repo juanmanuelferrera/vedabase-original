@@ -11,7 +11,7 @@ vavande śirasā sapta
 
 *devakī*-pramukhā mudā
 
-*praviṣṭaḥ*—após entrar; *tu*—mas; *gṛham*—casas; *pitroḥ*—do pai; *pariṣvaktaḥ*—abraçado; *sva-mātṛbhiḥ*—por Suas próprias mães; *vavande*—ofereceu reverências; *śirasā*—Sua cabeça; *sapta*—sete; *devakī*—Devakī; *pramukhā*—encabeçadas por; *mudā*—alegremente.
+*praviṣṭaḥ*—após entrar; *tu*—mas; *gṛham*—casas; *pitroḥ*—do pai; *pariṣvaktaḥ*—abraçado; *sva-mātṛbhiḥ*—por Suas próprias mães; *vavande*—ofereceu reverências; *śirasā*—Sua cabeça; *sapta*—sete; *devakī*—Devakī; *pramukhā*—encabeçadas por; *mudā*—naquele momento.
 
 **Após entrar na casa de Seu pai, foi abraçado pelas mães presentes, e o Senhor ofereceu Suas reverências a elas colocando Sua cabeça a seus pés. As mães eram encabeçadas por Devakī [Sua mãe real].**
 

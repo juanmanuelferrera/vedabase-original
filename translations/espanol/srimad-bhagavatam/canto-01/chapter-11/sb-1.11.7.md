@@ -8,7 +8,7 @@
 > tvaṁ sad-gurur naḥ paramaṁ ca daivataṁ\
 > yasyānuvṛttyā kṛtino babhūvima
 
-*bhavāya*—por el bien; *naḥ*—por nosotros; *tvam*—Su Señoría; *bhava*—sólo conviértete; *viśva-bhāvana*—el creador del universo; *tvam*—Su Señoría; *eva*—ciertamente; *mātā*—madre; *atha*—así como también; *suhṛt*—bienqueriente; *patiḥ*—esposo; *pitā*—padre; *tvam*—Su Señoría; *sat-guruḥ*—maestro espiritual; *naḥ*—nuestro; *paramam*—el supremo; *ca*—y; *daivatam*—Deidad venerable; *yasya*—cuyos; *anuvṛttyā*—siguiendo los pasos; *kṛtinaḥ*—que tiene éxito; *babhūvima*—hemos logrado.
+*bhavāya*—por el bien; *naḥ*—por nosotros; *tvam*—Su Señoría; *bhava*—sólo conviértete; *viśva-bhāvana*—el creador del universo; *tvam*—Su Señoría; *eva*—ciertamente; *mātā*—madre; *atha*—así como también; *suhṛt*—bienqueriente; *patiḥ*—esposo; *pitā*—padre; *tvam*—Su Señoría; *sat-guruḥ*—maestro espiritual; *naḥ*—nuestro; *paramam*—el supremo; *ca*—y; *daivatam*—Deidad venerable; *yasya*—cuyos; *anuvṛttyā*—siguiendo los pasos; *kṛtinaḥ*—que tiene éxito; *babhūvima*—hemos llegado a ser.
 
 **¡Oh, creador del universo!, Tú eres nuestra madre, bienqueriente, Señor, padre, maestro espiritual y Deidad venerable. Por seguir Tus pasos hemos logrado el éxito en todos los aspectos. Así pues, rogamos que continúes bendiciéndonos con Tu misericordia.**
 

@@ -11,7 +11,7 @@
 
 *antaḥ pratihatā*-tapām
 
-*gopura*—o portão da cidade; *dvāra*—porta; *mārgeṣu*—em diferentes estradas; *kṛta*—empreendido; *kautuka*—por causa do festival; *toraṇām*—arco decorado; *citra*—pintadas; *dhvaja*—bandeiras; *patākā-agraiḥ*—pelos mais destacados estandartes; *antaḥ*—dentro; *pratihatā*—bloqueada; *tapām*—luz solar.
+*gopura*—o portão da cidade; *dvāra*—porta; *mārgeṣu*—em diferentes estradas; *kṛta*—empreendido; *kautuka*—por causa do festival; *toraṇām*—arco decorado; *citra*—pintadas; *dhvaja*—bandeiras; *patākā-agraiḥ*—pelos letreiros com dizeres; *antaḥ*—dentro; *pratihatā*—bloqueada; *tapām*—luz solar.
 
 **O portão da cidade, as portas das residências e os arcos enfeitados ao longo das estradas estavam todos adornados com sinais festivos como bananeiras e folhas de mangueira, tudo para acolher o Senhor. Bandeiras, guirlandas e estandartes pintados combinavam-se para bloquear a luz solar.**
 

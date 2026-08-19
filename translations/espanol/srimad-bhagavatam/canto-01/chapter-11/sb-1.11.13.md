@@ -8,7 +8,7 @@
 > citra-dhvaja-patākāgrair\
 > antaḥ pratihatātapām
 
-*gopura*—el portal de la ciudad; *dvāra*—puerta; *mārgeṣu*—en diferentes caminos; *kṛta*—emprendidos; *kautuka*—debido al festival; *toraṇām*—arco decorado; *citra*—pintados; *dhvaja*—banderas; *patākā-agraiḥ*—por los principales letreros; *antaḥ*—dentro; *pratihata*—detuvieron; *ātapām*—la luz del sol.
+*gopura*—el portal de la ciudad; *dvāra*—puerta; *mārgeṣu*—en diferentes caminos; *kṛta*—emprendidos; *kautuka*—debido al festival; *toraṇām*—arco decorado; *citra*—pintados; *dhvaja*—banderas; *patākā-agraiḥ*—por los letreros con lemas; *antaḥ*—dentro; *pratihata*—detuvieron; *ātapām*—la luz del sol.
 
 **La entrada de la ciudad, las puertas de las casas y los arcos festoneados que había a lo largo de los caminos, estaban todos bellamente decorados con símbolos festivos, tales como matas de plátano y hojas de mango, todo para darle la bienvenida al Señor. Banderas, guirnaldas y letreros y lemas pintados, se combinaban todos para proteger de la luz del sol.**
 

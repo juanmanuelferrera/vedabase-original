@@ -22,7 +22,7 @@ saheran virahaṁ katham
 *śayanāsana*-bhojanaiḥ
 
 *Sinônimos
-sat-saṅgāt*—pela associação de devotos puros; *mukta-duḥsaṅgaḥ*—libertado da má associação materialista; *hātum*—renunciar; *na utsahate*—nunca tenta; *budhaḥ*—aquele que compreendeu o Senhor; *kīrtyamānam*—glorificando; *yaśaḥ*—fama; *yasya*—cujo; *sakṛt*—apenas uma vez; *ākarṇya*—ouvindo apenas; *rocanam*—agradável; *tasmin*—para Ele; *nyasta-dhiyaḥ*—aquele que entregou sua mente para Ele; *pārthāḥ*—os filhos de Pṛthā; *saheran*—podem tolerar; *viraham*—separação; *katham*—como; *darśana*—ver face a face; *sparśa*—tocar; *saṁlāpa*—conversar; *śayana*—dormir; *āsana*—sentar; *bhojanaiḥ*—comer juntos.
+sat-saṅgāt*—pela associação de devotos puros; *mukta-duḥsaṅgaḥ*—libertado da má associação materialista; *hātum*—renunciar; *na utsahate*—nunca tenta; *budhaḥ*—aquele que compreendeu o Senhor; *kīrtyamānam*—glorificando; *yaśaḥ*—fama; *yasya*—cujo; *sakṛt*—apenas uma vez; *ākarṇya*—ouvindo apenas; *rocanam*—agradável; *tasmin*—para Ele; *nyasta-dhiyaḥ*—aquele que entregou sua mente para Ele; *pārthāḥ*—os filhos de Pṛthā; *saheran*—podem tolerar; *viraham*—separação; *katham*—como; *darśana*—olhando olho no olho; *sparśa*—tocar; *saṁlāpa*—conversar; *śayana*—dormir; *āsana*—sentar; *bhojanaiḥ*—comer juntos.
 
 **Os inteligentes, que compreenderam o Senhor Supremo em associação com devotos puros e libertaram-se da má associação materialista, jamais podem evitar ouvir as glórias do Senhor, ainda que as tenham ouvido apenas uma vez. Como, então, poderiam os Pāṇḍavas tolerar Sua separação, visto que haviam estado intimamente associados a Sua pessoa, vendo-O olho a olho, tocando-O, conversando com Ele, e dormindo, sentando-se e jantando com Ele?**
 

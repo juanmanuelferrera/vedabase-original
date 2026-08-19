@@ -11,7 +11,7 @@ parāyaṇaṁ kṣemam ihecchatāṁ paraṁ
 
 na yatra kālaḥ prabhavet paraḥ prabhuḥ
 
-*natāḥ*—prostramos; *sma*—já o fizemos; *te*—a Você; *nātha*—ó Senhor; *sadā*—sempre; *aṅghri-paṅkajam*—os pés de lótus; *viriñca*—Brahmā, o primeiro ser vivo; *vairiñcya*—filhos de Brahmā como Sanaka e Sanātana; *sura-indra*—o rei do céu; *vanditam*—adorados por; *parāyaṇam*—o supremo; *kṣemam*—bem-estar; *iha*—nesta vida; *icchatām*—aquele que assim deseja; *param*—o mais elevado; *na*—jamais; *yatra*—onde; *kālaḥ*—o tempo inevitável; *prabhavet*—pode exercer sua influência; *paraḥ*—transcendental; *prabhuḥ*—o Senhor Supremo.
+*natāḥ*—prostramos; *sma*—já o fizemos; *te*—a Você; *nātha*—ó Senhor; *sadā*—sempre; *aṅghri-paṅkajam*—os pés de lótus; *viriñca*—Brahmā, o primeiro ser vivo; *vairiñcya*—filhos de Brahmā como Sanaka, Sanātana, etc; *sura-indra*—o rei do céu; *vanditam*—adorados por; *parāyaṇam*—o supremo; *kṣemam*—bem-estar; *iha*—nesta vida; *icchatām*—aquele que assim deseja; *param*—o mais elevado; *na*—jamais; *yatra*—onde; *kālaḥ*—o tempo inevitável; *prabhavet*—pode exercer sua influência; *paraḥ*—transcendental; *prabhuḥ*—o Senhor Supremo.
 
 **Os cidadãos disseram: Ó Senhor, o senhor é adorado por todos os semideuses como Brahmā, os quatro Sanas e até o rei do céu. O Senhor é o repouso último para aqueles que verdadeiramente aspiram alcançar o mais elevado benefício da vida. O Senhor é o Senhor transcendental supremo, e o tempo inevitável não pode exercer sua influência sobre o Senhor.**
 

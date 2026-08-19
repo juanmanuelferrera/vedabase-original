@@ -8,7 +8,7 @@
 > rājarṣayaś ca tatrāsan\
 > draṣṭuṁ bharata-puṅgavam
 
-*tatra*—allí; *brahma-ṛṣayaḥ*—*ṛṣis* entre los *brāhmaṇas*; *sarve*—todos; *deva-ṛṣayaḥ*—*ṛṣis* entre los semidioses; *ca*—y; *sattama*—situados bajo la influencia de la cualidad de la bondad; *rāja-ṛṣayaḥ*—*ṛṣis* entre los reyes; *ca*—y; *tatra*—en ese lugar; *āsan*—estaban presentes; *draṣṭum*—solo para ver; *bharata*—los descendientes del rey Bharata; *puṅgavam*—el principal de.
+*tatra*—allí; *brahma-ṛṣayaḥ*—*ṛṣis* entre los *brāhmaṇas*; *sarve*—todos; *deva-ṛṣayaḥ*—*ṛṣis* entre los semidioses; *ca*—y; *sattama*—situados bajo la influencia de la cualidad de la bondad; *rāja-ṛṣayaḥ*—*ṛṣis* entre los reyes; *ca*—y; *tatra*—en ese lugar; *āsan*—estaban presentes; *draṣṭum*—solo para ver; *bharata*—descendiente del rey Bharata; *puṅgavam*—y el principal de ellos.
 
 **Solo para ver al principal de los descendientes del rey Bharata [Bhīṣma], estaban allí reunidas todas las grandes almas del universo, es decir, los *ṛṣis* entre los semidioses, *brāhmaṇas* y reyes, situados todos bajo la influencia de la modalidad de la bondad.**
 

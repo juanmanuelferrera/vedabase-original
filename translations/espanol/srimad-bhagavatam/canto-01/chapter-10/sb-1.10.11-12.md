@@ -15,7 +15,7 @@
 > darśana-sparśa-saṁlāpa-\
 > śayanāsana-bhojanaiḥ
 
-*sat-saṅgāt*—mediante la compañía de devotos puros; *mukta-duḥsaṅgaḥ*—liberados de la mala asociación materialista; *hātum*—abandonar; *na utsahate*—nunca tratan; *budhaḥ*—aquel que ha comprendido al Señor; *kīrtyamānam*—glorificando; *yaśaḥ*—fama; *yasya*—cuyo; *sakṛt*—solo una vez; *ākarṇya*—oyendo únicamente; *rocanam*—placentero; *tasmin*—a Él; *nyasta-dhiyaḥ*—aquel que le ha entregado la mente a Él; *pārthāḥ*—los hijos de Pṛthā; *saheran*—pueden tolerar; *viraham*—separación; *katham*—como; *darśana*—viendo cara a cara; *sparśa*—tocando; *saṁlāpa*—conversando; *śayana*—durmiendo; *āsana*—sentándose; *bhojanaiḥ*—comiendo juntos.
+*sat-saṅgāt*—mediante la compañía de devotos puros; *mukta-duḥsaṅgaḥ*—liberados de la mala asociación materialista; *hātum*—abandonar; *na utsahate*—nunca tratan; *budhaḥ*—aquel que ha comprendido al Señor; *kīrtyamānam*—glorificando; *yaśaḥ*—fama; *yasya*—cuyo; *sakṛt*—solo una vez; *ākarṇya*—oyendo únicamente; *rocanam*—placentero; *tasmin*—a Él; *nyasta-dhiyaḥ*—aquel que le ha entregado la mente a Él; *pārthāḥ*—los hijos de Pṛthā; *saheran*—pueden tolerar; *viraham*—separación; *katham*—como; *darśana*—mirándose a los ojos; *sparśa*—tocando; *saṁlāpa*—conversando; *śayana*—durmiendo; *āsana*—sentándose; *bhojanaiḥ*—comiendo juntos.
 
 **Los inteligentes, que han comprendido al Señor Supremo en compañía de devotos puros y se han liberado de la mala asociación materialista, nunca pueden evitar oír las glorias del Señor, aunque las hayan oído una sola vez. ¿Cómo, entonces, podían tolerar los Pāṇḍavas Su separación, si habían estado íntimamente asociados con Su persona, viéndolo cara a cara, tocándolo, conversando con Él, y durmiendo, sentándose y comiendo con Él?**
 

@@ -11,7 +11,7 @@ niruddham apy āsravad ambu netrayor
 
 *vilajjatīnāṁ bhṛgu*-varya vaiklavāt
 
-*tam*—Ele (o Senhor); *ātma-jaiḥ*—pelos filhos; *dṛṣṭibhiḥ*—pelo olhar; *antara-ātmanā*—pela parte mais íntima do coração; *duranta-bhāvāḥ*—êxtase insuperável; *parirebhire*—abraçaram; *patim*—o esposo; *niruddham*—reprimidas; *api*—apesar de; *āsravat*—lágrimas; *ambu*—como gotas de água; *netrayoḥ*—dos olhos; *vilajjatīnām*—daquelas situadas na timidez; *bhṛgu-varya*—ó chefe dos Bhṛgus; *vaiklavāt*—inadvertidamente.
+*tam*—Ele (o Senhor); *ātma-jaiḥ*—pelos filhos; *dṛṣṭibhiḥ*—pelo olhar; *antara-ātmanā*—pela parte mais íntima do coração; *duranta-bhāvāḥ*—êxtase insuperável; *parirebhire*—abraçaram; *patim*—o esposo; *niruddham*—reprimidas; *api*—apesar de; *āsravat*—lágrimas; *ambu*—como gotas de água; *netrayoḥ*—dos olhos; *vilajjatīnām*—daquelas tomadas pela timidez; *bhṛgu-varya*—ó chefe dos Bhṛgus; *vaiklavāt*—inadvertidamente.
 
 **O êxtase insuperável foi tão intenso que as rainhas, que eram tímidas, primeiro abraçaram o Senhor nos mais íntimos recessos de seus corações. Depois O abraçaram visualmente, e então enviaram seus filhos para abraçá-Lo [o que equivale a abraço pessoal]. Mas, ó chefe entre os Bhṛgus, embora tentassem conter seus sentimentos, inadvertidamente derramaram lágrimas.**
 

@@ -8,7 +8,7 @@
 > gāyanti cottamaśloka-\
 > caritāny adbhutāni ca
 
-*naṭa*—dramaturgos; *nartaka*—bailarines; *gandharvāḥ*—cantantes celestiales; *sūta*—historiadores profesionales; *māgadha*—genealogistas profesionales; *vandinaḥ*—oradores profesionales y eruditos; *gāyanti*—cantan; *ca*—respectivamente; *uttamaśloka*—el Señor Supremo; *caritāni*—actividades; *adbhutāni*—todas sobrehumanas; *ca*—y.
+*naṭa*—dramaturgos; *nartaka*—bailarines; *gandharvāḥ*—cantantes celestiales; *sūta*—historiadores profesionales; *māgadha*—genealogistas profesionales; *vandinaḥ*—oradores profesionales y eruditos; *gāyanti*—todos exclaman; *ca*—respectivamente; *uttamaśloka*—el Señor Supremo; *caritāni*—actividades; *adbhutāni*—todas sobrehumanas; *ca*—y.
 
 **Expertos dramaturgos, artistas, bailarines, cantantes, historiadores, genealogistas y eruditos oradores dieron todos sus respectivas contribuciones, inspirados por los pasatiempos sobrehumanos del Señor. De ese modo prosiguieron sin cesar.**
 

@@ -11,7 +11,7 @@ vidhāya vairaṁ śvasano yathānalaṁ
 
 mitho vadhenoparato nirāyudhaḥ
 
-*evam*—assim; *nṛpāṇām*—dos reis ou administradores; *kṣiti-bhāra*—o peso sobre a terra; *janmanām*—nascidos dessa maneira; *akṣauhiṇībhiḥ*—investidos de uma força militar de cavalos, elefantes, carruagens e infantaria; *parivṛtta*—sendo inflados por tais circunstâncias; *tejasām*—proeza; *vidhāya*—tendo criado; *vairam*—hostilidade; *śvasanaḥ*—interação do vento e os bambus; *yathā*—como é; *analam*—fogo; *mithaḥ*—entre si; *vadhena*—matando-os; *uparataḥ*—pacificado; *nirāyudhaḥ*—por Ele mesmo sem ser parte nessa luta.
+*evam*—assim; *nṛpāṇām*—dos reis ou administradores; *kṣiti-bhāra*—o peso sobre a terra; *janmanām*—nascidos dessa maneira; *akṣauhiṇībhiḥ*—investidos de uma força militar de cavalos, elefantes, carruagens e infantaria; *parivṛtta*—sendo inflados por tais circunstâncias; *tejasām*—proeza; *vidhāya*—tendo criado; *vairam*—hostilidade; *śvasanaḥ*—interação do ar e os bambus; *yathā*—como é; *analam*—fogo; *mithaḥ*—entre si; *vadhena*—matando-os; *uparataḥ*—pacificado; *nirāyudhaḥ*—por Ele mesmo sem ser parte nessa luta.
 
 **O Senhor foi apaziguado após matar aqueles reis que eram um peso para a terra. Eles estavam inflados com sua força militar, seus cavalos, elefantes, carruagens, infantaria, etc. Ele mesmo não era parte na luta. Simplesmente criou hostilidade entre os poderosos administradores, e eles lutaram entre si. Era como o vento que provoca atrito entre os bambus e assim acende um fogo.**
 

@@ -15,7 +15,7 @@
 > pitaraṁ sarva-suhṛdam\
 > avitāram ivārbhakāḥ
 
-*tatra*—después; *upanīta*—habiendo ofrecido; *balayaḥ*—obsequios; *raveḥ*—hacia el sol; *dīpam*—lámpara; *iva*—como; *ādṛtāḥ*—siendo evaluado; *ātma-ārāmam*—al autosuficiente; *pūrṇa-kāmam*—plenamente satisfecho; *nija-lābhena*—por Sus propias potencias; *nitya-dā*—aquel que provee incesantemente; *prīti*—afecto; *utphulla-mukhāḥ*—caras alegres; *procuḥ*—dijeron; *harṣa*—contentos; *gadgadayā*—extáticos; *girā*—conversaciones; *pitaram*—al padre; *sarva*—todos; *suhṛdam*—amigos; *avitāram*—el tutor; *iva*—como; *arbhakāḥ*—pupilos.
+*tatra*—después; *upanīta*—habiendo ofrecido; *balayaḥ*—obsequio; *raveḥ*—hacia el sol; *dīpam*—lámpara; *iva*—como; *ādṛtāḥ*—siendo evaluado; *ātma-ārāmam*—al autosuficiente; *pūrṇa-kāmam*—plenamente satisfecho; *nija-lābhena*—por Sus propias potencias; *nitya-dā*—aquel que provee incesantemente; *prīti*—afecto; *utphulla-mukhāḥ*—caras alegres; *procuḥ*—dijeron; *harṣa*—contentos; *gadgadayā*—extáticos; *girā*—conversaciones; *pitaram*—al padre; *sarva*—todos; *suhṛdam*—amigos; *avitāram*—el tutor; *iva*—como; *arbhakāḥ*—pupilos.
 
 **Los ciudadanos llegaron ante el Señor con sus respectivos presentes, ofreciéndoselos a Aquel que está plenamente satisfecho y es autosuficiente, quien, por Su propia potencia, suministra incesantemente a los demás. Estos presentes eran como la ofrenda de una lámpara al sol. No obstante, los ciudadanos comenzaron a hablar, con lenguaje extático, acerca de recibir al Señor, tal como los pupilos dan la bienvenida a su guardián y padre.**
 

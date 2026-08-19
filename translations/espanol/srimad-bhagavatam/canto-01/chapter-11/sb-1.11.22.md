@@ -8,7 +8,7 @@
 > āśvāsya cāśvapākebhyo\
 > varaiś cābhimatair vibhuḥ
 
-*prahvā*—inclinando la cabeza; *abhivādana*—saludando con palabras; *āśleṣa*—abrazando; *kara-sparśa*—estrechando manos; *smita-īkṣaṇaiḥ*—mediante una mirada sonriente; *āśvāsya*—entusiasmando; *ca*—y; *āśvapākebhyaḥ*—hasta el más bajo rango (los comeperros); *varaiḥ*—mediante bendiciones; *ca*—también; *abhimataiḥ*—como lo deseó; *vibhuḥ*—el Todopoderoso.
+*prahvā*—inclinando la cabeza; *abhivādana*—saludando con palabras; *āśleṣa*—abrazando; *kara-sparśa*—estrechando manos con; *smita-īkṣaṇaiḥ*—mediante una mirada sonriente; *āśvāsya*—entusiasmando; *ca*—y; *āśvapākebhyaḥ*—hasta el más bajo rango (los comeperros); *varaiḥ*—mediante bendiciones; *ca*—también; *abhimataiḥ*—como lo deseó; *vibhuḥ*—el Todopoderoso.
 
 **El Todopoderoso Señor saludó a todos los presentes inclinando Su cabeza, intercambiando saludos, abrazando, estrechando las manos, mirando y sonriendo, dando seguridades y otorgando bendiciones, incluso al de más bajo rango.**
 

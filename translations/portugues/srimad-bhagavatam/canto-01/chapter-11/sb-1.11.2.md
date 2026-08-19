@@ -11,7 +11,7 @@ sa uccakāśe dhavalodaro daro
 
 *yathābja*-khaṇḍe kala-haṁsa utsvanaḥ
 
-*saḥ*—aquela; *uccakāśe*—tornou-se brilhante; *dhavala-udaraḥ*—branca e de ventre gordo; *daraḥ*—búzio; *api*—embora assim seja; *urukramasya*—do grande aventureiro; *adharaśoṇa*—pela qualidade transcendental de Seus lábios; *śoṇimā*—avermelhada; *dādhmāyamānaḥ*—sendo tocada; *kara-kañja-sampuṭe*—sendo segurada na palma da mão de lótus; *yathā*—como é; *abja-khaṇḍe*—pelos caules de flores de lótus; *kala-haṁsaḥ*—cisne mergulhador; *utsvanaḥ*—soando alto.
+*saḥ*—aquela; *uccakāśe*—tornou-se brilhante; *dhavala-udaraḥ*—branca e de ventre gordo; *daraḥ*—búzio; *api*—embora assim seja; *urukramasya*—do grande aventureiro; *adharaśoṇa*—pela qualidade transcendental de Seus lábios; *śoṇimā*—avermelhada; *dādhmāyamānaḥ*—sendo tocada; *kara-kañja-sampuṭe*—sendo segurada na palma da mão; *yathā*—como é; *abja-khaṇḍe*—pelos caules de flores de lótus; *kala-haṁsaḥ*—cisne mergulhador; *utsvanaḥ*—soando alto.
 
 **A búzio branca e de ventre gordo, ao ser segurada na mão do Senhor Kṛṣṇa e tocada por Ele, pareceu avermelhar-se pelo toque de Seus lábios transcendentais. Era como se um cisne branco brincasse entre os caules de flores de lótus vermelhas.**
 

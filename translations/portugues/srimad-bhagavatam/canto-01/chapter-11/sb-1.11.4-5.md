@@ -21,7 +21,7 @@ raver dīpam ivādṛtāḥ
 
 avitāram ivārbhakāḥ
 
-*tatra*—então; *upanīta*—tendo oferecido; *balayaḥ*—presentes; *raveḥ*—ao sol; *dīpam*—lâmpada; *iva*—como; *ādṛtāḥ*—sendo avaliados; *ātma-ārāmam*—ao autossuficiente; *pūrṇa-kāmam*—plenamente satisfeito; *nija-lābhena*—por Suas próprias potências; *nitya-dā*—aquele que supre incessantemente; *prīti*—afeição; *utphulla-mukhāḥ*—semblantes alegres; *procuḥ*—disseram; *harṣa*—jubilosos; *gadgadayā*—extáticos; *girā*—discursos; *pitaram*—ao pai; *sarva*—todos; *suhṛdam*—amigos; *avitāram*—o guardião; *iva*—como; *arbhakāḥ*—tutelados.
+*tatra*—então; *upanīta*—tendo oferecido; *balayaḥ*—presente; *raveḥ*—ao sol; *dīpam*—lâmpada; *iva*—como; *ādṛtāḥ*—sendo avaliados; *ātma-ārāmam*—ao autossuficiente; *pūrṇa-kāmam*—plenamente satisfeito; *nija-lābhena*—por Suas próprias potências; *nitya-dā*—aquele que supre incessantemente; *prīti*—afeição; *utphulla-mukhāḥ*—semblantes alegres; *procuḥ*—disseram; *harṣa*—jubilosos; *gadgadayā*—extáticos; *girā*—discursos; *pitaram*—ao pai; *sarva*—todos; *suhṛdam*—amigos; *avitāram*—o guardião; *iva*—como; *arbhakāḥ*—tutelados.
 
 **Os cidadãos chegaram diante do Senhor com suas respectivas oferendas, apresentando-as ao plenamente satisfeito e autossuficiente, que, por Sua própria potência, incessantemente supre os outros. Essas oferendas eram como o oferecimento de uma lamparina ao Sol. Ainda assim, os cidadãos começaram a falar em linguagem extática a respeito de receber o Senhor, assim como os tutelados dão boas-vindas a seu guardião e pai.**
 

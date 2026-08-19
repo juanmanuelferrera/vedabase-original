@@ -12,7 +12,7 @@ anyonyam āsīt sañjalpa
 *sarva-śruti*-mano-haraḥ
 
 *Sinônimos
-anyonyam*—entre si; *āsīt*—havia; *sañjalpaḥ*—conversação; *uttama-śloka*—o Supremo, que é glorificado pela poesia selecionada; *cetasām*—daqueles cujos corações são absorvidos dessa forma; *kaurava-indra*—o rei dos Kurus; *pura*—capital; *strīṇām*—todas as damas; *sarva*—tudo; *śruti*—os Vedas; *manaḥ-haraḥ*—atrativo à mente.
+anyonyam*—entre si; *āsīt*—havia; *sañjalpaḥ*—acerca de; *uttama-śloka*—o Supremo, que é glorificado pela poesia selecionada; *cetasām*—daqueles cujos corações são absorvidos dessa forma; *kaurava-indra*—o rei dos Kurus; *pura*—capital; *strīṇām*—todas as damas; *sarva*—tudo; *śruti*—os Vedas; *manaḥ-haraḥ*—atrativo à mente.
 
 **As damas que se encontravam nos terraços de todas as casas de Hastināpura, todas absortas no pensamento das qualidades transcendentais do Senhor, que é cantado em poesia seleta, começaram a falar dEle. Essa conversa era mais atraente do que os hinos dos Vedas.**
 

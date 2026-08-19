@@ -14,7 +14,7 @@ kṛṣṇa evaṁ bhagavati
 
 so 'ntaḥśvāsa upāramat
 
-*sūtaḥ uvāca*—Sūta Gosvāmī disse; *kṛṣṇe*—o Senhor Kṛṣṇa, a Suprema Personalidade de Godhead; *evam*—apenas; *bhagavati*—a Ele; *manaḥ*—com mente; *vāk*—fala; *dṛṣṭi*—visão; *vṛttibhiḥ*—atividades; *ātmani*—à Superalma; *ātmānam*—o ser vivo; *āveśya*—tendo mergulhado; *saḥ*—ele; *antaḥ-śvāsaḥ*—inalação; *upāramat*—ficou silencioso.
+*sūtaḥ uvāca*—Sūta Gosvāmī disse; *kṛṣṇe*—o Senhor Kṛṣṇa, a Suprema Personalidade de Godhead; *evam*—apenas; *bhagavati*—a Ele; *manaḥ*—mente; *vāk*—fala; *dṛṣṭi*—visão; *vṛttibhiḥ*—atividades; *ātmani*—à Superalma; *ātmānam*—o ser vivo; *āveśya*—tendo mergulhado; *saḥ*—ele; *antaḥ-śvāsaḥ*—inalação; *upāramat*—ficou silencioso.
 
 **Sūta Gosvāmī disse: Assim Bhīṣmadeva mergulhou a si mesmo na Superalma, o Senhor Śrī Kṛṣṇa, a Suprema Personalidade de Godhead, com sua mente, fala, visão e ações, e assim ficou silencioso, e sua respiração parou.**
 

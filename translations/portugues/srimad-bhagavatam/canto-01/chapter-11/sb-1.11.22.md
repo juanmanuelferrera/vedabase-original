@@ -11,7 +11,7 @@ prahvābhivādanāśleṣa-
 
 varaiś cābhimatair vibhuḥ
 
-*prahvā*—inclinando Sua cabeça; *abhivādana*—cumprimentando com palavras; *āśleṣa*—abraçando; *kara-sparśa*—apertando as mãos; *smita-īkṣaṇaiḥ*—com um olhar sorridente; *āśvāsya*—com encorajamento; *ca*—e; *āśvapākebhyaḥ*—até a mais baixa posição dos comedores de cão; *varaiḥ*—por bênçãos; *ca*—também; *abhimataiḥ*—conforme desejado por; *vibhuḥ*—o Todo-poderoso.
+*prahvā*—inclinando Sua cabeça; *abhivādana*—cumprimentando com palavras; *āśleṣa*—abraçando; *kara-sparśa*—apertando as mãos de; *smita-īkṣaṇaiḥ*—com um olhar sorridente; *āśvāsya*—com encorajamento; *ca*—e; *āśvapākebhyaḥ*—até a mais baixa posição dos comedores de cão; *varaiḥ*—por bênçãos; *ca*—também; *abhimataiḥ*—conforme desejado por; *vibhuḥ*—o Todo-poderoso.
 
 **O Senhor Todo-Poderoso saudou todos os presentes inclinando a cabeça, trocando saudações, abraçando, apertando mãos, olhando e sorrindo, dando garantias e concedendo bênçãos, mesmo aos de mais baixa categoria.**
 

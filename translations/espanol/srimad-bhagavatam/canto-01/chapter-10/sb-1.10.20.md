@@ -8,7 +8,7 @@
 > kauravendra-pura-strīṇāṁ\
 > sarva-śruti-mano-haraḥ
 
-*anyonyam*—entre sí; *āsīt*—hubo; *sañjalpaḥ*—conversación; *uttama-śloka*—el Supremo, a quien se lo alaba mediante poesía selecta; *cetasām*—de aquellos cuyos corazones están absortos de esa manera; *kaurava-indra*—el rey de los Kurus; *pura*—capital; *strīṇām*—todas las damas; *sarva*—todos; *śruti*—los *Vedas*; *manaḥ-haraḥ*—atractiva para la mente.
+*anyonyam*—entre sí; *āsīt*—hubo; *sañjalpaḥ*—acerca de; *uttama-śloka*—el Supremo, a quien se lo alaba mediante poesía selecta; *cetasām*—de aquellos cuyos corazones están absortos de esa manera; *kaurava-indra*—el rey de los Kurus; *pura*—capital; *strīṇām*—todas las damas; *sarva*—todos; *śruti*—los *Vedas*; *manaḥ-haraḥ*—atractiva para la mente.
 
 **Las damas de las azoteas de todas las casas de Hastināpura, que estaban todas absortas en pensar en las trascendentales cualidades del Señor, a quien se canta en poesía selecta, comenzaron a hablar de Él. Esta plática era más atractiva que los himnos de los Vedas.**
 

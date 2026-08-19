@@ -8,7 +8,7 @@
 > prema-smita-snigdha-nirīkṣaṇānanaṁ\
 > paśyema rūpaṁ tava sarva-saubhagam
 
-*aho*—¡oh, es nuestra buena suerte!; *sa-nāthāḥ*—estar bajo la protección del amo; *bhavatā*—por Tu buena persona; *sma*—como nos hemos vuelto; *yat vayam*—como somos; *traiviṣṭa-pānām*—de los semidioses; *api*—también; *dūra-darśanam*—visto muy rara vez; *prema-smita*—sonriendo con amor; *snigdha*—afectuoso; *nirīkṣaṇa-ānanam*—cara que luce de esa manera; *paśyema*—miremos; *rūpam*—belleza; *tava*—Tuya; *sarva*—todo; *saubhagam*—lo auspicioso.
+*aho*—¡oh, es nuestra buena suerte!; *sa-nāthāḥ*—estar bajo la protección del amo; *bhavatā*—por Tu buena persona; *sma*—como nos hemos vuelto; *yat vayam*—como somos; *traiviṣṭa-pānām*—de los semidioses; *api*—también; *dūra-darśanam*—visto muy rara vez; *prema-smita*—sonriendo con amor; *snigdha*—afectuoso; *nirīkṣaṇa-ānanam*—cara que luce de esa manera; *paśyema*—contemplándote a Ti; *rūpam*—belleza; *tava*—Tuya; *sarva*—todo; *saubhagam*—lo auspicioso.
 
 **¡Oh!, es nuestra buena fortuna que hoy hayamos venido de nuevo bajo Tu protección por Tu presencia, pues Tu Señoría rara vez visita siquiera a los habitantes del cielo. Ahora nos es posible mirar Tu sonriente rostro, que está lleno de afectuosas miradas. Ahora podemos ver Tu forma trascendental, llena de toda buena fortuna.**
 
