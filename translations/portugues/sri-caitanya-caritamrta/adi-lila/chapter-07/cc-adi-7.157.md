@@ -7,7 +7,7 @@ prabhu yabe yā'na viśveśvara-daraśane
 
 lakṣa lakṣa loka āsi' mile sei sthāne
 
-*prabhu*—o Senhor Caitanya Mahāprabhu; *yabe*—quando; *yā'na*—vai; *viśveśvara*—a deidade de Vārāṇasī; *daraśane*—visitar; *lakṣa lakṣa*—centenas de milhares; *loka*—pessoas; *āsi'*—vindo; *mile*—encontram-se; *sei*—aquele; *sthāne*—no lugar.
+*prabhu*—o Senhor Caitanya Mahāprabhu; *yabe*—quando; *yā'na*—vai; *viśveśvara*—a deidade de Vārāṇasī; *daraśane*—visitar; *lakṣa lakṣa*—centenas e milhares; *loka*—pessoas; *āsi'*—vindo; *mile*—encontram-se; *sei*—aquele; *sthāne*—no lugar.
 
 **Quando o Senhor foi visitar o templo de Viśveśvara, centenas e milhares de pessoas se reuniram para vê-Lo.**
 

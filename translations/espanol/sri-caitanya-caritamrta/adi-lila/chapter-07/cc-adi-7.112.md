@@ -6,7 +6,7 @@
 > tāṅhāra vibhūti, deha,--saba cid-ākāra\
 > cid-vibhūti ācchādi' tāṅre kahe 'nirākāra'
 
-*tāṅhāra*—Su (de la Suprema Personalidad de Dios); *vibhūti*—poder espiritual; *deha*—cuerpo; *saba*—todo; *cit-ākāra*—forma espiritual; *cit-vibhūti*—opulencia espiritual; *ācchādi'*—cubriendo; *tāṅre*—a Él; *kahe*—dice; *nirākāra*—sin forma.
+*tāṅhāra*—Su (de la Suprema Personalidad de Dios); *vibhūti*—poder espiritual; *deha*—cuerpo; *saba*—todo; *cit-ākāra*—forma espiritual; *cit-vibhūti*—opulencia espiritual; *ācchādi'*—cubriendo; *tāṅre*—a Él; *kahe*—dijo; *nirākāra*—sin forma.
 
 **»Todo lo concerniente a la Suprema Personalidad de Dios es espiritual, incluidos Su cuerpo, Su opulencia y Su parafernalia. La filosofía māyāvāda, sin embargo, encubriendo Su opulencia espiritual, defiende la teoría del impersonalismo.**
 

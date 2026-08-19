@@ -6,7 +6,7 @@
 > ei-mata sarva-sūtrera vyākhyāna śuniyā\
 > sakala sannyāsī kahe vinaya kariyā
 
-*ei-mata*—de este modo; *sarva-sūtrera*—de todos los aforismos del Vedānta-sūtra; *vyākhyāna*—explicación; *śuniyā*—al escuchar; *sakala*—todos; *sannyāsī*—los grupos de *sannyāsīs* māyāvādīs; *kahe*—dijeron; *vinaya*—con humildad; *kariyā*—haciéndolo.
+*ei-mata*—de este modo; *sarva-sūtrera*—de todos los códigos del *Vedānta-sūtra*; *vyākhyāna*—explicación; *śuniyā*—al escuchar; *sakala*—todos; *sannyāsī*—los grupos de *sannyāsīs* māyāvādīs; *kahe*—dijeron; *vinaya*—con humildad; *kariyā*—haciéndolo.
 
 **Cuando todos los *sannyāsīs* māyāvādīs escucharon la explicación de Caitanya Mahāprabhu sobre la base de *sambandha*, *abhidheya* y *prayojana*, hablaron con gran humildad.**
 

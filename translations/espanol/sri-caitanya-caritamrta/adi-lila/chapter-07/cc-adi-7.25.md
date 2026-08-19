@@ -6,7 +6,7 @@
 > uchalila prema-vanyā caudike veḍāya\
 > strī, vṛddha, bālaka, yuvā, sabāre ḍubāya
 
-*uchalila*—se agitó; *prema-vanyā*—la inundación de amor por Dios; *caudike*—en todas las direcciones; *veḍāya*—rodeando; *strī*—mujeres; *vṛddha*—ancianos; *bālaka*—niños; *yuvā*—jóvenes; *sabāre*—a todos ellos; *ḍubāya*—sumergidos.
+*uchalila*—se agitó; *prema-vanyā*—la inundación de amor por Dios; *caudike*—en todas las direcciones; *veḍāya*—rodeando; *strī*—mujer; *vṛddha*—ancianos; *bālaka*—niños; *yuvā*—jóvenes; *sabāre*—a todos ellos; *ḍubāya*—sumergidos.
 
 **La inundación del amor por Dios se desbordó en todas las direcciones, y así jóvenes, ancianos, mujeres y niños quedaron todos sumergidos en aquel diluvio.**
 

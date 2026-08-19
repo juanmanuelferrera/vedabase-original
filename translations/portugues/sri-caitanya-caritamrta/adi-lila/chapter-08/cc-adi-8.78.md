@@ -7,7 +7,7 @@ ei grantha lekhāya more 'madana-mohana'
 
 āmāra likhana yena śukera paṭhana
 
-*ei*—esta; *grantha*—grande escritura; *lekhāya*—faz-me escrever; *more*—a mim; *madana-mohana*—a Deidade; *āmāra*—minha; *likhana*—escrita; *yena*—como; *śukera*—do papagaio; *paṭhana*—resposta.
+*ei*—esta; *grantha*—grande obra literária; *lekhāya*—faz-me escrever; *more*—a mim; *madana-mohana*—a Deidade; *āmāra*—minha; *likhana*—escrita; *yena*—como; *śukera*—do papagaio; *paṭhana*—resposta.
 
 **Na verdade, o Śrī Caitanya-caritāmṛta não é escrito por mim, mas ditado por Śrī Madana-mohana. Minha escrita é como a repetição de um papagaio.**
 

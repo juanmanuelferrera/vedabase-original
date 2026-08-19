@@ -7,7 +7,7 @@ sarva-veda-sūtre kare kṛṣṇera abhidhāna
 
 mukhya-vṛtti chāḍi' kaila lakṣaṇā-vyākhyāna
 
-*sarva-veda-sūtre*—em todos os aforismos do Vedānta-sūtra; *kare*—estabelece; *kṛṣṇera*—do Senhor Kṛṣṇa; *abhidhāna*—explicação; *mukhya-vṛtti*—interpretação direta; *chāḍi'*—abandonando; *kaila*—fez; *lakṣaṇā*—indireta; *vyākhyāna*—explicação.
+*sarva-veda-sūtre*—em todos os códigos do Vedānta-sūtra; *kare*—estabelece; *kṛṣṇera*—do Senhor Kṛṣṇa; *abhidhāna*—explicação; *mukhya-vṛtti*—interpretação direta; *chāḍi'*—abandonando; *kaila*—fez; *lakṣaṇā*—indireta; *vyākhyāna*—explicação.
 
 **"Em todos os sūtras e escrituras Védicas, é o Senhor Kṛṣṇa que deve ser compreendido, mas os seguidores de Śaṅkarācārya cobriram o verdadeiro significado dos *Vedas* com explicações indiretas.**
 

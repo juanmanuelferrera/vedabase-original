@@ -6,7 +6,7 @@
 > vyāsera sūtrete kahe 'pariṇāma'-vāda\
 > 'vyāsa bhrānta'--bali' tāra uṭhāila vivāda
 
-*vyāsera*—de Śrīla Vyāsadeva; *sūtrete*—en los aforismos; *kahe*—describe; *pariṇāma*—transformación; *vāda*—filosofía; *vyāsa*—Śrīla Vyāsadeva; *bhrānta*—equivocado; *bali'*—acusándole; *tāra*—su; *uṭhāila*—levantó; *vivāda*—oposición.
+*vyāsera*—de Śrīla Vyāsadeva; *sūtrete*—en los códigos; *kahe*—describe; *pariṇāma*—transformación; *vāda*—filosofía; *vyāsa*—Śrīla Vyāsadeva; *bhrānta*—equivocado; *bali'*—acusándole; *tāra*—su; *uṭhāila*—levantó; *vivāda*—oposición.
 
 **»En su Vedānta-sūtra, Śrīla Vyāsadeva ha descrito que todo no es más que una transformación de la energía del Señor. Śaṅkarācārya, sin embargo, ha desencaminado al mundo al comentar que Vyāsadeva estaba equivocado. De este modo ha suscitado una gran oposición al teísmo por todo el mundo.**
 

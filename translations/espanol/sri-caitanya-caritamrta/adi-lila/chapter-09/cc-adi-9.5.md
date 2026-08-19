@@ -6,7 +6,7 @@
 > esaba-prasāde likhi caitanya-līlā-guṇa\
 > jāni vā nā jāni, kari āpana-śodhana
 
-*esaba*—de todos estos; *prasāde*—por la misericordia; *likhi*—escribo; *caitanya*—del Señor Caitanya; *līlā-guṇa*—pasatiempos y cualidades; *jāni*—sé; *vā*—o; *nā*—no; *jāni*—sé; *kari*—hago; *āpana*—propia; *śodhana*—purificación.
+*esaba*—de todos estos; *prasāde*—por la misericordia; *likhi*—escribo; *caitanya*—del Señor Caitanya; *līlā-guṇa*—pasatiempos y cualidad; *jāni*—sé; *vā*—o; *nā*—no; *jāni*—sé; *kari*—hago; *āpana*—propia; *śodhana*—purificación.
 
 **Es por la misericordia de todos estos vaiṣṇavas y gurus que intento escribir acerca de los pasatiempos y las cualidades del Señor Caitanya Mahāprabhu. Sea que sepa o no sepa, es para mi propia purificación que escribo este libro.**
 
