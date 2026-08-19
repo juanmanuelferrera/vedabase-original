@@ -16,7 +16,7 @@ yadaikaikataro 'nyābhyāṁ
 
 *sva*-bhāva upahanyate
 
-*sattvam*—o modo da bondade; *rajaḥ*—o modo da paixão; *tamaḥ*—o modo da escuridão; *iti*—assim; *tisraḥ*—os três; *sura*—semideus; *nṛ*—ser humano; *nārakāḥ*—aquele que sofre condições infernais; *tatra api*—mesmo ali; *ekaikaśaḥ*—outro; *rājan*—ó Rei; *bhidyante*—divide-se em; *gatayaḥ*—movimentos; *tridhā*—três; *yadā*—quando; *ekaikataraḥ*—um em relação a outro; *anyābhyām*—dos outros; *sva-bhāvaḥ*—hábito; *upahanyate*—desenvolve-se.
+*sattvam*—o modo da bondade; *rajaḥ*—o modo da paixão; *tamaḥ*—o modo da escuridão; *iti*—assim; *tisraḥ*—trio; *sura*—semideus; *nṛ*—ser humano; *nārakāḥ*—aquele que sofre condições infernais; *tatra api*—mesmo ali; *ekaikaśaḥ*—outro; *rājan*—ó Rei; *bhidyante*—divide-se em; *gatayaḥ*—movimentos; *tridhā*—três; *yadā*—quando; *ekaikataraḥ*—um em relação a outro; *anyābhyām*—dos outros; *sva-bhāvaḥ*—hábito; *upahanyate*—desenvolve-se.
 
 **De acordo com os diferentes modos da natureza material — o modo da bondade, o modo da paixão e o modo da escuridão —, há diferentes criaturas, conhecidas como semideuses, seres humanos e entidades vivas infernais. Ó Rei, mesmo um determinado modo da natureza, ao misturar-se com os outros dois, divide-se em três, e assim cada tipo de criatura é influenciado pelos outros modos e adquire também seus hábitos.**
 

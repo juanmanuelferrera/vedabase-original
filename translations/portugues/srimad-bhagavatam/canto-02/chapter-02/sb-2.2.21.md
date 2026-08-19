@@ -8,7 +8,7 @@ niruddha-saptāyatano 'napekṣaḥ
 sthitvā muhūrtārdham akuṇṭha-dṛṣṭir
 nirbhidya mūrdhan visṛjet paraṁ gataḥ
 
-*tasmāt*—de lá; *bhruvoḥ*—das sobrancelhas; *antaram*—entre; *unnayeta*—deveria ser trazido; *niruddha*—bloqueando; *sapta*—sete; *āyatanaḥ*—saídas do ar vital; *anapekṣaḥ*—independente de todo gozo material; *sthitvā*—por manter; *muhūrta*—de um momento; *ardham*—metade; *akuṇṭha*—de volta para casa, de volta para Deus; *dṛṣṭiḥ*—aquele cujo objetivo é fixado assim; *nirbhidya*—punindo; *mūrdhan*—o buraco cerebral; *visṛjet*—deveria deixar; *param*—o Supremo; *gataḥ*—tendo ido para.
+*tasmāt*—de lá; *bhruvoḥ*—das sobrancelhas; *antaram*—entre; *unnayeta*—deveria ser trazido; *niruddha*—bloqueando; *sapta*—sete; *āyatanaḥ*—saídas do ar vital; *anapekṣaḥ*—independente de todo gozo material; *sthitvā*—por manter; *muhūrta*—de um momento; *ardham*—metade; *akuṇṭha*—de volta para casa, de volta para Deus; *dṛṣṭiḥ*—aquele cujo objetivo é fixado assim; *nirbhidya*—punindo; *mūrdhan*—o buraco cerebral; *visṛjet*—deveria deixar este corpo; *param*—o Supremo; *gataḥ*—tendo ido para.
 
 **Depois disso, o bhakti-yogī deve impelir o ar vital para o meio das sobrancelhas e, então, bloqueando as sete saídas do ar vital, deve manter seu alvo de voltar ao lar, de volta ao Supremo. Se estiver completamente livre de todos os desejos de gozo material, deve então alcançar a cavidade cerebral e abandonar esta conexão material, tendo-se dirigido ao Supremo.**
 

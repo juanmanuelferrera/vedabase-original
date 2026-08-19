@@ -11,7 +11,7 @@
 > yadaikaikataro 'nyābhyāṁ\
 > sva-bhāva upahanyate
 
-*sattvam*—la modalidad de la bondad; *rajaḥ*—la modalidad de la pasión; *tamaḥ*—la modalidad de la oscuridad; *iti*—así pues; *tisraḥ*—las tres; *sura*—semidiós; *nṛ*—ser humano; *nārakāḥ*—aquel que se encuentra sufriendo las condiciones infernales; *tatra api*—incluso allí; *ekaikaśaḥ*—otro; *rājan*—¡oh, rey!; *bhidyante*—se dividen entre; *gatayaḥ*—movimientos; *tridhā*—tres; *yadā*—en ese momento; *ekaikataraḥ*—uno en relación con otro; *anyābhyām*—del otro; *sva-bhāvaḥ*—hábito; *upahanyate*—desarrolla.
+*sattvam*—la modalidad de la bondad; *rajaḥ*—la modalidad de la pasión; *tamaḥ*—la modalidad de la oscuridad; *iti*—así pues; *tisraḥ*—trío; *sura*—semidiós; *nṛ*—ser humano; *nārakāḥ*—aquel que se encuentra sufriendo las condiciones infernales; *tatra api*—incluso allí; *ekaikaśaḥ*—otro; *rājan*—¡oh, rey!; *bhidyante*—se dividen entre; *gatayaḥ*—movimientos; *tridhā*—tres; *yadā*—en ese momento; *ekaikataraḥ*—uno en relación con otro; *anyābhyām*—del otro; *sva-bhāvaḥ*—hábito; *upahanyate*—desarrolla.
 
 **De acuerdo con las diferentes modalidades de la naturaleza material —la modalidad de la bondad, la modalidad de la pasión y la modalidad de la oscuridad—, existen diferentes criaturas vivientes, que son conocidas como semidioses, seres humanos y entidades vivientes infernales. ¡Oh, rey!, hasta una modalidad específica de la naturaleza, estando mezclada con las otras dos, se divide en tres, y, así pues, cada clase de criatura viviente es influida por las otras modalidades, y así adquiere sus propios hábitos.**
 

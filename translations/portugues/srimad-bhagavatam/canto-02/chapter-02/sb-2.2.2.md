@@ -8,7 +8,7 @@ yan nāmabhir dhyāyati dhīr apārthaiḥ
 paribhramaṁs tatra na vindate 'rthān
 māyāmaye vāsanayā śayānaḥ
 
-*śābdasya*—do som Védico; *hi*—certamente; *brahmaṇaḥ*—dos Vedas; *eṣaḥ*—estes; *panthāḥ*—o caminho; *yat*—o que é; *nāmabhiḥ*—por diferentes nomes; *dhyāyati*—pondera; *dhīḥ*—inteligência; *apārthaiḥ*—por ideias sem sentido; *paribhraman*—vagando; *tatra*—lá; *na*—nunca; *vindate*—desfruta; *arthān*—realidades; *māyā-maye*—em coisas ilusórias; *vāsanayā*—por desejos diferentes; *śayānaḥ*—como se estivesse sonhando em sono.
+*śābdasya*—do som Védico; *hi*—certamente; *brahmaṇaḥ*—dos Vedas; *eṣaḥ*—estes; *panthāḥ*—o caminho; *yat*—o que é; *nāmabhiḥ*—por diferentes nomes; *dhyāyati*—pondera sobre; *dhīḥ*—inteligência; *apārthaiḥ*—por ideias sem sentido; *paribhraman*—vagando; *tatra*—lá; *na*—nunca; *vindate*—desfruta; *arthān*—realidades; *māyā-maye*—em coisas ilusórias; *vāsanayā*—por desejos diferentes; *śayānaḥ*—como se estivesse sonhando em sono.
 
 **O modo de apresentação dos sons Védicos é tão desconcertante que a inteligência das pessoas é dirigida para coisas sem sentido, como os reinos celestiais etc. As almas condicionadas pairam num sonho de tais prazeres celestiais ilusórios, mas, na verdade, não saboreiam nenhuma felicidade tangível em tais lugares.**
 

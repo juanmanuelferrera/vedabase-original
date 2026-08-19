@@ -8,7 +8,7 @@ nārtir na codvega ṛte kutaścit
 yac cit tato 'daḥ kṛpayānidaṁ-vidāṁ
 duranta-duḥkha-prabhavānudarśanāt
 
-*na*—nunca; *yatra*—há; *śokaḥ*—luto; *na*—nem; *jarā*—velhice; *na*—nem; *mṛtyuḥ*—morte; *na*—nem; *artiḥ*—dores; *na*—nem; *ca*—também; *udvegaḥ*—ansiedades; *ṛte*—exceção; *kutaścit*—às vezes; *yat*—porque; *cit*—consciência; *tataḥ*—portanto; *adaḥ*—compaixão; *kṛpayā*—de simpatia sincera do coração; *an-idam-vidām*—daqueles que são ignorantes do processo de serviço devocional; *duranta*—insuperável; *duḥkha*—miséria; *prabhava*—nascimento repetido e morte; *anudarśanāt*—pela experiência sucessiva.
+*na*—nunca; *yatra*—há; *śokaḥ*—luto; *na*—nem; *jarā*—velhice; *na*—nem; *mṛtyuḥ*—morte; *na*—nem; *artiḥ*—dores; *na*—nem; *ca*—também; *udvegaḥ*—ansiedades; *ṛte*—exceção; *kutaścit*—às vezes; *yat*—porque; *cit*—consciência; *tataḥ*—portanto; *adaḥ*—compaixão; *kṛpayā*—de simpatia sincera do coração; *an-idam-vidām*—daqueles que são ignorantes do processo de serviço devocional; *duranta*—insuperável; *duḥkha*—miséria; *prabhava*—aumento; *anudarśanāt*—pela experiência sucessiva.
 
 **Naquele planeta de Satyaloka, não há nem pesar, nem velhice, nem morte. Não há dor de espécie alguma e, por isso, não há ansiedades, exceto que, às vezes, devido à consciência, há um sentimento de compaixão por aqueles que, ignorando o processo do serviço devocional, ficam sujeitos ao agravamento de misérias insuperáveis no mundo material.**
 

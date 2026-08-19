@@ -5,7 +5,7 @@
 > paśyañ janaṁ patitaṁ vaitaraṇyāṁ\
 > sva-karmajān paritāpāñ juṣāṇam
 
-*kaḥ*—quem mais; *tām*—esse; *tu*—mas; *anādṛtya*—negligenciando; *para-anucintām*—pensamentos transcendentais; *ṛte*—sem; *paśūn*—os materialistas; *asatīm*—no não-permanente; *nāma*—nome; *kuryāt*—adotará; *paśyan*—vendo definitivamente; *janam*—a massa geral de pessoas; *patitam*—caída; *vaitaraṇyām*—no Vaitaraṇī, o rio do sofrimento; *sva-karma-jān*—produzidos a partir do próprio trabalho; *paritāpān*—sofrimentos; *juṣāṇam*—sendo dominada por.
+*kaḥ*—quem mais; *tām*—esse; *tu*—fora; *anādṛtya*—negligenciando; *para-anucintām*—pensamentos transcendentais; *ṛte*—sem; *paśūn*—os materialistas; *asatīm*—no não-permanente; *nāma*—nome; *kuryāt*—adotará; *paśyan*—vendo definitivamente; *janam*—a massa geral de pessoas; *patitam*—caída; *vaitaraṇyām*—no Vaitaraṇī, o rio do sofrimento; *sva-karma-jān*—produzidos a partir do próprio trabalho; *paritāpān*—sofrimentos; *juṣāṇam*—sendo dominada por.
 
 **Quem mais, senão os materialistas grosseiros, negligenciará tal pensamento transcendental e se voltará apenas para os nomes não-permanentes, vendo a massa de pessoas caída no rio do sofrimento como consequência de acumular o resultado de seu próprio trabalho?**
 

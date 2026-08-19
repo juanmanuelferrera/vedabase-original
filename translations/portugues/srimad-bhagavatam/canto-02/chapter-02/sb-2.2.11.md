@@ -8,7 +8,7 @@ mahā-dhanair nūpura-kaṅkaṇādibhiḥ
 snigdhāmalākuñcita-nīla-kuntalair
 virocamānānana-hāsa-peśalam
 
-*vibhūṣitam*—bem decorado; *mekhalayā*—com uma guirlanda ornamental ao redor da cintura; *aṅgulīyakaiḥ*—por anéis de dedo; *mahā-dhanaiḥ*—todos altamente valiosos; *nūpura*—chinelos com guizos; *kaṅkaṇa-ādibhiḥ*—também por pulseiras; *snigdha*—liso; *amala*—impecável; *ākuñcita*—encaracolado; *nīla*—azulado; *kuntalaiḥ*—cabelos; *virocamāna*—muito agradável; *ānana*—rosto; *hāsa*—sorriso; *peśalam*—belo.
+*vibhūṣitam*—bem decorado; *mekhalayā*—com uma guirlanda ornamental ao redor da cintura; *aṅgulīyakaiḥ*—por anéis de dedo; *mahā-dhanaiḥ*—todos altamente valiosos; *nūpura*—guizo tilintante na perna; *kaṅkaṇa-ādibhiḥ*—também por pulseiras; *snigdha*—oleoso; *amala*—impecável; *ākuñcita*—encaracolado; *nīla*—azulado; *kuntalaiḥ*—cabelos; *virocamāna*—muito agradável; *ānana*—rosto; *hāsa*—sorriso; *peśalam*—belo.
 
 **Ele está bem decorado com uma guirlanda ornamental ao redor de Sua cintura e anéis em Seus dedos cravejados de valiosas joias. Sua perneira, Suas pulseiras, Seu cabelo oleado que se encaracola com um tom azulado e Seu belo rosto sorridente são todos muito agradáveis.**
 

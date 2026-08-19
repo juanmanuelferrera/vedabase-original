@@ -8,7 +8,7 @@ rūpaṁ ca dṛṣṭyā śvasanaṁ tvacaiva
 śrotreṇa copetya nabho-guṇatvaṁ
 prāṇena cākūtim upaiti yogī
 
-*ghrāṇena*—por cheirar; *gandham*—aroma; *rasanena*—por gosto; *vai*—exatamente; *rasam*—palato; *rūpam*—formas; *ca*—também; *dṛṣṭyā*—por visão; *śvasanam*—contato; *tvacā*—tato; *eva*—como se fosse; *śrotreṇa*—pela vibração do ouvido; *ca*—também; *upetya*—alcançando; *nabhaḥ-guṇatvam*—identificação do éter; *prāṇena*—pelos órgãos dos sentidos; *ca*—também; *ākūtim*—atividades materiais; *upaiti*—atinge; *yogī*—o devoto.
+*ghrāṇena*—por cheirar; *gandham*—sabor; *rasanena*—por gosto; *vai*—exatamente; *rasam*—palato; *rūpam*—formas; *ca*—também; *dṛṣṭyā*—por visão; *śvasanam*—contato; *tvacā*—tato; *eva*—como se fosse; *śrotreṇa*—pela vibração do ouvido; *ca*—também; *upetya*—alcançando; *nabhaḥ-guṇatvam*—identificação do éter; *prāṇena*—pelos órgãos dos sentidos; *ca*—também; *ākūtim*—atividades materiais; *upaiti*—atinge; *yogī*—o devoto.
 
 **O devoto, assim, supera os objetos sutis dos diferentes sentidos, como o sabor pelo olfato, o paladar pelo gosto, a visão pela observação das formas, o tato pelo contato, a vibração do ouvido pela identificação etérea, e os órgãos dos sentidos pelas atividades materiais.**
 

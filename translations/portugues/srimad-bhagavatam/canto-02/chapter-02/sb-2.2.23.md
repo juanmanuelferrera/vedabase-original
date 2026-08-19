@@ -8,7 +8,7 @@ bahis-tri-lokyāḥ pavanāntar-ātmanām
 na karmabhis tāṁ gatim āpnuvanti
 vidyā-tapo-yoga-samādhi-bhājām
 
-*yoga-īśvarāṇām*—dos grandes santos e devotos; *gatim*—destino; *āhuḥ*—diz-se; *antaḥ*—dentro; *bahiḥ*—fora; *tri-lokyāḥ*—dos três sistemas planetários; *pavana-antaḥ*—dentro do ar; *ātmanām*—da sutil corpo; *na*—nunca; *karmabhiḥ*—pelas atividades fruitivas; *tām*—aquela; *gatim*—velocidade; *āpnuvanti*—alcançam; *vidyā*—serviço devocional; *tapaḥ*—austeridades; *yoga*—poder místico; *samādhi*—conhecimento; *bhājām*—daqueles que entretêm.
+*yoga-īśvarāṇām*—dos grandes santos e devotos; *gatim*—destinos; *āhuḥ*—diz-se; *antaḥ*—dentro; *bahiḥ*—fora; *tri-lokyāḥ*—dos três sistemas planetários; *pavana-antaḥ*—dentro do ar; *ātmanām*—da sutil corpo; *na*—nunca; *karmabhiḥ*—pelas atividades fruitivas; *tām*—aquela; *gatim*—velocidade; *āpnuvanti*—alcançam; *vidyā*—serviço devocional; *tapaḥ*—austeridades; *yoga*—poder místico; *samādhi*—conhecimento; *bhājām*—daqueles que entretêm.
 
 **Os transcendentalistas ocupam-se com o corpo espiritual. Por isso, pela força de seu serviço devocional, de suas austeridades, de seu poder místico e de seu conhecimento transcendental, seus movimentos são irrestritos, dentro e fora dos mundos materiais. Os trabalhadores fruitivos, ou os materialistas grosseiros, jamais podem mover-se de maneira tão irrestrita.**
 

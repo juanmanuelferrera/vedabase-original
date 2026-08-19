@@ -8,7 +8,7 @@
 > paribhramaṁs tatra na vindate 'rthān\
 > māyāmaye vāsanayā śayānaḥ
 
-*śābdasya*—del sonido védico; *hi*—ciertamente; *brahmaṇaḥ*—de los *Vedas*; *eṣaḥ*—estos; *panthāḥ*—el camino; *yat*—que es; *nāmabhiḥ*—mediante diferentes nombres; *dhyāyati*—cavila; *dhīḥ*—inteligencia; *apārthaiḥ*—mediante ideas sin sentido; *paribhraman*—deambulando; *tatra*—ahí; *na*—jamás; *vindate*—disfruta; *arthān*—realidades; *māyā-maye*—en cosas ilusorias; *vāsanayā*—mediante diferentes deseos; *śayānaḥ*—como si soñara mientras duerme.
+*śābdasya*—del sonido védico; *hi*—ciertamente; *brahmaṇaḥ*—de los *Vedas*; *eṣaḥ*—estos; *panthāḥ*—el camino; *yat*—que es; *nāmabhiḥ*—mediante diferentes nombres; *dhyāyati*—cavila sobre; *dhīḥ*—inteligencia; *apārthaiḥ*—mediante ideas sin sentido; *paribhraman*—deambulando; *tatra*—ahí; *na*—jamás; *vindate*—disfruta; *arthān*—realidades; *māyā-maye*—en cosas ilusorias; *vāsanayā*—mediante diferentes deseos; *śayānaḥ*—como si soñara mientras duerme.
 
 **La forma de presentación de los sonidos Védicos es tan desconcertante que la inteligencia de la gente se dirige hacia cosas carentes de sentido, como los reinos celestiales, etc. Las almas condicionadas flotan en un sueño de tales placeres celestiales ilusorios, pero en realidad no disfrutan de ninguna felicidad tangible en esos lugares.**
 

@@ -8,7 +8,7 @@ vaihāyasānām uta yad vihāram
 aṣṭādhipatyaṁ guṇa-sannivāye
 sahaiva gacchen manasendriyaiś ca
 
-*yadi*—no entanto; *prayāsyan*—mantendo um desejo; *nṛpa*—Ó Rei; *pārameṣṭhyam*—o planeta governante do mundo material; *vaihāyasānām*—de seres conhecidos como Vaihāyasas; *uta*—se é dito; *yat*—o que é; *vihāram*—lugar de gozo; *aṣṭa-ādhipatyam*—dominando com realizações ocho; *guṇa-sannivāye*—no mundo dos três modos da natureza; *saha*—juntamente com; *eva*—certamente; *gacchet*—deveria ir; *manasā*—acompanhado pela mente; *indriyaiḥ*—e os sentidos; *ca*—também.
+*yadi*—no entanto; *prayāsyan*—mantendo um desejo; *nṛpa*—Ó Rei; *pārameṣṭhyam*—o planeta governante do mundo material; *vaihāyasānām*—de seres conhecidos como Vaihāyasas; *uta*—se é dito; *yat*—o que é; *vihāram*—lugar de gozo; *aṣṭa-ādhipatyam*—dominando com as oito perfeições; *guṇa-sannivāye*—no mundo dos três modos da natureza; *saha*—juntamente com; *eva*—certamente; *gacchet*—deveria ir; *manasā*—acompanhado pela mente; *indriyaiḥ*—e os sentidos; *ca*—também.
 
 **Ó rei, se, contudo, um yogī mantém um desejo de gozos materiais aprimorados, como a transferência para o planeta mais elevado, Brahmaloka, ou a obtenção das oito perfeições e a viagem pelo espaço exterior junto com os Vaihāyasas, ou uma situação em um dos milhões de planetas, então ele tem de levar consigo a mente e os sentidos materialmente moldados.**
 

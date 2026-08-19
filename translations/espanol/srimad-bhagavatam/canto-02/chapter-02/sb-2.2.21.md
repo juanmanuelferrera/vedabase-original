@@ -8,7 +8,7 @@
 > sthitvā muhūrtārdham akuṇṭha-dṛṣṭir\
 > nirbhidya mūrdhan visṛjet paraṁ gataḥ
 
-*tasmāt*—desde ahí; *bhruvoḥ*—de las cejas; *antaram*—entre; *unnayeta*—debe ser llevado dentro; *niruddha*—obstruyendo; *sapta*—siete; *āyatanaḥ*—salidas del aire vital; *anapekṣaḥ*—independiente de todo disfrute material; *sthitvā*—manteniendo; *muhūrta*—de un momento; *ardham*—la mitad; *akuṇṭha*—de vuelta al hogar, de vuelta a Dios; *dṛṣṭiḥ*—aquel cuyo objetivo se enfoca así; *nirbhidya*—perforando; *mūrdhan*—el agujero cerebral; *visṛjet*—debe abandonar el cuerpo; *param*—el Supremo; *gataḥ*—habiendo ido a.
+*tasmāt*—desde ahí; *bhruvoḥ*—de las cejas; *antaram*—entre; *unnayeta*—debe ser llevado dentro; *niruddha*—obstruyendo; *sapta*—siete; *āyatanaḥ*—salidas del aire vital; *anapekṣaḥ*—independiente de todo disfrute material; *sthitvā*—manteniendo; *muhūrta*—de un momento; *ardham*—la mitad; *akuṇṭha*—de vuelta al hogar, de vuelta a Dios; *dṛṣṭiḥ*—aquel cuyo objetivo se enfoca así; *nirbhidya*—perforando; *mūrdhan*—el agujero cerebral; *visṛjet*—debe abandonar este cuerpo; *param*—el Supremo; *gataḥ*—habiendo ido a.
 
 **Después de eso, el bhakti-yogī debe impulsar el aire vital hasta el entrecejo, y entonces, bloqueando las siete salidas del aire vital, debe mantener su objetivo de ir de regreso al hogar, de vuelta a Dios. Si está completamente libre de todos los deseos de disfrute material, debe entonces alcanzar el orificio cerebral y abandonar esta conexión material, habiendo llegado al Supremo.**
 

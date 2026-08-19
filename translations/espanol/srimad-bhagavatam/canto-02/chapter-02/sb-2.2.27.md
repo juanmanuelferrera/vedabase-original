@@ -8,7 +8,7 @@
 > yac cit tato 'daḥ kṛpayānidaṁ-vidāṁ\
 > duranta-duḥkha-prabhavānudarśanāt
 
-*na*—nunca; *yatra*—hay; *śokaḥ*—aflicción; *na*—ni; *jarā*—vejez; *na*—ni; *mṛtyuḥ*—muerte; *na*—ni; *artiḥ*—dolores; *na*—ni; *ca*—también; *udvegaḥ*—ansiedades; *ṛte*—con la excepción; *kutaścit*—a veces; *yat*—debido a; *cit*—conciencia; *tataḥ*—por lo tanto; *adaḥ*—compasión; *kṛpayā*—movido por la compasión sincera; *an-idam-vidām*—de aquellos que ignoran el proceso del servicio devocional; *duranta*—insuperable; *duḥkha*—desdicha; *prabhava*—reiterados nacimientos y muertes; *anudarśanāt*—mediante la experiencia sucesiva.
+*na*—nunca; *yatra*—hay; *śokaḥ*—aflicción; *na*—ni; *jarā*—vejez; *na*—ni; *mṛtyuḥ*—muerte; *na*—ni; *artiḥ*—dolores; *na*—ni; *ca*—también; *udvegaḥ*—ansiedades; *ṛte*—con la excepción; *kutaścit*—a veces; *yat*—debido a; *cit*—conciencia; *tataḥ*—por lo tanto; *adaḥ*—compasión; *kṛpayā*—movido por la compasión sincera; *an-idam-vidām*—de aquellos que ignoran el proceso del servicio devocional; *duranta*—insuperable; *duḥkha*—desdicha; *prabhava*—acrecentamiento; *anudarśanāt*—mediante la experiencia sucesiva.
 
 **En ese planeta de Satyaloka no hay aflicción, ni vejez, ni muerte. No hay dolor de ninguna clase y, por lo tanto, no hay ansiedades, salvo que a veces, debido a la conciencia, hay un sentimiento de compasión por aquellos que, sin conocer el proceso del servicio devocional, quedan sometidos al aumento de insuperables miserias en el mundo material.**
 

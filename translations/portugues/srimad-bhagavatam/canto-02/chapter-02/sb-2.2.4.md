@@ -5,7 +5,7 @@
 > saty añjalau kiṁ purudhānna-pātryā\
 > dig-valkalādau sati kiṁ dukūlaiḥ
 
-*satyām*—estando em posse; *kṣitau*—planícies de terra; *kim*—onde está a necessidade; *kaśipoḥ*—de leitos e catres; *prayāsaiḥ*—esforçando-se por; *bāhau*—os braços; *sva-siddhe*—sendo autossuficientes; *hi*—certamente; *upabarhaṇaiḥ*—cama e estrado; *kim*—qual é a utilidade; *sati*—estando presentes; *añjalau*—as palmas das mãos; *kim*—qual é a utilidade; *purudhā*—variedades de; *anna*—comestíveis; *pātryā*—pelos utensílios; *dik*—espaço aberto; *valkala-ādau*—cascas das árvores; *sati*—existindo; *kim*—qual a utilidade de; *dukūlaiḥ*—roupas.
+*satyām*—estando em posse; *kṣitau*—planícies de terra; *kim*—onde está a necessidade; *kaśipoḥ*—de leito e catres; *prayāsaiḥ*—esforçando-se por; *bāhau*—os braços; *sva-siddhe*—sendo autossuficientes; *hi*—certamente; *upabarhaṇaiḥ*—cama e estrado; *kim*—qual é a utilidade; *sati*—estando presentes; *añjalau*—as palmas das mãos; *kim*—qual é a utilidade; *purudhā*—variedades de; *anna*—comestíveis; *pātryā*—pelos utensílios; *dik*—espaço aberto; *valkala-ādau*—cascas das árvores; *sati*—existindo; *kim*—qual a utilidade de; *dukūlaiḥ*—roupas.
 
 **Quando há amplas planícies de terra sobre as quais deitar-se, qual é a necessidade de catres e camas? Quando se pode usar os próprios braços, qual é a necessidade de um travesseiro? Quando se pode usar as palmas das mãos, qual é a necessidade de variados utensílios? Quando há coberturas em abundância, ou as cascas das árvores, qual é a necessidade de roupas?**
 

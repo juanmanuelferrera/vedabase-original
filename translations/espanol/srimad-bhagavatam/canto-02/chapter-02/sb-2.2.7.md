@@ -8,7 +8,7 @@
 > paśyañ janaṁ patitaṁ vaitaraṇyāṁ\
 > sva-karmajān paritāpāñ juṣāṇam
 
-*kaḥ*—quién más; *tām*—eso; *tu*—pero; *anādṛtya*—por desdeñar; *para-anucintām*—pensamientos trascendentales; *ṛte*—sin; *paśūn*—los materialistas; *asatīm*—en lo no permanente; *nāma*—nombre; *kuryāt*—adoptarán; *paśyan*—viendo claramente; *janam*—la generalidad de la gente; *patitam*—caída; *vaitaraṇyām*—en Vaitaraṇī, el río del sufrimiento; *sva-karma-jān*—producido por el trabajo de uno; *paritāpān*—sufrimiento; *juṣāṇam*—agobiado por.
+*kaḥ*—quién más; *tām*—eso; *tu*—fuera; *anādṛtya*—por desdeñar; *para-anucintām*—pensamientos trascendentales; *ṛte*—sin; *paśūn*—los materialistas; *asatīm*—en lo no permanente; *nāma*—nombre; *kuryāt*—adoptarán; *paśyan*—viendo claramente; *janam*—la generalidad de la gente; *patitam*—caída; *vaitaraṇyām*—en Vaitaraṇī, el río del sufrimiento; *sva-karma-jān*—producido por el trabajo de uno; *paritāpān*—sufrimiento; *juṣāṇam*—agobiado por.
 
 **¿Quién más, aparte de los muy materialistas, va a desdeñar ese pensamiento trascendental y adoptar solo los nombres temporales, viendo que las masas están caídas en el río del sufrimiento como consecuencia del resultado que han devengado de su propio trabajo?**
 

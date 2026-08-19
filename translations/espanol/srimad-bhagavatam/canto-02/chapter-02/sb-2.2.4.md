@@ -8,7 +8,7 @@
 > saty añjalau kiṁ purudhānna-pātryā\
 > dig-valkalādau sati kiṁ dukūlaiḥ
 
-*satyām*—poseyendo; *kṣitau*—tierras llanas; *kim*—qué necesidad hay; *kaśipoḥ*—de camas y catres; *prayāsaiḥ*—esforzándose en; *bāhau*—los brazos; *sva-siddhe*—siendo autosuficiente; *hi*—ciertamente; *upabarhaṇaiḥ*—cama y bastidor; *kim*—de qué sirve; *sati*—estando presente; *añjalau*—las palmas de las manos; *kim*—de qué sirve; *purudhā*—variedades de; *anna*—comestibles; *pātryā*—con los utensilios; *dik*—espacio abierto; *valkala-ādau*—cortezas de árboles; *sati*—existiendo; *kim*—de qué sirve; *dukūlaiḥ*—ropa.
+*satyām*—poseyendo; *kṣitau*—tierras llanas; *kim*—qué necesidad hay; *kaśipoḥ*—de cama y catres; *prayāsaiḥ*—esforzándose en; *bāhau*—los brazos; *sva-siddhe*—siendo autosuficiente; *hi*—ciertamente; *upabarhaṇaiḥ*—cama y bastidor; *kim*—de qué sirve; *sati*—estando presente; *añjalau*—las palmas de las manos; *kim*—de qué sirve; *purudhā*—variedades de; *anna*—comestibles; *pātryā*—con los utensilios; *dik*—espacio abierto; *valkala-ādau*—cortezas de árboles; *sati*—existiendo; *kim*—de qué sirve; *dukūlaiḥ*—ropa.
 
 **Cuando hay amplias superficies de tierra donde tenderse, ¿qué necesidad hay de catres y camas? Cuando uno puede utilizar sus propios brazos, ¿qué necesidad hay de almohada? Cuando uno puede usar las palmas de sus manos, ¿qué necesidad hay de toda clase de utensilios? Cuando hay coberturas en abundancia, o las cortezas de los árboles, ¿qué necesidad hay de ropa?**
 

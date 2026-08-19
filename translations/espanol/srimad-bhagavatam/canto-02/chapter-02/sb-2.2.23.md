@@ -8,7 +8,7 @@
 > na karmabhis tāṁ gatim āpnuvanti\
 > vidyā-tapo-yoga-samādhi-bhājām
 
-*yoga-īśvarāṇām*—de los grandes santos y devotos; *gatim*—destino; *āhuḥ*—se dice; *antaḥ*—dentro; *bahiḥ*—fuera; *tri-lokyāḥ*—de los tres sistemas planetarios; *pavana-antaḥ*—dentro del aire; *ātmanām*—del cuerpo sutil; *na*—nunca; *karmabhiḥ*—mediante actividades fruitivas; *tām*—esa; *gatim*—rapidez; *āpnuvanti*—logra; *vidyā*—servicio devocional; *tapaḥ*—austeridades; *yoga*—poder místico; *samādhi*—conocimiento; *bhājām*—de aquellos que consideran.
+*yoga-īśvarāṇām*—de los grandes santos y devotos; *gatim*—destinos; *āhuḥ*—se dice; *antaḥ*—dentro; *bahiḥ*—fuera; *tri-lokyāḥ*—de los tres sistemas planetarios; *pavana-antaḥ*—dentro del aire; *ātmanām*—del cuerpo sutil; *na*—nunca; *karmabhiḥ*—mediante actividades fruitivas; *tām*—esa; *gatim*—rapidez; *āpnuvanti*—logra; *vidyā*—servicio devocional; *tapaḥ*—austeridades; *yoga*—poder místico; *samādhi*—conocimiento; *bhājām*—de aquellos que consideran.
 
 **Los trascendentalistas se ocupan del cuerpo espiritual. Por ello, en virtud de la fuerza de su servicio devocional, sus austeridades, su poder místico y su conocimiento trascendental, sus movimientos no tienen restricción, dentro y fuera de los mundos materiales. Los trabajadores fruitivos, o los materialistas burdos, jamás pueden moverse de manera tan libre de restricciones.**
 

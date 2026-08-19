@@ -8,7 +8,7 @@
 > snigdhāmalākuñcita-nīla-kuntalair\
 > virocamānānana-hāsa-peśalam
 
-*vibhūṣitam*—bien adornado; *mekhalayā*—con una faja decorativa alrededor de la cintura; *aṅgulīyakaiḥ*—con anillos en los dedos; *mahā-dhanaiḥ*—todos muy valiosos; *nūpura*—ajorcas tintineantes en los tobillos; *kaṅkaṇa-ādibhiḥ*—también con ajorcas; *snigdha*—grasoso; *amala*—inmaculado; *ākuñcita*—ondulado; *nīla*—azulado; *kuntalaiḥ*—cabello; *virocamāna*—muy agradable; *ānana*—cara; *hāsa*—sonrisa; *peśalam*—hermosa.
+*vibhūṣitam*—bien adornado; *mekhalayā*—con una faja decorativa alrededor de la cintura; *aṅgulīyakaiḥ*—con anillos en los dedos; *mahā-dhanaiḥ*—todos muy valiosos; *nūpura*—ajorca tintineante en el tobillo; *kaṅkaṇa-ādibhiḥ*—también con ajorcas; *snigdha*—grasoso; *amala*—inmaculado; *ākuñcita*—ondulado; *nīla*—azulado; *kuntalaiḥ*—cabello; *virocamāna*—muy agradable; *ānana*—cara; *hāsa*—sonrisa; *peśalam*—hermosa.
 
 **Está bien adornado con una guirnalda ornamental alrededor de Su cintura y anillos en Sus dedos engastados con valiosas joyas. Su ajorca, Sus brazaletes, Su cabello untado de aceite que se riza con un matiz azulado, y Su hermoso rostro sonriente son todos muy placenteros.**
 
