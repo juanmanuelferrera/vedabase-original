@@ -11,7 +11,7 @@ ajāta-śatravaḥ śāntāḥ
 
 *sādhavaḥ sādhu*-bhūṣaṇāḥ
 
-*titikṣavaḥ*—tolerantes; *kāruṇikāḥ*—misericordiosos; *suhṛdaḥ*—amigos; *sarva-dehinām*—de todas as entidades vivas; *ajāta-śatravaḥ*—inimigos de ninguém; *śāntāḥ*—pacíficos; *sādhavaḥ*—seguidores das escrituras; *sādhu-bhūṣaṇāḥ*—adornados com características sublimes.
+*titikṣavaḥ*—tolerantes; *kāruṇikāḥ*—misericordiosos; *suhṛdaḥ*—amigos; *sarva-dehinām*—a todas as entidades vivas; *ajāta-śatravaḥ*—inimigos de ninguém; *śāntāḥ*—pacíficos; *sādhavaḥ*—seguidores das escrituras; *sādhu-bhūṣaṇāḥ*—adornados com características sublimes.
 
 **Os sintomas de um *sādhu* são que ele é tolerante, misericordioso e amigo de todas as entidades vivas. Não tem inimigos, é pacífico, segue as escrituras e todas as suas características são sublimes.**
 
