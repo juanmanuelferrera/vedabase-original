@@ -6,7 +6,7 @@
 yuga-manvantare dhari' nānā avatāra
 dharma saṁsthāpana kare, adharma saṁhāra
 
-*yuga-manu-antare*—nas eras e milênios de Manu; *dhari'*—aceitando; *nānā*—várias; *avatāra*—encarnações; *dharma saṁsthāpana kare*—estabelece os princípios da religião; *adharma saṁhāra*—vencendo os princípios irreligiosos.
+*yuga-manu-antare*—nas eras dos milênios de Manu; *dhari'*—aceitando; *nānā*—várias; *avatāra*—encarnações; *dharma saṁsthāpana kare*—estabelece os princípios da religião; *adharma saṁhāra*—vencendo os princípios irreligiosos.
 
 **Nas eras e milênios de Manu, Ele aparece como diferentes encarnações para estabelecer os princípios da verdadeira religião e derrotar os princípios da irreligião.**
 
