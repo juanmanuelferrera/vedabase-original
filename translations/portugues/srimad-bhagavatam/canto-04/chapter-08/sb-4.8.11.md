@@ -11,7 +11,7 @@ na gṛhīto mayā yat tvaṁ
 
 kukṣāv api nṛpātmajaḥ
 
-*na*—não; *vatsa*—minha querida criança; *nṛpateḥ*—do Rei; *dhiṣṇyam*—assento; *bhavān*—tu; *āroḍhum*—subir; *arhati*—mereces; *na*—não; *gṛhītaḥ*—tomado; *mayā*—por mim; *yat*—porque; *tvam*—tu; *kukṣau*—no ventre; *api*—embora; *nṛpa-ātmajaḥ*—filho do Rei.
+*na*—não; *vatsa*—minha querida criança; *nṛpateḥ*—do Rei; *dhiṣṇyam*—assento; *bhavān*—tu; *āroḍhum*—subir; *arhati*—mereces; *na*—não; *gṛhītaḥ*—tomado; *mayā*—por mim; *yat*—porque; *tvam*—tu mesmo; *kukṣau*—no ventre; *api*—embora; *nṛpa-ātmajaḥ*—filho do Rei.
 
 **A rainha Suruci disse a Dhruva Mahārāja: Meu querido menino, tu não mereces sentar-te no trono nem no colo do rei. Por certo és também filho do rei, mas, por não teres nascido em meu ventre, não estás qualificado a sentar-te no colo de teu pai.**
 

@@ -11,7 +11,7 @@ daivopasāditaṁ yāvad
 
 *vīkṣyeśvara*-gatiṁ budhaḥ
 
-*parituṣyet*—deve-se ficar satisfeito; *tataḥ*—portanto; *tāta*—meu querido menino; *tāvat*—em tal; *mātreṇa*—medida; *pūruṣaḥ*—uma pessoa; *daiva*—destino; *upasāditam*—oferecido por; *yāvat*—como; *vīkṣya*—vendo; *īśvara-gatim*—o processo do Supremo; *budhaḥ*—aquele que é inteligente.
+*parituṣyet*—deve-se ficar satisfeito; *tataḥ*—portanto; *tāta*—meu querido menino; *tāvat*—em tal; *mātreṇa*—quantidade; *pūruṣaḥ*—uma pessoa; *daiva*—destino; *upasāditam*—oferecido por; *yāvat*—como; *vīkṣya*—vendo; *īśvara-gatim*—o processo do Supremo; *budhaḥ*—aquele que é inteligente.
 
 **O processo da Suprema Personalidade de Deus é maravilhoso. Quem é inteligente deve aceitar esse processo e ficar satisfeito com o que vier, favorável ou desfavorável, por Sua suprema vontade.**
 

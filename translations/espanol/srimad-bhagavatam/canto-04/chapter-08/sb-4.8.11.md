@@ -8,7 +8,7 @@
 > na gṛhīto mayā yat tvaṁ\
 > kukṣāv api nṛpātmajaḥ
 
-*na*—no; *vatsa*—mi querido niño; *nṛpateḥ*—del rey; *dhiṣṇyam*—asiento; *bhavān*—tú mismo; *āroḍhum*—para subirte; *arhati*—mereces; *na*—no; *gṛhītaḥ*—tomado; *mayā*—por mí; *yat*—porque; *tvam*—tú; *kukṣau*—en el vientre; *api*—aunque; *nṛpa-ātmajaḥ*—hijo del rey.
+*na*—no; *vatsa*—mi querido niño; *nṛpateḥ*—del rey; *dhiṣṇyam*—asiento; *bhavān*—tú mismo; *āroḍhum*—para subirte; *arhati*—mereces; *na*—no; *gṛhītaḥ*—tomado; *mayā*—por mí; *yat*—porque; *tvam*—tú mismo; *kukṣau*—en el vientre; *api*—aunque; *nṛpa-ātmajaḥ*—hijo del rey.
 
 **La reina Suruci le dijo a Dhruva Mahārāja: Mi querido niño, no mereces sentarte en el trono ni en el regazo del rey. Ciertamente eres también hijo del rey, pero, como no naciste de mi vientre, no estás capacitado para sentarte en el regazo de tu padre.**
 
