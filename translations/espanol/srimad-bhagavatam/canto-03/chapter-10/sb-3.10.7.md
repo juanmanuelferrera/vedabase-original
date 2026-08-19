@@ -8,7 +8,7 @@
 > anena lokān prāg-līnān\
 > kalpitāsmīty acintayat
 
-*tat vilokya*—mirando dentro de eso; *viyat-vyāpi*—extendido de manera vasta; *puṣkaram*—el loto; *yat*—aquello que; *adhiṣṭhitam*—estaba situado; *anena*—por este; *lokān*—todos los planetas; *prāk-līnān*—anteriormente fundidos en la disolución; *kalpitā asmi*—he de crear; *iti*—de esa manera; *acintayat*—pensó.
+*tat vilokya*—mirando dentro de eso; *viyat-vyāpi*—extendido de manera vasta; *puṣkaram*—el loto; *yat*—aquello que; *adhiṣṭhitam*—estaba situado; *anena*—por este; *lokān*—todos los planetas; *prāk-līnān*—anteriormente fundidos en la disolución; *kalpitā asmi*—he de crear; *iti*—de esa manera; *acintayat*—pensó así.
 
 **Después, vio que el loto sobre el cual se hallaba situado estaba extendido por todo el universo, y pensó en cómo crear todos los planetas, que anteriormente se habían fundido en ese mismo loto.**
 

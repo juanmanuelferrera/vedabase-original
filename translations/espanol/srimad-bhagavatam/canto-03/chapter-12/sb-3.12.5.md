@@ -8,7 +8,7 @@
 > tan naicchan mokṣa-dharmāṇo\
 > vāsudeva-parāyaṇāḥ
 
-*tān*—a los Kumāras, como antes se dijo; *babhāṣe*—se dirigió; *svabhūḥ*—Brahmā; *putrān*—a los hijos; *prajāḥ*—generaciones; *sṛjata*—crear; *putrakāḥ*—¡oh, hijos míos!; *tat*—esto; *na*—no; *aicchan*—deseado; *mokṣa-dharmāṇaḥ*—comprometidos con los principios de la liberación; *vāsudeva*—la Personalidad de Dios; *parāyaṇāḥ*—que están consagrados de este modo.
+*tān*—a los Kumāras, como antes se dijo; *babhāṣe*—se dirigió; *svabhūḥ*—Brahmā; *putrān*—a los hijos; *prajāḥ*—generaciones; *sṛjata*—cread; *putrakāḥ*—¡oh, hijos míos!; *tat*—esto; *na*—no; *aicchan*—deseado; *mokṣa-dharmāṇaḥ*—comprometidos con los principios de la liberación; *vāsudeva*—la Personalidad de Dios; *parāyaṇāḥ*—que están consagrados de este modo.
 
 **Brahmā habló a sus hijos después de generarlos. Dijo: «Queridos hijos míos, ahora procreen». Pero ellos, por su apego a Vāsudeva, la Suprema Personalidad de Dios, tenían como meta la liberación, y expresaron, por lo tanto, su falta de deseo.**
 

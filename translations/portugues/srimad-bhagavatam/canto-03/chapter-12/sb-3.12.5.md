@@ -11,7 +11,7 @@ prajāḥ sṛjata putrakāḥ
 
 *vāsudeva*-parāyaṇāḥ
 
-*tān*—aos Kumāras acima mencionados; *babhāṣe*—dirigiu-se; *svabhūḥ*—Brahmā; *putrān*—aos filhos; *prajāḥ*—gerações; *sṛjata*—criar; *putrakāḥ*—ó meus filhos; *tat*—isso; *na*—não; *aicchan*—desejaram; *mokṣa-dharmāṇaḥ*—comprometidos com os princípios da liberação; *vāsudeva*—a Personalidade de Deus; *parāyaṇāḥ*—que são assim devotados.
+*tān*—aos Kumāras acima mencionados; *babhāṣe*—dirigiu-se; *svabhūḥ*—Brahmā; *putrān*—aos filhos; *prajāḥ*—gerações; *sṛjata*—criai; *putrakāḥ*—ó meus filhos; *tat*—isso; *na*—não; *aicchan*—desejaram; *mokṣa-dharmāṇaḥ*—comprometidos com os princípios da liberação; *vāsudeva*—a Personalidade de Deus; *parāyaṇāḥ*—que são assim devotados.
 
 **Brahmā dirigiu-se a seus filhos depois de gerá-los. "Meus caros filhos," disse ele, "gerem agora descendência." Mas por estarem apegados a Vāsudeva, a Suprema Personalidade de Deus, visavam à liberação e, por isso, expressaram sua recusa.**
 

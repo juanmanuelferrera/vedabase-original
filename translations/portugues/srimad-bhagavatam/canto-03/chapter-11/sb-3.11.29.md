@@ -11,7 +11,7 @@ niśāyām anuvṛttāyāṁ
 
 *nirmukta-śaśi*-bhāskaram
 
-*tam*—isso; *eva*—certamente; *anu*—após; *api dhīyante*—ficam fora da vista; *lokāḥ*—os planetas; *bhūḥ-ādayaḥ*—os três mundos: Bhūḥ, Bhuvaḥ e Svaḥ; *trayaḥ*—três; *niśāyām*—na noite; *anuvṛttāyām*—comum; *nirmukta*—sem brilho; *śaśi*—a lua; *bhāskaram*—o sol.
+*tam*—isso; *eva*—certamente; *anu*—após; *api dhīyante*—ficam fora da vista; *lokāḥ*—os planetas; *bhūḥ-ādayaḥ*—os três mundos: Bhūr, Bhuvar e Svar; *trayaḥ*—três; *niśāyām*—na noite; *anuvṛttāyām*—comum; *nirmukta*—sem brilho; *śaśi*—a lua; *bhāskaram*—o sol.
 
 **Quando sobrevém a noite de Brahmā, os três mundos ficam fora da vista, e o sol e a lua ficam sem brilho, como no decurso de uma noite comum.**
 

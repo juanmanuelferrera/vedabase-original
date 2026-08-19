@@ -11,7 +11,7 @@
 
 kalpitāsmīty acintayat
 
-*tat vilokya*—contemplando aquilo; *viyat-vyāpi*—extensamente espalhado; *puṣkaram*—o lótus; *yat*—aquele; *adhiṣṭhitam*—sobre o qual estava situado; *anena*—por este; *lokān*—todos os planetas; *prāk-līnān*—previamente fundidos na dissolução; *kalpitā asmi*—eu criarei; *iti*—assim; *acintayat*—ele pensou.
+*tat vilokya*—contemplando aquilo; *viyat-vyāpi*—extensamente espalhado; *puṣkaram*—o lótus; *yat*—aquele; *adhiṣṭhitam*—sobre o qual estava situado; *anena*—por este; *lokān*—todos os planetas; *prāk-līnān*—previamente fundidos na dissolução; *kalpitā asmi*—eu criarei; *iti*—assim; *acintayat*—pensou assim.
 
 **Em seguida, ele viu que o lótus sobre o qual estava situado se estendia por todo o universo, e contemplou como criar todos os planetas, que anteriormente estavam fundidos nesse mesmo lótus.**
 

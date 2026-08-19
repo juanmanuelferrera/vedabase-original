@@ -11,7 +11,7 @@ yas tvaṁ duhitaraṁ gaccher
 
 anigṛhyāṅgajaṁ prabhuḥ
 
-*na*—nunca; *etat*—tal coisa; *pūrvaiḥ*—por qualquer outro Brahmā, ou pelo senhor mesmo em qualquer kalpa anterior; *kṛtam*—realizado; *tvat*—por você; *ye*—aquilo que; *na*—nem; *kariṣyanti*—farão; *ca*—também; *apare*—qualquer outro; *yaḥ*—aquilo que; *tvam*—você; *duhitaram*—à filha; *gaccheḥ*—faria; *anigṛhya*—sem controlar; *aṅgajam*—o desejo sexual; *prabhuḥ*—ó pai.
+*na*—nunca; *etat*—tal coisa; *pūrvaiḥ*—por qualquer outro Brahmā, ou pelo senhor mesmo em qualquer kalpa anterior; *kṛtam*—realizado; *tvat*—por você; *ye*—aquilo que; *na*—nem; *kariṣyanti*—farão; *ca*—também; *apare*—qualquer outro; *yaḥ*—aquilo que; *tvam*—você; *duhitaram*—à filha; *gaccheḥ*—iria; *anigṛhya*—sem controlar; *aṅgajam*—o desejo sexual; *prabhuḥ*—ó pai.
 
 **Ó pai, esta ação em que você se empenha em envolver-se jamais foi tentada por nenhum outro Brahmā, nem por qualquer outra pessoa, nem pelo senhor mesmo em kalpas anteriores, e ninguém ousará tentá-la no futuro. O senhor é o ser supremo do universo, então como é possível que queira manter relações sexuais com sua filha e não consiga controlar esse desejo?**
 

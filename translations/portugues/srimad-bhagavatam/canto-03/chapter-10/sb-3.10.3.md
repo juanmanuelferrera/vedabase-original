@@ -14,7 +14,7 @@ prītaḥ pratyāha tān praśnān
 
 *hṛdi*-sthān atha bhārgava
 
-*sūtaḥ uvāca*—Śrī Sūta Gosvāmī disse; *evam*—assim; *sañcoditaḥ*—sendo animado; *tena*—por ele; *kṣattrā*—por Vidura; *kauṣāraviḥ*—o filho de Kuṣāra; *muniḥ*—grande sábio; *prītaḥ*—ficando satisfeito; *pratyāha*—respondeu; *tān*—aquelas; *praśnān*—perguntas; *hṛdi-sthān*—do fundo de seu coração; *atha*—assim; *bhārgava*—ó filho de Bhṛgu.
+*sūtaḥ uvāca*—Śrī Sūta Gosvāmī disse; *evam*—assim; *sañcoditaḥ*—sendo animado; *tena*—por ele; *kṣattrā*—por Vidura; *kauṣāraviḥ*—o filho de Kuṣāra; *muniḥ*—grande sábio; *prītaḥ*—ficando satisfeito; *pratyāha*—respondeu; *tān*—aquelas; *praśnān*—perguntas; *hṛdi-sthān*—do fundo de seu coração; *atha*—assim; *bhārgava*—o filho de Bhṛgu.
 
 **Sūta Gosvāmī disse: Ó filho de Bhṛgu, o grande sábio Maitreya Muni, ouvindo assim de Vidura, sentiu-se muito animado. Tudo estava em seu coração, e por isso começou a responder às perguntas uma após outra.**
 

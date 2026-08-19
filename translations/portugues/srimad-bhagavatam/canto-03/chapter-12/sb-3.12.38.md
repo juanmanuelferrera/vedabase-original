@@ -11,7 +11,7 @@ sthāpatyaṁ cāsṛjad vedaṁ
 
 kramāt pūrvādibhir mukhaiḥ
 
-*āyuḥ-vedam*—ciência médica; *dhanuḥ-vedam*—ciência militar; *gāndharvam*—arte musical; *vedam*—são todos conhecimento Védico; *ātmanaḥ*—do seu próprio; *sthāpatyam*—arquitetônico; *ca*—também; *asṛjat*—criou; *vedam*—conhecimento; *kramāt*—respectivamente; *pūrva-ādibhiḥ*—começando pela face frontal; *mukhaiḥ*—pelas bocas.
+*āyuḥ-vedam*—ciência médica; *dhanuḥ-vedam*—ciência militar; *gāndharvam*—arte musical; *vedam*—são todos conhecimento Védico; *ātmanaḥ*—do seu próprio; *sthāpatyam*—arquitetônico; *ca*—também; *asṛjat*—criou; *vedam*—conhecimento; *kramāt*—respectivamente; *pūrva-ādibhiḥ*—começando pela face frontal; *mukhaiḥ*—pela boca.
 
 **Ele também criou a ciência médica, a arte militar, a arte musical e a ciência da arquitetura, tudo a partir dos *Vedas*. Todos eles emanaram um após o outro, começando pela face frontal.**
 

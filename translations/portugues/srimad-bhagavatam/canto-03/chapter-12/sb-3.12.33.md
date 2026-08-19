@@ -16,7 +16,7 @@ tāṁ diśo jagṛhur ghorāṁ
 
 nīhāraṁ yad vidus tamaḥ
 
-*saḥ*—ele (Brahmā); *ittham*—assim; *gṛṇataḥ*—falando; *putrān*—filhos; *puraḥ*—à sua frente; *dṛṣṭvā*—vendo; *prajā-patīn*—todos os progenitores das entidades vivas; *prajāpati-patiḥ*—o pai deles (Brahmā); *tanvam*—corpo; *tatyāja*—abandonou; *vrīḍitaḥ*—envergonhado; *tadā*—naquele momento; *tām*—aquele corpo; *diśaḥ*—todas as direções; *jagṛhuḥ*—absorveram; *ghorām*—censurável; *nīhāram*—névoa; *yat*—que; *viduḥ*—conhecem como; *tamaḥ*—escuridão.
+*saḥ*—ele (Brahmā); *ittham*—assim; *gṛṇataḥ*—falando; *putrān*—filhos; *puraḥ*—à sua frente; *dṛṣṭvā*—vendo; *prajā-patīn*—todos os progenitores das entidades vivas; *prajāpati-patiḥ*—o pai de todos eles (Brahmā); *tanvam*—corpo; *tatyāja*—abandonou; *vrīḍitaḥ*—envergonhado; *tadā*—naquele momento; *tām*—aquele corpo; *diśaḥ*—todas as direções; *jagṛhuḥ*—absorveram; *ghorām*—censurável; *nīhāram*—névoa; *yat*—que; *viduḥ*—conhecem como; *tamaḥ*—escuridão.
 
 **O pai de todos os Prajāpatis, Brahmā, ao ver assim todos os seus filhos Prajāpatis falando daquela maneira, ficou muito envergonhado e imediatamente abandonou o corpo que havia assumido. Depois, aquele corpo apareceu em todas as direções como a perigosa névoa na escuridão.**
 
