@@ -6,7 +6,7 @@
 > madhya-vayasa, sakhī-skandhe kara-nyāsa\
 > kṛṣṇalīlā-manovṛtti-sakhī āśa-pāśa
 
-*madhya-vayasa*—adolescencia; *sakhī*—de una amiga; *skandhe*—en el hombro; *kara*—mano; *nyāsa*—colocación; *kṛṣṇa*—del Señor Kṛṣṇa; *līlā*—los pasatiempos; *manaḥ*—de la mente; *vṛtti*—actividades; *sakhī*—gopīs; *āśa-pāśa*—aquí y allá.
+*madhya-vayasa*—la edad madura; *sakhī*—de una amiga; *skandhe*—en el hombro; *kara*—mano; *nyāsa*—colocación; *kṛṣṇa*—del Señor Kṛṣṇa; *līlā*—los pasatiempos; *manaḥ*—de la mente; *vṛtti*—actividades; *sakhī*—gopīs; *āśa-pāśa*—aquí y allá.
 
 **«Las amigas gopīs de Śrīmatī Rādhārāṇī son Sus actividades mentales, las cuales se concentran en los pasatiempos de Śrī Kṛṣṇa. Ella mantiene Su mano en el hombro de una amiga, la cual representa la juventud.»**
 

@@ -7,7 +7,7 @@ rāya kahe,--kṛṣṇa haya 'dhīra-lalita'
 
 nirantara kāma-krīḍā--yāṅhāra carita
 
-*rāya kahe*—Rāmānanda Rāya respondeu; *kṛṣṇa*—o Senhor Kṛṣṇa; *haya*—é; *dhīra-lalita*—uma pessoa que pode manter Sua amada sempre subjugada por diferentes qualidades; *nirantara*—constantemente; *kāma-krīḍā*—passatempos de desfrute amoroso; *yāṅhāra*—de quem; *carita*—o caráter.
+*rāya kahe*—Rāya respondeu; *kṛṣṇa*—o Senhor Kṛṣṇa; *haya*—é; *dhīra-lalita*—uma pessoa que pode manter Sua amada sempre subjugada por diferentes qualidades; *nirantara*—constantemente; *kāma-krīḍā*—passatempos de desfrute amoroso; *yāṅhāra*—de quem; *carita*—o caráter.
 
 **Rāya Rāmānanda respondeu: "O Senhor Kṛṣṇa é dhīra-lalita, pois pode sempre manter Suas amadas em estado de subjugação. Assim, Seu único afazer é desfrutar a gratificação dos sentidos.**
 
