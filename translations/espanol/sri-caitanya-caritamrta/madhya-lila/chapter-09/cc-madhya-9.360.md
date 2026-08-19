@@ -6,7 +6,7 @@
 > prabhura tīrtha-yātrā-kathā śune yei jana\
 > caitanya-caraṇe pāya gāḍha prema-dhana
 
-*prabhura*—del Señor Śrī Caitanya Mahāprabhu; *tīrtha-yātrā*—peregrinación por los lugares sagrados; *kathā*—relatos acerca de; *śune*—escucha; *yei*—que; *jana*—persona; *caitanya-caraṇe*—a los pies de loto de Śrī Caitanya Mahāprabhu; *pāya*—obtiene; *gāḍha*—profunda; *prema-dhana*—la riqueza del amor extático.
+*prabhura*—del Señor Śrī Caitanya Mahāprabhu; *tīrtha-yātrā*—peregrinación por lugares sagrados; *kathā*—relatos acerca de; *śune*—escucha; *yei*—que; *jana*—persona; *caitanya-caraṇe*—a los pies de loto de Śrī Caitanya Mahāprabhu; *pāya*—obtiene; *gāḍha*—profunda; *prema-dhana*—la riqueza del amor extático.
 
 **Quienquiera que oiga acerca de la peregrinación de Śrī Caitanya Mahāprabhu a diversos lugares sagrados alcanza las riquezas de un amor extático muy profundo.**
 
