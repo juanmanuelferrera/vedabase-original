@@ -14,7 +14,7 @@ aho adya vayaṁ brahman
 
 bhavadbhis tīrthakāḥ kṛtāḥ
 
-– parīkṣit uvāca – o afortunado Mahārāja Parīkṣit disse; *aho*—ai; *adya*—hoje; *vayam*—nós; *brahman*—ó brāhmaṇa; *sat-sevyāḥ*—elegível para servir o devoto; *kṣatra-bandhavaḥ*—amigos da ordem régia; *kṛpayā*—pela sua misericórdia; *atithi-rūpeṇa*—na maneira de um hóspede; *bhavadbhiḥ*—por seu bom eu; *tīrthakāḥ*—qualificados para serem lugares de peregrinação; *kṛtāḥ*—feitos por você.
+– parīkṣit uvāca – o afortunado Mahārāja Parīkṣit disse; *aho*—ai; *adya*—hoje; *vayam*—nós; *brahman*—ó brāhmaṇas; *sat-sevyāḥ*—elegível para servir o devoto; *kṣatra-bandhavaḥ*—amigos da ordem régia; *kṛpayā*—pela sua misericórdia; *atithi-rūpeṇa*—à maneira dos grandes; *bhavadbhiḥ*—por seu bom eu; *tīrthakāḥ*—qualificados para serem lugares de peregrinação; *kṛtāḥ*—feitos por você.
 
 **O rei afortunado Parīkṣit disse: Ó brāhmaṇa, apenas pela sua misericórdia, vocês nos santificaram, tornando-nos como lugares de peregrinação, tudo apenas por sua presença aqui como meu hóspede. Pela sua misericórdia, nós, que somos apenas realeza indigna, nos tornamos elegíveis para servir o devoto.**
 

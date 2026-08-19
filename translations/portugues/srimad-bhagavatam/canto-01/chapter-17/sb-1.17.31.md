@@ -14,7 +14,7 @@ na vartitavyaṁ bhavatā kathañcana
 
 *kṣetre madīye tvam adharma*-bandhuḥ
 
-*rājā uvāca*—o rei disse; *na*—não; *te*—seu; *guḍākeśa*—Arjuna; *yaśaḥ-dharāṇām*—de nós que herdamos a fama; *baddha-añjaleḥ*—aquele com as mãos postas; *vai*—certamente; *bhayam*—medo; *asti*—há; *kiñcit*—nem um pouco; *na*—tampouco; *vartitavyam*—pode ser permitido viver; *bhavatā*—por você; *kathañcana*—de jeito algum; *kṣetre*—na terra; *madīye*—em meu reino; *tvam*—você; *adharma-bandhuḥ*—o amigo da irreligião.
+*rājā uvāca*—o rei disse; *na*—não; *te*—seu; *guḍākeśa*—Arjuna; *yaśaḥ-dharāṇām*—de vós que herdastes a fama; *baddha-añjaleḥ*—aquele com as mãos postas; *vai*—certamente; *bhayam*—medo; *asti*—há; *kiñcit*—nem um pouco; *na*—tampouco; *vartitavyam*—pode ser permitido viver; *bhavatā*—por você; *kathañcana*—de jeito algum; *kṣetre*—na terra; *madīye*—em meu reino; *tvam*—você; *adharma-bandhuḥ*—o amigo da irreligião.
 
 **O rei disse assim: Herdamos a fama de Arjuna; portanto, como você se rendeu com as mãos postas, não precisa temer por sua vida. Mas não pode permanecer em meu reino, pois você é o amigo da irreligião.**
 

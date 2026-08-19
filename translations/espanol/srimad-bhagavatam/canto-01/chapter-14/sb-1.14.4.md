@@ -8,7 +8,7 @@
 > pitṛ-mātṛ-suhṛd-bhrātṛ-\
 > dam-patīnāṁ ca kalkanam
 
-*jihma-prāyam*—engaño; *vyavahṛtam*—en todas las transacciones ordinarias; *śāṭhya*—duplicidad; *miśram*—adulterados con; *ca*—y; *sauhṛdam*—respecto a bienquerientes y amigos; *pitṛ*—padre; *mātṛ*—respecto a la madre; *suhṛt*—bienquerientes; *bhrātṛ*—el propio hermano de uno; *dam-patīnām*—respecto al esposo y la esposa; *ca*—también; *kalkanam*—rencillas mutuas.
+*jihma-prāyam*—engaño; *vyavahṛtam*—en todas las transacciones ordinarias; *śāṭhya*—duplicidad; *miśram*—adulterados con; *ca*—también; *sauhṛdam*—respecto a bienquerientes y amigos; *pitṛ*—padre; *mātṛ*—respecto a la madre; *suhṛt*—bienquerientes; *bhrātṛ*—el propio hermano de uno; *dam-patīnām*—respecto al esposo y la esposa; *ca*—también; *kalkanam*—rencillas mutuas.
 
 **Todas las transacciones y tratos ordinarios se contaminaron con engaños, incluso entre amigos. Y en los asuntos familiares, siempre había desavenencias entre los padres y las madres y los hijos, y entre los bienquerientes y entre los hermanos. Hasta entre el esposo y la esposa había siempre tensión y disputas.**
 

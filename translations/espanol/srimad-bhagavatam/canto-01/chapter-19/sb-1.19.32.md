@@ -10,7 +10,7 @@
 > kṛpayātithi-rūpeṇa\
 > bhavadbhis tīrthakāḥ kṛtāḥ
 
-*parīkṣit uvāca*—el afortunado Mahārāja Parīkṣit dijo; *aho*—¡ah!; *adya*—hoy; *vayam*—nosotros; *brahman*—¡oh, *brāhmaṇas*!; *sat-sevyāḥ*—merecedor de servir al devoto; *kṣatra*—la clase gobernante; *bandhavaḥ*—amigos; *kṛpayā*—por tu misericordia; *atithi-rūpeṇa*—a modo de huésped; *bhavadbhiḥ*—por tu buena persona; *tīrthakāḥ*—aptos para ser lugares de peregrinaje; *kṛtāḥ*—hecho por ti.
+*parīkṣit uvāca*—el afortunado Mahārāja Parīkṣit dijo; *aho*—¡ah!; *adya*—hoy; *vayam*—nosotros; *brahman*—¡oh, *brāhmaṇas*!; *sat-sevyāḥ*—merecedor de servir al devoto; *kṣatra*—la clase gobernante; *bandhavaḥ*—amigos; *kṛpayā*—por tu misericordia; *atithi-rūpeṇa*—a modo de los grandes; *bhavadbhiḥ*—por tu buena persona; *tīrthakāḥ*—aptos para ser lugares de peregrinaje; *kṛtāḥ*—hecho por ti.
 
 **El afortunado rey Parīkṣit dijo: ¡Oh, *brāhmaṇa*!, solo por tu misericordia nos has santificado, haciendo que seamos como lugares de peregrinaje, y todo por tu presencia aquí como huésped mío. Por tu misericordia, nosotros, que no somos más que indignos monarcas, nos volvemos merecedores de prestarle servicio al devoto.​​​​​​​**
 

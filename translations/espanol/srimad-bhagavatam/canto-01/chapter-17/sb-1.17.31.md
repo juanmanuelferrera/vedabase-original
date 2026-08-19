@@ -10,7 +10,7 @@
 > na vartitavyaṁ bhavatā kathañcana\
 > kṣetre madīye tvam adharma-bandhuḥ
 
-*rājā uvāca*—el rey dijo; *na*—no; *te*—tu; *guḍākeśa*—Arjuna; *yaśaḥ-dharāṇām*—de los que hemos heredado la fama; *baddha-añjaleḥ*—alguien con las manos juntas; *vai*—ciertamente; *bhayam*—miedo; *asti*—hay; *kiñcit*—hasta un ligero; *na*—ni; *vartitavyam*—se le puede permitir que viva; *bhavatā*—por ti; *kathañcana*—por todos los medios; *kṣetre*—en la tierra; *madīye*—en mi reino; *tvam*—tú; *adharma-bandhuḥ*—el amigo de la irreligión.
+*rājā uvāca*—el rey dijo; *na*—no; *te*—tu; *guḍākeśa*—Arjuna; *yaśaḥ-dharāṇām*—de ustedes que heredaron la fama; *baddha-añjaleḥ*—alguien con las manos juntas; *vai*—ciertamente; *bhayam*—miedo; *asti*—hay; *kiñcit*—hasta un ligero; *na*—ni; *vartitavyam*—se le puede permitir que viva; *bhavatā*—por ti; *kathañcana*—por todos los medios; *kṣetre*—en la tierra; *madīye*—en mi reino; *tvam*—tú; *adharma-bandhuḥ*—el amigo de la irreligión.
 
 **El rey dijo entonces: Nosotros hemos heredado la fama de Arjuna; por lo tanto, como te has rendido con las manos juntas, no es necesario que temas por tu vida. Pero no puedes permanecer en mi reino, pues eres el amigo de la irreligión.​​​​​​​**
 

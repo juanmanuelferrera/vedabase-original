@@ -8,7 +8,7 @@
 > parājito vātha bhavān\
 > nottamair nāsamaiḥ pathi
 
-*kaccit*—si; *tvam*—tú mismo; *na*—no; *agamaḥ*—te pusiste en contacto; *agamyām*—censurable; *gamyām*—aceptable; *vā*—o; *asat-kṛtām*—tratado indebidamente; *striyam*—una mujer; *parājitaḥ*—vencido por; *vā*—o; *atha*—al fin y al cabo; *bhavān*—tu buena persona; *na*—ni; *uttamaiḥ*—mediante un poder superior; *na*—no; *asamaiḥ*—por iguales; *pathi*—en el camino.
+*kaccit*—si; *tvam*—tú mismo; *na*—no; *agamaḥ*—te pusiste en contacto; *agamyām*—censurable; *gamyām*—aceptable; *vā*—o; *asat-kṛtām*—tratado indebidamente; *striyam*—una mujer; *parājitaḥ*—vencido por; *vā*—o; *atha*—al fin y al cabo; *bhavān*—tu buena persona; *na*—no; *uttamaiḥ*—mediante un poder superior; *na*—ni; *asamaiḥ*—por iguales; *pathi*—en el camino.
 
 **¿Has tenido relaciones con una mujer de carácter dudoso, o no has tratado debidamente a una mujer digna de ello? ¿O será que alguien inferior o igual a ti te ha derrotado en el camino?**
 

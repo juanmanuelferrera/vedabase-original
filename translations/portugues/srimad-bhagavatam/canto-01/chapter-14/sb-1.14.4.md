@@ -11,7 +11,7 @@
 
 *dam*-patīnāṁ ca kalkanam
 
-*jihma-prāyam*—trapaceiro; *vyavahṛtam*—em todas as transações ordinárias; *śāṭhya*—duplicidade; *miśram*—adulterado em; *ca*—e; *sauhṛdam*—quanto aos bem-querentes amigos; *pitṛ*—pai; *mātṛ*—quanto à mãe; *suhṛt*—bem-querentes; *bhrātṛ*—o próprio irmão; *dam-patīnām*—quanto a marido e mulher; *ca*—também; *kalkanam*—desentendimento mútuo.
+*jihma-prāyam*—trapaceiro; *vyavahṛtam*—em todas as transações ordinárias; *śāṭhya*—duplicidade; *miśram*—adulterado em; *ca*—também; *sauhṛdam*—quanto aos bem-querentes amigos; *pitṛ*—pai; *mātṛ*—quanto à mãe; *suhṛt*—bem-querentes; *bhrātṛ*—o próprio irmão; *dam-patīnām*—quanto a marido e mulher; *ca*—também; *kalkanam*—desentendimento mútuo.
 
 **Todas as transações e os tratos comuns ficaram poluídos pela trapaça, mesmo entre amigos. E, nos assuntos familiares, havia sempre desentendimento entre pais e mães e filhos, e entre benquerentes e entre irmãos. Mesmo entre marido e mulher havia sempre tensão e disputa.**
 

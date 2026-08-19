@@ -11,7 +11,7 @@ parājito vātha bhavān
 
 nottamair nāsamaiḥ pathi
 
-*kaccit*—se; *tvam*—você mesmo; *na*—não; *agamaḥ*—teve contato; *agamyām*—inaceitável; *gamyām*—aceitável; *vā*—ou; *asat-kṛtām*—tratada de modo impróprio; *striyam*—uma mulher; *parājitaḥ*—derrotado por; *vā*—ou; *atha*—afinal; *bhavān*—você; *na*—não; *uttamaiḥ*—por poder superior; *na*—não; *asamaiḥ*—por iguais; *pathi*—no caminho.
+*kaccit*—se; *tvam*—você mesmo; *na*—não; *agamaḥ*—teve contato; *agamyām*—inaceitável; *gamyām*—aceitável; *vā*—ou; *asat-kṛtām*—tratada de modo impróprio; *striyam*—uma mulher; *parājitaḥ*—derrotado por; *vā*—ou; *atha*—afinal; *bhavān*—você; *na*—não; *uttamaiḥ*—por poder superior; *na*—nem; *asamaiḥ*—por iguais; *pathi*—no caminho.
 
 **Você teve contato com uma mulher de caráter inaceitável, ou não tratou corretamente uma mulher merecedora? Ou foi derrotado no caminho por alguém inferior ou igual a você?**
 
