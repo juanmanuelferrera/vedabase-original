@@ -11,7 +11,7 @@ yat pṛṣṭo 'haṁ tvayānagha
 
 *bhavataś cātma*-toṣaṇam
 
-*sarvam*—tudo; *tat*—aquilo; *idam*—isto; *ākhyātam*—descrito; *yat*—tudo quanto; *pṛṣṭaḥ*—perguntado por; *aham*—mim; *tvayā*—por você; *anagha*—sem nenhum pecado; *janma*—nascimento; *karma*—atividades; *rahasyam*—mistérios; *me*—meus; *bhavataḥ*—seu; *ca*—e; *ātma*—eu mesmo; *toṣaṇam*—satisfação.
+*sarvam*—tudo; *tat*—aquilo; *idam*—isto; *ākhyātam*—descrito; *yat*—tudo quanto; *pṛṣṭaḥ*—perguntado por; *aham*—eu mesmo; *tvayā*—por ti mesmo; *anagha*—sem nenhum pecado; *janma*—nascimento; *karma*—atividades; *rahasyam*—mistérios; *me*—meus; *bhavataḥ*—seu; *ca*—e; *ātma*—eu mesmo; *toṣaṇam*—satisfação.
 
 ***Ó Vyāsadeva, você está livre de todos os pecados. Assim expliquei meu nascimento e minhas atividades para a autorrealização, conforme você pediu. Tudo isso também será propício para a sua satisfação pessoal.***
 

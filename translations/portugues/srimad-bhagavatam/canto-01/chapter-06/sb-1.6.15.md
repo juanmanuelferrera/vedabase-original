@@ -11,7 +11,7 @@ pippalopastha āśritaḥ
 
 yathā-śrutam acintayam
 
-*tasmin*—naquela; *nirmanuje*—sem habitação humana; *araṇye*—na floresta; *pippala*—banianeira; *upasthe*—sentado sob ela; *āśritaḥ*—tomando refúgio; *ātmanā*—pela inteligência; *ātmānam*—a Superalma; *ātma-stham*—situada dentro de mim mesmo; *yathā-śrutam*—conforme eu a havia ouvido das almas libertas; *acintayam*—meditei.
+*tasmin*—naquela; *nirmanuje*—sem habitação humana; *araṇye*—na floresta; *pippala*—banianeira; *upasthe*—sentado sob ela; *āśritaḥ*—tomando refúgio; *ātmanā*—pela inteligência; *ātmānam*—a Superalma; *ātma-stham*—situada dentro de mim mesmo; *yathā-śrutam*—tal como o ouvi de; *acintayam*—meditei.
 
 **Depois disso, à sombra de uma figueira-de-bengala numa floresta desabitada, comecei a meditar na Superalma situada no interior, usando minha inteligência, conforme aprendi com as almas liberadas.**
 

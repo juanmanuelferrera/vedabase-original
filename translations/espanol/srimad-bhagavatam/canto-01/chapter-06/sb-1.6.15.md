@@ -8,7 +8,7 @@
 > ātmanātmānam ātmasthaṁ\
 > yathā-śrutam acintayam
 
-*tasmin*—en ese; *nirmanuje*—sin habitación humana; *araṇye*—en el bosque; *pippala*—árbol baniano; *upasthe*—sentado bajo él; *āśritaḥ*—refugiándose en; *ātmanā*—mediante la inteligencia; *ātmānam*—la Superalma; *ātma-stham*—situada dentro de mí; *yathā-śrutam*—como yo lo había oído de labios de las almas liberadas; *acintayam*—pensé detenidamente.
+*tasmin*—en ese; *nirmanuje*—sin habitación humana; *araṇye*—en el bosque; *pippala*—árbol baniano; *upasthe*—sentado bajo él; *āśritaḥ*—refugiándose en; *ātmanā*—mediante la inteligencia; *ātmānam*—la Superalma; *ātma-stham*—situada dentro de mí; *yathā-śrutam*—tal como lo oí de; *acintayam*—pensé detenidamente.
 
 **Después de eso, bajo la sombra de un árbol baniano, en un bosque deshabitado, comencé a meditar en la Superalma situada dentro, usando mi inteligencia, tal como lo aprendí de las almas liberadas.**
 

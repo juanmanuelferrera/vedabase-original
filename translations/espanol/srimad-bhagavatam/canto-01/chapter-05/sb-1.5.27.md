@@ -8,7 +8,7 @@
 > yayāham etat sad-asat sva-māyayā\
 > paśye mayi brahmaṇi kalpitaṁ pare
 
-*tasmin*—siendo así; *tadā*—en ese momento; *labdha*—obtuve; *ruceḥ*—gusto; *mahā-mate*—¡oh, gran sabio!; *priyaśravasi*—en el Señor; *askhalitā matiḥ*—atención ininterrumpida; *mama*—mía; *yayā*—mediante la cual; *aham*—yo; *etat*—todos esos; *sat-asat*—burdo y sutil; *sva-māyayā*—nuestra propia ignorancia; *paśye*—ve; *mayi*—en mí; *brahmaṇi*—el Supremo; *kalpitam*—es aceptado; *pare*—en la Trascendencia.
+*tasmin*—siendo así; *tadā*—en ese momento; *labdha*—obtuve; *ruceḥ*—gusto; *mahā-mate*—gran sabio; *priyaśravasi*—en el Señor; *askhalitā matiḥ*—atención ininterrumpida; *mama*—mía; *yayā*—mediante la cual; *aham*—yo; *etat*—todos esos; *sat-asat*—burdo y sutil; *sva-māyayā*—nuestra propia ignorancia; *paśye*—ve; *mayi*—en mí; *brahmaṇi*—el Supremo; *kalpitam*—es aceptado; *pare*—en la Trascendencia.
 
 **¡Oh, gran sabio!, tan pronto como obtuve un gusto por la Personalidad de Dios, mi atención por oír hablar del Señor se volvió inquebrantable. Y, a medida que mi gusto se desarrolló, pude comprender que solo por mi ignorancia había aceptado las cubiertas burdas y sutiles, pues tanto el Señor como yo somos trascendentales.**
 

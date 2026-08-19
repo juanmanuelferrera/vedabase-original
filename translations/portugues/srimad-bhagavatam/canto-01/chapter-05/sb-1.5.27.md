@@ -11,7 +11,7 @@ priyaśravasyaskhalitā matir mama
 
 paśye mayi brahmaṇi kalpitaṁ pare
 
-*tasmin*—sendo assim; *tadā*—naquele momento; *labdha*—alcançado; *ruceḥ*—gosto; *mahā-mate*—ó grande sábio; *priyaśravasi*—sobre o Senhor; *askhalitā matiḥ*—atenção ininterrupta; *mama*—minha; *yayā*—pela qual; *aham*—eu; *etat*—tudo isso; *sat-asat*—grosseiro e sutil; *sva-māyayā*—pela própria ignorância de alguém; *paśye*—vejo; *mayi*—em mim; *brahmaṇi*—o Supremo; *kalpitam*—é aceito; *pare*—na Transcendência.
+*tasmin*—sendo assim; *tadā*—naquele momento; *labdha*—alcançado; *ruceḥ*—gosto; *mahā-mate*—grande sábio; *priyaśravasi*—sobre o Senhor; *askhalitā matiḥ*—atenção ininterrupta; *mama*—minha; *yayā*—pela qual; *aham*—eu; *etat*—tudo isso; *sat-asat*—grosseiro e sutil; *sva-māyayā*—pela própria ignorância de alguém; *paśye*—vejo; *mayi*—em mim; *brahmaṇi*—o Supremo; *kalpitam*—é aceito; *pare*—na Transcendência.
 
 **Ó grande sábio, tão logo provei a Personalidade de Deus, minha atenção em ouvir sobre o Senhor tornou-se inabalável. E, à medida que meu gosto se desenvolvia, pude compreender que somente em minha ignorância eu havia aceitado as coberturas grosseira e sutil, pois tanto o Senhor quanto eu somos transcendentais.**
 
