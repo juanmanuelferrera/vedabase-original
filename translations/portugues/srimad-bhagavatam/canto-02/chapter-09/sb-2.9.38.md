@@ -10,7 +10,7 @@ janānāṁ parameṣṭhinam
 paśyatas tasya tad rūpam
 ātmano nyaruṇad dhariḥ
 
-*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī disse; *sampradiśya*—completamente instruindo Brahmājī; *evam*—assim; *ajanaḥ*—a Suprema Personalidade de Godhead; *janānām*—das entidades vivas; *parameṣṭhinam*—até o líder supremo, Brahmā; *paśyataḥ*—enquanto ele estava vendo; *tasya*—Dele; *tat rūpam*—essa forma transcendental; *ātmanaḥ*—do Absoluto; *nyaruṇat*—desapareceu; *hariḥ*—o Senhor, a Personalidade de Godhead.
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī disse; *sampradiśya*—assim instruindo completamente Brahmājī; *evam*—assim; *ajanaḥ*—a Suprema Personalidade de Godhead; *janānām*—das entidades vivas; *parameṣṭhinam*—até o líder supremo, Brahmā; *paśyataḥ*—enquanto ele estava vendo; *tasya*—Dele; *tat rūpam*—essa forma transcendental; *ātmanaḥ*—do Absoluto; *nyaruṇat*—desapareceu; *hariḥ*—o Senhor, a Personalidade de Godhead.
 
 **A Suprema Personalidade de Deus, Hari, após ser visto em Sua forma transcendental, instruindo Brahmājī, o líder das entidades vivas, desapareceu", disse Śukadeva Gosvāmī a Mahārāja Parīkṣit.**
 

@@ -8,7 +8,7 @@
 > anvaya-vyatirekābhyāṁ\
 > yat syāt sarvatra sarvadā
 
-*etāvat*—hasta este punto; *eva*—ciertamente; *jijñāsyam*—ha de preguntarse; *tattva*—la Verdad Absoluta; *jijñāsunā*—por el estudiante; *ātmanaḥ*—del Yo; *anvaya*—directamente; *vyatirekābhyām*—indirectamente; *yat*—todo lo que; *syāt*—lo que sea; *sarvatra*—en todo espacio y tiempo; *sarvadā*—en toda circunstancia.
+*etāvat*—hasta este punto; *eva*—ciertamente; *jijñāsyam*—ha de requerirse; *tattva*—la Verdad Absoluta; *jijñāsunā*—el estudiante; *ātmanaḥ*—del Yo; *anvaya*—directamente; *vyatirekābhyām*—indirectamente; *yat*—todo lo que; *syāt*—lo que sea; *sarvatra*—en todo espacio y tiempo; *sarvadā*—en toda circunstancia.
 
 **Toda persona que busca la Suprema Verdad Absoluta, la Personalidad de Dios, tiene que buscarla hasta este punto, ciertamente en todas las circunstancias, y en todo el espacio y tiempo, tanto directa como indirectamente.**
 

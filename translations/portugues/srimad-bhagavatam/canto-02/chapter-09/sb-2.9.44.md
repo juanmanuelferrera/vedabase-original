@@ -8,7 +8,7 @@ purāṇaṁ daśa-lakṣaṇam
 proktaṁ bhagavatā prāha
 prītaḥ putrāya bhūta-kṛt
 
-*tasmai*—portanto; *idam*—isso; *bhāgavataṁ*—as glórias do Senhor ou a ciência do Senhor; *purāṇam*—suplemento Védico; *daśa-lakṣaṇam*—dez características; *proktam*—descrito; *bhagavatā*—pela Personalidade de Godhead; *prāha*—disse; *prītaḥ*—em satisfação; *putrāya*—ao filho; *bhūta-kṛt*—o criador do universo.
+*tasmai*—portanto; *idam*—isso; *bhāgavataṁ*—as glórias do Senhor ou a ciência do Senhor; *purāṇam*—suplementar Védico; *daśa-lakṣaṇam*—dez características; *proktam*—descrito; *bhagavatā*—pela Personalidade de Godhead; *prāha*—disse; *prītaḥ*—em satisfação; *putrāya*—ao filho; *bhūta-kṛt*—o criador do universo.
 
 **Em seguida, a literatura Védica suplementar, o Śrīmad-Bhāgavatam, que foi descrita pela Personalidade de Deus e contém dez características, foi narrada pelo pai [Brahmā] a seu filho Nārada com satisfação.**
 
