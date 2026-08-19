@@ -302,6 +302,7 @@ The audit scripts live in the companion working repository, `astro_vedabase`, un
 that shaped it. The [`scripts/`](scripts/) folder here holds the database export and
 Markdown build (`export_d1.sh`, `build_from_d1.py`, `letters_format.py`) plus the
 comparison utilities (`compare.py`, `strip_diacritics.py`).
+
 ---
 
 ## Contents
