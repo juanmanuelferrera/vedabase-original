@@ -8,7 +8,7 @@
 > pitṛ-bhūta-prajeśādīn\
 > śriyaiśvarya-prajepsavaḥ
 
-*rajaḥ*—la modalidad de la pasión; *tamaḥ*—la modalidad de la ignorancia; *prakṛtayaḥ*—de esa mentalidad; *sama-śīlāḥ*—de las mismas categorías; *bhajanti*—adoran; *vai*—verdaderamente; *pitṛ*—los antepasados; *bhūta*—otros seres vivientes; *prajeśa-ādīn*—controladores de la administración cósmica; *śriyā*—enriquecimiento; *aiśvarya*—riqueza y poder; *prajā*—aristocracia; *īpsavaḥ*—deseando así.
+*rajaḥ*—la modalidad de la pasión; *tamaḥ*—la modalidad de la ignorancia; *prakṛtayaḥ*—de esa mentalidad; *sama-śīlāḥ*—de las mismas categorías; *bhajanti*—adoran; *vai*—verdaderamente; *pitṛ*—los antepasados; *bhūta*—otros seres vivientes; *prajeśa-ādīn*—controlador de la administración cósmica; *śriyā*—enriquecimiento; *aiśvarya*—riqueza y poder; *prajā*—aristocracia; *īpsavaḥ*—deseando así.
 
 **Aquellos que están en las modalidades de la pasión y la ignorancia adoran a los antepasados, a otros seres vivientes y a los semidioses que están a cargo de las actividades cósmicas, pues los impulsa el deseo de obtener beneficios materiales en forma de mujeres, riqueza, poder y nacimiento aristocrático.**
 

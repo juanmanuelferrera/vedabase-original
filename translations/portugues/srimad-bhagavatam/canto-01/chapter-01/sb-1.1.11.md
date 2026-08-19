@@ -16,7 +16,7 @@ brūhi bhadrāya bhūtānāṁ
 
 yenātmā suprasīdati
 
-*bhūrīṇi*—multiformes; *bhūri*—muitos; *karmāṇi*—deveres; *śrotavyāni*—a serem aprendidos; *vibhāgaśaḥ*—por divisões de assunto; *ataḥ*—portanto; *sādho*—ó sábio; *atra*—aqui; *yat*—o que quer que; *sāram*—essência; *samuddhṛtya*—por seleção; *manīṣayā*—o melhor de seu conhecimento; *brūhi*—por favor, diga-nos; *bhadrāya*—para o bem de; *bhūtānām*—dos seres vivos; *yena*—pelo qual; *ātmā*—o eu; *suprasīdati*—fica plenamente satisfeito.
+*bhūrīṇi*—multiformes; *bhūri*—muitos; *karmāṇi*—deveres; *śrotavyāni*—a serem aprendidos; *vibhāgaśaḥ*—por divisão de assunto; *ataḥ*—portanto; *sādho*—ó sábio; *atra*—aqui; *yat*—o que quer que; *sāram*—essência; *samuddhṛtya*—por seleção; *manīṣayā*—o melhor de seu conhecimento; *brūhi*—por favor, diga-nos; *bhadrāya*—para o bem de; *bhūtānām*—dos seres vivos; *yena*—pelo qual; *ātmā*—o eu; *suprasīdati*—fica plenamente satisfeito.
 
 **Há muitas variedades de escrituras, e em todas elas há muitos deveres prescritos que só podem ser aprendidos após muitos anos de estudo. Portanto, ó sábio, por favor, seleciona os ensinamentos essenciais de todas essas escrituras e explica-os para o bem de todos os seres vivos, a fim de que, por meio de tal instrução, seus corações fiquem satisfeitos.**
 

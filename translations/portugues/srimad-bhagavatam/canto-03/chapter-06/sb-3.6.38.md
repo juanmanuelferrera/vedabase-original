@@ -11,7 +11,7 @@ mahimā kavinādinā
 
 *dhiyā yoga*-vipakkayā
 
-*ātmanaḥ*—da Alma Suprema; *avasitaḥ*—conhecido; *vatsa*—Ó meu querido filho; *mahimā*—glórias; *kavinā*—pelo poeta Brahmā; *ādinā*—original; *saṁvatsara*—anos celestiais; *sahasra-ante*—ao final de mil; *dhiyā*—pela inteligência; *yoga-vipakkayā*—pela meditação madura.
+*ātmanaḥ*—da Alma Suprema; *avasitaḥ*—conhecido; *vatsa*—Ó meus queridos filhos; *mahimā*—glórias; *kavinā*—pelo poeta Brahmā; *ādinā*—original; *saṁvatsara*—anos celestiais; *sahasra-ante*—ao final de mil; *dhiyā*—pela inteligência; *yoga-vipakkayā*—pela meditação madura.
 
 **Ó meu filho, o poeta original, Brahmā, após meditação madura por mil anos celestiais, pôde saber apenas que as glórias da Alma Suprema são inconcebíveis.**
 

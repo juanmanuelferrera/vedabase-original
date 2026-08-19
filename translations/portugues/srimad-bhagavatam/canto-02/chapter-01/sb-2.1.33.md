@@ -12,7 +12,7 @@
 *gatir vayaḥ karma guṇa*-pravāhaḥ
 
 *Sinônimos
-nadyaḥ*—os rios; *asya*—d'Ele; *nāḍyaḥ*—veias; *atha*—e depois; *tanū-ruhāṇi*—pelos do corpo; *mahī-ruhāḥ*—as plantas e árvores; *viśva-tanoḥ*—da forma universal; *nṛpa-indra*—ó rei; *ananta-vīryaḥ*—do onipotente; *śvasitam*—respiração; *mātariśvā*—ar; *gatiḥ*—movimento; *vayaḥ*—eras que passam; *karma*—atividade; *guṇa-pravāhaḥ*—reações dos modos da natureza.
+nadyaḥ*—os rios; *asya*—d'Ele; *nāḍyaḥ*—veias; *atha*—e depois; *tanū-ruhāṇi*—pelos do corpo; *mahī-ruhāḥ*—as plantas e árvores; *viśva-tanoḥ*—da forma universal; *nṛpa-indra*—ó rei; *ananta-vīryaḥ*—do onipotente; *śvasitam*—respiração; *mātariśvā*—ar; *gatiḥ*—movimento; *vayaḥ*—eras que passam; *karma*—atividade; *guṇa-pravāhaḥ*—reação dos modos da natureza material.
 
 **Ó rei, os rios são as veias do gigantesco corpo, as árvores são os pelos de Seu corpo, e o onipotente ar é Sua respiração. As eras que passam são Seus movimentos, e Suas atividades são as reações dos três modos da natureza material.**
 

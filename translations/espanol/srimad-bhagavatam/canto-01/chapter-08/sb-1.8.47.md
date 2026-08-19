@@ -8,7 +8,7 @@
 > prākṛtenātmanā viprāḥ\
 > sneha-moha-vaśaṁ gataḥ
 
-*āha*—dijo; *rājā*—el rey Yudhiṣṭhira; *dharma-sutaḥ*—el hijo de Dharma (Yamarāja); *cintayan*—pensando en; *suhṛdām*—de los amigos; *vadham*—matando; *prākṛtena*—mediante el concepto material únicamente; *ātmanā*—por el ser; *viprāḥ*—¡oh, *brāhmaṇa*!; *sneha*—afecto; *moha*—engaño; *vaśam*—siendo llevado por; *gataḥ*—habiendo ido.
+*āha*—dijo; *rājā*—el rey Yudhiṣṭhira; *dharma-sutaḥ*—el hijo de Dharma (Yamarāja); *cintayan*—pensando en; *suhṛdām*—de los amigos; *vadham*—matando; *prākṛtena*—mediante el concepto material únicamente; *ātmanā*—por el ser; *viprāḥ*—¡oh, *brāhmaṇas*!; *sneha*—afecto; *moha*—engaño; *vaśam*—siendo llevado por; *gataḥ*—habiendo ido.
 
 **El rey Yudhiṣṭhira, el hijo de Dharma, sobrecogido por la muerte de sus amigos estaba acongojado tal como un hombre materialista ordinario. ¡Oh, sabios, engañado así por el afecto, él comenzó a hablar.**
 

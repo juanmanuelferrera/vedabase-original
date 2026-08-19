@@ -8,7 +8,7 @@ sama-śīlā bhajanti vai
 *pitṛ*-bhūta-prajeśādīn
 *śriyaiśvarya*-prajepsavaḥ
 
-*rajaḥ*—o modo da paixão; *tamaḥ*—o modo da ignorância; *prakṛtayaḥ*—de mentalidade; *sama-śīlāḥ*—das mesmas categorias; *bhajanti*—adoram; *vai*—na verdade; *pitṛ*—os antepassados; *bhūta*—outros seres vivos; *prajeśa-ādīn*—controladores da administração cósmica; *śriyā*—riqueza; *aiśvarya*—poder; *prajā*—aristocracia; *īpsavaḥ*—desejando.
+*rajaḥ*—o modo da paixão; *tamaḥ*—o modo da ignorância; *prakṛtayaḥ*—de mentalidade; *sama-śīlāḥ*—das mesmas categorias; *bhajanti*—adoram; *vai*—na verdade; *pitṛ*—os antepassados; *bhūta*—outros seres vivos; *prajeśa-ādīn*—controlador da administração cósmica; *śriyā*—riqueza; *aiśvarya*—poder; *prajā*—aristocracia; *īpsavaḥ*—desejando.
 
 **Aqueles que estão nos modos da paixão e da ignorância adoram os antepassados, outros seres vivos e os semideuses encarregados das atividades cósmicas, pois são impelidos por um desejo de obter benefícios materiais, como mulheres, riqueza, poder e nascimento aristocrático.**
 

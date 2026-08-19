@@ -8,7 +8,7 @@
 > nānākhyānetihāseṣu\
 > varṇayām āsa tattvavit
 
-*dharma*—deberes propios de la ocupación; *artha*—desarrollo económico; *kāma*—cumplimiento de deseos; *mokṣān*—salvación final; *ca*—y; *saha*—junto con; *upāyān*—medios; *yathā*—tal como es; *mune*—¡oh, sabio!; *nānā*—diversas; *ākhyāna*—mediante la recitación de narraciones históricas; *itihāseṣu*—en las historias; *varṇayām āsa*—describió; *tattva-vit*—aquel que conoce la verdad.
+*dharma*—deberes propios de la ocupación; *artha*—desarrollo económico; *kāma*—cumplimiento de deseos; *mokṣān*—salvación final; *ca*—y; *saha*—junto con; *upāyān*—medios; *yathā*—tal como es; *mune*—¡oh, sabios!; *nānā*—diversas; *ākhyāna*—mediante la recitación de narraciones históricas; *itihāseṣu*—en las historias; *varṇayām āsa*—describió; *tattva-vit*—aquel que conoce la verdad.
 
 **Después describió los deberes propios de las diferentes órdenes y estados de vida, citando ejemplos de la historia, pues él mismo conocía bien la verdad.**
 

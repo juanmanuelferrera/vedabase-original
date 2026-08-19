@@ -8,7 +8,7 @@
 > ananta-vīryaḥ śvasitaṁ mātariśvā\
 > gatir vayaḥ karma guṇa-pravāhaḥ
 
-*nadyaḥ*—los ríos; *asya*—de Él; *nāḍyaḥ*—las venas; *atha*—y luego; *tanū-ruhāṇi*—los vellos del cuerpo; *mahī-ruhāḥ*—las plantas y los árboles; *viśva-tanoḥ*—de la forma universal; *nṛpa-indra*—¡oh, rey!; *ananta-vīryaḥ*—del omnipotente; *śvasitam*—respiración; *mātariśvā*—aire; *gatiḥ*—movimiento; *vayaḥ*—las eras que pasan; *karma*—actividad; *guṇa-pravāhaḥ*—reacciones de las modalidades de la naturaleza.
+*nadyaḥ*—los ríos; *asya*—de Él; *nāḍyaḥ*—las venas; *atha*—y luego; *tanū-ruhāṇi*—los vellos del cuerpo; *mahī-ruhāḥ*—las plantas y los árboles; *viśva-tanoḥ*—de la forma universal; *nṛpa-indra*—¡oh, rey!; *ananta-vīryaḥ*—del omnipotente; *śvasitam*—respiración; *mātariśvā*—aire; *gatiḥ*—movimiento; *vayaḥ*—las eras que pasan; *karma*—actividad; *guṇa-pravāhaḥ*—reacción de las modalidades de la naturaleza material.
 
 **¡Oh rey!, los ríos son las venas del gigantesco cuerpo, los árboles son los vellos de Su cuerpo, y el aire omnipotente es Su respiración. El paso de las eras son Sus movimientos, y Sus actividades son las reacciones de las tres modalidades de la naturaleza material.**
 

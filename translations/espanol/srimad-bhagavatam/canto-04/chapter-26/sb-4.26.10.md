@@ -8,7 +8,7 @@
 > medhyān anyāṁś ca vividhān\
 > vinighnan śramam adhyagāt
 
-*śaśān*—conejos; *varāhān*—jabalíes; *mahiṣān*—búfalo; *gavayān*—bisonte; *ruru*—ciervo negro; *śalyakān*—puercoespines; *medhyān*—animales de caza; *anyān*—otros; *ca*—y; *vividhān*—diversos; *vinighnan*—por matar; *śramam adhyagāt*—se sintió muy cansado.
+*śaśān*—conejos; *varāhān*—jabalíes; *mahiṣān*—búfalo; *gavayān*—bisontes; *ruru*—ciervo negro; *śalyakān*—puercoespines; *medhyān*—animales de caza; *anyān*—otros; *ca*—y; *vividhān*—diversos; *vinighnan*—por matar; *śramam adhyagāt*—se sintió muy cansado.
 
 **De esta manera, el rey Purañjana mató a muchos animales, entre ellos conejos, jabalíes, búfalos, bisontes, ciervos negros, puercoespines y otros animales de caza. Después de matar y matar, el rey quedó muy cansado.**
 

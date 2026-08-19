@@ -11,7 +11,7 @@ nānākhyānetihāseṣu
 
 varṇayām āsa tattvavit
 
-*dharma*—os deveres ocupacionais; *artha*—o desenvolvimento econômico; *kāma*—o cumprimento dos desejos; *mokṣān*—a salvação última; *ca*—e; *saha*—junto com; *upāyān*—os meios; *yathā*—como é; *mune*—ó sábio; *nānā*—vários; *ākhyāna*—pela recitação de narrações históricas; *itihāseṣu*—nas histórias; *varṇayām āsa*—descreveu; *tattva-vit*—aquele que conhece a verdade.
+*dharma*—os deveres ocupacionais; *artha*—o desenvolvimento econômico; *kāma*—o cumprimento dos desejos; *mokṣān*—a salvação última; *ca*—e; *saha*—junto com; *upāyān*—os meios; *yathā*—como é; *mune*—ó sábios; *nānā*—vários; *ākhyāna*—pela recitação de narrações históricas; *itihāseṣu*—nas histórias; *varṇayām āsa*—descreveu; *tattva-vit*—aquele que conhece a verdade.
 
 **Em seguida, descreveu os deveres ocupacionais das diferentes ordens e classes de vida, citando exemplos da história, pois ele próprio conhecia bem a verdade.**
 
