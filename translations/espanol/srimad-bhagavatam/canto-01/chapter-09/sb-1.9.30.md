@@ -8,7 +8,7 @@
 > kṛṣṇe lasat-pīta-paṭe catur-bhuje\
 > puraḥ sthite 'mīlita-dṛg vyadhārayat
 
-*tadā*—en ese entonces; *upasaṁhṛtya*—apartando; *giraḥ*—discurso; *sahasraṇīḥ*—Bhīṣmadeva (quien era experto en miles de ciencias y artes); *vimukta-saṅgam*—completamente libre de todo lo demás; *manaḥ*—mente; *ādi-pūruṣe*—a la Personalidad de Dios original; *kṛṣṇe*—a Kṛṣṇa; *lasat-pīta-paṭe*—adornado con ropa amarilla; *catur-bhuje*—al Nārāyaṇa original de cuatro manos; *puraḥ*—justo antes; *sthite*—de pie; *amīlita*—muy abierto; *dṛk*—visión; *vyadhārayat*—fijó.
+*tadā*—en ese entonces; *upasaṁhṛtya*—apartando; *giraḥ*—discurso; *sahasraṇīḥ*—Bhīṣmadeva (experto en miles de ciencias y artes); *vimukta-saṅgam*—completamente libre de todo lo demás; *manaḥ*—mente; *ādi-pūruṣe*—a la Personalidad de Dios original; *kṛṣṇe*—a Kṛṣṇa; *lasat-pīta-paṭe*—adornado con ropa amarilla; *catur-bhuje*—al Nārāyaṇa original de cuatro manos; *puraḥ*—justo antes; *sthite*—de pie; *amīlita*—muy abierto; *dṛk*—visión; *vyadhārayat*—fijó.
 
 **Acto seguido, aquel hombre que había hablado sobre diversos temas con miles de significados, que había combatido en miles de campos de batalla y que había protegido a miles de hombres, dejó de hablar, y, completamente libre de todo cautiverio, apartó la mente de todo lo demás y fijó sus ojos muy abiertos en la Personalidad de Dios Śrī Kṛṣṇa, quien se hallaba de pie ante él, con cuatro brazos, vestido con ropajes amarillos que centelleaban y resplandecían.**
 

@@ -8,7 +8,7 @@
 > prasabham abhisasāra mad-vadhārthaṁ\
 > sa bhavatu me bhagavān gatir mukundaḥ
 
-*śita*—afiladas; *viśikha*—flechas; *hataḥ*—herido por; *viśīrṇa-daṁśaḥ*—escudo destrozado; *kṣataja*—por heridas; *pariplutaḥ*—manchado de sangre; *ātatāyinaḥ*—el gran agresor; *me*—mi; *prasabham*—con una actitud iracunda; *abhisasāra*—comenzó a moverse; *mat-vadha-artham*—con el propósito de matarme; *saḥ*—Él; *bhavatu*—se vuelva; *me*—mi; *bhagavān*—la Personalidad de Dios; *gatiḥ*—destino; *mukundaḥ*—que otorga la salvación.
+*śita*—afiladas; *viśikha*—flechas; *hataḥ*—herido por; *viśīrṇa-daṁśaḥ*—escudo destrozado; *kṣataja*—por heridas; *pariplutaḥ*—manchado de sangre; *ātatāyinaḥ*—el gran agresor; *me*—mi; *prasabham*—con una actitud iracunda; *abhisasāra*—comenzó a moverse; *mat-vadha-artham*—con el propósito de matarme; *saḥ*—Él; *bhavatu*—que Él se vuelva; *me*—mi; *bhagavān*—la Personalidad de Dios; *gatiḥ*—destino; *mukundaḥ*—que otorga la salvación.
 
 **Que Él, el Señor Śrī Kṛṣṇa, la Personalidad de Dios, quien otorga la salvación, sea mi último destino. En el campo de batalla Él arremetió contra mí, como si estuviera furioso por las heridas causadas por mis afiladas flechas. Su escudo estaba destrozado, y tenía el cuerpo manchado de sangre debido a las heridas.**
 

@@ -11,7 +11,7 @@ tyajan kalevaraṁ yogī
 
 *mucyate kāma*-karmabhiḥ
 
-*bhaktyā*—com atenção devota; *āveśya*—meditando; *manaḥ*—mente; *yasmin*—em quem; *vācā*—pelas palavras; *yat*—Kṛṣṇa; *nāma*—santo nome; *kīrtayan*—cantando; *tyajan*—abandonando; *kalevaram*—este corpo material; *yogī*—o devoto; *mucyate*—se liberta; *kāma-karmabhiḥ*—das atividades fruitivas.
+*bhaktyā*—com atenção devota; *āveśya*—meditando; *manaḥ*—mente; *yasmin*—em quem; *vācā*—pelas palavras; *yat*—cujo; *nāma*—santo nome; *kīrtayan*—cantando; *tyajan*—abandonando; *kalevaram*—este corpo material; *yogī*—o devoto; *mucyate*—se liberta; *kāma-karmabhiḥ*—das atividades fruitivas.
 
 **A Personalidade de Deus, que aparece na mente do devoto pela devoção atenta, meditação e canto do santo nome, liberta o devoto da escravidão das atividades fruitivas no momento em que abandona o corpo material.**
 

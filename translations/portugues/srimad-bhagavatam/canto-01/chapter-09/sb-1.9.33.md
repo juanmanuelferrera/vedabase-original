@@ -11,7 +11,7 @@
 
 *vijaya*-sakhe ratir astu me 'navadyā
 
-*tri-bhuvana*—três status dos sistemas planetários; *kamanam*—o mais desejável; *tamāla-varṇam*—azulado como a árvore *tamāla*; *ravi-kara*—raios solares; *gaura*—cor dourada; *varāmbaram*—veste resplandecente; *dadhāne*—daquele que veste; *vapuḥ*—corpo; *alaka-kula-āvṛta*—coberto com pinturas de pasta de sândalo; *anana-abjam*—rosto como uma lótus; *vijaya-sakhe*—ao amigo de Arjuna; *ratiḥ astu*—que atração seja repousa sobre Ele; *me*—minha; *anavadyā*—sem desejo por resultados fruitivos.
+*tri-bhuvana*—três status dos sistemas planetários; *kamanam*—o mais desejável; *tamāla-varṇam*—azulado como a árvore *tamāla*; *ravi-kara*—raios solares; *gaura*—cor dourada; *varāmbaram*—veste que resplandece por; *dadhāne*—daquele que veste; *vapuḥ*—corpo; *alaka-kula-āvṛta*—coberto com pinturas de pasta de sândalo; *anana-abjam*—rosto como uma lótus; *vijaya-sakhe*—ao amigo de Arjuna; *ratiḥ astu*—que atração seja repousa sobre Ele; *me*—minha; *anavadyā*—sem desejo por resultados fruitivos.
 
 **Śrī Kṛṣṇa é o amigo íntimo de Arjuna. Ele apareceu nesta Terra em Seu corpo transcendental, que se assemelha à cor azulada da árvore tamāla. Seu corpo atrai a todos nos três [superior, intermediário e inferior] sistemas planetários. Que Seu reluzente traje amarelo e Seu rosto de lótus, coberto de pinturas de polpa de sândalo, sejam o objeto de minha atração, e que eu não deseje resultados fruitivos.**
 

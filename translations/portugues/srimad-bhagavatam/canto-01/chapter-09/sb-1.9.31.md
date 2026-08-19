@@ -11,7 +11,7 @@ viśuddhayā dhāraṇayā hatāśubhas
 
 tuṣṭāva janyaṁ visṛjañ janārdanam
 
-*viśuddhayā*—por meditação purificada; *dhāraṇayā*—fixação; *hata-aśubhaḥ*—aquele que minimizou as qualidades inauspiciosas da existência material; *tat*—Ele; *īkṣayā*—pelo olhar; *eva*—simplesmente; *āśu*—imediatamente; *gatā*—tendo desaparecido; *yudha*—das flechas; *śramaḥ*—fadiga; *nivṛtta*—sendo parado; *sarva*—todos; *indriya*—sentidos; *vṛtti*—atividades; *vibhramaḥ*—sendo amplamente engajado; *tuṣṭāva*—ele rezou; *janyam*—o tabernáculo material; *visṛjan*—ao deixar; *janārdanam*—ao controlador dos seres vivos.
+*viśuddhayā*—por meditação purificada; *dhāraṇayā*—fixação; *hata-aśubhaḥ*—aquele que havia minimizado as qualidades inauspiciosas da existência material; *tat*—seu; *īkṣayā*—pelo olhar; *eva*—simplesmente; *āśu*—imediatamente; *gatā*—tendo desaparecido; *yudha*—flechas; *śramaḥ*—fadiga; *nivṛtta*—sendo parado; *sarva*—todos; *indriya*—sentidos; *vṛtti*—atividades; *vibhramaḥ*—sendo amplamente engajado; *tuṣṭāva*—rezou por; *janyam*—o tabernáculo material; *visṛjan*—ao deixar; *janārdanam*—o controlador dos seres vivos.
 
 **Por pura meditação, contemplando o Senhor Śrī Kṛṣṇa, ele imediatamente se libertou de todo o inauspiciosismo material e se aliviou de todas as dores corpóreas causadas pelos ferimentos das flechas. Assim, todas as atividades externas de seus sentidos cessaram imediatamente, e ele orou transcendentalmente ao controlador de todos os seres vivos enquanto abandonava seu corpo material.**
 

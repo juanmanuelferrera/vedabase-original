@@ -8,7 +8,7 @@
 > yo yoginaś chanda-mṛtyor\
 > vāñchitas tūttarāyaṇaḥ
 
-*dharmam*—deberes propios de la ocupación; *pravadataḥ*—mientras describía; *tasya*—su; *saḥ*—ese; *kālaḥ*—tiempo; *pratyupasthitaḥ*—apareció exactamente; *yaḥ*—que es; *yoginaḥ*—para los místicos; *chanda-mṛtyoḥ*—de aquel que muere en el momento que él mismo escoge; *vāñchitaḥ*—es deseado por; *tu*—pero; *uttarāyaṇaḥ*—el período en que el Sol pasa al horizonte norte.
+*dharmam*—deberes propios de la ocupación; *pravadataḥ*—mientras describía; *tasya*—su; *saḥ*—ese; *kālaḥ*—tiempo; *pratyupasthitaḥ*—apareció exactamente; *yaḥ*—que es; *yoginaḥ*—para los místicos; *chanda-mṛtyoḥ*—de aquel que muere en el momento que él mismo escoge; *vāñchitaḥ*—tal como es deseado por; *tu*—pero; *uttarāyaṇaḥ*—el período en que el Sol pasa al horizonte norte.
 
 **Mientras Bhīṣmadeva describía los deberes propios de cada ocupación, el curso del Sol entró en el hemisferio norte. Este período lo anhelan los místicos que mueren cuando lo desean.**
 

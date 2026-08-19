@@ -11,7 +11,7 @@ tadopasaṁhṛtya giraḥ sahasraṇīr
 
 *puraḥ sthite 'mīlita*-dṛg vyadhārayat
 
-*tadā*—naquele tempo; *upasaṁhṛtya*—retirando; *giraḥ*—a fala; *sahasraṇīḥ*—Bhīṣmadeva (que era perito em milhares de ciências e artes); *vimukta-saṅgam*—completamente liberto de tudo mais; *manaḥ*—mente; *ādi-pūruṣe*—à Personalidade de Godhead original; *kṛṣṇe*—a Kṛṣṇa; *lasat-pīta-paṭe*—decorado com vestes amarelas; *catur-bhuje*—à quatro-mão Nārāyaṇa original; *puraḥ*—bem diante; *sthite*—em pé; *amīlita-dṛk*—visão ampla; *vyadhārayat*—fixo.
+*tadā*—naquele tempo; *upasaṁhṛtya*—retirando; *giraḥ*—a fala; *sahasraṇīḥ*—Bhīṣmadeva (perito em milhares de ciências e artes); *vimukta-saṅgam*—completamente liberto de tudo mais; *manaḥ*—mente; *ādi-pūruṣe*—à Personalidade de Godhead original; *kṛṣṇe*—a Kṛṣṇa; *lasat-pīta-paṭe*—decorado com vestes amarelas; *catur-bhuje*—à quatro-mão Nārāyaṇa original; *puraḥ*—bem diante; *sthite*—em pé; *amīlita-dṛk*—visão ampla; *vyadhārayat*—fixo.
 
 **Então, aquele homem que falava sobre diferentes assuntos com milhares de significados e que combatera em milhares de campos de batalha e protegera milhares de homens, parou de falar e, estando completamente libertado de todo cativeiro, retirou sua mente de tudo o mais e fixou seus olhos bem abertos na Personalidade de Deus, Śrī Kṛṣṇa, que estava diante dele, de quatro mãos, vestido com trajes amarelos que reluziam e brilhavam.**
 

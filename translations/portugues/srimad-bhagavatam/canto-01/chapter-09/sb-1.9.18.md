@@ -11,7 +11,7 @@ mohayan māyayā lokaṁ
 
 gūḍhaś carati vṛṣṇiṣu
 
-*eṣaḥ*—este; *vai*—positivamente; *bhagavān*—a Personalidade de Deus; *sākṣāt*—original; *ādyaḥ*—o primeiro; *nārāyaṇaḥ*—o Senhor Supremo (que repousa sobre as águas); *pumān*—o supremo desfrutador; *mohayan*—iludindo; *māyayā*—por Sua energia autocriada; *lokam*—os planetas; *gūḍhaḥ*—que é inconcebível; *carati*—move-se; *vṛṣṇiṣu*—entre a família Vṛṣṇi.
+*eṣaḥ*—este; *vai*—positivamente; *bhagavān*—a Personalidade de Deus; *sākṣāt*—original; *ādyaḥ*—o primeiro; *nārāyaṇaḥ*—o Senhor Supremo (que repousa sobre as águas); *pumān*—o supremo desfrutador; *mohayan*—iludindo; *māyayā*—por Sua energia autocriada; *lokam*—os planetas; *gūḍhaḥ*—inconcebível; *carati*—move-se; *vṛṣṇiṣu*—entre a família Vṛṣṇi.
 
 **Este Śrī Kṛṣṇa não é outro senão a original Personalidade de Deus. Ele é o primeiro Nārāyaṇa, o desfrutador supremo. Mas Ele Se move entre os descendentes do rei Vṛṣṇi, exatamente como um de nós, e nos desconcerta com Sua energia autocriada.**
 

@@ -8,7 +8,7 @@
 > nivṛtta-sarvendriya-vṛtti-vibhramas\
 > tuṣṭāva janyaṁ visṛjañ janārdanam
 
-*viśuddhayā*—mediante la purificada; *dhāraṇayā*—meditación; *hata-aśubhaḥ*—aquel que ha reducido al mínimo las cualidades desfavorables de la existencia material; *tat*—Él; *īkṣayā*—mirando; *eva*—simplemente; *āśu*—inmediatamente; *gatā*—habiéndose ido; *yudha*—de las flechas; *śramaḥ*—fatiga; *nivṛtta*—siendo detenido; *sarva*—todos; *indriya*—sentidos; *vṛtti*—actividades; *vibhramaḥ*—estando muy dedicados; *tuṣṭāva*—oró; *janyam*—el tabernáculo material; *visṛjan*—mientras abandonaba; *janārdanam*—al controlador de los seres vivientes.
+*viśuddhayā*—mediante la purificada; *dhāraṇayā*—meditación; *hata-aśubhaḥ*—aquel que había reducido al mínimo las cualidades desfavorables de la existencia material; *tat*—su; *īkṣayā*—mirando; *eva*—simplemente; *āśu*—inmediatamente; *gatā*—habiéndose ido; *yudha*—flechas; *śramaḥ*—fatiga; *nivṛtta*—siendo detenido; *sarva*—todos; *indriya*—sentidos; *vṛtti*—actividades; *vibhramaḥ*—estando muy dedicados; *tuṣṭāva*—oró por; *janyam*—el tabernáculo material; *visṛjan*—mientras abandonaba; *janārdanam*—el controlador de los seres vivientes.
 
 **Mediante la meditación pura, contemplando al Señor Śrī Kṛṣṇa, de inmediato quedó libre de todo lo material que era de mal augurio, y se vio aliviado de todos los dolores corporales causados por las heridas de las flechas. Así, todas las actividades externas de sus sentidos cesaron al instante, y oró trascendentalmente al controlador de todos los seres vivientes, mientras abandonaba su cuerpo material.**
 

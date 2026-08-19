@@ -8,7 +8,7 @@
 > kumatim aharad ātma-vidyayā yaś\
 > caraṇa-ratiḥ paramasya tasya me 'stu
 
-*vyavahita*—parados a cierta distancia; *pṛtanā*—soldados; *mukham*—caras; *nirīkṣya*—por mirar a; *sva-jana*—parientes; *vadhāt*—del acto de matar; *vimukhasya*—de alguien que está reacio; *doṣa-buddhyā*—por la inteligencia contaminada; *kumatim*—poco acopio de conocimiento; *aharat*—erradicó; *ātma-vidyayā*—mediante el conocimiento trascendental; *yaḥ*—aquel que; *caraṇa*—a los pies; *ratiḥ*—atracción; *paramasya*—del Supremo; *tasya*—para Él; *me*—mi; *astu*—que haya.
+*vyavahita*—parados a cierta distancia; *pṛtanā*—soldados; *mukham*—caras; *nirīkṣya*—por mirar a; *sva-jana*—parientes; *vadhāt*—del acto de matar; *vimukhasya*—de alguien que está reacio; *doṣa-buddhyā*—por la inteligencia contaminada; *kumatim*—poco acopio de conocimiento; *aharat*—erradicó; *ātma-vidyayā*—mediante el conocimiento trascendental; *yaḥ*—la persona; *caraṇa*—pies; *ratiḥ*—atracción; *paramasya*—del Supremo; *tasya*—para Él; *me*—mi; *astu*—que haya.
 
 **Cuando Arjuna pareció quedar contaminado por la ignorancia al observar a los soldados y comandantes que tenía ante sí en el campo de batalla, el Señor erradicó su ignorancia mediante la entrega de conocimiento trascendental. Que Sus pies de loto permanezcan siempre como el objeto de mi atracción.**
 

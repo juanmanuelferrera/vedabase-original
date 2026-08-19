@@ -8,7 +8,7 @@
 > vairāgya-rāgopādhibhyām\
 > āmnātobhaya-lakṣaṇān
 
-*puruṣa*—el ser humano; *sva-bhāva*—por sus propias cualidades adquiridas; *vihitān*—prescritas; *yathā*—de acuerdo con; *varṇam*—clasificación de las castas; *yathā*—de acuerdo con; *āśramam*—órdenes de vida; *vairāgya*—desapego; *rāga*—apego; *upādhibhyām*—por dichas designaciones; *āmnāta*—sistemáticamente; *ubhaya*—ambos; *lakṣaṇān*—signos.
+*puruṣa*—el ser humano; *sva-bhāva*—por sus propias cualidades adquiridas; *vihitān*—prescritas; *yathā*—tal como es; *varṇam*—clasificación de las castas; *yathā*—tal como es; *āśramam*—órdenes de vida; *vairāgya*—desapego; *rāga*—apego; *upādhibhyām*—por dichas designaciones; *āmnāta*—sistemáticamente; *ubhaya*—ambos; *lakṣaṇān*—signos.
 
 **Ante la pregunta de Mahārāja Yudhiṣṭhira, Bhīṣmadeva definió en primer lugar todas las clasificaciones de las castas y órdenes de vida en función de las cualidades del individuo. Luego describió sistemáticamente, en dos divisiones, la contraacción mediante el desapego y la interacción mediante el apego.**
 

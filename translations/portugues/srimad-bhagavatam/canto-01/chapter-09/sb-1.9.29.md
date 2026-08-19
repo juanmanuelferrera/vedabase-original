@@ -11,7 +11,7 @@ sa kālaḥ pratyupasthitaḥ
 
 vāñchitas tūttarāyaṇaḥ
 
-*dharmam*—os deveres ocupacionais; *pravadataḥ*—enquanto descrevia; *tasya*—dele; *saḥ*—aquele; *kālaḥ*—tempo; *pratyupasthitaḥ*—exatamente apareceu; *yaḥ*—isto é; *yoginaḥ*—para os místicos; *chanda-mṛtyoḥ*—daquele que morre de acordo com sua própria seleção de tempo; *vāñchitaḥ*—é desejado por; *tu*—mas; *uttarāyaṇaḥ*—o período quando o sol corre no horizonte norte.
+*dharmam*—os deveres ocupacionais; *pravadataḥ*—enquanto descrevia; *tasya*—dele; *saḥ*—aquele; *kālaḥ*—tempo; *pratyupasthitaḥ*—exatamente apareceu; *yaḥ*—isto é; *yoginaḥ*—para os místicos; *chanda-mṛtyoḥ*—daquele que morre de acordo com sua própria seleção de tempo; *vāñchitaḥ*—tal como é desejado por; *tu*—mas; *uttarāyaṇaḥ*—o período quando o sol corre no horizonte norte.
 
 **Enquanto Bhīṣmadeva descrevia os deveres ocupacionais, o curso do sol entrou no hemisfério norte. Esse período é desejado pelos místicos que morrem por sua própria vontade.**
 

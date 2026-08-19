@@ -11,7 +11,7 @@
 
 sa bhavatu me bhagavān gatir mukundaḥ
 
-*śita*—afiado; *viśikha*—flechas; *hataḥ*—ferido por; *viśīrṇa-daṁśaḥ*—escudo espalhado; *kṣataja*—por feridas; *pariplutaḥ*—manchado de sangue; *ātatāyinaḥ*—o grande agressor; *me*—meu; *prasabham*—em um humor irado; *abhisasāra*—começou a avançar; *mat-vadha-artham*—com o propósito de me matar; *saḥ*—Ele; *bhavatu*—que se torne; *me*—meu; *bhagavān*—a Personalidade de Godhead; *gatiḥ*—destino; *mukundaḥ*—que concede salvação.
+*śita*—afiado; *viśikha*—flechas; *hataḥ*—ferido por; *viśīrṇa-daṁśaḥ*—escudo espalhado; *kṣataja*—por feridas; *pariplutaḥ*—manchado de sangue; *ātatāyinaḥ*—o grande agressor; *me*—meu; *prasabham*—em um humor irado; *abhisasāra*—começou a avançar; *mat-vadha-artham*—com o propósito de me matar; *saḥ*—Ele; *bhavatu*—que Ele se torne; *me*—meu; *bhagavān*—a Personalidade de Godhead; *gatiḥ*—destino; *mukundaḥ*—que concede salvação.
 
 **Que Ele, o Senhor Śrī Kṛṣṇa, a Personalidade de Godhead, que concede a salvação, seja meu destino último. No campo de batalha Ele me carregou, como se irado por causa das feridas causadas por minhas flechas afiadas. Seu escudo estava espalhado, e Seu corpo estava manchado de sangue por causa das feridas.**
 

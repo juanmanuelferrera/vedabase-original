@@ -10,7 +10,7 @@
 > apṛcchad vividhān dharmān\
 > ṛṣīṇāṁ cānuśṛṇvatām
 
-*sūtaḥ uvāca*—Śrī Sūta Gosvāmī dijo; *yudhiṣṭhiraḥ*—el rey Yudhiṣṭhira; *tat*—eso; *ākarṇya*—oyendo; *śayānam*—yaciendo; *śara-pañjare*—en el lecho de flechas; *apṛcchat*—pregunto; *vividhān*—múltiples; *dharmān*—deberes; *ṛṣīṇām*—de los *ṛṣis*; *ca*—y; *anuśṛṇvatām*—oyendo después.
+*sūtaḥ uvāca*—Śrī Sūta Gosvāmī dijo; *yudhiṣṭhiraḥ*—el rey Yudhiṣṭhira; *tat*—eso; *ākarṇya*—oyendo; *śayānam*—yaciendo; *śara-pañjare*—en el lecho de flechas; *apṛcchat*—pregunto; *vividhān*—múltiples; *dharmān*—deberes; *ṛṣīṇām*—de los *ṛṣis*; *ca*—y; *anuśṛṇvatām*—oyendo después de ellos.
 
 **Sūta Gosvāmī dijo: Mahārāja Yudhiṣṭhira, tras oír a Bhīṣmadeva hablar en aquel tono persuasivo, le preguntó, en presencia de todos los grandes ṛṣis, acerca de los principios esenciales de los diversos deberes religiosos.**
 

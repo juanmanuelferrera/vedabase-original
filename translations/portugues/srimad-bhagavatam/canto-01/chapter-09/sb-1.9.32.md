@@ -14,7 +14,7 @@ iti matir upakalpitā vitṛṣṇā
 
 *prakṛtim upeyuṣi yad*-bhava-pravāhaḥ
 
-*śrī-bhīṣmaḥ uvāca*—Śrī Bhīṣmadeva disse; *iti*—assim; *matiḥ*—pensamento, sentimento e vontade; *upakalpitā*—investido; *vitṛṣṇā*—liberto de todos os desejos sensoriais; *bhagavati*—à Personalidade de Godhead; *sātvata-puṅgave*—ao líder dos devotos; *vibhūmni*—ao grande; *sva-sukham*—auto-satisfação; *upagate*—àquele que alcançou; *kvacit*—às vezes; *vihartum*—pelo prazer transcendental; *prakṛtim*—no mundo material; *upeyuṣi*—aceita; *yat-bhava-from*—de quem a criação; *pravāhaḥ*—é feita e aniquilada.
+*śrī-bhīṣmaḥ uvāca*—Bhīṣmadeva disse; *iti*—assim; *matiḥ*—pensamento, sentimento e vontade; *upakalpitā*—investido; *vitṛṣṇā*—liberto de todos os desejos sensoriais; *bhagavati*—à Personalidade de Godhead; *sātvata-puṅgave*—ao líder dos devotos; *vibhūmni*—ao grande; *sva-sukham*—auto-satisfação; *upagate*—àquele que alcançou; *kvacit*—às vezes; *vihartum*—pelo prazer transcendental; *prakṛtim*—no mundo material; *upeyuṣi*—aceita; *yat-bhava-from*—de quem a criação; *pravāhaḥ*—é feita e aniquilada.
 
 **Bhīṣmadeva disse: Que eu agora invista meu pensar, sentir e querer, que por tanto tempo estiveram ocupados em diferentes assuntos e deveres ocupacionais, no todo-poderoso Senhor Śrī Kṛṣṇa. Ele é sempre autossatisfeito, mas, às vezes, sendo o líder dos devotos, Ele desfruta de prazer transcendental ao descer ao mundo material, embora seja somente Dele que o mundo material é criado.**
 

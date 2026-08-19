@@ -11,7 +11,7 @@
 
 *hṛtavati pārtha*-sakhe ratir mamāstu
 
-*sapadi*—no campo de batalha; *sakhi-vacaḥ*—comando do amigo; *niśamya*—após ouvir; *madhye*—no meio; *nija*—Seu próprio; *parayoḥ*—e do partido oposto; *balayoḥ*—força; *ratham*—quadriga; *niveśya*—tendo entrado; *sthitavati*—enquanto ficava; *para-sainika*—dos soldados do lado oposto; *āyuḥ*—duração de vida; *akṣṇā*—pelo olhar; *hṛtavati*—ato de diminuição; *pārtha*—de Arjuna, filho de Pṛthā (Kuntī); *sakhe*—ao amigo; *ratiḥ*—relação íntima; *mama*—minha; *astu*—que exista.
+*sapadi*—no campo de batalha; *sakhi-vacaḥ*—comando do amigo; *niśamya*—após ouvir; *madhye*—no meio; *nija*—próprio; *parayoḥ*—e do partido oposto; *balayoḥ*—força; *ratham*—quadriga; *niveśya*—tendo entrado; *sthitavati*—enquanto ficava; *para-sainika*—dos soldados do lado oposto; *āyuḥ*—duração de vida; *akṣṇā*—pelo olhar; *hṛtavati*—ato de diminuição; *pārtha*—de Arjuna, filho de Pṛthā (Kuntī); *sakhe*—ao amigo; *ratiḥ*—relação íntima; *mama*—minha; *astu*—que exista.
 
 **Em obediência ao comando de Seu amigo, o Senhor Śrī Kṛṣṇa entrou na arena do Campo de Batalha de Kurukṣetra entre os soldados de Arjuna e Duryodhana, e enquanto lá Encurtou os períodos de vida do partido oposto por Seu olhar misericordioso. Isto foi feito simplesmente por Seu olhar para o inimigo. Que minha mente seja fixada naquele Kṛṣṇa.**
 

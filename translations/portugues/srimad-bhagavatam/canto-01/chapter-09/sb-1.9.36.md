@@ -11,7 +11,7 @@
 
 *caraṇa*-ratiḥ paramasya tasya me 'stu
 
-*vyavahita*—em pé a distância; *pṛtanā*—soldados; *mukham*—rostos; *nirīkṣya*—pelo olhar; *sva-jana*—parentes; *vadhāt*—do ato de matar; *vimukhasya*—daquele que é relutante; *doṣa-buddhyā*—por inteligência contaminada; *kumatim*—pobre fundo de conhecimento; *aharat*—erradicou; *ātma-vidyayā*—pelo conhecimento transcendental; *yaḥ*—Aquele que; *caraṇa*—aos pés; *ratiḥ*—atração; *paramasya*—do Supremo; *tasya*—para Ele; *me*—minha; *astu*—que exista.
+*vyavahita*—em pé a distância; *pṛtanā*—soldados; *mukham*—rostos; *nirīkṣya*—pelo olhar; *sva-jana*—parentes; *vadhāt*—do ato de matar; *vimukhasya*—daquele que é relutante; *doṣa-buddhyā*—por inteligência contaminada; *kumatim*—pobre fundo de conhecimento; *aharat*—erradicou; *ātma-vidyayā*—pelo conhecimento transcendental; *yaḥ*—a pessoa; *caraṇa*—pés; *ratiḥ*—atração; *paramasya*—do Supremo; *tasya*—para Ele; *me*—minha; *astu*—que exista.
 
 **Quando Arjuna pareceu contaminar-se pela ignorância ao observar os soldados e comandantes diante dele no campo de batalha, o Senhor erradicou sua ignorância transmitindo-lhe conhecimento transcendental. Que Seus pés de lótus permaneçam sempre o objeto de minha atração.**
 

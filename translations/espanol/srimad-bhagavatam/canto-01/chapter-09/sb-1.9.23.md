@@ -8,7 +8,7 @@
 > tyajan kalevaraṁ yogī\
 > mucyate kāma-karmabhiḥ
 
-*bhaktyā*—con una atención ferviente; *āveśya*—meditando; *manaḥ*—mente; *yasmin*—en cuya; *vācā*—mediante palabras; *yat*—Kṛṣṇa; *nāma*—santo nombre; *kīrtayan*—mediante el canto; *tyajan*—dejando; *kalevaram*—este cuerpo material; *yogī*—el devoto; *mucyate*—se libera; *kāma-karmabhiḥ*—de las actividades fruitivas.
+*bhaktyā*—con una atención ferviente; *āveśya*—meditando; *manaḥ*—mente; *yasmin*—en cuya; *vācā*—mediante palabras; *yat*—cuyo; *nāma*—santo nombre; *kīrtayan*—mediante el canto; *tyajan*—dejando; *kalevaram*—este cuerpo material; *yogī*—el devoto; *mucyate*—se libera; *kāma-karmabhiḥ*—de las actividades fruitivas.
 
 **La Personalidad de Dios, que aparece en la mente del devoto mediante la meditación y la devoción atenta y mediante el canto del santo nombre, libera al devoto del cautiverio de las actividades fruitivas en el momento en que este deja el cuerpo material.**
 
