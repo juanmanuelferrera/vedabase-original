@@ -6,7 +6,7 @@
 > caudda-śata sāta-śake māsa ye phālguna\
 > paurṇamāsīra sandhyā-kāle haile śubha-kṣaṇa
 
-*caudda-śata sāta-śake*—en el año 1407 de la era Śaka (1486 d.C.); *māsa*—mes; *ye*—el cual; *phālguna*—llamado Phālguna; *paurṇamāsira*—de la luna llena; *sandhyā-kāle*—al atardecer; *haile*—hubo; *śubha-kṣaṇa*—una constelación auspiciosa.
+*caudda-śata sāta-śake*—en el año 1407 de la era Śaka; *māsa*—mes; *ye*—el cual; *phālguna*—llamado Phālguna; *paurṇamāsira*—de la luna llena; *sandhyā-kāle*—al atardecer; *haile*—hubo; *śubha-kṣaṇa*—una constelación auspiciosa.
 
 **Así, en el año 1407 de la era Śaka (1486 d.C.), en el mes de Phālguna [marzo-abril], al atardecer de la luna llena, apareció el anhelado momento auspicioso.**
 

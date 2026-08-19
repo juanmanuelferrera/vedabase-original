@@ -8,7 +8,7 @@ sapta-raktaḥ ṣaḍ-unnataḥ
 tri-hrasva-pṛthu-gambhīro
 dvātriṁśal-lakṣaṇo mahān
 
-*pañca-dīrghaḥ*—cinco grandes; *pañca-sūkṣmaḥ*—cinco finos; *sapta-raktaḥ*—sete avermelhados; *ṣaṭ-unnataḥ*—seis elevados; *tri-hrasva*—três pequenos; *pṛthu*—três largos; *gambhīraḥ*—três graves; *dvā-triṁśat*—desta maneira, trinta e dois; *lakṣaṇaḥ*—sintomas; *mahān*—de uma grande personalidade.
+*pañca-dīrghaḥ*—cinco grandes; *pañca-sūkṣmaḥ*—cinco finos; *sapta-raktaḥ*—sete avermelhados; *ṣaṭ-unnataḥ*—seis elevados; *tri-hrasva*—três pequenos; *pṛthu*—três largos; *gambhīraḥ*—três graves; *dvā-triṁśat*—desta maneira, trinta e dois; *lakṣaṇaḥ*—sintomas; *mahān*—para uma grande personalidade.
 
 **" 'Há trinta e dois sintomas corporais de uma grande personalidade: cinco partes de seu corpo são grandes, cinco finas, sete avermelhadas, seis elevadas, três pequenas, três largas e três graves.'**
 

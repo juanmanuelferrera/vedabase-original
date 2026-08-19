@@ -6,7 +6,7 @@
 kṛṣṇa avatārite ācārya pratijñā kariyā
 kṛṣṇa-pūjā kare tulasī-gaṅgājala diyā
 
-*kṛṣṇa*—o Senhor Kṛṣṇa; *avatārite*—para causar Seu advento; *ācārya*—Advaita Ācārya; *pratijñā*—promessa; *kariyā*—fazendo; *kṛṣṇa-pūjā*—a adoração do Senhor Kṛṣṇa; *kare*—faz; *tulasī*—folhas de tulasī; *gaṅgā-jala diyā*—com a água do Ganges.
+*kṛṣṇa*—o Senhor Kṛṣṇa; *avatārite*—para causar Seu advento; *ācārya*—Advaita Ācārya; *pratijñā*—promessa; *kariyā*—fazendo; *kṛṣṇa-pūjā*—a adoração do Senhor Kṛṣṇa; *kare*—faz; *tulasī*—folhas de tulasī; *gaṅgā-jala diyā*—com gaṅgā-jala, a água do Ganges.
 
 **Com essa consideração, Advaita Ācārya Prabhu, prometendo fazer com que o Senhor Kṛṣṇa descesse, começou a adorar a Suprema Personalidade de Deus, Kṛṣṇa, com folhas de tulasī e água do Ganges.**
 

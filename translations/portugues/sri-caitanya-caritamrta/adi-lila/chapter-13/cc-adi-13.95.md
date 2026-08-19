@@ -6,7 +6,7 @@
 prasanna ha-ila saba jagatera mana
 'hari' bali' hinduke hāsya karaye yavana
 
-*prasanna*—jubilosa; *ha-ila*—tornou-se; *saba*—toda; *jagatera*—do mundo inteiro; *mana*—a mente; *hari*—o santo nome do Senhor; *bali'*—dizendo; *hinduke*—aos hindus; *hāsya*—rindo; *karaye*—faziam; *yavana*—os muçulmanos.
+*prasanna*—jubilosa; *ha-ila*—tornou-se; *saba*—toda; *jagatera*—do mundo inteiro; *mana*—a mente; *hari*—o santo nome do Senhor; *bali'*—dizendo; *hinduke*—aos hindus; *hāsya*—rindo; *karaye*—faziam; *yavana*—os maometanos.
 
 **O mundo inteiro ficou satisfeito. Enquanto os hindus cantavam o santo nome do Senhor, os não-hindus, especialmente os muçulmanos, imitavam as palavras em tom de zombaria.**
 

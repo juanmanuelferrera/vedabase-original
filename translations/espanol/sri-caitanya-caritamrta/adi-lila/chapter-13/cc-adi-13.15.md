@@ -6,6 +6,6 @@
 > ādi-līlā-madhye prabhura yateka carita\
 > sūtra-rūpe murāri gupta karilā grathita
 
-*ādi-līlā*—los pasatiempos originales; *madhye*—dentro; *prabhura*—del Señor; *yateka*—cuantas; *carita*—actividades; *sūtra-rūpe*—en forma de notas; *murāri gupta*—de nombre Murāri Gupta; *karilā*—hizo; *grathita*—registrar.
+*ādi-līlā*—los pasatiempos originales; *madhye*—dentro; *prabhura*—del Señor; *yateka*—cuantas; *carita*—actividades; *sūtra-rūpe*—en forma de códigos o notas; *murāri gupta*—de nombre Murāri Gupta; *karilā*—hizo; *grathita*—registrar.
 
 **Todos los pasatiempos que el Señor Śrī Caitanya Mahāprabhu llevó a cabo en Su ādi-līlā fueron registrados en forma escrita por Murāri Gupta.**

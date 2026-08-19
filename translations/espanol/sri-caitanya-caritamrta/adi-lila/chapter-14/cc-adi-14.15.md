@@ -8,7 +8,7 @@
 > tri-hrasva-pṛthu-gambhīro\
 > dvātriṁśal-lakṣaṇo mahān
 
-*pañca-dīrghaḥ*—cinco partes grandes; *pañca-sūkṣmaḥ*—cinco finas; *sapta-raktaḥ*—siete rojizas; *ṣaṭ-unnataḥ*—seis elevadas; *tri-hrasva*—tres pequeñas; *pṛthu*—tres anchas; *gambhīraḥ*—tres graves; *dvā-triṁśat*—de esta manera treinta y dos; *lakṣaṇaḥ*—síntomas; *mahān*—de una gran personalidad.
+*pañca-dīrghaḥ*—cinco partes grandes; *pañca-sūkṣmaḥ*—cinco finas; *sapta-raktaḥ*—siete rojizas; *ṣaṭ-unnataḥ*—seis elevadas; *tri-hrasva*—tres pequeñas; *pṛthu*—tres anchas; *gambhīraḥ*—tres graves; *dvā-triṁśat*—de esta manera treinta y dos; *lakṣaṇaḥ*—síntomas; *mahān*—para una gran personalidad.
 
 **»"Hay treinta y dos síntomas corporales de una gran personalidad: cinco de sus partes corporales son grandes, cinco finas, siete rojizas, seis elevadas, tres pequeñas, tres anchas y tres graves".**
 

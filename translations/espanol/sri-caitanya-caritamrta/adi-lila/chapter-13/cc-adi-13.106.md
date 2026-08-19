@@ -10,7 +10,7 @@
 > nartaka, vādaka, bhāṭa, navadvīpe yāra nāṭa,\
 > sabe āsi' nāce pāñā prīta
 
-*antarīkṣe*—en el espacio exterior; *deva-gaṇa*—los semidioses; *gandharva*—los habitantes de Gandharvaloka; *siddha*—los habitantes de Siddhaloka; *cāraṇa*—los cantantes profesionales de los planetas celestiales; *stuti*—oraciones; *nṛtya*—danza; *kare*—ejecutan; *vādya*—música; *gīta*—canto; *nartaka*—bailarines; *vādaka*—tamborileros profesionales; *bhāṭa*—panegiristas profesionales; *navadvīpe*—en la ciudad de Navadvīpa; *yāra*—de quienes; *nāṭa*—escenario; *sabe*—todos ellos; *āsi'*—viniendo; *nāce*—comenzaron a danzar; *pāñā*—obteniendo; *prīta*—felicidad.
+*antarīkṣe*—en el espacio exterior; *deva-gaṇa*—los semidioses; *gandharva*—los habitantes de Gandharvaloka; *siddha*—los habitantes de Siddhaloka; *cāraṇa*—los cantantes profesionales de los planetas celestiales; *stuti*—oraciones; *nṛtya*—danza; *kare*—ejecutan; *vādya*—música; *gīta*—canto; *nartaka*—bailarines; *vādaka*—tamborileros profesionales; *bhāṭa*—otorgadores profesionales de bendiciones; *navadvīpe*—en la ciudad de Navadvīpa; *yāra*—de quienes; *nāṭa*—escenario; *sabe*—todos ellos; *āsi'*—viniendo; *nāce*—comenzaron a danzar; *pāñā*—obteniendo; *prīta*—felicidad.
 
 **En el espacio exterior, todos los semidioses, incluidos los habitantes de Gandharvaloka, Siddhaloka y Cāraṇaloka, ofrecieron sus oraciones y danzaron acompañados de canciones musicales y del batir de tambores. De manera similar, en la ciudad de Navadvīpa todos los danzarines, músicos y dadores de bendiciones profesionales se reunieron, danzando con gran júbilo.**
 

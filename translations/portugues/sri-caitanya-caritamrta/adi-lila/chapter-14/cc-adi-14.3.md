@@ -6,7 +6,7 @@
 prabhura kahila ei janmalīlā-sūtra
 yaśodā-nandana yaiche haila śacī-putra
 
-*prabhura*—do Senhor; *kahila*—falei; *ei*—assim; *janma-līlā*—os passatempos do nascimento; *sūtra*—em resumo; *yaśodā-nandana*—o filho de mãe Yaśodā; *yaiche*—tal como; *haila*—tornou-se; *śacī-putra*—o filho de mãe Śacī.
+*prabhura*—do Senhor; *kahila*—falei; *ei*—assim; *janma-līlā*—os passatempos do nascimento; *sūtra*—em códigos; *yaśodā-nandana*—o filho de mãe Yaśodā; *yaiche*—tal como; *haila*—tornou-se; *śacī-putra*—o filho de mãe Śacī.
 
 **Descrevi assim, de forma breve, o advento de Śrī Caitanya Mahāprabhu, que apareceu como filho de mãe Śacī, exatamente como Kṛṣṇa apareceu como filho de mãe Yaśodā.**
 

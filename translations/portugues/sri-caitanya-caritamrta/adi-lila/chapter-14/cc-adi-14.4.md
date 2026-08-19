@@ -6,6 +6,6 @@
 saṅkṣepe kahila janmalīlā-anukrama
 ebe kahi bālyalīlā-sūtrera gaṇana
 
-*saṅkṣepe*—em resumo; *kahila*—falei; *janma-līlā*—os passatempos do nascimento; *anukrama*—em ordem cronológica; *ebe*—agora; *kahi*—falarei; *bālya-līlā*—dos passatempos da infância; *sūtrera*—dos sūtras; *gaṇana*—a enumeração.
+*saṅkṣepe*—em resumo; *kahila*—falei; *janma-līlā*—os passatempos do nascimento; *anukrama*—em ordem cronológica; *ebe*—agora; *kahi*—falarei; *bālya-līlā*—dos passatempos da infância; *sūtrera*—dos códigos; *gaṇana*—a enumeração.
 
 **Já falei brevemente sobre os passatempos de Seu nascimento em ordem cronológica. Agora apresentarei uma sinopse de Seus passatempos infantis.**
