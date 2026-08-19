@@ -6,7 +6,7 @@ vismāpanaṁ svasya ca saubhaga-ṛddheḥ
 
 paraṁ padaṁ bhūṣaṇa-bhūṣaṇāṅgam
 
-*yat*—Sua forma eterna qual; *martya*—mundo mortal; *līlā-upayikam*—apenas apropriado para os pasatiempos; *sva-yoga-māyā-balam*—potência da energia interna; *darśayatā*—para manifestação; *gṛhītam*—descoberto; *vismāpanam*—maravilhoso; *svasya*—de Seu próprio; *ca*—e; *saubhaga-ṛddheḥ*—da opulência; *paraṁ*—supremo; *padam*—pé de apoio último; *bhūṣaṇa*—ornamento; *bhūṣaṇa-aṅgam*—dos ornamentos.
+*yat*—Sua forma eterna; *martya*—mundo mortal; *līlā-upayikam*—apenas apropriado para os pasatiempos; *sva-yoga-māyā-balam*—potência da energia interna; *darśayatā*—para manifestação; *gṛhītam*—descoberto; *vismāpanam*—maravilhoso; *svasya*—de Seu próprio; *ca*—e; *saubhaga-ṛddheḥ*—da opulência; *paraṁ*—supremo; *padam*—pé de apoio último; *bhūṣaṇa*—ornamento; *bhūṣaṇa-aṅgam*—dos ornamentos.
 
 **O Senhor apareceu no mundo mortal por Sua potência interna, yoga-māyā. Ele veio em Sua forma eterna, que é apenas apropriada para Seus pasatiempos. Estes pasatiempos eram maravilhosos para todos, até mesmo para aqueles orgulhosos de sua própria opulência, incluindo o próprio Senhor em Sua forma como o Senhor de Vaikuṇṭha. Assim Seu [Śrī Kṛṣṇa] corpo transcendental é o ornamento de todos os ornamentos.**
 

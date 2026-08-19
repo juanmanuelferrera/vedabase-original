@@ -8,7 +8,7 @@
 > rudann iva hasan mugdha-\
 > bāla-siṁhāvalokanaḥ
 
-*kaumārīm*—justamente apropiadas para la infancia; *darśayan*—mientras mostraba; *ceṣṭām*—actividades; *prekṣaṇīyām*—dignas de ser vistas; *vraja-okasām*—por los habitantes de la tierra de Vṛndāvana; *rudan*—llorando; *iva*—tal como; *hasan*—riendo; *mugdha*—pasmado de asombro; *bāla-siṁha*—cachorro de león; *avalokanaḥ*—viéndose así.
+*kaumārīm*—justamente apropiadas para la infancia; *darśayan*—solía mostrar; *ceṣṭām*—actividades; *prekṣaṇīyām*—dignas de ser vistas; *vraja-okasām*—por los habitantes de la tierra de Vṛndāvana; *rudan*—llorando; *iva*—tal como; *hasan*—riendo; *mugdha*—pasmado de asombro; *bāla-siṁha*—cachorro de león; *avalokanaḥ*—viéndose así.
 
 **Cuando el Señor manifestó Sus actividades justamente apropiadas para la infancia, era visible únicamente para los habitantes de Vṛndāvana. A veces lloraba y a veces reía, tal como un niño, y, mientras lo hacía, parecía un cachorro de león.**
 

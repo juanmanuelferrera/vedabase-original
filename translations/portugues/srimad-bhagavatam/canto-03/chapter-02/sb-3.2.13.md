@@ -8,7 +8,7 @@ kārtsnyena cādyeha gataṁ vidhātur
 
 arvāk-sṛtau kauśalam ity amanyata
 
-*yat*—a forma qual; *dharma-sūnoḥ*—de Mahārāja Yudhiṣṭhira; *bata*—certamente; *rājasūye*—na arena do sacrifício rājasūya; *nirīkṣya*—por observar; *dṛk*—visão; *svastyayanam*—agradável; *tri-lokaḥ*—os três mundos; *kārtsnyena*—em suma total; *ca*—assim; *adya*—hoje; *iha*—dentro do universo; *gatam*—surpassado; *vidhātuḥ*—do criador (Brahmā); *arvāk*—humanidade recente; *sṛtau*—no mundo material; *kauśalam*—destreza; *iti*—assim; *amanyata*—contemplou.
+*yat*—a qual; *dharma-sūnoḥ*—de Mahārāja Yudhiṣṭhira; *bata*—certamente; *rājasūye*—na arena do sacrifício rājasūya; *nirīkṣya*—por observar; *dṛk*—visão; *svastyayanam*—agradável; *tri-lokaḥ*—os três mundos; *kārtsnyena*—em suma total; *ca*—assim; *adya*—hoje; *iha*—dentro do universo; *gatam*—surpassado; *vidhātuḥ*—do criador (Brahmā); *arvāk*—humanidade recente; *sṛtau*—no mundo material; *kauśalam*—destreza; *iti*—assim; *amanyata*—contemplou.
 
 **Todos os semideuses dos sistemas planetários superiores, inferiores e médios do universo se reuniram no altar do sacrifício rājasūya realizado por Mahārāja Yudhiṣṭhira. Depois de ver as belas características corporais do Senhor Kṛṣṇa, todos contemplaram que Ele era a destreza última da criação de Brahmā, o criador dos seres humanos.**
 

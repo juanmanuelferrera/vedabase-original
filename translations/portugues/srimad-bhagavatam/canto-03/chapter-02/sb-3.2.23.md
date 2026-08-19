@@ -4,7 +4,7 @@ aho bakī yaṁ stana-kāla-kūṭaṁ jighāṁsayāpāyayad apy asādhvī
 
 lebhe gatiṁ dhātrī-ucitāṁ tato 'nyaṁ kaṁ vā dayāluṁ śaraṇaṁ vrajema
 
-*aho*—ai; *bakī*—a ela-demônio (Pūtanā); *yam*—quem; *stana*—do seu seio; *kāla*—mortífero; *kūṭam*—veneno; *jighāṁsayā*—fora de inveja; *apāyayat*—nutrido; *api*—embora; *asādhvī*—infiel; *lebhe*—alcançado; *gatim*—destino; *dhātrī-ucitām*—apenas apropriado para a ama; *tataḥ*—além de que; *anyam*—outro; *kam*—quem; *vā*—certamente; *dayālum*—misericordioso; *śaraṇam*—refúgio; *vrajema*—devo pegar.
+*aho*—ai; *bakī*—a ela-demônio (Pūtanā); *yam*—quem; *stana*—seio; *kāla*—mortífero; *kūṭam*—veneno; *jighāṁsayā*—fora de inveja; *apāyayat*—nutrido; *api*—embora; *asādhvī*—infiel; *lebhe*—alcançado; *gatim*—destino; *dhātrī-ucitām*—apenas apropriado para a ama; *tataḥ*—além de que; *anyam*—outro; *kam*—quem; *vā*—certamente; *dayālum*—misericordioso; *śaraṇam*—refúgio; *vrajema*—devo pegar.
 
 **Ai, como devo pegar refúgio daquele mais misericordioso do que Ele que concedeu a posição de mãe a um ela-demônio [Pūtanā] embora fosse infiel e preparasse veneno mortífero para ser sugado do seu seio?**
 

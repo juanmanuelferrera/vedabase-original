@@ -8,7 +8,7 @@
 > lebhe gatiṁ dhātry-ucitāṁ tato 'nyaṁ\
 > kaṁ vā dayāluṁ śaraṇaṁ vrajema
 
-*aho*—¡ay de mí!; *bakī*—la bruja (Pūtanā); *yam*—a quien; *stana*—de su pecho; *kāla*—mortal; *kūṭam*—veneno; *jighāṁsayā*—por envidia; *apāyayat*—alimentó; *api*—a pesar de; *asādhvī*—infiel; *lebhe*—alcanzó; *gatim*—destino; *dhātrī-ucitām*—justamente idóneo para la nodriza; *tataḥ*—más allá de quien; *anyam*—otro; *kam*—quién más; *vā*—ciertamente; *dayālum*—misericordioso; *śaraṇam*—refugiarme; *vrajema*—tomaré.
+*aho*—¡ay de mí!; *bakī*—la bruja (Pūtanā); *yam*—a quien; *stana*—pecho; *kāla*—mortal; *kūṭam*—veneno; *jighāṁsayā*—por envidia; *apāyayat*—alimentó; *api*—a pesar de; *asādhvī*—infiel; *lebhe*—alcanzó; *gatim*—destino; *dhātrī-ucitām*—justamente idóneo para la nodriza; *tataḥ*—más allá de quien; *anyam*—otro; *kam*—quién más; *vā*—ciertamente; *dayālum*—misericordioso; *śaraṇam*—refugiarme; *vrajema*—tomaré.
 
 **¡Ay de mí! ¿Cómo voy a refugiarme en alguien más misericordioso que aquel que otorgó la posición de madre a una bruja [Pūtanā], a pesar de que era infiel y preparó un veneno mortal para que fuera chupado de su pecho?**
 

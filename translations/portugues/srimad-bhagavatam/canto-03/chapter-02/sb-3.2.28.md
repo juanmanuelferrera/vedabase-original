@@ -4,7 +4,7 @@ kaumārīṁ darśayaṁś ceṣṭāṁ prekṣaṇīyāṁ vrajaukasām
 
 rudann iva hasan mugdha-bāla-siṁhāvalokanaḥ
 
-*kaumārīm*—apenas apropriado para infância; *darśayan*—enquanto mostrando; *ceṣṭām*—atividades; *prekṣaṇīyām*—digno de ser visto; *vraja-okasām*—pelos habitantes da terra de Vṛndāvana; *rudan*—chorando; *iva*—assim como; *hasan*—rindo; *mugdha*—atingido com espanto; *bāla-siṁha*—filhote de leão; *avalokanaḥ*—parecendo quê.
+*kaumārīm*—apenas apropriado para infância; *darśayan*—costumava mostrar; *ceṣṭām*—atividades; *prekṣaṇīyām*—digno de ser visto; *vraja-okasām*—pelos habitantes da terra de Vṛndāvana; *rudan*—chorando; *iva*—assim como; *hasan*—rindo; *mugdha*—atingido com espanto; *bāla-siṁha*—filhote de leão; *avalokanaḥ*—parecendo quê.
 
 **Quando o Senhor exibiu Suas atividades apenas apropriadas para infância, Ele era visível apenas para os residentes de Vṛndāvana. Às vezes Ele choraria e às vezes rira, apenas como uma criança, e enquanto fazia isto Ele pareceria um filhote de leão.**
 

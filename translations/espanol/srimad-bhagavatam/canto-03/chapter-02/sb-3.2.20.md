@@ -8,7 +8,7 @@
 > netraiḥ pibanto nayanābhirāmaṁ\
 > pārthāstra-pūtaḥ padam āpur asya
 
-*tathā*—como también; *eva ca*—y ciertamente; *anye*—otros; *nara-loka*—la sociedad humana; *vīrāḥ*—guerreros; *ye*—esos; *āhave*—en el campo de batalla (de Kurukṣetra); *kṛṣṇa*—de Śrī Kṛṣṇa; *mukha-aravindam*—cara que semeja una flor de loto; *netraiḥ*—con los ojos; *pibantaḥ*—mientras veían; *nayana-abhirāmam*—muy placentero para los ojos; *pārtha*—Arjuna; *astra-pūtaḥ*—purificados por flechas; *padam*—morada; *āpuḥ*—alcanzaron; *asya*—de Él.
+*tathā*—como también; *eva ca*—y ciertamente; *anye*—otros; *nara-loka*—la sociedad humana; *vīrāḥ*—guerrero; *ye*—esos; *āhave*—en el campo de batalla (de Kurukṣetra); *kṛṣṇa*—de Śrī Kṛṣṇa; *mukha-aravindam*—cara que semeja una flor de loto; *netraiḥ*—con los ojos; *pibantaḥ*—mientras veían; *nayana-abhirāmam*—muy placentero para los ojos; *pārtha*—Arjuna; *astra-pūtaḥ*—purificados; *padam*—morada; *āpuḥ*—alcanzaron; *asya*—de Él.
 
 **Ciertamente, otros que eran guerreros en el campo de batalla de Kurukṣetra fueron purificados por el violento ataque de las flechas de Arjuna, y mientras veían la cara de loto de Kṛṣṇa, tan placentera para los ojos, alcanzaron la morada del Señor.**
 

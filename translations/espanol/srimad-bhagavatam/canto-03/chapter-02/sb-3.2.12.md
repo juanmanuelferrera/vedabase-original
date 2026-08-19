@@ -8,7 +8,7 @@
 > vismāpanaṁ svasya ca saubhagarddheḥ\
 > paraṁ padaṁ bhūṣaṇa-bhūṣaṇāṅgam
 
-*yat*—Su forma eterna, la cual; *martya*—mundo mortal; *līlā-upayikam*—precisamente idónea para los pasatiempos; *sva-yoga-māyā-balam*—la potencia de la energía interna; *darśayatā*—para la manifestación; *gṛhītam*—descubierta; *vismāpanam*—maravilloso; *svasya*—de Su propio; *ca*—y; *saubhaga-ṛddheḥ*—del opulento; *param*—suprema; *padam*—posición máxima; *bhūṣaṇa*—adorno; *bhūṣaṇa-aṅgam*—de los adornos.
+*yat*—Su forma eterna; *martya*—mundo mortal; *līlā-upayikam*—precisamente idónea para los pasatiempos; *sva-yoga-māyā-balam*—la potencia de la energía interna; *darśayatā*—para la manifestación; *gṛhītam*—descubierta; *vismāpanam*—maravilloso; *svasya*—de Su propio; *ca*—y; *saubhaga-ṛddheḥ*—del opulento; *param*—suprema; *padam*—posición máxima; *bhūṣaṇa*—adorno; *bhūṣaṇa-aṅgam*—de los adornos.
 
 **El Señor advino al mundo mortal mediante Su potencia interna, yoga-māyā. Vino en Su forma eterna, que es precisamente la idónea para Sus pasatiempos. Esos pasatiempos eran maravillosos para todos, incluso para aquellos que estaban orgullosos de su propia opulencia, y hasta para el propio Señor en Su forma de Señor de Vaikuṇṭha. Así pues, Su cuerpo trascendental [de Śrī Kṛṣṇa] es el adorno de todos los adornos.**
 

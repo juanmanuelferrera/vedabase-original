@@ -4,7 +4,7 @@ vasudevasya devakyāṁ jāto bhojendra-bandhane
 
 cikīrṣur bhagavān asyāḥ śam ajenābhiyācitaḥ
 
-*vasudevasya*—da esposa de Vasudeva; *devakyām*—no útero de Devakī; *jātaḥ*—nascido de; *bhoja-indra*—do Rei dos Bhojas; *bandhane*—na prisão; *cikīrṣuḥ*—para fazer; *bhagavān*—a Personalidade de Deus; *asyāḥ*—da terra; *śam*—bem-estar; *ajena*—por Brahmā; *abhiyācitaḥ*—sendo pedido.
+*vasudevasya*—da esposa de Vasudeva; *devakyām*—no útero de Devakī; *jātaḥ*—nascido de; *bhoja-indra*—o Rei dos Bhojas; *bandhane*—na prisão; *cikīrṣuḥ*—para fazer; *bhagavān*—a Personalidade de Deus; *asyāḥ*—da terra; *śam*—bem-estar; *ajena*—por Brahmā; *abhiyācitaḥ*—sendo pedido.
 
 **A Personalidade de Deus, o Senhor Śrī Kṛṣṇa, sendo pedido por Brahmā para trazer bem-estar à terra, foi begotten por Vasudeva no útero de sua esposa Devakī na prisão do Rei de Bhoja.**
 

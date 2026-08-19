@@ -4,7 +4,7 @@ parīto vatsapair vatsāṁś cārayan vyaharad vibhuḥ
 
 yamunopavane kūjat-dvija-saṅkulitāṅghripe
 
-*parītaḥ*—cercado por; *vatsapaiḥ*—meninos pastores; *vatsān*—bezerros; *cārayan*—pastoreando, tendendo; *vyaharat*—desfrutou viajando; *vibhuḥ*—o Todo-Poderoso; *yamunā*—o rio Yamunā; *upavane*—jardins na margem; *kūjat*—vibrado pela voz; *dvija*—os pássaros nascidos-duas-vezes; *saṅkulita*—densamente situado; *aṅghripe*—nas árvores.
+*parītaḥ*—cercado por; *vatsapaiḥ*—meninos pastores; *vatsān*—bezerros; *cārayan*—pastoreando, tendendo; *vyaharat*—desfrutou viajando; *vibhuḥ*—o Todo-Poderoso; *yamunā*—o rio Yamunā; *upavane*—jardins na margem; *kūjat*—vibrado pela voz; *dvija*—os pássaros nascidos-duas-vezes; *saṅkulita*—densamente situado; *aṅghripe*—árvores.
 
 **Em Sua infância, o Todo-Poderoso Senhor foi cercado por meninos pastores e bezerros, e assim Ele viajou na margem do rio Yamunā, através de jardins densamente cobertos com árvores e repletos de vibrações de sons de pássaros.**
 

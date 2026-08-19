@@ -8,7 +8,7 @@
 > cikīrṣur bhagavān asyāḥ\
 > śam ajenābhiyācitaḥ
 
-*vasudevasya*—de la esposa de Vasudeva; *devakyām*—en las entrañas de Devakī; *jātaḥ*—nacido de; *bhoja-indra*—del rey de los Bhojas; *bandhane*—en la prisión; *cikīrṣuḥ*—para hacer; *bhagavān*—la Personalidad de Dios; *asyāḥ*—de la Tierra; *śam*—bienestar; *ajena*—por Brahmā; *abhiyācitaḥ*—recibiendo oraciones para.
+*vasudevasya*—de la esposa de Vasudeva; *devakyām*—en las entrañas de Devakī; *jātaḥ*—nacido de; *bhoja-indra*—el rey de los Bhojas; *bandhane*—en la prisión; *cikīrṣuḥ*—para hacer; *bhagavān*—la Personalidad de Dios; *asyāḥ*—de la Tierra; *śam*—bienestar; *ajena*—por Brahmā; *abhiyācitaḥ*—recibiendo oraciones para.
 
 **La Personalidad de Dios, Śrī Kṛṣṇa, por las oraciones que Le ofreció Brahmā para que trajera bienestar a la Tierra, fue engendrado por Vasudeva en las entrañas de su esposa Devakī, en la prisión del rey de Bhoja.**
 

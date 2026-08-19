@@ -8,7 +8,7 @@ bhrāmyate dhīr na tad-vākyair
 
 ātmany uptātmano harau
 
-*devasya*—da Personalidade de Deus; *māyayā*—pela influência da energia externa; *spṛṣṭāḥ*—infectados; *ye*—todos aqueles; *ca*—e; *anyat*—outros; *asat*—ilusório; *āśritāḥ*—sendo tomados; *bhrāmyate*—confundir; *dhīḥ*—inteligência; *na*—não; *tat*—deles; *vākyaiḥ*—por aquelas palavras; *ātmani*—no Ser Supremo; *upta-ātmanaḥ*—almas rendidas; *harau*—ao Senhor.
+*devasya*—da Personalidade de Deus; *māyayā*—pela influência da energia externa; *spṛṣṭāḥ*—infectados; *ye*—todos aqueles; *ca*—e; *anyat*—outros; *asat*—ilusório; *āśritāḥ*—sendo tomados; *bhrāmyate*—confundir; *dhīḥ*—inteligência; *na*—não; *tat*—isso; *vākyaiḥ*—por aquelas palavras; *ātmani*—no Ser Supremo; *upta-ātmanaḥ*—almas rendidas; *harau*—ao Senhor.
 
 **Em nenhuma circunstância as palavras de pessoas confundidas pela energia ilusória do Senhor conseguem desviar a inteligência daqueles que são almas completamente rendidas.**
 

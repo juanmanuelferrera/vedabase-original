@@ -8,7 +8,7 @@
 > vimṛjya netre viduraṁ\
 > prītyāhoddhava utsmayan
 
-*śanakaiḥ*—gradualmente; *bhagavat*—el Señor; *lokāt*—desde la morada; *nṛlokam*—el planeta de los seres humanos; *punaḥ āgataḥ*—viniendo de nuevo; *vimṛjya*—enjugando; *netre*—ojos; *viduram*—a Vidura; *prītyā*—con afecto; *āha*—dijo; *uddhavaḥ*—Uddhava; *utsmayan*—por todos esos recuerdos.
+*śanakaiḥ*—poco después; *bhagavat*—el Señor; *lokāt*—desde la morada; *nṛlokam*—el planeta de los seres humanos; *punaḥ āgataḥ*—viniendo de nuevo; *vimṛjya*—enjugando; *netre*—ojos; *viduram*—a Vidura; *prītyā*—con afecto; *āha*—dijo; *uddhavaḥ*—Uddhava; *utsmayan*—por todos esos recuerdos.
 
 **El gran devoto Uddhava regresó pronto de la morada del Señor al plano humano, y, enjugando sus ojos, despertó su reminiscencia del pasado, y habló a Vidura con una disposición agradable.**
 

@@ -4,7 +4,7 @@
 
 gāyan kala-padaṁ reme strīṇāṁ maṇḍala-maṇḍanaḥ
 
-*śarat*—outono; *śaśi*—da lua; *karaiḥ*—pelos brilhantes; *mṛṣṭam*—brilhado; *mānayan*—pensando assim; *rajanī-mukham*—a face da noite; *gāyan*—cantando; *kala-padam*—canções agradáveis; *reme*—desfrutou; *strīṇām*—das mulheres; *maṇḍala*—círculo; *maṇḍanaḥ*—como o beauty central.
+*śarat*—outono; *śaśi*—lua; *karaiḥ*—pelos brilhantes; *mṛṣṭam*—brilhado; *mānayan*—pensando assim; *rajanī-mukham*—a face da noite; *gāyan*—cantando; *kala-padam*—canções agradáveis; *reme*—desfrutou; *strīṇām*—das mulheres; *maṇḍala*—círculo; *maṇḍanaḥ*—como o beauty central.
 
 **Na terceira estação do ano, o Senhor desfrutou como a beleza central da assembléia de mulheres atraindo-as com Suas canções agradáveis numa noite de outono brilhada pelo brilho da lua.**
 

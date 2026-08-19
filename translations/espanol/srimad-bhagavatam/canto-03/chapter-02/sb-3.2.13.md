@@ -8,7 +8,7 @@
 > kārtsnyena cādyeha gataṁ vidhātur\
 > arvāk-sṛtau kauśalam ity amanyata
 
-*yat*—la forma que; *dharma-sūnoḥ*—de Mahārāja Yudhiṣṭhira; *bata*—ciertamente; *rājasūye*—en el recinto del sacrificio *rājasūya*; *nirīkṣya*—mediante la observación; *dṛk*—vista; *svastyayanam*—placentera; *tri-lokaḥ*—los tres mundos; *kārtsnyena*—en total; *ca*—así pues; *adya*—hoy; *iha*—dentro del universo; *gatam*—superó; *vidhātuḥ*—del creador (Brahmā); *arvāk*—la humanidad reciente; *sṛtau*—en el mundo material; *kauśalam*—habilidad; *iti*—así pues; *amanyata*—consideraron.
+*yat*—la cual; *dharma-sūnoḥ*—de Mahārāja Yudhiṣṭhira; *bata*—ciertamente; *rājasūye*—en el recinto del sacrificio *rājasūya*; *nirīkṣya*—mediante la observación; *dṛk*—vista; *svastyayanam*—placentera; *tri-lokaḥ*—los tres mundos; *kārtsnyena*—en total; *ca*—así pues; *adya*—hoy; *iha*—dentro del universo; *gatam*—superó; *vidhātuḥ*—del creador (Brahmā); *arvāk*—la humanidad reciente; *sṛtau*—en el mundo material; *kauśalam*—habilidad; *iti*—así pues; *amanyata*—consideraron.
 
 **Todos los semidioses de los sistemas planetarios superiores, inferiores y medios del universo se reunieron ante el altar del sacrificio rājasūya realizado por Mahārāja Yudhiṣṭhira. Tras ver las hermosas características corporales de Śrī Kṛṣṇa, todos ellos consideraron que Él era la más perfecta de todas las hábiles creaciones de Brahmā, el creador de los seres humanos.**
 

@@ -8,7 +8,7 @@
 > yamunopavane kūjad-\
 > dvija-saṅkulitāṅghripe
 
-*parītaḥ*—rodeado por; *vatsapaiḥ*—pastorcillos de vacas; *vatsān*—terneros; *cārayan*—cuidando, vigilando; *vyaharat*—disfrutaba viajando; *vibhuḥ*—el Todopoderoso; *yamunā*—el río Yamunā; *upavane*—jardines en la orilla; *kūjat*—vibrado por la voz; *dvija*—los pájaros nacidos por segunda vez; *saṅkulita*—densamente situados; *aṅghripe*—en los árboles.
+*parītaḥ*—rodeado por; *vatsapaiḥ*—pastorcillos de vacas; *vatsān*—terneros; *cārayan*—cuidando, vigilando; *vyaharat*—disfrutaba viajando; *vibhuḥ*—el Todopoderoso; *yamunā*—el río Yamunā; *upavane*—jardines en la orilla; *kūjat*—vibrado por la voz; *dvija*—los pájaros nacidos por segunda vez; *saṅkulita*—densamente situados; *aṅghripe*—árboles.
 
 **En Su infancia, el Señor Todopoderoso estaba rodeado por pastorcillos y por terneros, y así viajaba por la orilla del río Yamunā, a través de los jardines densamente cubiertos por árboles y llenos de las vibraciones de los gorjeos de los pájaros.**
 
