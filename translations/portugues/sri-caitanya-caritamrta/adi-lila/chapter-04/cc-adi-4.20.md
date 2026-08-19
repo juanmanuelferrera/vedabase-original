@@ -11,7 +11,7 @@ mama vartmānuvartante
 
 manuṣyāḥ pārtha sarvaśaḥ
 
-*ye*—todos os que; *yathā*—como; *mām*—a Mim; *prapadyante*—rendem-se; *tān*—a eles; *tathā*—assim; *eva*—certamente; *bhajāmi*—recompenso; *aham*—Eu; *mama*—Meu; *vartma*—caminho; *anuvartante*—seguem; *manuṣyāḥ*—todos os homens; *pārtha*—ó filho de Pṛthā; *sarvaśaḥ*—em todos os aspectos.
+*ye*—aqueles que; *yathā*—como; *mām*—a Mim; *prapadyante*—rendem-se; *tān*—a eles; *tathā*—assim; *eva*—certamente; *bhajāmi*—recompenso; *aham*—Eu; *mama*—Meu; *vartma*—caminho; *anuvartante*—seguem; *manuṣyāḥ*—os homens; *pārtha*—ó filho de Pṛthā; *sarvaśaḥ*—em todos os aspectos.
 
 **" 'Da maneira como Meus devotos se rendem a Mim, Eu os recompenso de acordo. Todos seguem o Meu caminho em todos os aspectos, ó filho de Pṛthā.'**
 

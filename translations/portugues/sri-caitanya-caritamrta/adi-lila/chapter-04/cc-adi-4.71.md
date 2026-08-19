@@ -6,7 +6,7 @@
 kṛṣṇa-prema-bhāvita yāṅra cittendriya-kāya
 kṛṣṇa-nija-śakti rādhā krīḍāra sahāya
 
-*kṛṣṇa-prema*—amor pelo Senhor Kṛṣṇa; *bhāvita*—impregnados; *yāṅra*—cuja; *citta*—mente; *indriya*—sentidos; *kāya*—corpo; *kṛṣṇa*—do Senhor Kṛṣṇa; *nija-śakti*—Sua própria energia; *rādhā*—Śrīmatī Rādhārāṇī; *krīḍāra*—dos passatempos; *sahāya*—companheira.
+*kṛṣṇa-prema*—amor pelo Senhor Kṛṣṇa; *bhāvita*—impregnados; *yāṅra*—cuja; *citta*—mente; *indriya*—sentidos; *kāya*—corpo; *kṛṣṇa*—do Senhor Kṛṣṇa; *nija-śakti*—a própria energia; *rādhā*—Śrīmatī Rādhārāṇī; *krīḍāra*—dos passatempos; *sahāya*—companheira.
 
 **A mente, os sentidos e o corpo d'Ela estão impregnados de amor por Kṛṣṇa. Ela é a própria energia de Kṛṣṇa, e O auxilia em Seus passatempos.**
 
