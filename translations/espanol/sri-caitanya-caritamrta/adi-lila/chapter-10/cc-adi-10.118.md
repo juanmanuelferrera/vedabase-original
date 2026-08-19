@@ -6,6 +6,6 @@
 > rāmadāsa, mādhava, āra vāsudeva ghoṣa\
 > prabhu-saṅge rahe govinda pāiyā santoṣa
 
-*rāmadāsa*—de nombre Rāmadāsa; *mādhava*—de nombre Mādhava; *āra*—y; *vāsudeva ghoṣa*—de nombre Vāsudeva Ghoṣa; *prabhu-saṅge*—en compañía del Señor Caitanya Mahāprabhu; *rahe*—permaneció; *govinda*—de nombre Govinda; *pāiyā*—sintiendo; *santoṣa*—gran satisfacción.
+*rāmadāsa*—de nombre Rāmadāsa; *mādhava*—de nombre Mādhava; *āra*—y; *vāsudeva ghoṣa*—de nombre Vāsudeva Ghosh; *prabhu-saṅge*—en compañía del Señor Caitanya Mahāprabhu; *rahe*—permaneció; *govinda*—de nombre Govinda; *pāiyā*—sintiendo; *santoṣa*—gran satisfacción.
 
 **Los tres eran Rāmadāsa, Mādhava Ghoṣa y Vāsudeva Ghoṣa. Govinda Ghoṣa, sin embargo, permaneció con Śrī Caitanya Mahāprabhu en Jagannātha Purī y así sintió gran satisfacción.**
