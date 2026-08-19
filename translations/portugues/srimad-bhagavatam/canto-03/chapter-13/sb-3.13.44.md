@@ -11,7 +11,7 @@ vidhunvatā vedamayaṁ nijaṁ vapur
 
 vimṛjyamānā bhṛśam īśa pāvitāḥ
 
-*vidhunvatā*—enquanto agita; *veda-mayam*—os Vedas personificados; *nijam*—próprio; *vapuḥ*—corpo; *janaḥ*—o sistema planetário Janaloka; *tapaḥ*—o sistema planetário Tapoloka; *satya*—o sistema planetário Satyaloka; *nivāsinaḥ*—os habitantes; *vayam*—nós; *saṭā*—pelos no ombro; *śikha-uddhūta*—sustentadas pelas pontas dos pelos; *śiva*—auspiciosas; *ambu*—água; *bindubhiḥ*—pelas gotículas; *vimṛjyamānāḥ*—somos assim aspergidos por; *bhṛśam*—altamente; *īśa*—Ó Senhor Supremo; *pāvitāḥ*—purificados.
+*vidhunvatā*—enquanto agita; *veda-mayam*—os Vedas personificados; *nijam*—próprio; *vapuḥ*—corpo; *janaḥ*—o sistema planetário Janaloka; *tapaḥ*—o sistema planetário Tapoloka; *satya*—o sistema planetário Satyaloka; *nivāsinaḥ*—os habitantes; *vayam*—nós; *saṭā*—pelos no ombro; *śikha-uddhūta*—sustentadas pelas pontas dos pelos; *śiva*—auspiciosas; *ambu*—água; *bindubhiḥ*—pelas gotículas; *vimṛjyamānāḥ*—somos assim aspergidos por; *bhṛśam*—altamente; *īśa*—Senhor Supremo; *pāvitāḥ*—purificados.
 
 ***Ó Senhor Supremo, somos indubitavelmente habitantes dos planetas mais piedosos*–Jana, Tapas e Satya lokas–*mas ainda assim fomos purificados pelas gotículas de água aspergidas dos pelos de Teu ombro pelo sacudir de Teu corpo.***
 

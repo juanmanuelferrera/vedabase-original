@@ -8,7 +8,7 @@
 > saṭā-śikhoddhūta-śivāmbu-bindubhir\
 > vimṛjyamānā bhṛśam īśa pāvitāḥ
 
-*vidhunvatā*—mientras sacudes; *veda-mayam*—personificación de los *Vedas*; *nijam*—propio; *vapuḥ*—cuerpo; *janaḥ*—el sistema planetario Janaloka; *tapaḥ*—el sistema planetario Tapoloka; *satya*—el sistema planetario Satyaloka; *nivāsinaḥ*—los habitantes; *vayam*—nosotros; *saṭā*—pelos en el lomo; *śikha-uddhūta*—sostenidas por la punta de los pelos; *śiva*—auspiciosas; *ambu*—agua; *bindubhiḥ*—por las partículas; *vimṛjyamānāḥ*—somos así salpicados por; *bhṛśam*—enormemente; *īśa*—¡oh, Señor Supremo!; *pāvitāḥ*—purificados.
+*vidhunvatā*—mientras sacudes; *veda-mayam*—personificación de los *Vedas*; *nijam*—propio; *vapuḥ*—cuerpo; *janaḥ*—el sistema planetario Janaloka; *tapaḥ*—el sistema planetario Tapoloka; *satya*—el sistema planetario Satyaloka; *nivāsinaḥ*—los habitantes; *vayam*—nosotros; *saṭā*—pelos en el lomo; *śikha-uddhūta*—sostenidas por la punta de los pelos; *śiva*—auspiciosas; *ambu*—agua; *bindubhiḥ*—por las partículas; *vimṛjyamānāḥ*—somos así salpicados por; *bhṛśam*—enormemente; *īśa*—Señor Supremo; *pāvitāḥ*—purificados.
 
 **¡Oh, Señor Supremo! Sin duda somos habitantes de los planetas más piadosos, los lokas Jana, Tapa y Satya, pero, a pesar de ello, nos hemos purificado con las gotas de agua salpicadas de los pelos de Tu lomo cuando has sacudido Tu cuerpo.**
 

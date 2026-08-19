@@ -11,7 +11,7 @@
 
 aho virajyeta vinā naretaram
 
-*kaḥ*—quem; *nāma*—de fato; *loke*—no mundo; *puruṣa-artha*—objetivo da vida; *sāra-vit*—aquele que conhece a essência de; *purā-kathānām*—de todas as histórias passadas; *bhagavat*—referente à Personalidade de Deus; *kathā-sudhām*—o néctar das narrativas sobre a Personalidade de Deus; *āpīya*—ao beber; *karṇa-añjalibhiḥ*—pela recepção auditiva; *bhava-apahām*—aquilo que mata todas as angústias materiais; *aho*—ai; *virajyeta*—poderia recusar; *vinā*—exceto; *nara-itaram*—que não seja o ser humano.
+*kaḥ*—quem; *nāma*—de fato; *loke*—no mundo; *puruṣa-artha*—objetivo da vida; *sāra-vit*—aquele que conhece a essência de; *purā-kathānām*—de todas as histórias passadas; *bhagavat*—referente à Personalidade de Deus; *kathā-sudhām*—o néctar das narrativas sobre a Personalidade de Deus; *āpīya*—ao beber; *karṇa-añjalibhiḥ*—pela recepção auditiva; *bhava-apahām*—aquilo que mata todas as angústias materiais; *aho*—ai; *virajyeta*—poderia recusar; *vinā*—sem; *nara-itaram*—que não seja o ser humano.
 
 **Quem, além daquele que não é um ser humano, pode existir neste mundo sem se interessar pelo objetivo último da vida? Quem pode recusar o néctar das narrativas sobre as atividades da Personalidade de Deus, que por si só pode libertar alguém de todas as angústias materiais?**
 

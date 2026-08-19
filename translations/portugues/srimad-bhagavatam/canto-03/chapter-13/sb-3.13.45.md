@@ -11,7 +11,7 @@
 
 viśvaṁ samastaṁ bhagavan vidhehi śam
 
-*saḥ*—ele; *vai*—certamente; *bata*—ai de mim; *bhraṣṭa-matiḥ*—insensato; *tava*—Teu; *eṣate*—deseja; *yaḥ*—aquele que; *karmaṇām*—de atividades; *pāram*—limite; *apāra-karmaṇaḥ*—Daquele que tem atividades ilimitadas; *yat*—por quem; *yoga*—poder místico; *māyā*—potência; *guṇa*—modos da natureza material; *yoga*—poder místico; *mohitam*—perturbado; *viśvam*—o universo; *samastam*—no total; *bhagavan*—Ó Suprema Personalidade de Deus; *vidhehi*—apenas digna-Te de conceder; *śam*—boa fortuna.
+*saḥ*—ele; *vai*—certamente; *bata*—ai de mim; *bhraṣṭa-matiḥ*—insensato; *tava*—Teu; *eṣate*—deseja; *yaḥ*—aquele que; *karmaṇām*—de atividades; *pāram*—limite; *apāra-karmaṇaḥ*—Daquele que tem atividades ilimitadas; *yat*—por quem; *yoga*—poder místico; *māyā*—potência; *guṇa*—modos da natureza material; *yoga*—poder místico; *mohitam*—perturbado; *viśvam*—o universo; *samastam*—no total; *bhagavan*—Ó Suprema Personalidade; *vidhehi*—apenas digna-Te de conceder; *śam*—boa fortuna.
 
 **Ó Senhor, não há limite para Tuas atividades maravilhosas. Quem desejar conhecer o limite de Tuas atividades é certamente insensato. Todos neste mundo estão condicionados pelas poderosas potências místicas. Por favor concede Tua misericórdia incausada a essas almas condicionadas.**
 

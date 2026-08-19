@@ -11,7 +11,7 @@ natvā diṣṭāya rahasi
 
 tayāthopaviveśa hi
 
-*saḥ*—ele; *viditvā*—compreendendo; *atha*—então; *bhāryāyāḥ*—da esposa; *tam*—isso; *nirbandham*—obstinação; *vikarmaṇi*—no ato proibido; *natvā*—oferecendo reverências; *diṣṭāya*—ao destino venerável; *rahasi*—num lugar solitário; *tayā*—com ela; *atha*—assim; *upaviveśa*—deitou-se; *hi*—certamente.
+*saḥ*—ele; *viditvā*—compreendendo; *atha*—então; *bhāryāyāḥ*—da esposa; *tam*—isso; *nirbandham*—obstinação; *vikarmaṇi*—no ato proibido; *natvā*—oferecendo reverências; *diṣṭāya*—ao destino venerável; *rahasi*—num lugar solitário; *tayā*—com ela; *atha*—assim; *upaviveśa*—sentou-se; *hi*—certamente.
 
 **Compreendendo o propósito de sua esposa, ele foi obrigado a realizar o ato proibido e, após oferecer suas reverências ao destino venerável, deitou-se com ela num lugar solitário.**
 

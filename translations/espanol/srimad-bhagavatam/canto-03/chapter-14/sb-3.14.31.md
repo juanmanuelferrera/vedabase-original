@@ -8,7 +8,7 @@
 > natvā diṣṭāya rahasi\
 > tayāthopaviveśa hi
 
-*saḥ*—él; *viditvā*—entendiendo; *atha*—al momento; *bhāryāyāḥ*—de la esposa; *tam*—esta; *nirbandham*—obstinación; *vikarmaṇi*—en el acto prohibido; *natvā*—ofreciendo reverencias; *diṣṭāya*—al adorable destino; *rahasi*—en un lugar apartado; *tayā*—con ella; *atha*—así; *upaviveśa*—se acostó; *hi*—ciertamente.
+*saḥ*—él; *viditvā*—entendiendo; *atha*—al momento; *bhāryāyāḥ*—de la esposa; *tam*—esta; *nirbandham*—obstinación; *vikarmaṇi*—en el acto prohibido; *natvā*—ofreciendo reverencias; *diṣṭāya*—al adorable destino; *rahasi*—en un lugar apartado; *tayā*—con ella; *atha*—así; *upaviveśa*—se sentó; *hi*—ciertamente.
 
 **Entendiendo la intención de su esposa, se sintió obligado a ejecutar el acto prohibido, y, de esta manera, tras ofrecer reverencias al adorable destino, se acostó con ella en un lugar apartado.**
 

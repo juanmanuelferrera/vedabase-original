@@ -8,7 +8,7 @@
 > āpīya karṇāñjalibhir bhavāpahām\
 > aho virajyeta vinā naretaram
 
-*kaḥ*—quién; *nāma*—en verdad; *loke*—en el mundo; *puruṣa-artha*—meta de la vida; *sāra-vit*—aquel que conoce la esencia de; *purā-kathānām*—de todas las historias pasadas; *bhagavat*—en relación con la Personalidad de Dios; *kathā-sudhām*—el néctar de las narraciones sobre la Personalidad de Dios; *āpīya*—bebiendo; *karṇa-añjalibhiḥ*—mediante la recepción auditiva; *bhava-apahām*—aquello que extingue los sufrimientos materiales; *aho*—¡ay!; *virajyeta*—podría rechazar; *vinā*—excepto; *nara-itaram*—aparte del ser humano.
+*kaḥ*—quién; *nāma*—en verdad; *loke*—en el mundo; *puruṣa-artha*—meta de la vida; *sāra-vit*—aquel que conoce la esencia de; *purā-kathānām*—de todas las historias pasadas; *bhagavat*—en relación con la Personalidad de Dios; *kathā-sudhām*—el néctar de las narraciones sobre la Personalidad de Dios; *āpīya*—bebiendo; *karṇa-añjalibhiḥ*—mediante la recepción auditiva; *bhava-apahām*—aquello que extingue los sufrimientos materiales; *aho*—¡ay!; *virajyeta*—podría rechazar; *vinā*—sin; *nara-itaram*—aparte del ser humano.
 
 **¿Quién, aparte de aquel que no es ser humano, puede vivir en este mundo y no tener interés en el objetivo final de la vida? ¿Quién puede rechazar el néctar de las narraciones sobre las actividades de la Suprema Personalidad de Dios, que, por sí mismas, pueden liberar al individuo de todos los sufrimientos materiales?**
 

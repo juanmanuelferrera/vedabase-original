@@ -11,7 +11,7 @@ vyasanārṇavam atyeti
 
 *jala*-yānair yathārṇavam
 
-*sarva*—todos; *āśramān*—as ordens sociais; *upādāya*—completando; *sva*—próprio; *āśrameṇa*—pela ordem social; *kalatra-vān*—uma pessoa que vive com uma esposa; *vyasana-arṇavam*—o perigoso oceano da existência material; *atyeti*—pode cruzar; *jala-yānaiḥ*—com embarcações marítimas; *yathā*—como; *arṇavam*—o oceano.
+*sarva*—todos; *āśramān*—as ordens sociais; *upādāya*—completando; *sva*—próprio; *āśrameṇa*—pela ordem social; *kalatra-vān*—uma pessoa que vive com uma esposa; *vyasana-arṇavam*—o perigoso oceano da existência material; *atyeti*—pode cruzar; *jala-yānaiḥ*—com uma embarcação marítima; *yathā*—como; *arṇavam*—o oceano.
 
 **Assim como se pode cruzar o oceano com embarcações marítimas, pode-se cruzar a perigosa situação do oceano material vivendo com uma esposa.**
 
