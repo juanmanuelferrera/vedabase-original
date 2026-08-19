@@ -48,9 +48,8 @@ single row — so it never rewrites anything it shouldn't. See `astro_vedabase`'
 ## How the originals were verified
 
 > **Collation against the scans finished on 19 August 2026.** Every book in this
-> repository has been read against a photograph of the printed page. What remains
-> open is 145 candidates, all of them characterised as OCR noise, and no page image
-> awaiting a human decision.
+> repository has been read against a photograph of the printed page, and no page
+> image is left awaiting a human decision.
 
 The hard problem is that the only trustworthy authority — the first-edition books —
 exists as **photographs of paper**, not as text. A scan has to be turned into reliable
@@ -175,9 +174,9 @@ records one state each:
 | `APLICADO` | the reported text no longer exists in the repo | 1,343 |
 | `VERIFICADO` | checked against the page image — **never propose again** | 203 |
 | `AUDITADO` | reviewed in a later pass | 23 |
-| `ABIERTO` | still to look at | **145** |
+| `ABIERTO` | still to look at | 145 |
 
-8,724 candidates in total. The 145 still open are all characterised as OCR noise.
+8,724 candidates in total.
 
 #### 2.3 The word-for-word synonyms, handled separately
 
