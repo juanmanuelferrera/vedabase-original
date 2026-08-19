@@ -8,7 +8,7 @@
 > vaiṣṇavaṁ teja āsādya\
 > samaśāmyad bhṛgūdvaha
 
-*yadyapi*—aunque; *astram*—arma; *brahma-śiraḥ*—suprema; *tu*—pero; *amogham*—sin restricción; *ca*—y; *apratikriyam*—no podía ser contrarrestado; *vaiṣṇavam*—en relación con Viṣṇu; *tejaḥ*—fuerza; *āsādya*—estando confrontado con; *samaśāmyat*—fue neutralizado; *bhṛgu-udvaha*—¡oh, gloria de la familia de Bhṛgu!.
+*yadyapi*—aunque; *astram*—armas; *brahma-śiraḥ*—suprema; *tu*—pero; *amogham*—sin restricción; *ca*—y; *apratikriyam*—no podía ser contrarrestado; *vaiṣṇavam*—en relación con Viṣṇu; *tejaḥ*—fuerza; *āsādya*—estando confrontado con; *samaśāmyat*—fue neutralizado; *bhṛgu-udvaha*—¡oh, gloria de la familia de Bhṛgu!.
 
 **¡Oh Śaunaka!, aunque el supremo arma brahmāstra lanzada por Aśvatthāmā era irresistible y no admitía freno ni contramedida, cuando se enfrentó a la fuerza de Viṣṇu [el Señor Kṛṣṇa], quedó neutralizada y frustrada.**
 

@@ -8,7 +8,7 @@
 > ātmano 'bhimukhān dīptān\
 > ālakṣyāstrāṇy upādaduḥ
 
-*tarhi*—entonces; *eva*—también; *atha*—por lo tanto; *muni-śreṣṭha*—¡oh, el principal entre los *munis*!; *pāṇḍavāḥ*—todos los hijos de Pāṇḍu; *pañca*—cinco; *sāyakān*—armas; *ātmanaḥ*—sí mismos; *abhimukhān*—hacia; *dīptān*—brillante; *ālakṣya*—viéndolo; *astrāṇi*—armas; *upādaduḥ*—esgrimieron.
+*tarhi*—por eso; *eva*—también; *atha*—por lo tanto; *muni-śreṣṭha*—¡oh, el principal entre los *munis*!; *pāṇḍavāḥ*—todos los hijos de Pāṇḍu; *pañca*—cinco; *sāyakān*—armas; *ātmanaḥ*—sí mismos; *abhimukhān*—hacia; *dīptān*—brillante; *ālakṣya*—viéndolo; *astrāṇi*—arma; *upādaduḥ*—esgrimieron.
 
 **¡Oh, tú, el principal entre los grandes pensadores [munis] [Śaunaka]!, al ver el resplandeciente brahmāstra que avanzaba hacia ellos, los Pāṇḍavas empuñaron sus cinco armas respectivas.**
 

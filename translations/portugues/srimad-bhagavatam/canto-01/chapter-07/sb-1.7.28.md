@@ -11,7 +11,7 @@ astraṁ pratyavakarśanam
 
 *astra*-jño hy astra-tejasā
 
-*na*—não; *hi*—certamente; *asya*—dela; *anyatamam*—outra; *kiñcit*—qualquer; *astram*—arma; *prati*—contra; *avakarśanam*—reativa; *jahi*—subjuga-a; *astra-tejaḥ*—o clarão desta arma; *unnaddham*—muito poderoso; *astra-jñaḥ*—perito na ciência militar; *hi*—de fato; *astra-tejasā*—pela influência de tua arma.
+*na*—não; *hi*—certamente; *asya*—dela; *anyatamam*—outra; *kiñcit*—qualquer; *astram*—arma; *prati*—contra; *avakarśanam*—reativa; *jahi*—subjuga-a; *astra-tejaḥ*—o clarão desta arma; *unnaddham*—muito poderoso; *astra-jñaḥ*—ó perito na ciência militar; *hi*—de fato; *astra-tejasā*—pela influência de tua arma.
 
 **Ó Arjuna, somente outro brahmāstra pode neutralizar esta arma. Visto que és perito na ciência militar, subjuga o brilho desta arma com tua própria arma.**
 

@@ -8,7 +8,7 @@
 > saṁsāriṇāṁ karuṇayāha purāṇa-guhyaṁ\
 > taṁ vyāsa-sūnum upayāmi guruṁ munīnām
 
-*yaḥ*—aquel que; *sva-anubhāvam*—asimilado por uno mismo (experimentado); *akhila*—por todas partes; *śruti*—los *Vedas*; *sāram*—crema; *ekam*—el único; *adhyātma*—trascendental; *dīpam*—antorcha; *atititīrṣatām*—deseando superar; *tamaḥ andham*—la muy oscura existencia material; *saṁsāriṇām*—de los hombres materialistas; *karuṇayā*—por misericordia sin causa; *āha*—dijo; *purāṇa*—suplemento de los *Vedas*; *guhyam*—muy confidencial; *tam*—a él; *vyāsa-sūnum*—el hijo de Vyāsadeva; *upayāmi*—permítaseme ofrecer mis reverencias; *gurum*—el maestro espiritual; *munīnām*—de los grandes sabios.
+*yaḥ*—aquel que; *sva-anubhāvam*—asimilado por uno mismo (experimentado); *akhila*—por todas partes; *śruti*—los *Vedas*; *sāram*—crema; *ekam*—el único; *adhyātma*—trascendental; *dīpam*—antorcha; *atititīrṣatām*—deseando superar; *tamaḥ andham*—la muy oscura existencia material; *saṁsāriṇām*—de los hombres materialistas; *karuṇayā*—por misericordia sin causa; *āha*—dijo; *purāṇa*—suplementario a los *Vedas*; *guhyam*—muy confidencial; *tam*—a él; *vyāsa-sūnum*—el hijo de Vyāsadeva; *upayāmi*—permítaseme ofrecer mis reverencias; *gurum*—el maestro espiritual; *munīnām*—de los grandes sabios.
 
 **Permítaseme ofrecer mis respetuosas reverencias a él [Śuka], el maestro espiritual de todos los sabios, el hijo de Vyāsadeva, quien, por su gran compasión hacia esos burdos materialistas que se esfuerzan por cruzar las regiones más oscuras de la existencia material, habló este Purāṇa [el suplemento de los Vedas], la crema del conocimiento Védico, tras haberlo asimilado personalmente por experiencia.**
 

@@ -8,7 +8,7 @@
 > kāmaṁ dahatu māṁ nātha\
 > mā me garbho nipātyatām
 
-*abhidravati*—yendo hacia; *mām*—mí; *īśa*—¡oh, Señor!; *śaraḥ*—la flecha; *tapta*—incandescente; *ayasaḥ*—de hierro; *vibho*—¡oh, Tú, el grande!; *kāmam*—deseo; *dahatu*—déjalo que queme; *mām*—a mí; *nātha*—¡oh, protector!; *mā*—no; *me*—mi; *garbhaḥ*—embrión; *nipātyatām*—sea abortado.
+*abhidravati*—yendo hacia; *mām*—mí; *īśa*—¡oh, Señor!; *śaraḥ*—la flecha; *tapta*—incandescente; *ayasaḥ*—de hierro; *vibho*—el grande; *kāmam*—deseo; *dahatu*—déjalo que queme; *mām*—a mí; *nātha*—mi protector; *mā*—no; *me*—mi; *garbhaḥ*—embrión; *nipātyatām*—sea abortado.
 
 **¡Oh, mi Señor!, Tú eres todopoderoso. Una flecha de hierro incandescente se dirige rápidamente hacia mí. Mi Señor, que me queme a mí personalmente, si así lo deseas, pero, por favor, no dejes que queme a mi embrión y que haga que aborte. Mi Señor, ten la bondad de hacerme este favor.**
 

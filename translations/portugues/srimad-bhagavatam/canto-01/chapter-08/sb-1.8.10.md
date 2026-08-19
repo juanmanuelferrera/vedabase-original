@@ -8,7 +8,7 @@ abhidravati mām īśa
 kāmaṁ dahatu māṁ nātha
 mā me garbho nipātyatām
 
-*abhidravati*—vindo em direção; *mām*—a mim; *īśa*—ó Senhor; *śaraḥ*—a flecha; *tapta*—incandescente; *ayasaḥ*—de ferro; *vibho*—ó grande; *kāmam*—desejo; *dahatu*—que ela me queime; *mām*—a mim; *nātha*—ó protetor; *mā*—não; *me*—meu; *garbhaḥ*—embrião; *nipātyatām*—seja abortado.
+*abhidravati*—vindo em direção; *mām*—a mim; *īśa*—ó Senhor; *śaraḥ*—a flecha; *tapta*—incandescente; *ayasaḥ*—de ferro; *vibho*—o grande; *kāmam*—desejo; *dahatu*—que ela me queime; *mām*—a mim; *nātha*—meu protetor; *mā*—não; *me*—meu; *garbhaḥ*—embrião; *nipātyatām*—seja abortado.
 
 **Ó meu Senhor, Tu és todo-poderoso. Uma flecha de ferro incandescente vem rapidamente em minha direção. Meu Senhor, que ela me queime pessoalmente, se assim o desejares, mas por favor não permitas que ela queime e aborte meu embrião. Concede-me este favor, meu Senhor.**
 

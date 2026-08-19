@@ -8,7 +8,7 @@
 > vimocitāhaṁ ca sahātmajā vibho\
 > tvayaiva nāthena muhur vipad-gaṇāt
 
-*yathā*—como si fuera; *hṛṣīkeśa*—el amo de los sentidos; *khalena*—por los envidiosos; *devakī*—Devakī (la madre de Śrī Kṛṣṇa); *kaṁsena*—por el rey Kaṁsa; *ruddhā*—encarcelada; *ati-ciram*—durante mucho tiempo; *śuca-arpitā*—afligida; *vimocitā*—liberada; *aham ca*—yo también; *saha-ātma-jā*—junto con mis hijos; *vibho*—¡oh, Tú, el grande!; *tvayā eva*—por Tu Señoría; *nāthena*—como el protector; *muhuḥ*—constantemente; *vipat-gaṇāt*—de una serie de peligros.
+*yathā*—como si fuera; *hṛṣīkeśa*—el amo de los sentidos; *khalena*—por los envidiosos; *devakī*—Devakī (la madre de Śrī Kṛṣṇa); *kaṁsena*—por el rey Kaṁsa; *ruddhā*—encarcelada; *ati-ciram*—durante mucho tiempo; *śuca-arpitā*—afligida; *vimocitā*—liberada; *aham ca*—yo también; *saha-ātma-jā*—junto con mis hijos; *vibho*—¡oh, Tú, el grande!; *tvayā eva*—por Tu Señoría; *nāthena*—como el protector; *muhuḥ*—constantemente; *vipat-gaṇāt*—serie de peligros.
 
 **¡Oh Hṛṣīkeśa, amo de los sentidos y Señor de señores!, Tú has liberado a Tu madre Devakī, que estuvo largo tiempo encarcelada y angustiada por el envidioso rey Kaṁsa, y a mí y a mis hijos de una serie de constantes peligros.**
 

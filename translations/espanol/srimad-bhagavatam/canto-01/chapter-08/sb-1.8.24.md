@@ -8,7 +8,7 @@
 > mṛdhe mṛdhe 'neka-mahārathāstrato\
 > drauṇy-astrataś cāsma hare 'bhirakṣitāḥ
 
-*viṣāt*—de veneno; *mahā-agneḥ*—del gran fuego; *puruṣa-ada*—los caníbales; *darśanāt*—por combatir; *asat*—viciosa; *sabhāyāḥ*—asamblea; *vana-vāsa*—exiliados al bosque; *kṛcchrataḥ*—sufrimientos; *mṛdhe mṛdhe*—una y otra vez en la batalla; *aneka*—muchos; *mahā-ratha*—grandes generales; *astrataḥ*—armas; *drauṇi*—el hijo de Droṇācārya; *astrataḥ*—del arma de; *ca*—y; *āsma*—indicando tiempo pretérito; *hare*—¡oh, mi Señor!; *abhirakṣitāḥ*—protegidos por completo.
+*viṣāt*—de veneno; *mahā-agneḥ*—del gran fuego; *puruṣa-ada*—los caníbales; *darśanāt*—por combatir; *asat*—viciosa; *sabhāyāḥ*—asamblea; *vana-vāsa*—exiliados al bosque; *kṛcchrataḥ*—sufrimientos; *mṛdhe mṛdhe*—una y otra vez en la batalla; *aneka*—muchos; *mahā-ratha*—grandes generales; *astrataḥ*—armas; *drauṇi*—el hijo de Droṇācārya; *astrataḥ*—de las armas de; *ca*—y; *āsma*—indicando tiempo pretérito; *hare*—por la Personalidad de Dios; *abhirakṣitāḥ*—protegidos por completo.
 
 **Mi querido Kṛṣṇa, Tu Señoría nos ha protegido de un pastel envenenado, de un gran fuego, de caníbales, de la asamblea viciosa, de sufrimientos habidos durante nuestro exilio en el bosque y de la batalla en la que lucharon grandes generales. Y ahora nos ha salvado del arma de Aśvatthāmā.**
 

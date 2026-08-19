@@ -8,7 +8,7 @@ vyasanaṁ vīkṣya tat teṣām
 sudarśanena svāstreṇa
 svānāṁ rakṣāṁ vyadhād vibhuḥ
 
-*vyasanam*—grande perigo; *vīkṣya*—tendo observado; *tat*—esse; *teṣām*—deles; *ananya*—nenhum outro; *viṣaya*—meio; *ātmanām*—assim inclinados; *sudarśanena*—pelo disco de Śrī Kṛṣṇa; *sva-astreṇa*—por Sua arma; *svānām*—de Seus próprios devotos; *rakṣām*—proteção; *vyadhāt*—providenciou; *vibhuḥ*—o Todo-Poderoso.
+*vyasanam*—grande perigo; *vīkṣya*—tendo observado; *tat*—esse; *teṣām*—deles; *ananya*—qualquer outro; *viṣaya*—meio; *ātmanām*—assim inclinados; *sudarśanena*—pelo disco de Śrī Kṛṣṇa; *sva-astreṇa*—por Sua arma; *svānām*—de Seus próprios devotos; *rakṣām*—proteção; *vyadhāt*—providenciou; *vibhuḥ*—o Todo-Poderoso.
 
 **A onipotente Personalidade de Deus, Śrī Kṛṣṇa, tendo observado que um grande perigo se abatia sobre Seus devotos imaculados, que eram almas plenamente rendidas, empunhou de imediato Seu disco Sudarśana para protegê-los.**
 

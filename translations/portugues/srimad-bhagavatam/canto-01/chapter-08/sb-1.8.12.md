@@ -8,7 +8,7 @@ pāṇḍavāḥ pañca sāyakān
 ātmano 'bhimukhān dīptān
 ālakṣyāstrāṇy upādaduḥ
 
-*tarhi*—então; *eva*—também; *atha*—portanto; *muni-śreṣṭha*—ó o mais elevado entre os munis; *pāṇḍavāḥ*—todos os filhos de Pāṇḍu; *pañca*—cinco; *sāyakān*—armas; *ātmanaḥ*—de si mesmos; *abhimukhān*—em direção; *dīptān*—flamejantes; *ālakṣya*—vendo-o; *astrāṇi*—armas; *upādaduḥ*—apanharam.
+*tarhi*—por isso; *eva*—também; *atha*—portanto; *muni-śreṣṭha*—ó o mais elevado entre os munis; *pāṇḍavāḥ*—todos os filhos de Pāṇḍu; *pañca*—cinco; *sāyakān*—armas; *ātmanaḥ*—de si mesmos; *abhimukhān*—em direção; *dīptān*—flamejantes; *ālakṣya*—vendo-o; *astrāṇi*—arma; *upādaduḥ*—apanharam.
 
 **Ó principal entre os grandes pensadores [munis] [Śaunaka], ao verem o reluzente brahmāstra avançando em sua direção, os Pāṇḍavas empunharam suas cinco respectivas armas.**
 
