@@ -8,7 +8,7 @@
 > kṣiṇoti devo 'nimiṣas tu yeṣām\
 > āyur vṛthā-vāda-gati-smṛtīnām
 
-*tān*—todos esos; *śocya*—dignos de lástima; *śocyān*—de los dignos de lástima; *avidaḥ*—ignorantes; *anuśoce*—me dan lástima; *hareḥ*—del Señor; *kathāyām*—a los relatos acerca de; *vimukhān*—contrarios; *aghena*—por las actividades pecaminosas; *kṣiṇoti*—malográndose; *devaḥ*—el Señor; *animiṣaḥ*—tiempo eterno; *tu*—pero; *yeṣām*—de quienes; *āyuḥ*—duración de la vida; *vṛthā*—inútilmente; *vāda*—especulaciones filosóficas; *gati*—meta final; *smṛtīnām*—de aquellos que observan diferentes rituales.
+*tān*—todos esos; *śocya*—dignos de lástima; *śocyān*—de los dignos de lástima; *avidaḥ*—ignorantes; *anuśoce*—me dan lástima; *hareḥ*—del Señor; *kathāyām*—a los relatos acerca de; *vimukhān*—contrarios; *aghena*—por las actividades pecaminosas; *kṣiṇoti*—malográndose; *devaḥ*—¡oh, sabio!; *animiṣaḥ*—tiempo eterno; *tu*—pero; *yeṣām*—de quienes; *āyuḥ*—duración de la vida; *vṛthā*—inútilmente; *vāda*—especulaciones filosóficas; *gati*—meta final; *smṛtīnām*—de aquellos que observan diferentes rituales.
 
 **¡Oh, sabio!, las personas que, a causa de sus actividades pecaminosas, sienten aversión por los temas de la Trascendencia, y son por ello ignorantes del propósito del Mahābhārata [el Bhagavad-gītā], son dignas de la lástima de los dignos de lástima. Yo también las compadezco, pues veo cómo el tiempo eterno echa a perder su duración de vida mientras se enredan en exposiciones de especulación filosófica, en metas últimas teóricas de la vida y en diferentes modalidades de ritual.**
 

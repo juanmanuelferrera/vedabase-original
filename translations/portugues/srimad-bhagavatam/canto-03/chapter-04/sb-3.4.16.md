@@ -11,7 +11,7 @@ karmāṇy anīhasya bhavo 'bhavasya te
 
 *svātman*-rateḥ khidyati dhīr vidām iha
 
-*karmāṇi*—atividades; *anīhasya*—daquele que não tem desejos; *bhavaḥ*—nascimento; *abhavasya*—daquele que nunca nasce; *te*—seus; *durga-āśrayaḥ*—tomar refúgio no forte; *atha*—depois; *ari-bhayāt*—por medo dos inimigos; *palāyanam*—fugir; *kāla-ātmanaḥ*—dAquele que é o controlador do tempo eterno; *yat*—aquele; *pramadā-āyuta*—na associação de mulheres; *āśramaḥ*—vida doméstica; *sva-ātman*—em Seu próprio Ser; *rateḥ*—daquele que desfruta; *khidyati*—perturba-se; *dhīḥ*—a inteligência; *vidām*—dos sábios eruditos; *iha*—neste mundo.
+*karmāṇi*—atividades; *anīhasya*—daquele que não tem desejos; *bhavaḥ*—nascimento; *abhavasya*—daquele que nunca nasce; *te*—seus; *durga-āśrayaḥ*—tomar refúgio no forte; *atha*—depois; *ari-bhayāt*—por medo dos inimigos; *palāyanam*—fugir; *kāla-ātmanaḥ*—dAquele que é o controlador do tempo eterno; *yat*—aquele; *pramadā-āyuta*—na associação de mulheres; *āśramaḥ*—vida doméstica; *sva-ātman*—em Seu próprio Ser; *rateḥ*—daquele que desfruta; *khidyati*—perturba; *dhīḥ*—a inteligência; *vidām*—dos sábios eruditos; *iha*—neste mundo.
 
 **Meu Senhor, mesmo os sábios eruditos ficam perturbados em sua inteligência ao ver que Vossa Grandiosidade realiza obras fruitivas embora esteja livre de todos os desejos, que nasce embora não seja nascido, que foge por medo do inimigo e se refugia num forte embora seja o controlador do tempo invencível, e que desfruta da vida doméstica rodeado de muitas mulheres embora desfrute em Seu próprio Ser.**
 

@@ -11,7 +11,7 @@ pṛccheḥ prabho mugdha ivāpramattas
 
 tan no mano mohayatīva deva
 
-*mantreṣu*—nas consultas; *mām*—a mim; *vai*—seja como for; *upahūya*—chamando; *yat*—na medida em que; *tvam*—Vossa Senhoria; *akuṇṭhita*—sem hesitação; *akhaṇḍa*—sem ser separado; *sadā*—eternamente; *ātma*—o ser; *bodhaḥ*—inteligente; *pṛccheḥ*—perguntou; *prabho*—ó meu Senhor; *mugdhaḥ*—perplexo; *iva*—como se fosse assim; *apramattaḥ*—embora nunca perplexo; *tat*—aquilo; *naḥ*—nossa; *manaḥ*—mente; *mohayati*—perturba; *iva*—como é assim; *deva*—ó meu Senhor.
+*mantreṣu*—nas consultas; *mām*—a mim; *vai*—seja como for; *upahūya*—chamando; *yat*—na medida em que; *tvam*—Vossa Senhoria; *akuṇṭhita*—sem hesitação; *akhaṇḍa*—sem ser separado; *sadā*—eternamente; *ātma*—o ser; *bodhaḥ*—inteligente; *pṛccheḥ*—perguntou; *prabho*—ó meu Senhor; *mugdhaḥ*—perplexo; *iva*—como se fosse assim; *apramattaḥ*—embora nunca perplexo; *tat*—aquilo; *naḥ*—nos; *manaḥ*—mente; *mohayati*—perturba; *iva*—como é assim; *deva*—ó meu Senhor.
 
 **Ó meu Senhor, Seu Ser eterno nunca é dividido pela influência do tempo, e não há limitação para Seu conhecimento perfeito. Assim, o Senhor era suficientemente capaz de consultar-Se com Si mesmo, porém me chamou para consulta, como se estivesse perplexo, embora nunca esteja perplexo. E esse ato Seu me perturba.**
 

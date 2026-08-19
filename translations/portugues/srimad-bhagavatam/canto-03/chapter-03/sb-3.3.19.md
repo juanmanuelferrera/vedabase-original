@@ -11,7 +11,7 @@ kāmān siṣeve dvārvatyām
 
 asaktaḥ sāṅkhyam āsthitaḥ
 
-*bhagavān*—a Personalidade de Deus; *api*—também; *viśva-ātmā*—a Superalma do universo; *loka*—costumeiro; *veda*—princípios Védicos; *patha-anugaḥ*—seguidor do caminho; *kāmān*—as necessidades da vida; *siṣeve*—desfrutou; *dvārvatyām*—na cidade de Dvārakā; *asaktaḥ*—sem estar apegado; *sāṅkhyam*—conhecimento na filosofia Sāṅkhya; *āsthitaḥ*—estando situado.
+*bhagavān*—a Personalidade de Deus; *api*—também; *viśva-ātmā*—a Superalma do universo; *loka*—costume; *veda*—princípios Védicos; *patha-anugaḥ*—seguidor do caminho; *kāmān*—as necessidades da vida; *siṣeve*—desfrutou; *dvārvatyām*—na cidade de Dvārakā; *asaktaḥ*—sem estar apegado; *sāṅkhyam*—conhecimento na filosofia Sāṅkhya; *āsthitaḥ*—estando situado.
 
 **Simultaneamente, a Personalidade de Deus desfrutava da vida na cidade de Dvārakā, em estrita conformidade com os costumes Védicos da sociedade. Estava situado no desapego e no conhecimento, conforme enunciados pelo sistema filosófico Sāṅkhya.**
 

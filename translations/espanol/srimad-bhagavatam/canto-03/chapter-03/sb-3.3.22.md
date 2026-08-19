@@ -8,7 +8,7 @@
 > gṛhamedheṣu yogeṣu\
 > virāgaḥ samajāyata
 
-*tasya*—Su; *evam*—de esa manera; *ramamāṇasya*—disfrutando; *saṁvatsara*—años; *gaṇān*—muchos; *bahūn*—muchísimos; *gṛhamedheṣu*—en la vida hogareña; *yogeṣu*—en la vida sexual; *virāgaḥ*—desapego; *samajāyata*—se despertó.
+*tasya*—Su; *evam*—de esa manera; *ramamāṇasya*—disfrutando; *saṁvatsara*—muchos años; *gaṇān*—muchos; *bahūn*—muchísimos; *gṛhamedheṣu*—en la vida hogareña; *yogeṣu*—en la vida sexual; *virāgaḥ*—desapego; *samajāyata*—se despertó.
 
 **El Señor Se ocupó de esa manera en la vida hogareña por muchísimos años, pero finalmente Su desapego de la efímera vida sexual se manifestó plenamente.**
 

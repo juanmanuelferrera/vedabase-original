@@ -11,7 +11,7 @@
 
 praṇemur bhuvi mūrdhabhiḥ
 
-*annam*—alimentos; *ca*—também; *uru-rasam*—muito deliciosos; *tebhyaḥ*—aos *brāhmaṇas*; *dattvā*—após oferecer; *bhagavat-arpaṇam*—que foi primeiro oferecido à Personalidade de Deus; *go*—vacas; *vipra*—*brāhmaṇas*; *artha*—propósito; *asavaḥ*—propósito de viver; *śūrāḥ*—todos os valorosos *kṣatriyas*; *praṇemuḥ*—ofereceram reverências; *bhuvi*—tocando o chão; *mūrdhabhiḥ*—com as cabeças.
+*annam*—alimentos; *ca*—também; *uru-rasam*—muito deliciosos; *tebhyaḥ*—aos *brāhmaṇas*; *dattvā*—após oferecer; *bhagavat-arpaṇam*—que foi primeiro oferecido à Personalidade de Deus; *go*—vaca; *vipra*—*brāhmaṇas*; *artha*—propósito; *asavaḥ*—propósito de viver; *śūrāḥ*—todos os valorosos *kṣatriyas*; *praṇemuḥ*—ofereceram reverências; *bhuvi*—tocando o chão; *mūrdhabhiḥ*—com as cabeças.
 
 **A seguir ofereceram aos *brāhmaṇas* alimentos altamente deliciosos, primeiramente oferecidos à Personalidade de Deus, e ofereceram suas respeitosas reverências tocando as cabeças ao chão. Viveram perfeitamente protegendo as vacas e os *brāhmaṇas*.**
 

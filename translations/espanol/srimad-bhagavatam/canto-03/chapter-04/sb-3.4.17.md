@@ -8,7 +8,7 @@
 > pṛccheḥ prabho mugdha ivāpramattas\
 > tan no mano mohayatīva deva
 
-*mantreṣu*—en consultas; *mām*—a mí; *vai*—como, bien sea; *upahūya*—llamando; *yat*—tanto como; *tvam*—Tu Señoría; *akuṇṭhita*—sin vacilación; *akhaṇḍa*—sin estar separado; *sadā*—eternamente; *ātma*—el ser; *bodhaḥ*—inteligente; *pṛccheḥ*—preguntaste; *prabho*—¡oh, mi Señor!; *mugdhaḥ*—confundido; *iva*—como si fuera así; *apramattaḥ*—aunque nunca confundido; *tat*—eso; *naḥ*—nuestra; *manaḥ*—mente; *mohayati*—confunde; *iva*—pues es así; *deva*—¡oh, mi Señor!.
+*mantreṣu*—en consultas; *mām*—a mí; *vai*—como, bien sea; *upahūya*—llamando; *yat*—tanto como; *tvam*—Tu Señoría; *akuṇṭhita*—sin vacilación; *akhaṇḍa*—sin estar separado; *sadā*—eternamente; *ātma*—el ser; *bodhaḥ*—inteligente; *pṛccheḥ*—preguntaste; *prabho*—¡oh, mi Señor!; *mugdhaḥ*—confundido; *iva*—como si fuera así; *apramattaḥ*—aunque nunca confundido; *tat*—eso; *naḥ*—nos; *manaḥ*—mente; *mohayati*—confunde; *iva*—pues es así; *deva*—¡oh, mi Señor!.
 
 **¡Oh, mi Señor! La influencia del tiempo nunca divide Tu eterno ser, y Tu conocimiento perfecto no tiene limitación alguna. En consecuencia, Tú eras lo suficientemente capaz para consultar contigo mismo, y, sin embargo, me llamaste a mí para consultar, como si estuvieras confundido, aunque Tú nunca Te confundes. Y ese acto Tuyo me confunde.**
 

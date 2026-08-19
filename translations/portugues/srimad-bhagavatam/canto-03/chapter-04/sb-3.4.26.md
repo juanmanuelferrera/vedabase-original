@@ -14,7 +14,7 @@ sākṣād bhagavatādiṣṭo
 
 *martya*-lokaṁ jihāsatā
 
-*uddhavaḥ uvāca*—Uddhava disse; *nanu*—porém; *te*—seu; *tattva-saṁrādhyaḥ*—aquele que é adorável para receber o conhecimento transcendental; *ṛṣiḥ*—sábio erudito; *kauṣāravaḥ*—ao filho de Kuṣāru (Maitreya); *antike*—nas proximidades; *sākṣāt*—diretamente; *bhagavatā*—pela Personalidade de Deus; *ādiṣṭaḥ*—instruído; *martya-lokam*—o mundo mortal; *jihāsatā*—enquanto partia.
+*uddhavaḥ uvāca*—Uddhava disse; *nanu*—porém; *te*—você mesmo; *tattva-saṁrādhyaḥ*—aquele que é adorável para receber o conhecimento transcendental; *ṛṣiḥ*—sábio erudito; *kauṣāravaḥ*—ao filho de Kuṣāru (Maitreya); *antike*—nas proximidades; *sākṣāt*—diretamente; *bhagavatā*—pela Personalidade de Deus; *ādiṣṭaḥ*—instruído; *martya-lokam*—o mundo mortal; *jihāsatā*—enquanto partia.
 
 **Śrī Uddhava disse: Você pode receber ensinamentos do grande sábio erudito Maitreya, que está nas proximidades e que é adorável para receber o conhecimento transcendental. Ele foi diretamente instruído pela Personalidade de Deus enquanto Ela estava prestes a deixar este mundo mortal.**
 

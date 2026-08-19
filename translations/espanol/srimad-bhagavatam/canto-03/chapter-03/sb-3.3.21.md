@@ -8,7 +8,7 @@
 > reme kṣaṇadayā datta-\
 > kṣaṇa-strī-kṣaṇa-sauhṛdaḥ
 
-*imam*—esta; *lokam*—Tierra; *amum*—y los otros mundos; *ca*—también; *eva*—ciertamente; *ramayan*—placentero; *sutarām*—específicamente; *yadūn*—los Yadus; *reme*—disfrutó; *kṣaṇadayā*—de noche; *datta*—proporcionado por; *kṣaṇa*—ocio; *strī*—con mujeres; *kṣaṇa*—amor conyugal; *sauhṛdaḥ*—amistad.
+*imam*—esta; *lokam*—Tierra; *amum*—y los otros mundos; *ca*—también; *eva*—ciertamente; *ramayan*—placentero; *sutarām*—específicamente; *yadūn*—los Yadus; *reme*—disfrutó; *kṣaṇadayā*—de noche; *datta*—proporcionado por; *kṣaṇa*—ocio; *strī*—mujeres; *kṣaṇa*—amor conyugal; *sauhṛdaḥ*—amistad.
 
 **El Señor disfrutó de Sus pasatiempos, tanto en este mundo como en otros mundos [en los planetas superiores], específicamente en compañía de la dinastía Yadu. En los momentos de ocio que presentaba la noche, disfrutó de la amistad del amor conyugal con mujeres.**
 

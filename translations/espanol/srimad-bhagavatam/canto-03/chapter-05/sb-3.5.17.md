@@ -10,7 +10,7 @@
 > puṁsāṁ niḥśreyasārthena\
 > tam āha bahu-mānayan
 
-*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *saḥ*—él; *evam*—de esa manera; *bhagavān*—el gran sabio; *pṛṣṭaḥ*—habiéndosele pedido a; *kṣattrā*—por Vidura; *kauṣāravaḥ*—Maitreya; *muniḥ*—el gran sabio; *puṁsām*—para toda la gente; *niḥśreyasa*—en pro del mayor beneficio; *arthena*—para eso; *tam*—a él; *āha*—narró; *bahu*—de manera sobresaliente; *mānayan*—honrando.
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *saḥ*—él; *evam*—esto; *bhagavān*—el gran sabio; *pṛṣṭaḥ*—habiéndosele pedido a; *kṣattrā*—por Vidura; *kauṣāravaḥ*—Maitreya; *muniḥ*—el gran sabio; *puṁsām*—para toda la gente; *niḥśreyasa*—en pro del mayor beneficio; *arthena*—para eso; *tam*—a él; *āha*—narró; *bahu*—de manera sobresaliente; *mānayan*—honrando.
 
 **Śukadeva Gosvāmī dijo: El gran sabio Maitreya Muni, después de honrar a Vidura de una manera muy sobresaliente, comenzó a hablar a pedido de Vidura, en pro del mayor beneficio para toda la gente.**
 

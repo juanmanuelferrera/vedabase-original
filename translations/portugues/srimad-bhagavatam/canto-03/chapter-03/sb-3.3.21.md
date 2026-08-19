@@ -11,7 +11,7 @@ reme kṣaṇadayā datta-
 
 *kṣaṇa*-strī-kṣaṇa-sauhṛdaḥ
 
-*imam*—este; *lokam*—mundo; *amum*—e os outros mundos; *ca*—também; *eva*—certamente; *ramayan*—alegrando; *sutarām*—especialmente; *yadūn*—os Yadus; *reme*—desfrutou; *kṣaṇadayā*—pela noite; *datta*—dado por; *kṣaṇa*—lazer; *strī*—com mulheres; *kṣaṇa*—amor conjugal; *sauhṛdaḥ*—amizade.
+*imam*—este; *lokam*—mundo; *amum*—e os outros mundos; *ca*—também; *eva*—certamente; *ramayan*—alegrando; *sutarām*—especialmente; *yadūn*—os Yadus; *reme*—desfrutou; *kṣaṇadayā*—pela noite; *datta*—dado por; *kṣaṇa*—lazer; *strī*—mulheres; *kṣaṇa*—amor conjugal; *sauhṛdaḥ*—amizade.
 
 **O Senhor desfrutava de Seus passatempos, tanto neste mundo como em outros mundos [planetas superiores], especialmente na associação da dinastia Yadu. Nas horas de lazer oferecidas pela noite, desfrutava da amizade do amor conjugal com as mulheres.**
 

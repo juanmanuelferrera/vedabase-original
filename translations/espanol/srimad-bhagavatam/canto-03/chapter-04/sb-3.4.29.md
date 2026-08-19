@@ -10,7 +10,7 @@
 > saṁhṛtya sva-kulaṁ sphītaṁ\
 > tyakṣyan deham acintayat
 
-*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *brahma-śāpa*—maldición proferida por los *brāhmaṇas*; *apadeśena*—con el pretexto, mediante semejante escena fingida; *kālena*—por el tiempo eterno; *amogha*—infalible; *vāñchitaḥ*—aquel que desea así; *saṁhṛtya*—cerrando; *sva-kulam*—Su propia familia; *sphītam*—excesivamente numerosa; *tyakṣyan*—después de abandonar; *deham*—la forma universal; *acintayat*—pensó para Sí.
+*śrī-śukaḥ uvāca*—Śukadeva Gosvāmī dijo; *brahma-śāpa*—maldición proferida por los *brāhmaṇas*; *apadeśena*—con el pretexto, mediante semejante escena fingida; *kālena*—por el tiempo eterno; *amogha*—infalible; *vāñchitaḥ*—aquel que desea así; *saṁhṛtya*—cerrando; *sva-kulam*—Su propia familia; *sphītam*—excesivamente numerosa; *tyakṣyan*—para desaparecer; *deham*—la forma universal; *acintayat*—pensó para Sí.
 
 **Śukadeva Gosvāmī respondió: Mi querido rey, la maldición proferida por los brāhmaṇas era solo un pretexto, mas la verdadera causa era el supremo deseo del Señor. Él quería desaparecer de la faz de la Tierra después de enviar a Sus excesivamente numerosos familiares. Pensó para Sí de la siguiente manera.**
 

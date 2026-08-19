@@ -8,7 +8,7 @@
 > kālātmano yat pramadā-yutāśramaḥ\
 > svātman-rateḥ khidyati dhīr vidām iha
 
-*karmāṇi*—actividades; *anīhasya*—de aquel que no tiene ningún deseo; *bhavaḥ*—nacimiento; *abhavasya*—de aquel que nunca nace; *te*—Tu; *durga-āśrayaḥ*—refugiarse en el fuerte; *atha*—después; *ari-bhayāt*—por temor a los enemigos; *palāyanam*—huye; *kāla-ātmanaḥ*—de aquel que es el controlador del tiempo eterno; *yat*—que; *pramadā-āyuta*—en la compañía de mujeres; *āśramaḥ*—vida hogareña; *sva-ātman*—en Ti mismo; *rateḥ*—aquel que disfruta; *khidyati*—se perturba; *dhīḥ*—inteligencia; *vidām*—de los eruditos; *iha*—en este mundo.
+*karmāṇi*—actividades; *anīhasya*—de aquel que no tiene ningún deseo; *bhavaḥ*—nacimiento; *abhavasya*—de aquel que nunca nace; *te*—Tu; *durga-āśrayaḥ*—refugiarse en el fuerte; *atha*—después; *ari-bhayāt*—por temor a los enemigos; *palāyanam*—huye; *kāla-ātmanaḥ*—de aquel que es el controlador del tiempo eterno; *yat*—que; *pramadā-āyuta*—en la compañía de mujeres; *āśramaḥ*—vida hogareña; *sva-ātman*—en Ti mismo; *rateḥ*—aquel que disfruta; *khidyati*—perturba; *dhīḥ*—inteligencia; *vidām*—de los eruditos; *iha*—en este mundo.
 
 **Mi Señor, incluso la inteligencia de los sabios eruditos se perturba cuando ven que Tu Grandeza Se ocupa en labores fruitivas, aunque Te encuentras libre de todo deseo; que naces, si bien eres innaciente; que huyes por temor al enemigo y Te refugias en una fortaleza, si bien Tú eres el controlador del tiempo invencible; y que disfrutas de la vida hogareña rodeado por muchas mujeres, si bien Tú disfrutas en Ti mismo.**
 

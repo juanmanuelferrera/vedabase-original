@@ -11,7 +11,7 @@ kṣiṇoti devo 'nimiṣas tu yeṣām
 
 *āyur vṛthā*-vāda-gati-smṛtīnām
 
-*tān*—todos esses; *śocya*—lamentáveis; *śocyān*—dos lamentáveis; *avidaḥ*—ignorantes; *anuśoce*—tenho pena; *hareḥ*—do Senhor; *kathāyām*—aos tópicos de; *vimukhān*—avessos; *aghena*—por causa de atividades pecaminosas; *kṣiṇoti*—consumindo; *devaḥ*—o Senhor; *animiṣaḥ*—o tempo eterno; *tu*—porém; *yeṣām*—de quem; *āyuḥ*—duração de vida; *vṛthā*—inutilmente; *vāda*—especulações filosóficas; *gati*—objetivo último; *smṛtīnām*—dos que seguem diferentes rituais.
+*tān*—todos esses; *śocya*—lamentáveis; *śocyān*—dos lamentáveis; *avidaḥ*—ignorantes; *anuśoce*—tenho pena; *hareḥ*—do Senhor; *kathāyām*—aos tópicos de; *vimukhān*—avessos; *aghena*—por causa de atividades pecaminosas; *kṣiṇoti*—consumindo; *devaḥ*—ó sábio; *animiṣaḥ*—o tempo eterno; *tu*—porém; *yeṣām*—de quem; *āyuḥ*—duração de vida; *vṛthā*—inutilmente; *vāda*—especulações filosóficas; *gati*—objetivo último; *smṛtīnām*—dos que seguem diferentes rituais.
 
 **Ó sábio, as pessoas que, por causa de suas atividades pecaminosas, são avessas aos tópicos da Transcendência e, assim, ignorantes do propósito do Mahābhārata [o Bhagavad-gītā], são dignas de pena pelos que merecem pena. Eu também tenho pena delas, pois vejo como a duração de sua vida é desperdiçada pelo tempo eterno enquanto se envolvem em apresentações de especulação filosófica, em teóricos objetivos últimos da vida e em diferentes modalidades de ritual.**
 

@@ -8,7 +8,7 @@
 > go-viprārthāsavaḥ śūrāḥ\
 > praṇemur bhuvi mūrdhabhiḥ
 
-*annam*—alimento; *ca*—también; *uru-rasam*—sumamente delicioso; *tebhyaḥ*—a los *brāhmaṇas*; *dattvā*—después de proveer; *bhagavat-arpaṇam*—que fue primero ofrecido a la Personalidad de Dios; *go*—vacas; *vipra*—*brāhmaṇas*; *artha*—propósito; *asavaḥ*—propósito de vivir; *śūrāḥ*—todos los valientes *kṣatriyas*; *praṇemuḥ*—ofrecieron reverencias; *bhuvi*—tocando el suelo; *mūrdhabhiḥ*—con sus cabezas.
+*annam*—alimento; *ca*—también; *uru-rasam*—sumamente delicioso; *tebhyaḥ*—a los *brāhmaṇas*; *dattvā*—después de proveer; *bhagavat-arpaṇam*—que fue primero ofrecido a la Personalidad de Dios; *go*—vaca; *vipra*—*brāhmaṇas*; *artha*—propósito; *asavaḥ*—propósito de vivir; *śūrāḥ*—todos los valientes *kṣatriyas*; *praṇemuḥ*—ofrecieron reverencias; *bhuvi*—tocando el suelo; *mūrdhabhiḥ*—con sus cabezas.
 
 **Después, ofrecieron a los brāhmaṇas alimentos sumamente deliciosos, ofrecidos primero a la Personalidad de Dios, y ofrecieron sus respetuosas reverencias haciendo que sus cabezas tocaran el suelo. Vivían de manera perfecta protegiendo a los brāhmaṇas y las vacas.**
 

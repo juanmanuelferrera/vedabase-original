@@ -11,7 +11,7 @@ api kṣamaṁ no grahaṇāya bhartar
 
 vadāñjasā yad vṛjinaṁ tarema
 
-*jñānam*—conhecimento; *param*—supremo; *sva-ātma*—do próprio ser; *rahaḥ*—mistério; *prakāśam*—iluminando; *provāca*—disse; *kasmai*—a Ka (Brahmājī); *bhagavān*—a Personalidade de Deus; *samagram*—em suma total; *api*—se assim; *kṣamam*—capaz; *naḥ*—a mim; *grahaṇāya*—de ser aceito; *bhartaḥ*—ó meu Senhor; *vada*—diga; *añjasā*—em detalhe; *yat*—aquele; *vṛjinam*—misérias; *tarema*—possa cruzar.
+*jñānam*—conhecimento; *param*—supremo; *sva-ātma*—do próprio ser; *rahaḥ*—mistério; *prakāśam*—iluminando; *provāca*—disse; *kasmai*—a Ka (Brahmājī); *bhagavān*—a Personalidade de Deus; *samagram*—em suma total; *api*—se assim; *kṣamam*—capaz; *naḥ*—a mim; *grahaṇāya*—de ser aceito; *bhartaḥ*—meu Senhor; *vada*—diga; *añjasā*—em detalhe; *yat*—aquele; *vṛjinam*—misérias; *tarema*—possa cruzar.
 
 **Meu Senhor, por favor, explique-nos — se nos considerar capazes de recebê-lo — esse conhecimento transcendental que dá iluminação sobre o Senhor Mesmo e que o Senhor explicou anteriormente a Brahmājī.**
 

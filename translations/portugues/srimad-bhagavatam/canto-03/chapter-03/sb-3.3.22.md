@@ -11,7 +11,7 @@ gṛhamedheṣu yogeṣu
 
 virāgaḥ samajāyata
 
-*tasya*—Seu; *evam*—assim; *ramamāṇasya*—desfrutando; *saṁvatsara*—anos; *gaṇān*—muitos; *bahūn*—muitíssimos; *gṛhamedheṣu*—na vida doméstica; *yogeṣu*—na vida sexual; *virāgaḥ*—desapego; *samajāyata*—manifestou-se.
+*tasya*—Seu; *evam*—assim; *ramamāṇasya*—desfrutando; *saṁvatsara*—muitos anos; *gaṇān*—muitos; *bahūn*—muitíssimos; *gṛhamedheṣu*—na vida doméstica; *yogeṣu*—na vida sexual; *virāgaḥ*—desapego; *samajāyata*—manifestou-se.
 
 **O Senhor assim se ocupou na vida doméstica por muitos e muitos anos, mas por fim Seu desapego da vida sexual efêmera se manifestou plenamente.**
 
