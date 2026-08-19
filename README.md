@@ -43,87 +43,247 @@ single row — so it never rewrites anything it shouldn't. See `astro_vedabase`'
 
 ---
 
+---
+
 ## How the originals were verified
 
-The hard problem is that the only trustworthy authority — the first-edition books — exists as
-**photographs of paper**, not as text. A scan has to be turned into reliable text before it can
-be compared to anything, and raw OCR of a fifty-year-old book is full of errors, especially on
-Sanskrit transliteration with its diacritics. So the work happens in two halves: first make the
-scans readable by machine, then let the machine find every place the database disagrees with the
-scan — while teaching it to ignore its own mistakes.
+> **Collation against the scans finished on 19 August 2026.** Every book in this
+> repository has been read against a photograph of the printed page. What remains
+> open is 145 candidates, all of them characterised as OCR noise, and no page image
+> awaiting a human decision.
 
-### 1. Making the scans machine-readable (re-OCR)
+The hard problem is that the only trustworthy authority — the first-edition books —
+exists as **photographs of paper**, not as text. A scan has to be turned into reliable
+text before it can be compared to anything, and raw OCR of a fifty-year-old book is
+full of errors, especially on Sanskrit transliteration with its diacritics. So the
+work happens in two halves: first make the scans readable by machine, then let the
+machine find every place the text disagrees with the scan — while teaching it to
+ignore its own mistakes.
 
-Many of the source PDFs carried a poor, garbled text layer over the page image. Rather than
-trust that layer, every page is re-read from the picture:
+It took two rounds. The first round (2025) used Tesseract and got the corpus most of
+the way. The second round (June–August 2026) re-read every page with a different OCR
+engine, and that is what closed the remainder: the small things that did not change
+much but had to be right.
 
-- **Page classification.** Each page is inspected. If a single raster image covers more than
-  ~45% of the page, it is a real scan and gets re-OCR'd. Pages that are already clean digital
-  text (some books were born-digital) are passed through untouched.
-- **Fresh OCR.** Scanned pages are rendered to **grayscale at 200–300 DPI** and run through
-  **Tesseract 5** (`--psm 6`, English), which writes a new searchable PDF — the original image
-  with a fresh, invisible text layer behind it.
-- **Same look, better text.** The output PDF looks identical to the scan, but the text you can
-  now extract is the new OCR, which fixes the garbled transliteration in the old layer.
-- **Batch + skip.** All books in `originals/` are classified; only the image-based ones are
-  processed, several in parallel, and anything already done in `improved/` is skipped — so the
-  job is resumable and re-runnable.
+### Round 1 — Tesseract, and its limits
 
-`reocr_book.py` does one book; `reocr_all.py` runs the whole shelf.
+#### 1.1 Making the scans machine-readable (re-OCR)
 
-### 2. Comparing scan against database — and rejecting OCR noise
+Many of the source PDFs carried a poor, garbled text layer over the page image. Rather
+than trust that layer, every page is re-read from the picture:
 
-With clean-enough scans, the **scan is treated as the gold truth** and the database text as the
-candidate. For every book (and every Śrīmad-Bhāgavatam canto and Caitanya-caritāmṛta līlā
-separately):
+- **Page classification.** Each page is inspected. If a single raster image covers more
+  than ~45% of the page, it is a real scan and gets re-OCR'd. Pages that are already
+  clean digital text (some books were born-digital) are passed through untouched.
+- **Fresh OCR.** Scanned pages are rendered to **grayscale at 200–300 DPI** and run
+  through **Tesseract 5** (`--psm 6`, English), which writes a new searchable PDF — the
+  original image with a fresh, invisible text layer behind it.
+- **Double reading.** Later, each page was read **twice** with different page-segmentation
+  settings — `psm 6` (uniform block) and `psm 4` (variable-size column), both `--oem 1`
+  (LSTM). Where the two readings agree there is reliable consensus; where they disagree
+  the page is flagged.
+- **Batch + skip.** All books are classified; only the image-based ones are processed,
+  several in parallel, and anything already done is skipped — so the job is resumable.
 
-- **Extract & clean the scan.** Text is pulled with **PyMuPDF**, hyphenated line breaks are
-  re-joined (`exam-\nple` → `example`), running headers/footers are removed by frequency (a line
-  that appears near the top or bottom of ≥10% of pages is chrome, not content), and bare page
-  numbers are dropped.
-- **Fold before matching.** Both sides are normalized — Unicode NFKD, combining diacritics
-  stripped, smart quotes and dashes flattened, lowercased — so an IAST variant never registers
-  as a "difference." Diacritics are preserved in the output; folding is only used for the match.
-- **Align.** The two word streams are aligned with Python's `difflib.SequenceMatcher`, and every
-  mismatching span becomes a candidate change positioned to an exact cell and column.
-- **Classify each difference.** Spans are sorted into `trivial`, `translit` (Sanskrit on both
-  sides — not an edit), `scan_only`, `d1_only`, `big_replace`/`big_insert` (likely
-  misalignment), `noise`, and `real`.
+#### 1.2 Comparing scan against text — and rejecting OCR noise
 
-This is where the scripts **correct themselves**: an OCR error in the scan would otherwise look
-like a "correction" to be applied. A garbage detector vetoes it. A scan span is rejected as OCR
-noise when it shows the fingerprints of bad OCR — half its tokens are single characters, fewer
-than ~34% are real dictionary words, or it contains tell-tale junk like `l1`, `rn`/`m`
-confusion, stray `{}|^~` symbols, or a lowercase letter glued to a capital. Only differences
-that survive every filter are reported as genuine.
+With clean-enough scans, the **scan is treated as gold** and the digital text as the
+candidate. For every book (and every Śrīmad-Bhāgavatam canto and Caitanya-caritāmṛta
+līlā separately):
 
-### 3. Confidence tiering and idempotent passes
+- **Extract & clean the scan.** Text is pulled with **PyMuPDF**, hyphenated line breaks
+  are re-joined (`exam-\nple` → `example`), running headers/footers are removed by
+  frequency (a line appearing near the top or bottom of ≥10% of pages is chrome, not
+  content), and bare page numbers are dropped.
+- **Fold before matching.** Both sides are normalized — Unicode NFKD, combining
+  diacritics stripped, smart quotes and dashes flattened, lowercased — so an IAST variant
+  never registers as a "difference." Diacritics are preserved in the output; folding is
+  only used for the match.
+- **Align.** The two word streams are aligned with Python's `difflib.SequenceMatcher`,
+  and every mismatching span becomes a candidate positioned to an exact cell and column.
+- **Classify.** Spans are sorted into `trivial`, `translit` (Sanskrit on both sides — not
+  an edit), `scan_only`, `d1_only`, `big_replace`/`big_insert` (likely misalignment),
+  `noise`, and `real`.
 
-The surviving `real` differences are triaged automatically:
+This is where the scripts **correct themselves**: an OCR error in the scan would
+otherwise look like a "correction" to be applied. A garbage detector vetoes it. A scan
+span is rejected as OCR noise when it shows the fingerprints of bad OCR — half its
+tokens are single characters, fewer than ~34% are real dictionary words, or it contains
+tell-tale junk like `l1`, `rn`/`m` confusion, stray `{}|^~` symbols, or a lowercase
+letter glued to a capital. Only differences that survive every filter are reported.
 
-- **Tiers.** Each is graded **alta / media / baja** (high / medium / low confidence) from its
-  dictionary-word ratio, length, and garbage signature. High-confidence, short, clean-word
-  changes rise to the top.
-- **Memory.** Every change already applied or already vetted is remembered, so a re-run reports
-  only **what is new** (`alta NUEVA`) instead of re-surfacing settled ones. Each pass therefore
-  converges instead of repeating itself.
-- **Density.** Books are ranked by differences per 1,000 words, so attention goes where the
-  divergence is densest.
+#### 1.3 Confidence tiering, memory, safe application
 
-### 4. Applying corrections safely
+- **Tiers.** Each surviving difference is graded **alta / media / baja** from its
+  dictionary-word ratio, length, and garbage signature.
+- **Memory.** Every change already applied or already vetted is remembered, so a re-run
+  reports only **what is new** instead of re-surfacing settled ones.
+- **Gates.** Nothing is written blindly. A change is applied only if the scan side is
+  clean, the span is small (guard at 8 words), it reproduces a **human-approved**
+  correction pair verbatim after folding, and a **hard offset check** passes: the exact
+  character span in the target cell must fold back to precisely the text being replaced.
 
-Nothing is written blindly. The applier is **preview-by-default** and emits SQL only when asked.
-A change is applied only if it clears every gate:
+#### 1.4 Why this was not enough
 
-1. the scan (gold) side is clean, not OCR garbage;
-2. the span is small and non-trivial — large inserts/deletes are refused as probable
-   misalignment (guard at 8 words);
-3. it reproduces a **human-approved** correction pair verbatim (after folding);
-4. a **hard offset check**: the exact character span in the target database cell must fold back
-   to precisely the text being replaced — otherwise the edit is dropped.
+Tesseract gets a lot right, but it **gets things wrong the same way every time**: `h`
+read as `il`, `e` read as `c`. A systematic error does not cancel out by reading twice
+with the same engine, so consensus alone cannot settle a disputed word. Worse, Tesseract
+threw away the punctuation that the word-for-word synonyms depend on: the em dashes and
+semicolons that separate `key—gloss` pairs arrived as an undifferentiated stream of
+words.
 
-The result is a surgical, positioned patch (exact character offsets in one cell), never a
-fuzzy whole-field overwrite. Books that already matched their scans were left untouched.
+### Round 2 — Surya, and the last two months
+
+#### 2.1 A second, independent OCR engine
+
+**Surya** is a neural OCR model, architecturally unrelated to Tesseract. It does not
+share Tesseract's failure modes, which is exactly what makes it useful: where the two
+engines disagree about a word, that disagreement is informative, and where they agree
+against the digital text, the digital text is wrong.
+
+- First it was run **only on the pages carrying open candidates** — render to PNG, one
+  `surya_ocr` invocation per folder (loading the model is the expensive part), output to
+  `surya/<book>/<pdf>/pNNNN.surya.txt`.
+- Then it was run on **everything**: **35,509 pages across 21 books**, resumable, skipping
+  pages already done.
+
+Surya brought an unplanned benefit that turned out to be decisive: **it preserves em
+dashes, semicolons and diacritics**. The synonyms now come off the page exactly as they
+were printed —
+
+```
+śrī sūtaḥ uvāca—Śrī Sūta Gosvāmī said; viduraḥ—Vidura; tīrtha-yātrāyām—…
+```
+
+— which made it possible to read the `key—gloss` pairs natively, instead of guessing
+where each gloss ends.
+
+#### 2.2 The ledger
+
+A practical problem had been costing time: **the candidate count does not go down when
+you fix things.** The diff is recomputed from scratch each run and proposes the same
+spans again, so every session risked re-adjudicating settled cases — sometimes in the
+opposite direction.
+
+The ledger cross-references every candidate against everything already decided and
+records one state each:
+
+| State | Meaning | Count |
+|---|---|---|
+| `RUIDO` | falls in a documented noise class | 3,496 |
+| `DESCARTADO` | rejected, with a reason on file | 2,501 |
+| `APLICADO` | the reported text no longer exists in the repo | 1,343 |
+| `VERIFICADO` | checked against the page image — **never propose again** | 203 |
+| `AUDITADO` | reviewed in a later pass | 23 |
+| `ABIERTO` | still to look at | **145** |
+
+8,724 candidates in total. The 145 still open are all characterised as OCR noise.
+
+#### 2.3 The word-for-word synonyms, handled separately
+
+The synonyms needed their own pass, for a specific reason: `difflib` compares two streams
+of words, so **a long gloss gets split in half and shows up as three unrelated
+candidates** that mean nothing individually. In SB 1.18.42 the diff produced
+`by the prowess`/`deserve` and `of whom`/`by whose` as if they were separate problems.
+Paired up, the fault is obvious at a glance:
+
+```
+print   arhasi—deserve          yat—by whose
+repo    arhasi—by the prowess   yat—of whom
+```
+
+The repo had given `arhasi` the gloss belonging to `tejasā`, two pairs further along. It
+is a copy slip, and it is only visible when the pairs are aligned.
+
+Three things had to be got right, each of which caused a reverted change before it was:
+
+- **The anchor is the transliteration, and it must match exactly once.** Anchoring on the
+  first key does not work: `tasmāt—` heads the glosses of dozens of verses, so the block
+  came from the wrong place. Windows of decreasing length are tried and the first
+  unambiguous one wins.
+- **The block after the anchor must actually be glosses.** In SB 7.13.7 the anchor landed
+  inside a purport that quotes the verse translation, and the "block" was prose from
+  elsewhere. A wrong correction came out of that and had to be reverted.
+- **A key can repeat inside one verse with different glosses.** In SB 1.1.19 `svādu`
+  appears twice, "relishing" and "palatable", and the print has it that way too. Keeping
+  only the first invented differences that did not exist — and inverted, at that. First
+  must pair with first.
+
+A fallback locates a gloss when OCR has mangled the transliteration and there is no
+anchor: it uses **two keys of the same verse at once**. `te—` heads glosses in two hundred
+places, but `te—` within 400 characters of a rare key from the same verse can only be
+this one.
+
+Of 234 gloss differences, 149 were OCR noise and 85 were genuinely different text.
+
+#### 2.4 Scan arbitrating between repo and database
+
+When the repository and the live database disagree, the scan breaks the tie without
+anyone opening an image:
+
+```
+scan says what the repo says  ->  the database is wrong
+scan says what the database says  ->  the repo is wrong (rare; inspect the case)
+scan says neither  ->  the page image is needed
+```
+
+A single word is not enough to search on — "one" appears on every page — so the repo's
+context around the divergence is taken and that context is looked up in the book's OCR.
+
+#### 2.5 Propagating to the translations
+
+The four translations — Spanish, Portuguese, Hindi, Russian — have to follow the English
+when a gloss changes. Two things make this harder than it sounds:
+
+- **The pairs come from git history, not from a corrections log.** A corrections file
+  stores fragments; reconstructing before/after pairs from it produced 119 incoherent
+  results out of 149. `git diff --unified=0` over the synonyms line is the only source
+  that knows what the gloss said before and what it says now. A pair is accepted only
+  when the gloss count matches on both sides; if the verse was restructured, it is set
+  aside.
+- **Languages are matched by position, not by key text.** Russian writes its keys in
+  Cyrillic, so searching by the Latin key finds about one in eighty. The lists run
+  parallel in 98% of verses; where they do not, the key is looked up by name, which only
+  works for Spanish and Portuguese.
+
+Every batch is then written back to the live database **and read back to compare**. This
+matters: an `UPDATE` that matches no row does not raise an error, it simply changes
+nothing. Without the read-back, a half-applied batch looks successful.
+
+---
+
+## What "matching the scans" actually means
+
+The repository reproduces the first editions **including their mistakes**.
+
+A first edition has typos, misspelled names, and glosses that say the opposite of what
+the word means. Where the digital text and the paper differ, the paper wins — even when
+the paper is wrong. What a reader gets here is the book **as it was printed**, not the
+book as it should have been printed. Silently improving Prabhupāda's published text is
+precisely the thing this repository exists to undo; a corrector who fixes an obvious typo
+today is doing a small version of what a later editor did on a large scale.
+
+So the errors are kept, and they are **labelled** — in three places:
+
+| Where | What |
+|---|---|
+| [`PRINT_ERRATA.md`](PRINT_ERRATA.md) | 76 entries, each with the reference, what the digital text used to say, what the page actually reads, and the page number. Generated from the `print_errata` table — do not edit by hand. |
+| <https://vedabase.cc/print-errata/> | The same list as a public page, linked from the site navigation. |
+| The verse page itself | Each affected verse carries an **About the printed text** note naming the reading and explaining it, with a link to the full list. |
+
+For example, CC Madhya 3.28 prints "daughter of the son-god" where the word-for-word on
+that same verse glosses the word as the sun-god. The page serves "son-god", and says so.
+
+Two limits are worth stating plainly:
+
+- **The 76 are a floor, not a total.** The method can only surface an errata where the
+  digital text and the scan *differ*. An error the digital text had carried from the
+  start produces no divergence and never comes up. These are the print's errors that
+  someone had silently corrected and that have been put back — not every error in
+  the print.
+- **One thing is not reproduced:** the print contradicting itself inside a single
+  sentence. A line printed twice because a plate slipped is damage to that copy, not a
+  reading.
 
 ---
 
@@ -131,17 +291,18 @@ fuzzy whole-field overwrite. Books that already matched their scans were left un
 
 | Tool | Role |
 |------|------|
-| **Tesseract 5** | Fresh OCR of scanned pages (grayscale, 200–300 DPI, `psm 6`) |
+| **Tesseract 5** | Round 1 OCR (grayscale, 200–300 DPI, `psm 6` and `psm 4`, `--oem 1`) |
+| **Surya** | Round 2 OCR — a different engine, so a different set of errors; preserves em dashes, semicolons and diacritics |
 | **PyMuPDF (fitz)** | Page classification, image rendering, diacritic-safe text extraction |
-| **difflib `SequenceMatcher`** | Scan-vs-database alignment and opcode diffing |
-| **Custom Python** | Folding/normalization, OCR-garbage rejection, confidence tiering, offset-gated applier |
-| Unix `words` list | Dictionary-ratio test that separates real English from OCR noise and transliteration |
+| **difflib `SequenceMatcher`** | Scan-vs-text alignment and opcode diffing |
+| **Custom Python** | Folding/normalization, OCR-garbage rejection, confidence tiering, offset-gated applier, the ledger, the gloss pair reader |
+| Unix `words` list | Dictionary-ratio test separating real English from OCR noise and transliteration |
 
-The verification scripts live in the companion working repository; the
-[`scripts/`](scripts/) folder here contains the database export and Markdown build
-(`export_d1.sh`, `build_from_d1.py`, `letters_format.py`) plus the comparison utilities
-(`compare.py`, `strip_diacritics.py`).
-
+The audit scripts live in the companion working repository, `astro_vedabase`, under
+`scripts/scan_audit/` — which has its own README describing each step and the mistakes
+that shaped it. The [`scripts/`](scripts/) folder here holds the database export and
+Markdown build (`export_d1.sh`, `build_from_d1.py`, `letters_format.py`) plus the
+comparison utilities (`compare.py`, `strip_diacritics.py`).
 ---
 
 ## Contents
