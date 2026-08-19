@@ -11,7 +11,7 @@ uddhariṣyann upādatta
 
 yajñeśaḥ saukaraṁ vapuḥ
 
-*dvitīyam*—o segundo; *tu*—mas; *bhavāya*—para o bem-estar; *asya*—desta terra; *rasātala*—da região mais baixa; *gatām*—tendo ido; *mahīm*—a terra; *uddhariṣyan*—elevando; *upādatta*—estabeleceu; *yajñeśaḥ*—o proprietário ou o desfrutador supremo dos sacrifícios; *saukaram*—de javali; *vapuḥ*—encarnação.
+*dvitīyam*—o segundo; *tu*—mas; *bhavāya*—para o bem-estar; *asya*—desta terra; *rasātala*—a região mais baixa; *gatām*—tendo ido; *mahīm*—a terra; *uddhariṣyan*—elevando; *upādatta*—estabeleceu; *yajñeśaḥ*—o proprietário ou o desfrutador supremo dos sacrifícios; *saukaram*—de javali; *vapuḥ*—encarnação.
 
 **O supremo desfrutador de todos os sacrifícios aceitou a encarnação de um javali [a segunda encarnação] e, para o bem-estar da terra, Ele ergueu a terra das regiões inferiores do universo.**
 

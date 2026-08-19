@@ -11,7 +11,7 @@ puṁsām ekāntataḥ śreyas
 
 tan naḥ śaṁsitum arhasi
 
-*tatra*—disso; *tatra*—disso; *añjasā*—tornado fácil; *āyuṣman*—abençoado com longa duração de vida; *bhavatā*—por sua boa pessoa; *yat*—o que quer que; *viniścitam*—determinado; *puṁsām*—para as pessoas em geral; *ekāntataḥ*—absolutamente; *śreyaḥ*—bem supremo; *tat*—isso; *naḥ*—a nós; *śaṁsitum*—explicar; *arhasi*—merece.
+*tatra*—disso; *tatra*—disso; *añjasā*—tornado fácil; *āyuṣman*—abençoado com boa duração de vida; *bhavatā*—por sua boa pessoa; *yat*—o que quer que; *viniścitam*—determinado; *puṁsām*—para as pessoas em geral; *ekāntataḥ*—absolutamente; *śreyaḥ*—bem supremo; *tat*—isso; *naḥ*—a nós; *śaṁsitum*—explicar; *arhasi*—merece.
 
 **Portanto, sendo abençoado com muitos anos, explica-nos, por favor, aquilo que averiguas ser o bem absoluto e último para as pessoas em geral.**
 

@@ -8,7 +8,7 @@
 > puṁsām ekāntataḥ śreyas\
 > tan naḥ śaṁsitum arhasi
 
-*tatra*—de eso; *tatra*—de eso; *añjasā*—facilitado; *āyuṣman*—bendecido con una larga vida; *bhavatā*—por ti; *yat*—todo lo que; *viniścitam*—averiguado; *puṁsām*—para la gente en general; *ekāntataḥ*—absolutamente; *śreyaḥ*—el bien máximo; *tat*—eso; *naḥ*—a nosotros; *śaṁsitum*—explicar; *arhasi*—merecer.
+*tatra*—de eso; *tatra*—de eso; *añjasā*—facilitado; *āyuṣman*—bendecido con buena duración de vida; *bhavatā*—por ti; *yat*—todo lo que; *viniścitam*—averiguado; *puṁsām*—para la gente en general; *ekāntataḥ*—absolutamente; *śreyaḥ*—el bien máximo; *tat*—eso; *naḥ*—a nosotros; *śaṁsitum*—explicar; *arhasi*—merecer.
 
 **Por lo tanto, te rogamos que, habiendo sido bendecido con muchos años, nos expliques lo que tú determines que es el bien absoluto y supremo para la gente en general.**
 

@@ -8,7 +8,7 @@
 chindanti kovidās tasya
 *ko na kuryāt kathā*-ratim
 
-*yat*—qual; *anudhyā*—lembrança; *asinā*—espada; *yuktāḥ*—sendo equipados; *karma*—trabalho reacionário; *granthi*—nó; *nibandhanam*—interligado; *chindanti*—cortam; *kovidāḥ*—inteligentes; *tasya*—Seu; *kaḥ*—quem; *na*—não; *kuryāt*—realizará; *kathā*—mensagens; *ratim*—atenção.
+*yat*—qual; *anudhyā*—lembrança; *asinā*—espada; *yuktāḥ*—sendo equipados; *karma*—trabalho reacionário; *granthi*—nó; *nibandhanam*—interligado; *chindanti*—cortam; *kovidāḥ*—inteligentes; *tasya*—Seu; *kaḥ*—quem; *na*—não; *kuryāt*—não fará; *kathā*—mensagens; *ratim*—atenção.
 
 **Com a espada na mão, os homens inteligentes cortam os labirínticos nós do trabalho reacionário [karma] ao lembrarem-se do Senhor. Por isso, quem deixará de prestar atenção à Sua mensagem?**
 

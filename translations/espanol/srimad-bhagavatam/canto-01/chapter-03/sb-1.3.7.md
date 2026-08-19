@@ -8,7 +8,7 @@
 > uddhariṣyann upādatta\
 > yajñeśaḥ saukaraṁ vapuḥ
 
-*dvitīyam*—la segunda; *tu*—pero; *bhavāya*—por el bien; *asya*—de esta Tierra; *rasātala*—de la región más baja; *gatām*—habiendo ido; *mahīm*—la Tierra; *uddhariṣyan*—levantando; *upādatta*—establecido; *yajñeśaḥ*—el propietario o el supremo disfrutador; *saukaram*—porcina; *vapuḥ*—encarnación.
+*dvitīyam*—la segunda; *tu*—pero; *bhavāya*—por el bien; *asya*—de esta Tierra; *rasātala*—la región más baja; *gatām*—habiendo ido; *mahīm*—la Tierra; *uddhariṣyan*—levantando; *upādatta*—establecido; *yajñeśaḥ*—el propietario o el supremo disfrutador; *saukaram*—porcina; *vapuḥ*—encarnación.
 
 **El supremo disfrutador de todos los sacrificios aceptó la encarnación de un jabalí [la segunda encarnación], y, por el bienestar de la Tierra, elevó la Tierra desde las regiones inferiores del universo.**
 
