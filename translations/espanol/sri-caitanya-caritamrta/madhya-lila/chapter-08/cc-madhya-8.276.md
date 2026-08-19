@@ -8,7 +8,7 @@
 > praṇata-bhāra-viṭapā madhu-dhārāḥ\
 > prema-hṛṣṭa-tanavo vavṛṣuḥ sma
 
-*vana-latāḥ*—las hierbas y plantas; *taravaḥ*—los árboles; *ātmani*—en el Alma Suprema; *viṣṇum*—la Suprema Personalidad de Dios; *vyañjayantyaḥ*—manifestando; *iva*—como; *puṣpa-phala-āḍhyāḥ*—llenas de exuberantes frutos y flores; *praṇata-bhāra*—inclinadas por el peso; *viṭapāḥ*—los árboles; *madhu-dhārāḥ*—lluvias de miel; *prema-hṛṣṭa*—inspirados por el amor a Dios; *tanavaḥ*—cuyos cuerpos; *vavṛṣuḥ*—constantemente derramaban; *sma*—ciertamente.
+*vana-latāḥ*—las hierbas y plantas; *taravaḥ*—los árboles; *ātmani*—en el Alma Suprema; *viṣṇum*—la Suprema Personalidad de Dios; *vyañjayantyaḥ*—manifestando; *iva*—como; *puṣpa-phala-āḍhyāḥ*—llenas de exuberantes frutos y flores; *praṇata-bhāra*—inclinadas por el peso; *viṭapāḥ*—los árboles; *madhu-dhārāḥ*—lluvias; *prema-hṛṣṭa*—inspirados por el amor a Dios; *tanavaḥ*—cuyos cuerpos; *vavṛṣuḥ*—constantemente derramaban; *sma*—ciertamente.
 
 **«"Las plantas, enredaderas y árboles estaban llenos de frutos y flores debido al amor extático por Kṛṣṇa. En verdad, estaban tan cargados que se inclinaban. Inspirados por un amor tan profundo por Kṛṣṇa, derramaban constantemente lluvias de miel. De este modo, las gopīs contemplaron todo el bosque de Vṛndāvana"».**
 

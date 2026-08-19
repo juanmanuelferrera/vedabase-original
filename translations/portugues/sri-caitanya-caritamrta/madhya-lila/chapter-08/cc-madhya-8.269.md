@@ -4,7 +4,7 @@ tomāra sammukhe dekhi kāñcana-pañcālikā
 
 tāṅra gaura-kāntye tomāra sarva aṅga ḍhākā
 
-*tomāra*—de Ti; *sammukhe*—diante; *dekhi*—vejo; *kāñcana-pañcālikā*—uma boneca feita de ouro; *tāṅra*—dela; *gaura-kāntye*—por uma tez dourada; *tomāra*—Teu; *sarva*—todo; *aṅga*—corpo; *ḍhākā*—cobrindo.
+*tomāra*—de Ti; *sammukhe*—diante; *dekhi*—vejo; *kāñcana-pañcālikā*—uma boneca feita de ouro; *tāṅra*—dela; *gaura-kāntye*—por uma tez branca; *tomāra*—Teu; *sarva*—todo; *aṅga*—corpo; *ḍhākā*—cobrindo.
 
 **"Agora Te vejo aparecer como uma boneca de ouro, e Teu corpo inteiro parece coberto por um lustro dourado.**
 

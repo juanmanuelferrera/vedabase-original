@@ -6,7 +6,7 @@
 > arasa-jña kāka cūṣe jñāna-nimba-phale\
 > rasa-jña kokila khāya premāmra-mukule
 
-*arasa-jña*—los que carecen de melosidades; *kāka*—los cuervos; *cūṣe*—succionan; *jñāna*—del conocimiento; *nimba-phale*—el amargo fruto del nimba; *rasa-jña*—los que disfrutan de las melosidades trascendentales; *kokila*—los cuclillos; *khāya*—comen; *prema-āmra-mukule*—los brotes del mango del amor a Dios.
+*arasa-jña*—sin melosidades; *kāka*—los cuervos; *cūṣe*—succionan; *jñāna*—del conocimiento; *nimba-phale*—el amargo fruto del nimba; *rasa-jña*—los que disfrutan de las melosidades trascendentales; *kokila*—los cuclillos; *khāya*—comen; *prema-āmra-mukule*—los brotes del mango del amor a Dios.
 
 **Rāmānanda Rāya continuó: "Aquellos que carecen de toda melosidad trascendental son como los cuervos que chupan el jugo de los frutos amargos del árbol nimba del conocimiento, mientras que aquellos que disfrutan de las melosidades son como los cucos que comen los brotes del árbol de mango del amor por Dios."**
 

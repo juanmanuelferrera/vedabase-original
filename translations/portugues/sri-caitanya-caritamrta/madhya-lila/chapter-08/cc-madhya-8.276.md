@@ -11,7 +11,7 @@ praṇata-bhāra-viṭapā madhu-dhārāḥ
 
 prema-hṛṣṭa-tanavo vavṛṣuḥ sma
 
-*vana-latāḥ*—as ervas e plantas; *taravaḥ*—as árvores; *ātmani*—na Alma Suprema; *viṣṇum*—a Suprema Personalidade de Deus; *vyañjayantyaḥ*—manifestando; *iva*—como; *puṣpa-phala-āḍhyāḥ*—repletas de luxuriantes frutos e flores; *praṇata-bhāra*—curvadas por causa das cargas; *viṭapāḥ*—as árvores; *madhu-dhārāḥ*—torrentes de mel; *prema-hṛṣṭa*—inspiradas pelo amor a Deus; *tanavaḥ*—cujos corpos; *vavṛṣuḥ*—constantemente choviam; *sma*—certamente.
+*vana-latāḥ*—as ervas e plantas; *taravaḥ*—as árvores; *ātmani*—na Alma Suprema; *viṣṇum*—a Suprema Personalidade de Deus; *vyañjayantyaḥ*—manifestando; *iva*—como; *puṣpa-phala-āḍhyāḥ*—repletas de luxuriantes frutos e flores; *praṇata-bhāra*—curvadas por causa das cargas; *viṭapāḥ*—as árvores; *madhu-dhārāḥ*—chuvas; *prema-hṛṣṭa*—inspiradas pelo amor a Deus; *tanavaḥ*—cujos corpos; *vavṛṣuḥ*—constantemente choviam; *sma*—certamente.
 
 **" 'As plantas, trepadeiras e árvores estavam repletas de frutos e flores devido ao amor extático por Kṛṣṇa. De fato, estando tão carregadas, curvavam-se. Estavam inspiradas por tão profundo amor por Kṛṣṇa que derramavam constantemente torrentes de mel. Foi dessa maneira que as gopīs viram toda a floresta de Vṛndāvana.' "**
 
