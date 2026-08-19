@@ -8,7 +8,7 @@
 > tatrābda-koṭi-pratimaḥ kṣaṇo bhaved\
 > raviṁ vinākṣṇor iva nas tavācyuta
 
-*yarhi*—cuando quiera que; *ambuja-akṣa*—¡oh, Tú, el de los ojos de loto!; *apasasāra*—Te vas; *bho*—¡oh!; *bhavān*—Tú mismo; *kurūn*—los descendientes del rey Kuru; *madhūn*—los habitantes de Mathurā (Vrajabhūmi); *vā*—cualquiera de ellos; *atha*—por lo tanto; *suhṛt-didṛkṣayā*—para reunirse con ellos; *tatra*—en ese momento; *abda-koṭi*—millones de años; *pratimaḥ*—como; *kṣaṇaḥ*—momentos; *bhavet*—se vuelve; *ravim*—el sol; *vinā*—sin; *akṣṇoḥ*—de los ojos; *iva*—como eso; *naḥ*—nuestros; *tava*—Tus; *acyuta*—¡oh, Tú, el infalible!.
+*yarhi*—cuando quiera que; *ambuja-akṣa*—¡oh, Tú, el de los ojos de loto!; *apasasāra*—Te vas; *bho*—¡oh!; *bhavān*—Tú mismo; *kurūn*—los descendientes del rey Kuru; *madhūn*—los habitantes de Mathurā (Vrajabhūmi); *vā*—cualquiera de ellos; *atha*—por lo tanto; *suhṛt-didṛkṣayā*—para reunirse con ellos; *tatra*—en ese momento; *abda-koṭi*—millones; *pratimaḥ*—años así; *kṣaṇaḥ*—momentos; *bhavet*—se vuelve; *ravim*—el sol; *vinā*—sin; *akṣṇoḥ*—de los ojos; *iva*—como eso; *naḥ*—nuestros; *tava*—Tus; *acyuta*—¡oh, Tú, el infalible!.
 
 **¡Oh, Señor de los ojos de loto!, cuando quiera que te vas a Mathurā, Vṛndāvana o Hastināpura a reunirte con Tus amigos y parientes, cada instante de Tu ausencia parece ser un millón de años. ¡Oh, Tú, el infalible!, en esos momentos nuestros ojos se vuelven inútiles, como si estuvieran privados del sol.**
 

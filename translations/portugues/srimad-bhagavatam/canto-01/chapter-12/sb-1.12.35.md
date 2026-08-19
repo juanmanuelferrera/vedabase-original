@@ -11,7 +11,7 @@ uvāsa katicin māsān
 
 *suhṛdāṁ priya*-kāmyayā
 
-*āhūtaḥ*—sendo convidado por; *bhagavān*—o Senhor Kṛṣṇa, a Personalidade de Deus; *rājñā*—pelo Rei; *yājayitvā*—fazendo com que fossem realizados; *dvijaiḥ*—pelos eruditos *brāhmaṇas*; *nṛpam*—em nome do Rei; *uvāsa*—residiu; *katicit*—alguns; *māsān*—meses; *suhṛdām*—pelo bem dos parentes; *priya-kāmyayā*—para o prazer.
+*āhūtaḥ*—sendo convidado por; *bhagavān*—o Senhor Kṛṣṇa, a Personalidade de Deus; *rājñā*—pelo Rei; *yājayitvā*—fazendo com que fossem realizados; *dvijaiḥ*—pelos eruditos *brāhmaṇas*; *nṛpam*—em nome do Rei; *uvāsa*—residiu; *katicit*—alguns; *māsān*—meses; *suhṛdām*—pelo bem dos parentes; *priya-kāmyayā*—para fins de prazer.
 
 ***O Senhor Śrī Kṛṣṇa, a Personalidade de Deus, sendo convidado para os sacrifícios por Mahārāja Yudhiṣṭhira, tratou de que fossem realizados por* brāhmaṇas *qualificados [nascidos duas vezes]. Depois, para o prazer dos parentes, o Senhor permaneceu alguns meses.***
 

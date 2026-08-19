@@ -11,7 +11,7 @@ yarhy ambujākṣāpasasāra bho bhavān
 
 raviṁ vinākṣṇor iva nas tavācyuta
 
-*yarhi*—sempre que; *ambuja-akṣa*—ó de olhos de lótus; *apasasāra*—o Senhor vai embora; *bho*—oh; *bhavān*—Sua própria pessoa; *kurūn*—os descendentes do rei Kuru; *madhūn*—os habitantes de Mathurā (Vrajabhūmi); *vā*—ou; *atha*—portanto; *suhṛt-didṛkṣayā*—para encontrá-los; *tatra*—naquele momento; *abda-koṭi*—milhões de anos; *pratimaḥ*—como; *kṣaṇaḥ*—momentos; *bhavet*—torna-se; *ravim*—o sol; *vinā*—sem; *akṣṇoḥ*—dos olhos; *iva*—como isso; *naḥ*—nossos; *tava*—Seu; *acyuta*—ó infalível.
+*yarhi*—sempre que; *ambuja-akṣa*—ó de olhos de lótus; *apasasāra*—o Senhor vai embora; *bho*—oh; *bhavān*—Sua própria pessoa; *kurūn*—os descendentes do rei Kuru; *madhūn*—os habitantes de Mathurā (Vrajabhūmi); *vā*—ou; *atha*—portanto; *suhṛt-didṛkṣayā*—para encontrá-los; *tatra*—naquele momento; *abda-koṭi*—milhões; *pratimaḥ*—anos assim; *kṣaṇaḥ*—momentos; *bhavet*—torna-se; *ravim*—o sol; *vinā*—sem; *akṣṇoḥ*—dos olhos; *iva*—como isso; *naḥ*—nossos; *tava*—Seu; *acyuta*—ó infalível.
 
 **Ó Senhor de olhos de lótus, sempre que o Senhor parte para Mathurā, Vṛndāvana ou Hastināpura para encontrar Seus amigos e parentes, cada momento de Sua ausência parece um milhão de anos. Ó infalível, nesse momento nossos olhos tornam-se inúteis, como se privados do sol.**
 

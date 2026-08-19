@@ -8,7 +8,7 @@
 > uvāsa katicin māsān\
 > suhṛdāṁ priya-kāmyayā
 
-*āhūtaḥ*—siendo llamado por; *bhagavān*—el Señor Kṛṣṇa, la Personalidad de Dios; *rājñā*—por el rey; *yājayitvā*—haciendo que se ejecutara; *dvijaiḥ*—por los *brāhmaṇas* eruditos; *nṛpam*—en el nombre del rey; *uvāsa*—residió; *katicit*—unos cuantos; *māsān*—meses; *suhṛdām*—por el bien de los parientes; *priya-kāmyayā*—para placer.
+*āhūtaḥ*—siendo llamado por; *bhagavān*—el Señor Kṛṣṇa, la Personalidad de Dios; *rājñā*—por el rey; *yājayitvā*—haciendo que se ejecutara; *dvijaiḥ*—por los *brāhmaṇas* eruditos; *nṛpam*—en el nombre del rey; *uvāsa*—residió; *katicit*—unos cuantos; *māsān*—meses; *suhṛdām*—por el bien de los parientes; *priya-kāmyayā*—en aras del placer.
 
 **El Señor Śrī Kṛṣṇa, la Personalidad de Dios, siendo invitado a los sacrificios por Mahārāja Yudhiṣṭhira, se encargó de que fueran ejecutados por *brāhmaṇas* aptos [nacidos por segunda vez]. Después de eso y para placer de los parientes, el Señor se quedó ahí por unos cuantos meses.**
 

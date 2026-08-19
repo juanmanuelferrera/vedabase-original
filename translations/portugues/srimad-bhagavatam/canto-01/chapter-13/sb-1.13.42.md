@@ -11,7 +11,7 @@ vāktantyāṁ nāmabhir baddhā
 
 vahanti balim īśituḥ
 
-*yathā*—assim como; *gāvaḥ*—a vaca; *nasi*—pelo nariz; *protāḥ*—atada por um fio; *tantyām*—pelo fio; *baddhāḥ*—presa por; *ca*—também; *dāmabhiḥ*—por cordas; *vāktantyām*—na rede dos hinos védicos; *nāmabhiḥ*—por nomenclaturas; *baddhāḥ*—condicionados; *vahanti*—cumprem; *balim*—ordens; *īśituḥ*—para ser controlado pelo Senhor Supremo.
+*yathā*—assim como; *gāvaḥ*—a vaca; *nasi*—pelo nariz; *protāḥ*—mulheres; *tantyām*—pelo fio; *baddhāḥ*—presa por; *ca*—também; *dāmabhiḥ*—por cordas; *vāktantyām*—na rede dos hinos védicos; *nāmabhiḥ*—por nomenclaturas; *baddhāḥ*—condicionados; *vahanti*—cumprem; *balim*—ordens; *īśituḥ*—para ser controlado pelo Senhor Supremo.
 
 **Assim como a vaca, presa pelo nariz por uma longa corda, está condicionada, da mesma forma os seres humanos estão presos por diferentes preceitos Védicos e condicionados a obedecer às ordens do Supremo.**
 

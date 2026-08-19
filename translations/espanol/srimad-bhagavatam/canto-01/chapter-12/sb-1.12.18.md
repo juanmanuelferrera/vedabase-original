@@ -10,7 +10,7 @@
 > anuvartitā svid yaśasā\
 > sādhu-vādena sattamāḥ
 
-*śrī-rājā*—el muy buen rey (Mahārāja Yudhiṣṭhira); *uvāca*—dijo; *api*—si; *eṣaḥ*—esta; *vaṁśyān*—familia; *rāja-ṛṣīn*—de reyes santos; *puṇya-ślokān*—piadosos por su mismo nombre; *mahā-ātmanaḥ*—siendo todos grandes almas; *anuvartitā*—seguidor; *svit*—será; *yaśasā*—por los logros; *sādhu-vādena*—por la glorificación; *sat-tamāḥ*—¡oh, grandes almas!.
+*śrī-rājā*—el muy buen rey (Mahārāja Yudhiṣṭhira); *uvāca*—dijo; *api*—si; *eṣaḥ*—esta; *vaṁśyān*—familia; *rāja-ṛṣīn*—de reyes santos; *puṇya-ślokān*—piadosos por su mismo nombre; *mahā-ātmanaḥ*—siendo todos grandes almas; *anuvartitā*—seguidor; *svit*—será; *yaśasā*—por los logros; *sādhu-vādena*—por la glorificación; *sat-tamāḥ*—grandes almas.
 
 **El buen rey [Yudhiṣṭhira] preguntó: ¡Oh, grandes almas!, ¿será él un rey tan santo, tan piadoso en su mismo nombre y tan famoso y glorificado por sus logros, como otros que aparecieron en esta gran familia real?**
 

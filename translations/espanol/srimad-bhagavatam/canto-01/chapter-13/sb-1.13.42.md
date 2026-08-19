@@ -8,7 +8,7 @@
 > vāk-tantyāṁ nāmabhir baddhā\
 > vahanti balim īśituḥ
 
-*yathā*—tanto como; *gāvaḥ*—vaca; *nasi*—por la nariz; *protāḥ*—atada; *tantyām*—por la soga; *baddhāḥ*—sujeto; *ca*—también; *dāmabhiḥ*—mediante sogas; *vāk-tantyām*—en la red de los himnos védicos; *nāmabhiḥ*—mediante nomenclaturas; *baddhāḥ*—condicionados; *vahanti*—llevan a cabo; *balim*—órdenes; *īśituḥ*—para ser controlados por el Señor Supremo.
+*yathā*—tanto como; *gāvaḥ*—vaca; *nasi*—por la nariz; *protāḥ*—mujeres; *tantyām*—por la soga; *baddhāḥ*—sujeto; *ca*—también; *dāmabhiḥ*—mediante sogas; *vāk-tantyām*—en la red de los himnos védicos; *nāmabhiḥ*—mediante nomenclaturas; *baddhāḥ*—condicionados; *vahanti*—llevan a cabo; *balim*—órdenes; *īśituḥ*—para ser controlados por el Señor Supremo.
 
 **Tal como una vaca, atada por la nariz con una larga cuerda, se halla condicionada, así también los seres humanos están atados por diferentes mandamientos Védicos y condicionados a obedecer las órdenes del Supremo.**
 

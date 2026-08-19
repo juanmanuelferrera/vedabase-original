@@ -14,7 +14,7 @@ anuvartitā svid yaśasā
 
 *sādhu*-vādena sattamāḥ
 
-*śrī-rājā*—o todopoderoso rei (Mahārāja Yudhiṣṭhira); *uvāca*—disse; *api*—se; *eṣaḥ*—este; *vaṁśyān*—da família; *rāja-ṛṣīn*—de reis santos; *puṇya-ślokān*—piedosos pelo próprio nome; *mahā-ātmanaḥ*—todos grandes almas; *anuvartitā*—seguidor; *svit*—será; *yaśasā*—por realizações; *sādhu-vādena*—pela glorificação; *sat-tamāḥ*—ó grandes almas.
+*śrī-rājā*—o todopoderoso rei (Mahārāja Yudhiṣṭhira); *uvāca*—disse; *api*—se; *eṣaḥ*—este; *vaṁśyān*—da família; *rāja-ṛṣīn*—de reis santos; *puṇya-ślokān*—piedosos pelo próprio nome; *mahā-ātmanaḥ*—todos grandes almas; *anuvartitā*—seguidor; *svit*—será; *yaśasā*—por realizações; *sādhu-vādena*—pela glorificação; *sat-tamāḥ*—grandes almas.
 
 **O bom Rei [Yudhiṣṭhira] perguntou: Ó grandes almas, ele se tornará um rei tão santo, tão piedoso pelo próprio nome e tão famoso e glorificado em suas realizações quanto os outros que apareceram nesta grande família real?**
 

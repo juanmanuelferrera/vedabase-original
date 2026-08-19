@@ -11,7 +11,7 @@ nigrahītā kaler eṣa
 
 bhuvo dharmasya kāraṇāt
 
-*rāja-ṛṣīṇām*—de reis tão bons quanto sábios; *janayitā*—produtor; *śāstā*—castigador; *ca*—e; *utpatha-gāminām*—dos arrivistas; *nigrahītā*—subjugador; *kaleḥ*—do quareleiro; *eṣaḥ*—este; *bhuvaḥ*—do mundo; *dharmasya*—da religião; *kāraṇāt*—por conta de.
+*rāja-ṛṣīṇām*—de reis tão bons quanto sábios; *janayitā*—produtor; *śāstā*—castigador; *ca*—e; *utpatha-gāminām*—dos arrivistas; *nigrahītā*—subjugador; *kaleḥ*—do quareleiro; *eṣaḥ*—este; *bhuvaḥ*—do mundo; *dharmasya*—da religiosidade; *kāraṇāt*—por conta de.
 
 **Esta criança será pai de reis que serão como sábios. Pela paz mundial e em prol da religião, será o castigador dos arrivistas e dos querulantes.**
 

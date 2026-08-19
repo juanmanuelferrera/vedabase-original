@@ -11,7 +11,7 @@ athābabhāṣe bhagavān
 
 *nārado muni*-sattamaḥ
 
-*karṇa-dhāraḥ*—capitão do navio; *iva*—como; *apāre*—nos vastos oceanos; *bhagavān*—representante do Senhor; *pāra-darśakaḥ*—aquele que pode indicar o caminho para o outro lado; *atha*—assim; *ābabhāṣe*—começou a dizer; *bhagavān*—a divina personalidade; *nāradaḥ*—o grande sábio Nārada; *muni-sat-tamaḥ*—o maior entre os filósofos devotos.
+*karṇa-dhāraḥ*—capitão do navio; *iva*—como; *apāre*—nos vastos oceanos; *bhagavān*—representante do Senhor; *pāra-darśakaḥ*—aquele que pode indicar o caminho para o outro extremo; *atha*—assim; *ābabhāṣe*—começou a dizer; *bhagavān*—a divina personalidade; *nāradaḥ*—o grande sábio Nārada; *muni-sat-tamaḥ*—o maior entre os filósofos devotos.
 
 **Sois como o capitão de um navio num grande oceano e podeis nos guiar até nosso destino. Assim interpelado, a divina personalidade, *Devarṣi* Nārada, o maior dos filósofos devotos, começou a falar.**
 

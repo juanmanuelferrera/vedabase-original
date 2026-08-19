@@ -8,7 +8,7 @@
 > athābabhāṣe bhagavān\
 > nārado muni-sattamaḥ
 
-*karṇa-dhāraḥ*—capitán de barco; *iva*—como; *apāre*—en los extensos océanos; *bhagavān*—representante del Señor; *pāra-darśakaḥ*—alguien que puede dar indicaciones de cómo llegar al otro lado; *atha*—así pues; *ābabhāṣe*—comenzó a decir; *bhagavān*—la personalidad divina; *nāradaḥ*—el gran sabio Nārada; *muni-sat-tamaḥ*—el más grande entre los filósofos devotos.
+*karṇa-dhāraḥ*—capitán de barco; *iva*—como; *apāre*—en los extensos océanos; *bhagavān*—representante del Señor; *pāra-darśakaḥ*—alguien que puede dar indicaciones de cómo llegar al otro extremo; *atha*—así pues; *ābabhāṣe*—comenzó a decir; *bhagavān*—la personalidad divina; *nāradaḥ*—el gran sabio Nārada; *muni-sat-tamaḥ*—el más grande entre los filósofos devotos.
 
 **Tú eres como el capitán de un barco que se halla en un gran océano, y puedes dirigirnos a nuestro destino. Después de que se le habló de ese modo, la personalidad divina, Devarṣi Nārada, el más grande de los filósofos devotos, comenzó a hablar.**
 

@@ -8,7 +8,7 @@
 > nigrahītā kaler eṣa\
 > bhuvo dharmasya kāraṇāt
 
-*rāja-ṛṣīṇām*—de reyes que son como sabios; *janayitā*—productor; *śāstā*—castigador; *ca*—y; *utpatha-gāminām*—de los arribistas; *nigrahītā*—perturbador; *kaleḥ*—de los pendencieros; *eṣaḥ*—este; *bhuvaḥ*—del mundo; *dharmasya*—de la religión; *kāraṇāt*—a causa de.
+*rāja-ṛṣīṇām*—de reyes que son como sabios; *janayitā*—productor; *śāstā*—castigador; *ca*—y; *utpatha-gāminām*—de los arribistas; *nigrahītā*—perturbador; *kaleḥ*—de los pendencieros; *eṣaḥ*—este; *bhuvaḥ*—del mundo; *dharmasya*—de la religiosidad; *kāraṇāt*—a causa de.
 
 **Este niño será el padre de reyes que serán como sabios. En aras de la paz del mundo y por el bien de la religión, será el castigador de los arribistas y de los pendencieros.**
 
