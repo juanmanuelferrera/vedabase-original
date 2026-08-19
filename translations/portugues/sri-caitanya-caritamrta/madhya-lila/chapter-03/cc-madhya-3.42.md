@@ -6,7 +6,7 @@
 tina ṭhāñi bhoga bāḍāila sama kari'
 kṛṣṇera bhoga bāḍāila dhātu-pātropari
 
-*tina ṭhāñi*—em três lugares; *bhoga*—o alimento cozido; *bāḍāila*—distribuiu; *sama*—iguais; *kari'*—fazendo; *kṛṣṇera bhoga*—o alimento oferecido a Kṛṣṇa; *bāḍāila*—foi arranjado; *dhātu-pātra upari*—num prato de metal.
+*tina ṭhāñi*—em três lugares; *bhoga*—alimentos cozidos; *bāḍāila*—distribuiu; *sama*—iguais; *kari'*—fazendo; *kṛṣṇera bhoga*—o alimento oferecido a Kṛṣṇa; *bāḍāila*—foi arranjado; *dhātu-pātra upari*—num prato de metal.
 
 **Todo o alimento preparado foi dividido em três partes iguais. Uma parte foi arranjada num prato de metal para ser oferecida ao Senhor Kṛṣṇa.**
 
