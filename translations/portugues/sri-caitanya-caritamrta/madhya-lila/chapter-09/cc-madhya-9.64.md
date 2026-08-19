@@ -7,7 +7,7 @@ mahāprabhu cali' āilā tripati-trimalle
 
 catur-bhuja mūrti dekhi' vyeṅkaṭādrye cale
 
-*mahāprabhu*—o Senhor Śrī Caitanya Mahāprabhu; *cali' āilā*—chegou caminhando; *tripati-trimalle*—aos lugares sagrados chamados Tirupati e Tirumala; *catur-bhuja*—de quatro braços; *mūrti*—a Deidade; *dekhi'*—vendo; *vyeṅkaṭa-adrye*—à colina sagrada de Veṅkaṭa; *cale*—começou a seguir.
+*mahāprabhu*—o Senhor Śrī Caitanya Mahāprabhu; *cali' āilā*—chegou caminhando; *tripati-trimalle*—aos lugares sagrados chamados Tirupati e Tirumala; *catur-bhuja*—de quatro braços; *mūrti*—a Deidade; *dekhi'*—vendo; *vyeṅkaṭa-adrye*—à colina sagrada de Vyeṅkaṭa; *cale*—começou a seguir.
 
 **Śrī Caitanya Mahāprabhu, em seguida, chegou a Tirupati e Tirumala, onde viu uma Deidade de quatro braços. Depois, prosseguiu em direção à colina de Veṅkaṭa.**
 

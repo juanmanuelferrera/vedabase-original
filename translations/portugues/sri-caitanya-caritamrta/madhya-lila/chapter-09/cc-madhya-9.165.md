@@ -6,6 +6,6 @@
 prabhura viyoge bhaṭṭa haila acetana
 ei raṅga-līlā kare śacīra nandana
 
-*prabhura viyoge*—em virtude da separação de Śrī Caitanya Mahāprabhu; *bhaṭṭa*—Veṅkaṭa Bhaṭṭa; *haila*—ficou; *acetana*—inconsciente; *ei*—este; *raṅga-līlā*—passatempo em Śrī Raṅga-kṣetra; *kare*—realiza; *śacīra nandana*—o filho de mãe Śacī.
+*prabhura viyoge*—em virtude da separação de Śrī Caitanya Mahāprabhu; *bhaṭṭa*—Vyeṅkaṭa Bhaṭṭa; *haila*—ficou; *acetana*—inconsciente; *ei*—este; *raṅga-līlā*—passatempo em Śrī Raṅga-kṣetra; *kare*—realiza; *śacīra nandana*—o filho de mãe Śacī.
 
 **Ao fazê-lo, Veṅkaṭa Bhaṭṭa caiu inconsciente. Assim são os passatempos do Senhor Śrī Caitanya Mahāprabhu, o filho de mãe Śacī, em Śrī Raṅga-kṣetra.**
