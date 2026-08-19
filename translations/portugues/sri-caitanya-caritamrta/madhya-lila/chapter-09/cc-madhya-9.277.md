@@ -7,7 +7,7 @@ sabe, eka guṇa dekhi tomāra sampradāye
 
 satya-vigraha kari' īśvare karaha niścaye
 
-*sabe*—em todos; *eka*—uma; *guṇa*—qualidade; *dekhi*—vejo; *tomāra*—tua; *sampradāye*—no partido; *satya-vigraha*—a forma do Senhor como verdade; *kari'*—aceitando; *īśvare*—a Suprema Personalidade de Deus; *karaha*—fazes; *niścaye*—convicção.
+*sabe*—em todos; *eka*—uma; *guṇa*—qualidade; *dekhi*—vejo; *tomāra*—tua; *sampradāye*—no partido; *satya-vigraha*—a forma do Senhor como verdade; *kari'*—aceitando; *īśvare*—a Suprema Personalidade de Deus; *karaha*—fazes; *niścaye*—determinar.
 
 **"A única qualificação que vejo em tua sampradāya é que aceitas a forma do Senhor como verdade."**
 
