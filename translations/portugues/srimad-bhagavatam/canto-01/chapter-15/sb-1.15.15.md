@@ -11,7 +11,7 @@
 
 āyur manāṁsi ca dṛśā saha oja ārcchat
 
-*yaḥ*—somente Ele; *bhīṣma*—Bhīṣma; *karṇa*—Karṇa; *guru*—Droṇācārya; *śalya*—Śalya; *camūṣu*—no meio da falange militar; *adabhra*—imensa; *rājanya-varya*—grandes príncipes reais; *ratha-maṇḍala*—cadeia de quadrigas; *maṇḍitāsu*—sendo decorada com; *agrecaraḥ*—indo à frente; *mama*—meu; *vibho*—Ó grande Rei; *ratha-yūtha-pānām*—todos os cocheiros; *āyuḥ*—duração de vida ou atividades fruitivas; *manāṁsi*—agitações mentais; *ca*—também; *dṛśā*—pelo olhar; *sahaḥ*—poder; *ojaḥ*—força; *ārcchat*—retirou.
+*yaḥ*—somente Ele; *bhīṣma*—Bhīṣma; *karṇa*—Karṇa; *guru*—Droṇācārya; *śalya*—Śalya; *camūṣu*—no meio da falange militar; *adabhra*—imensa; *rājanya-varya*—grandes príncipes reais; *ratha-maṇḍala*—cadeia de quadrigas; *maṇḍitāsu*—sendo decorada com; *agrecaraḥ*—indo à frente; *mama*—meu; *vibho*—Ó grande Rei; *ratha-yūtha-pānām*—todos os cocheiros; *āyuḥ*—duração de vida ou atividades fruitivas; *manāṁsi*—agitações mentais; *ca*—também; *dṛśā*—pelo olhar; *sahaḥ*—juntamente com; *ojaḥ*—força; *ārcchat*—retirou.
 
 **Foi somente Ele quem retirou a duração de vida de cada um e que, no campo de batalha, retirou o poder de especulação e a força do entusiasmo da grande falange militar formada pelos Kauravas, comandada por Bhīṣma, Karṇa, Droṇa, Śalya etc. Sua organização era experiente e mais do que adequada, mas Ele [o Senhor Śrī Kṛṣṇa], ao avançar, fez tudo isso.**
 

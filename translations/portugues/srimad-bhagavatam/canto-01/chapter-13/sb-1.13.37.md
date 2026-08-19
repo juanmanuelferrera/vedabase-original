@@ -14,7 +14,7 @@ nāhaṁ veda vyavasitaṁ
 
 muṣito 'smi mahātmabhiḥ
 
-*sañjayaḥ uvāca*—Sañjaya disse; *na*—não; *aham*—eu; *veda*—sei; *vyavasitam*—determinação; *pitroḥ*—de seus tios; *vaḥ*—seus; *kula-nandana*—ó descendente da dinastia Kuru; *gāndhāryāḥ*—de Gāndhārī; *vā*—ou; *mahā-bāho*—ó grande rei; *muṣitaḥ*—enganado; *asmi*—fui; *mahā-ātmabhiḥ*—por essas grandes almas.
+*sañjayaḥ uvāca*—Sañjaya disse; *na*—não; *aham*—eu mesmo; *veda*—em conhecimento; *vyavasitam*—determinação; *pitroḥ*—de seus tios; *vaḥ*—seus; *kula-nandana*—ó descendente da dinastia Kuru; *gāndhāryāḥ*—por Gāndhārī; *vā*—ou; *mahā-bāho*—ó grande rei; *muṣitaḥ*—enganado; *asmi*—fui; *mahā-ātmabhiḥ*—por essas grandes almas.
 
 **Sañjaya disse: Meu caro descendente da dinastia Kuru, não tenho nenhuma informação sobre a determinação de seus dois tios nem de Gāndhārī. Ó rei, fui enganado por essas grandes almas.**
 

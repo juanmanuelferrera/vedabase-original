@@ -8,7 +8,7 @@
 > lobho 'nṛtaṁ cauryam anāryam aṁho\
 > jyeṣṭhā ca māyā kalahaś ca dambhaḥ
 
-*tvām*—tú; *vartamānam*—mientras estás presente; *nara-deva*—un hombre dios, o un rey; *deheṣu*—en el cuerpo; *anupravṛttaḥ*—ocurriendo en todas partes; *ayam*—todos estos; *adharma*—principios irreligiosos; *pūgaḥ*—en las masas; *lobhaḥ*—codicia; *anṛtam*—falsedad; *cauryam*—robo; *anāryam*—incultura; *aṁhaḥ*—traición; *jyeṣṭhā*—mala fortuna; *ca*—y; *māyā*—engaño; *kalahaḥ*—riña; *ca*—y; *dambhaḥ*—vanidad.
+*tvām*—tú; *vartamānam*—mientras estás presente; *nara-deva*—un hombre dios, o un rey; *deheṣu*—en el cuerpo; *anupravṛttaḥ*—comenzando por todas partes; *ayam*—todos estos; *adharma*—principios irreligiosos; *pūgaḥ*—en las masas; *lobhaḥ*—codicia; *anṛtam*—falsedad; *cauryam*—robo; *anāryam*—incultura; *aṁhaḥ*—traición; *jyeṣṭhā*—mala fortuna; *ca*—y; *māyā*—engaño; *kalahaḥ*—riña; *ca*—y; *dambhaḥ*—vanidad.
 
 **Si se permite que la personalidad de Kali o la irreligión actúe como un hombre-dios o un jefe ejecutivo, ciertamente abundarán principios irreligiosos tales como la codicia, la falsedad, el robo, la incivilidad, la traición, la desgracia, el engaño, la disputa y la vanidad.**
 

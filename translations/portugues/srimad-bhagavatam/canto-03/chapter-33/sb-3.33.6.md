@@ -10,7 +10,7 @@ kutaḥ punas te bhagavan nu darśanāt
 
 **SINÔNIMOS**
 
-*yat*—de quem (a Suprema Personalidade de Deus); *nāmadheya*—o nome; *śravaṇa*—ouvindo; *anukīrtanāt*—pelo canto; *yat*—a quem; *prahvaṇāt*—por oferecer reverências; *yat*—a quem; *smaraṇāt*—por lembrar; *api*—mesmo; *kvacit*—em qualquer momento; *śva-adaḥ*—um comedor de cães; *api*—mesmo; *sadyaḥ*—imediatamente; *savanāya*—para realizar sacrifícios Védicos; *kalpate*—torna-se elegível; *kutaḥ*—o que dizer; *punaḥ*—novamente; *te*—a Ti; *bhagavan*—ó Suprema Personalidade de Deus; *nu*—então; *darśanāt*—por ver face a face.
+*yat*—de quem (a Suprema Personalidade de Deus); *nāmadheya*—o nome; *śravaṇa*—ouvindo; *anukīrtanāt*—pelo canto; *yat*—a quem; *prahvaṇāt*—por oferecer reverências; *yat*—a quem; *smaraṇāt*—por lembrar; *api*—mesmo; *kvacit*—em qualquer momento; *śva-adaḥ*—um comedor de cães; *api*—mesmo; *sadyaḥ*—imediatamente; *savanāya*—para realizar sacrifícios Védicos; *kalpate*—torna-se elegível; *kutaḥ*—o que dizer; *punaḥ*—novamente; *te*—a Ti; *bhagavan*—ó Suprema Personalidade de Deus; *nu*—então; *darśanāt*—por ver frente a frente.
 
 **TRADUÇÃO**
 

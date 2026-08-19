@@ -13,7 +13,7 @@
 > tat kathyatāṁ mahā-bhāga\
 > yadi kṛṣṇa-kathāśrayam
 
-*śaunakaḥ uvāca*—Śaunaka Ṛṣi dijo; *kasya*—porque; *hetoḥ*—razón; *nijagrāha*—castigado lo suficiente; *kalim*—el amo de la era de Kali; *digvijaye*—durante la época de su gira por el mundo; *nṛpaḥ*—el rey; *nṛ-deva*—la persona del rey; *cihna-dhṛk*—adornado como; *śūdrakaḥ*—el más bajo de los *śūdras*; *asau*—él; *gām*—vaca; *yaḥ*—aquel que; *padā ahanat*—golpeó con la pierna; *tat*—todo eso; *kathyatām*—por favor describe; *mahā-bhāga*—¡oh, tú, el muy afortunado!; *yadi*—si, sin embargo; *kṛṣṇa*—acerca de Kṛṣṇa; *kathā-āśrayam*—relacionado con Él.
+*śaunakaḥ uvāca*—Śaunaka Ṛṣi dijo; *kasya*—porque; *hetoḥ*—razón; *nijagrāha*—castigado lo suficiente; *kalim*—el amo de la era de Kali; *digvijaye*—durante la época de su gira por el mundo; *nṛpaḥ*—un rey; *nṛ-deva*—la persona del rey; *cihna-dhṛk*—adornado como; *śūdrakaḥ*—el más bajo de los *śūdras*; *asau*—él; *gām*—vaca; *yaḥ*—aquel que; *padā ahanat*—golpeó con la pierna; *tat*—todo eso; *kathyatām*—por favor describe; *mahā-bhāga*—¡oh, tú, el muy afortunado!; *yadi*—si, sin embargo; *kṛṣṇa*—acerca de Kṛṣṇa; *kathā-āśrayam*—relacionado con Él.
 
 **Śaunaka Ṛṣi preguntó: ¿Por qué Mahārāja Parīkṣit simplemente lo castigó, ya que era el más bajo de los śūdras, habiéndose vestido de rey y dañado las piernas de una vaca? Por favor, describe todos estos incidentes según se relacionan con los temas referentes al Señor Kṛṣṇa.**
 

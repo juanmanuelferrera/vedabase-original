@@ -11,7 +11,7 @@ vyapohya dehādiṣu saṅgam ūḍham
 
 *yasminn ahiṁsopaśamaḥ sva*-dharmaḥ
 
-*yatra*—a quem; *anuraktāḥ*—firmemente apegados; *sahasā*—de repente; *eva*—certamente; *dhīrāḥ*—autocontrolados; *vyapohya*—deixando de lado; *deha*—o corpo grosseiro e a mente sutil; *ādiṣu*—relacionados com; *saṅgam*—apego; *ūḍham*—tomado a; *vrajanti*—vão embora; *tat*—aquele; *pārama-haṁsyam*—o mais alto estágio de perfeição; *antyam*—e além disso; *yasmin*—no qual; *ahiṁsā*—não-violência; *upaśamaḥ*—e renúncia; *sva-dharmaḥ*—ocupação consequente.
+*yatra*—a quem; *anuraktāḥ*—firmemente apegados; *sahasā*—de repente; *eva*—certamente; *dhīrāḥ*—autocontrolados; *vyapohya*—deixando de lado; *deha*—a mente grosseira e sutil; *ādiṣu*—relacionados com; *saṅgam*—apego; *ūḍham*—tomado a; *vrajanti*—vão embora; *tat*—aquele; *pārama-haṁsyam*—o mais alto estágio de perfeição; *antyam*—e além disso; *yasmin*—no qual; *ahiṁsā*—não-violência; *upaśamaḥ*—e renúncia; *sva-dharmaḥ*—ocupação consequente.
 
 **As pessoas autocontroladas que estão apegadas ao Supremo Senhor Śrī Kṛṣṇa podem, de repente, abandonar o mundo do apego material, inclusive o corpo grosseiro e a mente sutil, e partir para alcançar a perfeição máxima da ordem de vida renunciada, da qual a não-violência e a renúncia são consequência.**
 

@@ -8,7 +8,7 @@
 > rājñāghaṁ prāpitaṁ tātaṁ\
 > śrutvā tatredam abravīt
 
-*tasya*—su (del sabio); *putraḥ*—hijo; *ati*—extremadamente; *tejasvī*—poderoso; *viharan*—mientras jugaba; *bālakaḥ*—con niños; *arbhakaiḥ*—que eran todos pueriles; *rājñā*—por el rey; *agham*—aflicción; *prāpitam*—hizo tener; *tātam*—el padre; *śrutvā*—al oír; *tatra*—en ese preciso lugar; *idam*—esto; *abravīt*—habló.
+*tasya*—su (del sabio); *putraḥ*—hijo; *ati*—extremadamente; *tejasvī*—poderoso; *viharan*—mientras jugaba; *bālakaḥ*—con niños; *arbhakaiḥ*—que eran todos pueriles; *rājñā*—por el rey; *agham*—aflicción; *prāpitam*—hizo tener; *tātam*—el padre; *śrutvā*—al oír; *tatra*—en ese preciso lugar; *idam*—todos estos; *abravīt*—habló.
 
 **El sabio tenía un hijo que era muy poderoso, ya que este era el hijo de un *brāhmaṇa*. Mientras el niño jugaba con niños inexpertos, se enteró de la aflicción de su padre, que había sido causada por el rey. En ese preciso lugar y momento, el niño habló de la siguiente manera.​​​​​​​**
 

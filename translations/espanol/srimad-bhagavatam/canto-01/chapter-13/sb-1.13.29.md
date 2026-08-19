@@ -8,7 +8,7 @@
 > chittvā sveṣu sneha-pāśān draḍhimno\
 > niścakrāma bhrātṛ-sandarśitādhvā
 
-*evam*—así pues; *rājā*—el rey Dhṛtarāṣṭra; *vidureṇa anujena*—por Vidura, su hermano menor; *prajñā*—conocimiento introspectivo; *cakṣuḥ*—ojos; *bodhitaḥ*—siendo entendido; *ājamīḍhaḥ*—Dhṛtarāṣṭra, vástago de la familia de Ajamīḍha; *chittvā*—rompiendo; *sveṣu*—en relación con los parientes; *sneha-pāśān*—la fuerte red del afecto; *draḍhimnaḥ*—por la tenacidad; *niścakrāma*—salió; *bhrātṛ*—por su hermano; *sandarśita*—en dirección a; *adhvā*—la senda de la liberación.
+*evam*—así pues; *rājā*—el rey Dhṛtarāṣṭra; *vidureṇa anujena*—por Vidura, su hermano menor; *prajñā*—conocimiento introspectivo; *cakṣuḥ*—ojos; *bodhitaḥ*—siendo entendido; *ājamīḍhaḥ*—Dhṛtarāṣṭra, vástago de la familia de Ajamīḍha; *chittvā*—rompiendo; *sveṣu*—en relación con los parientes; *sneha-pāśān*—la fuerte red del afecto; *draḍhimnaḥ*—por la tenacidad; *niścakrāma*—salió; *bhrātṛ*—hermano; *sandarśita*—en dirección a; *adhvā*—la senda de la liberación.
 
 **Así, Mahārāja Dhṛtarāṣṭra, el descendiente de la familia de Ajamīḍha, firmemente convencido por el conocimiento introspectivo [prajñā], rompió de inmediato la sólida red del afecto familiar mediante su resuelta determinación. De este modo, abandonó al instante el hogar para emprender el sendero de la liberación, según le indicó su hermano menor Vidura.**
 

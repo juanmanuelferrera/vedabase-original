@@ -11,7 +11,7 @@ viduras tu tad āścaryaṁ
 
 *gantā tīrtha*-niṣevakaḥ
 
-*viduraḥ*—Vidura também; *tu*—mas; *tat*—aquele incidente; *āścaryam*—maravilhoso; *niśāmya*—vendo; *kuru-nandana*—ó filho da dinastia Kuru; *harṣa*—alegria; *śoka*—tristeza; *yutaḥ*—afetado por; *tasmāt*—daquele lugar; *gantā*—partirá; *tīrtha*—lugar de peregrinação; *niṣevakaḥ*—para ser revitalizado.
+*viduraḥ*—Vidura também; *tu*—mas; *tat*—aquele incidente; *āścaryam*—maravilhoso; *niśāmya*—vendo; *kuru-nandana*—ó filho da dinastia Kuru; *harṣa*—alegria; *śoka*—tristeza; *yutaḥ*—afetado por; *tasmāt*—daquele lugar; *gantā*—partiu; *tīrtha*—lugar de peregrinação; *niṣevakaḥ*—para ser revitalizado.
 
 **Vidura, afetado de alegria e tristeza, partirá então daquele lugar de sagrada peregrinação.**
 

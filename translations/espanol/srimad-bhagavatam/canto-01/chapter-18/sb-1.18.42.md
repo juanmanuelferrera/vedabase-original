@@ -8,6 +8,6 @@
 > yat-tejasā durviṣaheṇa guptā\
 > vindanti bhadrāṇy akutobhayāḥ prajāḥ
 
-*na*—nunca; *vai*—de hecho; *nṛbhiḥ*—por ningún hombre; *nara-devam*—a un hombre dios; *para-ākhyam*—quien es trascendental; *sammātum*—poner en la misma posición; *arhasi*—merece; *avipakva*—inmaduro; *buddhe*—inteligencia; *yat*—de quien; *tejasā*—mediante el poder; *durviṣaheṇa*—insuperable; *guptāḥ*—protegido; *vindanti*—disfruta; *bhadrāṇi*—plena prosperidad; *akutaḥ-bhayāḥ*—totalmente defendido; *prajāḥ*—los súbditos.
+*na*—nunca; *vai*—de hecho; *nṛbhiḥ*—por ningún hombre; *nara-devam*—a un hombre dios; *para-ākhyam*—quien es trascendental; *sammātum*—poner en la misma posición; *arhasi*—merece; *avipakva*—inmaduro; *buddhe*—inteligencia; *yat*—por cuyo; *tejasā*—mediante el poder; *durviṣaheṇa*—insuperable; *guptāḥ*—protegido; *vindanti*—disfruta; *bhadrāṇi*—plena prosperidad; *akutaḥ-bhayāḥ*—totalmente defendido; *prajāḥ*—los súbditos.
 
 **¡Oh, hijo mío!, tu inteligencia es inmadura y, por lo tanto, no tienes conocimiento de que el rey, que es el mejor entre los seres humanos, es como la propia Personalidad de Dios. Por consiguiente, nunca ha de ponérsele en pie de igualdad con los hombres comunes. Los ciudadanos del Estado viven en la prosperidad, protegidos por su insuperable poderío.**

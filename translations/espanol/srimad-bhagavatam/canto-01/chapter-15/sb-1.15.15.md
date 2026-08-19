@@ -8,7 +8,7 @@
 > agrecaro mama vibho ratha-yūthapānām\
 > āyur manāṁsi ca dṛśā saha oja ārcchat
 
-*yaḥ*—es Él únicamente; *bhīṣma*—Bhīṣma; *karṇa*—Karṇa; *guru*—Droṇācārya; *śalya*—Śalya; *camūṣu*—en medio de la falange militar; *adabhra*—inmenso; *rājanya-varya*—grandes príncipes de la realeza; *ratha-maṇḍala*—hilera de cuadrigas; *maṇḍitāsu*—adornado con; *agecaraḥ*—yendo hacia adelante; *mama*—mío; *vibho*—¡oh, gran rey!; *ratha-yūtha-pānām*—todos los aurigas; *āyuḥ*—duración de la vida o de las actividades fruitivas; *manāṁsi*—arrebatos mentales; *ca*—también; *dṛśā*—mediante la vista; *sahaḥ*—poder; *ojaḥ*—fuerza; *ārcchat*—retiro.
+*yaḥ*—es Él únicamente; *bhīṣma*—Bhīṣma; *karṇa*—Karṇa; *guru*—Droṇācārya; *śalya*—Śalya; *camūṣu*—en medio de la falange militar; *adabhra*—inmenso; *rājanya-varya*—grandes príncipes de la realeza; *ratha-maṇḍala*—hilera de cuadrigas; *maṇḍitāsu*—adornado con; *agecaraḥ*—yendo hacia adelante; *mama*—mío; *vibho*—¡oh, gran rey!; *ratha-yūtha-pānām*—todos los aurigas; *āyuḥ*—duración de la vida o de las actividades fruitivas; *manāṁsi*—arrebatos mentales; *ca*—también; *dṛśā*—mediante la vista; *sahaḥ*—junto con; *ojaḥ*—fuerza; *ārcchat*—retiro.
 
 **Fue solo Él quien les redujo a todos la duración de la vida, y quien, en el campo de batalla, le retiró el poder especulativo y la fuerza del entusiasmo a la gran falange militar integrada por los Kauravas, encabezados por Bhīsma, Karṇa, Droṇa, Śalya, etc. La disposición de estos era experta y más que suficiente, pero Él [el Señor Kṛṣṇa], mientras avanzaba, hizo todo eso.**
 

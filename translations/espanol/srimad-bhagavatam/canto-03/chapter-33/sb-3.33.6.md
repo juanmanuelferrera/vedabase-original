@@ -8,7 +8,7 @@
 > śvādo 'pi sadyaḥ savanāya kalpate\
 > kutaḥ punas te bhagavan nu darśanāt
 
-*yat*—de quien (la Suprema Personalidad de Dios); *nāmadheya*—el nombre; *śravaṇa*—escuchar; *anukīrtanāt*—por cantar; *yat*—a quien; *prahvaṇāt*—por ofrecer reverencias; *yat*—a quien; *smaraṇāt*—por recordar; *api*—incluso; *kvacit*—en cualquier momento; *śva-adaḥ*—un comedor de perros; *api*—incluso; *sadyaḥ*—inmediatamente; *savanāya*—para ejecutar sacrificios védicos; *kalpate*—llega a ser digna de; *kutaḥ*—qué decir de; *punaḥ*—de nuevo; *te*—Tú; *bhagavan*—¡oh, Suprema Personalidad de Dios!; *nu*—entonces; *darśanāt*—por ver directamente.
+*yat*—de quien (la Suprema Personalidad de Dios); *nāmadheya*—el nombre; *śravaṇa*—escuchar; *anukīrtanāt*—por cantar; *yat*—a quien; *prahvaṇāt*—por ofrecer reverencias; *yat*—a quien; *smaraṇāt*—por recordar; *api*—incluso; *kvacit*—en cualquier momento; *śva-adaḥ*—un comedor de perros; *api*—incluso; *sadyaḥ*—inmediatamente; *savanāya*—para ejecutar sacrificios védicos; *kalpate*—llega a ser digna de; *kutaḥ*—qué decir de; *punaḥ*—de nuevo; *te*—Tú; *bhagavan*—¡oh, Suprema Personalidad de Dios!; *nu*—entonces; *darśanāt*—por ver frente a frente.
 
 **Por no hablar del avance espiritual de las personas que ven a la Persona Suprema cara a cara, hasta una persona nacida en una familia de comedores de perros se vuelve inmediatamente apta para realizar sacrificios Védicos si una sola vez pronuncia el santo nombre de la Suprema Personalidad de Dios o canta acerca de Él, oye acerca de Sus pasatiempos, Le ofrece reverencias o incluso Lo recuerda.**
 

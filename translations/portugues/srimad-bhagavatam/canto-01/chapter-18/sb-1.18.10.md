@@ -11,7 +11,7 @@ yā yāḥ kathā bhagavataḥ
 
 saṁsevyās tā bubhūṣubhiḥ
 
-*yāḥ*—quaisquer que sejam; *yāḥ*—e todas as que sejam; *kathāḥ*—tópicos; *bhagavataḥ*—sobre a Personalidade de Deus; *kathanīya*—que deveriam ser falados por mim; *uru-karmaṇaḥ*—d'Aquele que age de modo maravilhoso; *guṇa*—qualidades transcendentais; *karma*—feitos incomuns; *āśrayāḥ*—envolvendo; *pumbhiḥ*—por pessoas; *saṁsevyāḥ*—devem ser ouvidos; *tāḥ*—todos eles; *bubhūṣubhiḥ*—por aqueles que desejam seu próprio bem-estar.
+*yāḥ*—quaisquer que sejam; *yāḥ*—e todas as que sejam; *kathāḥ*—tópicos; *bhagavataḥ*—sobre a Personalidade de Deus; *kathanīya*—que deveriam ser falados por mim; *uru-karmaṇaḥ*—d'Aquele que age de modo maravilhoso; *guṇa*—qualidades transcendentais; *karma*—feitos incomuns; *āśrayāḥ*—envolvendo; *pumbhiḥ*—por pessoas; *saṁsevyāḥ*—devem ser ouvidos por; *tāḥ*—todos eles; *bubhūṣubhiḥ*—por aqueles que desejam seu próprio bem-estar.
 
 **Aqueles que desejam alcançar a perfeição completa na vida devem submissamente ouvir todos os tópicos relacionados com as atividades e qualidades transcendentais da Personalidade de Deus, que age de modo maravilhoso.**
 

@@ -11,7 +11,7 @@ vaiyāsaker jahau śiṣyo
 
 gaṅgāyāṁ svaṁ kalevaram
 
-*utsṛjya*—após deixar de lado; *sarvataḥ*—por todos os lados; *saṅgam*—a associação; *vijñāta*—sendo compreendida; *ajita*—aquele que nunca é conquistado (a Personalidade de Deus); *saṁsthitiḥ*—posição real; *vaiyāsakeḥ*—ao filho de Vyāsa; *jahau*—abandonou; *śiṣyaḥ*—como discípulo; *gaṅgāyām*—na margem do Ganges; *svam*—seu próprio; *kalevaram*—corpo material.
+*utsṛjya*—após deixar de lado; *sarvataḥ*—por todos os lados; *saṅgam*—a associação; *vijñāta*—sendo compreendida; *ajita*—aquele que nunca é conquistado (a Personalidade de Deus); *saṁsthitiḥ*—posição real; *vaiyāsakeḥ*—ao filho de Vyāsa; *jahau*—abandonou; *śiṣyaḥ*—como discípulo; *gaṅgāyām*—na margem do Ganges; *svam*—seu filho; *kalevaram*—corpo material.
 
 **Além disso, após deixar todos os seus associados, o rei entregou-se como discípulo ao filho de Vyāsa [Śukadeva Gosvāmī] e, assim, pôde compreender a posição real da Personalidade de Deus.**
 

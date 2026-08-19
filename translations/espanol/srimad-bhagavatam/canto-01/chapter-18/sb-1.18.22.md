@@ -8,7 +8,7 @@
 > vrajanti tat pārama-haṁsyam antyaṁ\
 > yasminn ahiṁsopaśamaḥ sva-dharmaḥ
 
-*yatra*—a quien; *anuraktāḥ*—firmemente apegado; *sahasā*—de súbito; *eva*—ciertamente; *dhīrāḥ*—autocontrolado; *vyapohya*—dejando a un lado; *deha*—el cuerpo burdo y la mente sutil; *ādiṣu*—relacionado con; *saṅgam*—apego; *ūḍham*—llevado a; *vrajanti*—se van; *tat*—eso; *pārama-haṁsyam*—la etapa máxima de la perfección; *antyam*—y más allá de eso; *yasmin*—en la que; *ahiṁsā*—no violencia; *upaśamaḥ*—y renunciación; *sva-dharmaḥ*—ocupación consecuente.
+*yatra*—a quien; *anuraktāḥ*—firmemente apegado; *sahasā*—de súbito; *eva*—ciertamente; *dhīrāḥ*—autocontrolado; *vyapohya*—dejando a un lado; *deha*—la mente burda y sutil; *ādiṣu*—relacionado con; *saṅgam*—apego; *ūḍham*—llevado a; *vrajanti*—se van; *tat*—eso; *pārama-haṁsyam*—la etapa máxima de la perfección; *antyam*—y más allá de eso; *yasmin*—en la que; *ahiṁsā*—no violencia; *upaśamaḥ*—y renunciación; *sva-dharmaḥ*—ocupación consecuente.
 
 **Las personas autocontroladas que están apegadas al Señor Supremo Śrī Kṛṣṇa pueden, de repente, abandonar el mundo del apego material —incluyendo el cuerpo burdo y la mente sutil— y partir para alcanzar la perfección más elevada de la orden de vida de renuncia, mediante la cual la no violencia y la renunciación son consecuentes.**
 

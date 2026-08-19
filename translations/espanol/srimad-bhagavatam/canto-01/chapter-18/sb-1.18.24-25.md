@@ -15,7 +15,7 @@
 > dadarśa munim āsīnaṁ\
 > śāntaṁ mīlita-locanam
 
-*ekadā*—una vez; *dhanuḥ*—arco y flechas; *udyamya*—tomando firmemente; *vicaran*—siguiendo; *mṛgayām*—excursión de cacería; *vane*—en el bosque; *mṛgān*—venados; *anugataḥ*—mientras seguía; *śrāntaḥ*—fatigado; *kṣudhitaḥ*—hambriento; *tṛṣitaḥ*—estando sediento; *bhṛśam*—sumamente; *jala-āśayam*—depósito de agua; *acakṣāṇaḥ*—mientras buscaba un; *praviveśa*—entró en; *tam*—ese famoso; *āśramam*—ermita de Śamīka Ṛṣi; *dadarśa*—vio; *munim*—el sabio; *āsīnam*—sentado; *śāntam*—en absoluto silencio; *mīlita*—cerrados; *locanam*—ojos.
+*ekadā*—una vez; *dhanuḥ*—arco y flechas; *udyamya*—tomando firmemente; *vicaran*—siguiendo; *mṛgayām*—excursión de cacería; *vane*—en el bosque; *mṛgān*—venados; *anugataḥ*—mientras seguía; *śrāntaḥ*—fatigado; *kṣudhitaḥ*—hambriento; *tṛṣitaḥ*—estando sediento; *bhṛśam*—sumamente; *jala-āśayam*—depósito de agua; *acakṣāṇaḥ*—mientras averiguaba; *praviveśa*—entró en; *tam*—ese famoso; *āśramam*—ermita de Śamīka Ṛṣi; *dadarśa*—vio; *munim*—el sabio; *āsīnam*—sentado; *śāntam*—en absoluto silencio; *mīlita*—cerrados; *locanam*—ojos.
 
 **Una vez, mientras Mahārāja Parīkṣit se encontraba de cacería en el bosque con arco y flechas y perseguía a los venados, se sintió sumamente fatigado, hambriento y sediento. Mientras buscaba un depósito de agua, entró en la ermita del muy conocido Śamīka Ṛṣi, y vio al sabio sentado en silencio con los ojos cerrados.​​​​​​​**
 

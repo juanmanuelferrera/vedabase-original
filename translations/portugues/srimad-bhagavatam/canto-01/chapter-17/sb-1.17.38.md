@@ -14,7 +14,7 @@ dyūtaṁ pānaṁ striyaḥ sūnā
 
 *yatrādharmaś catur*-vidhaḥ
 
-*sūtaḥ uvāca*—Sūta Gosvāmī disse; *abhyarthitaḥ*—assim sendo peticionado; *tadā*—naquele momento; *tasmai*—a ele; *sthānāni*—lugares; *kalaye*—à personalidade de Kali; *dadau*—deu permissão; *dyūtam*—jogo; *pānam*—bebida; *striyaḥ*—associação ilícita com mulheres; *sūnā*—matança de animais; *yatra*—onde quer que; *adharmaḥ*—atividades pecaminosas; *catuḥ-vidhaḥ*—quatro tipos de.
+*sūtaḥ uvāca*—Sūta Gosvāmī disse; *abhyarthitaḥ*—assim sendo peticionado; *tadā*—naquele momento; *tasmai*—a ele; *sthānāni*—lugares; *kalaye*—à personalidade de Kali; *dadau*—deu permissão; *dyūtam*—jogo; *pānam*—bebida; *striyaḥ*—associação ilícita de mulheres; *sūnā*—matança de animais; *yatra*—onde quer que; *adharmaḥ*—atividades pecaminosas; *catuḥ-vidhaḥ*—quatro tipos de.
 
 **Sūta Gosvāmī disse: Mahārāja Parīkṣit, assim solicitado pela personalidade de Kali, concedeu-lhe permissão para residir nos lugares onde se praticava o jogo de azar, a bebida, a prostituição e o abate de animais.**
 

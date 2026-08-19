@@ -14,7 +14,7 @@ ko 'sau gāṁ yaḥ padāhanat
 
 *yadi kṛṣṇa*-kathāśrayam
 
-*śaunakaḥ uvāca*—Śaunaka Ṛṣi disse; *kasya*—por qual; *hetoḥ*—razão; *nijagrāha*—puniu suficientemente; *kalim*—o senhor da era de Kali; *digvijaye*—durante o tempo de sua excursão pelo mundo; *nṛpaḥ*—o Rei; *nṛ-deva*—pessoa real; *cihna-dhṛk*—adornada como; *śūdrakaḥ*—o mais baixo dos *śūdras*; *asau*—ele; *gām*—a vaca; *yaḥ*—aquele que; *padā ahanat*—golpeou na perna; *tat*—tudo isso; *kathyatām*—por favor descreva; *mahā-bhāga*—ó grandemente afortunado; *yadi*—se, porém; *kṛṣṇa*—sobre Kṛṣṇa; *kathā-āśrayam*—relacionado com Seus temas.
+*śaunakaḥ uvāca*—Śaunaka Ṛṣi disse; *kasya*—por qual; *hetoḥ*—razão; *nijagrāha*—puniu suficientemente; *kalim*—o senhor da era de Kali; *digvijaye*—durante o tempo de sua excursão pelo mundo; *nṛpaḥ*—um Rei; *nṛ-deva*—pessoa real; *cihna-dhṛk*—adornada como; *śūdrakaḥ*—o mais baixo dos *śūdras*; *asau*—ele; *gām*—a vaca; *yaḥ*—aquele que; *padā ahanat*—golpeou na perna; *tat*—tudo isso; *kathyatām*—por favor descreva; *mahā-bhāga*—ó grandemente afortunado; *yadi*—se, porém; *kṛṣṇa*—sobre Kṛṣṇa; *kathā-āśrayam*—relacionado com Seus temas.
 
 **Śaunaka Ṛṣi perguntou: Por que Mahārāja Parīkṣit simplesmente o puniu, sendo ele o mais baixo dos *śūdras*, por ter-se vestido de rei e golpeado uma vaca na perna? Por favor descreva todos esses incidentes se estiverem relacionados com os temas do Senhor Kṛṣṇa.**
 

@@ -10,7 +10,7 @@
 > gāndhāryā vā mahā-bāho\
 > muṣito 'smi mahātmabhiḥ
 
-*sañjayaḥ uvāca*—Sañjaya dijo; *na*—no; *aham*—yo; *veda*—conozco; *vyavasitam*—determinación; *pitroḥ*—de tus tíos; *vaḥ*—tu; *kula-nandana*—¡oh, descendiente de la dinastía Kuru!; *gāndhāryāḥ*—de Gāndhārī; *vā*—o; *mahā-bāho*—¡oh, gran rey!; *muṣitaḥ*—engañado; *asmi*—he sido; *mahā-ātmabhiḥ*—por esas grandes almas.
+*sañjayaḥ uvāca*—Sañjaya dijo; *na*—no; *aham*—yo mismo; *veda*—en conocimiento; *vyavasitam*—determinación; *pitroḥ*—de tus tíos; *vaḥ*—tu; *kula-nandana*—¡oh, descendiente de la dinastía Kuru!; *gāndhāryāḥ*—por Gāndhārī; *vā*—o; *mahā-bāho*—¡oh, gran rey!; *muṣitaḥ*—engañado; *asmi*—he sido; *mahā-ātmabhiḥ*—por esas grandes almas.
 
 **Sañjaya dijo: Mi querido descendiente de la dinastía Kuru, no tengo ninguna información acerca de la decisión de tus dos tíos y Gāndhārī. ¡Oh, rey!, he sido engañado por esas grandes almas.**
 

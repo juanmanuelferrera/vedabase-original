@@ -8,7 +8,7 @@
 > kathaṁ tv anāthāḥ kṛpaṇā\
 > varteraṁs te ca māṁ vinā
 
-*tasmāt*—por consiguiente; *jahi*—abandona; *aṅga*—¡oh, rey!; *vaiklavyam*—disparidad mental; *ajñāna*—ignorancia; *kṛtam*—debido a; *ātmanaḥ*—de ti mismo; *katham*—cómo; *tu*—pero; *anāthāḥ*—desamparado; *kṛpaṇāḥ*—pobres criaturas; *varteran*—ser capaz de sobrevivir; *te*—ellos; *ca*—también; *mām*—mí; *vinā*—sin.
+*tasmāt*—por consiguiente; *jahi*—abandona; *aṅga*—¡oh, rey!; *vaiklavyam*—disparidad de la mente; *ajñāna*—ignorancia; *kṛtam*—debido a; *ātmanaḥ*—de ti mismo; *katham*—cómo; *tu*—pero; *anāthāḥ*—desamparado; *kṛpaṇāḥ*—pobres criaturas; *varteran*—ser capaz de sobrevivir; *te*—ellos; *ca*—también; *mām*—mí; *vinā*—sin.
 
 **Por consiguiente, abandona tu angustia, que se debe a la ignorancia acerca del ser. Ahora estás pensando en cómo ellos, que son criaturas pobres y desamparadas, van a existir sin ti.**
 

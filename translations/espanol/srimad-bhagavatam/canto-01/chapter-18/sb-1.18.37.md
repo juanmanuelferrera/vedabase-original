@@ -8,7 +8,7 @@
 > daṅkṣyati sma kulāṅgāraṁ\
 > codito me tata-druham
 
-*iti*—así pues; *laṅghita*—infringiendo; *maryādam*—etiqueta; *takṣakaḥ*—serpiente alada; *saptame*—en el séptimo; *ahani*—día; *daṅkṣyati*—morderá; *sma*—ciertamente; *kula-aṅgāram*—el despreciable de la dinastía; *coditaḥ*—habiendo hecho; *me*—mí; *tata-druham*—enemistad con el padre.
+*iti*—así pues; *laṅghita*—infringiendo; *maryādam*—etiqueta; *takṣakaḥ*—serpiente alada; *saptame*—en el séptimo; *ahani*—día; *daṅkṣyati*—morderá; *sma*—ciertamente; *kula-aṅgāram*—el despreciable de la dinastía; *coditaḥ*—habiendo hecho; *me*—por; *tata-druham*—enemistad con el padre.
 
 **El hijo del *brāhmaṇa* maldijo al rey de la siguiente manera: En el séptimo día a partir de hoy, una serpiente alada morderá al más despreciable de esa dinastía [Mahārāja Parīkṣit], por haber insultado a mi padre y haber quebrantado con ellos las reglas de etiqueta.**
 

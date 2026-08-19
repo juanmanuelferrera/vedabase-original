@@ -11,7 +11,7 @@ daṅkṣyati sma kulāṅgāraṁ
 
 *codito me tata*-druham
 
-*iti*—assim; *laṅghita*—transgredindo; *maryādam*—a etiqueta; *takṣakaḥ*—a serpente-pássaro; *saptame*—no sétimo; *ahani*—dia; *daṅkṣyati*—morderá; *sma*—certamente; *kula-aṅgāram*—o renegado da dinastia; *coditaḥ*—tendo feito; *me*—meu; *tata-druham*—inimizade para com o pai.
+*iti*—assim; *laṅghita*—transgredindo; *maryādam*—a etiqueta; *takṣakaḥ*—a serpente-pássaro; *saptame*—no sétimo; *ahani*—dia; *daṅkṣyati*—morderá; *sma*—certamente; *kula-aṅgāram*—o renegado da dinastia; *coditaḥ*—tendo feito; *me*—por; *tata-druham*—inimizade para com o pai.
 
 **O filho do *brāhmaṇa* amaldiçoou o Rei nestes termos: No sétimo dia a partir de hoje, uma serpente-pássaro morderá o mais renegado dessa dinastia [Mahārāja Parīkṣit] por haver transgredido as leis da etiqueta ao insultar meu pai.**
 

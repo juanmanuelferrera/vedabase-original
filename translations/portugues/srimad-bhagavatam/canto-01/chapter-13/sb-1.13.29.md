@@ -11,7 +11,7 @@ evaṁ rājā vidureṇānujena
 
 *niścakrāma bhrātṛ*-sandarśitādhvā
 
-*evam*—assim; *rājā*—o Rei Dhṛtarāṣṭra; *vidureṇa anujena*—por seu irmão mais novo Vidura; *prajñā*—conhecimento introspectivo; *cakṣuḥ*—olhos; *bodhitaḥ*—sendo compreendido; *ājamīḍhaḥ*—Dhṛtarāṣṭra, descendente da família de Ajamīḍha; *chittvā*—ao romper; *sveṣu*—em relação aos parentes; *sneha-pāśān*—a forte rede de afeto; *draḍhimnaḥ*—por causa da firmeza; *niścakrāma*—saiu; *bhrātṛ*—pelo irmão; *sandarśita*—direção para; *adhvā*—o caminho da liberação.
+*evam*—assim; *rājā*—o Rei Dhṛtarāṣṭra; *vidureṇa anujena*—por seu irmão mais novo Vidura; *prajñā*—conhecimento introspectivo; *cakṣuḥ*—olhos; *bodhitaḥ*—sendo compreendido; *ājamīḍhaḥ*—Dhṛtarāṣṭra, descendente da família de Ajamīḍha; *chittvā*—ao romper; *sveṣu*—em relação aos parentes; *sneha-pāśān*—a forte rede de afeto; *draḍhimnaḥ*—por causa da firmeza; *niścakrāma*—saiu; *bhrātṛ*—irmão; *sandarśita*—direção para; *adhvā*—o caminho da liberação.
 
 **Assim, Mahārāja Dhṛtarāṣṭra, descendente da família de Ajamīḍha, firmemente convencido pelo conhecimento introspectivo [prajñā], rompeu de imediato a forte rede do afeto familiar por sua resoluta determinação. Dessa maneira, ele imediatamente deixou o lar para tomar a senda da liberação, como o orientara seu irmão mais novo, Vidura.**
 

@@ -11,7 +11,7 @@ rājñāghaṁ prāpitaṁ tātaṁ
 
 śrutvā tatredam abravīt
 
-*tasya*—seu (do sábio); *putraḥ*—filho; *ati*—extremamente; *tejasvī*—poderoso; *viharan*—enquanto brincava; *bālakaḥ*—com meninos; *arbhakaiḥ*—que eram todos imaturos; *rājñā*—pelo Rei; *agham*—sofrimento; *prāpitam*—causado; *tātam*—ao pai; *śrutvā*—ao ouvir; *tatra*—naquele momento; *idam*—isto; *abravīt*—disse.
+*tasya*—seu (do sábio); *putraḥ*—filho; *ati*—extremamente; *tejasvī*—poderoso; *viharan*—enquanto brincava; *bālakaḥ*—com meninos; *arbhakaiḥ*—que eram todos imaturos; *rājñā*—pelo Rei; *agham*—sofrimento; *prāpitam*—causado; *tātam*—ao pai; *śrutvā*—ao ouvir; *tatra*—naquele momento; *idam*—todos estes; *abravīt*—disse.
 
 **O sábio tinha um filho muito poderoso, por ser filho de *brāhmaṇa*. Enquanto brincava com meninos imaturos, ele soube do sofrimento causado ao pai pelo Rei. Naquele mesmo momento, o menino falou o seguinte.**
 

@@ -8,7 +8,7 @@
 > guṇa-karmāśrayāḥ pumbhiḥ\
 > saṁsevyās tā bubhūṣubhiḥ
 
-*yāḥ*—cualquier cosa que; *yāḥ*—y todo lo que; *kathāḥ*—relatos; *bhagavataḥ*—acerca de la Personalidad de Dios; *kathanīya*—habían de ser hablados por mí; *uru-karmaṇaḥ*—de Aquel que actúa de un modo maravilloso; *guṇa*—cualidades trascendentales; *karma*—actos poco comunes; *āśrayāḥ*—que involucran; *pumbhiḥ*—por personas; *saṁsevyāḥ*—deben ser oídos; *tāḥ*—todos ellos; *bubhūṣubhiḥ*—por aquellos que quieren su propio bien.
+*yāḥ*—cualquier cosa que; *yāḥ*—y todo lo que; *kathāḥ*—relatos; *bhagavataḥ*—acerca de la Personalidad de Dios; *kathanīya*—habían de ser hablados por mí; *uru-karmaṇaḥ*—de Aquel que actúa de un modo maravilloso; *guṇa*—cualidades trascendentales; *karma*—actos poco comunes; *āśrayāḥ*—que involucran; *pumbhiḥ*—por personas; *saṁsevyāḥ*—deben ser oídos por; *tāḥ*—todos ellos; *bubhūṣubhiḥ*—por aquellos que quieren su propio bien.
 
 **Aquellos que están deseosos de alcanzar la total perfección de la vida, deben oír sumisamente todos los relatos que están relacionados con las trascendentales actividades y cualidades de la Personalidad de Dios, quien actúa de un modo maravilloso.**
 

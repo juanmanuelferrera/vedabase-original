@@ -11,7 +11,7 @@ kathaṁ tv anāthāḥ kṛpaṇā
 
 varteraṁs te ca māṁ vinā
 
-*tasmāt*—portanto; *jahi*—abandona; *aṅga*—ó rei; *vaiklavyam*—disparidade mental; *ajñāna*—ignorância; *kṛtam*—devida a; *ātmanaḥ*—de ti mesmo; *katham*—como; *tu*—mas; *anāthāḥ*—desamparados; *kṛpaṇāḥ*—pobres criaturas; *varteran*—serão capazes de sobreviver; *te*—eles; *ca*—também; *mām*—a mim; *vinā*—sem.
+*tasmāt*—portanto; *jahi*—abandona; *aṅga*—ó rei; *vaiklavyam*—disparidade da mente; *ajñāna*—ignorância; *kṛtam*—devida a; *ātmanaḥ*—de ti mesmo; *katham*—como; *tu*—mas; *anāthāḥ*—desamparados; *kṛpaṇāḥ*—pobres criaturas; *varteran*—serão capazes de sobreviver; *te*—eles; *ca*—também; *mām*—a mim; *vinā*—sem.
 
 **Portanto, abandona a tua ansiedade devida à ignorância do eu. Estás agora pensando em como eles, que são pobres criaturas desamparadas, existirão sem ti.**
 

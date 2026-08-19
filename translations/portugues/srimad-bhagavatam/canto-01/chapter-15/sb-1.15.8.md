@@ -11,7 +11,7 @@
 
 digbhyo 'haran nṛpatayo balim adhvare te
 
-*yat*—cuja; *sannidhau*—estando próximo; *aham*—eu mesmo; *u*—nota de espanto; *khāṇḍavam*—a floresta protegida de Indra, rei do céu; *agnaye*—ao deus do fogo; *adām*—entreguei; *indram*—Indra; *ca*—também; *sa*—junto com; *amara-gaṇam*—os semideuses; *tarasā*—com toda destreza; *vijitya*—tendo conquistado; *labdhā*—tendo obtido; *sabhā*—casa de assembleia; *maya-kṛtā*—construída por Maya; *adbhuta*—muito maravilhosa; *śilpa*—arte e artesanato; *māyā*—potência; *digbhyaḥ*—de todas as direções; *aharan*—coletaram; *nṛpatayaḥ*—todos os príncipes; *balim*—presentes; *adhvare*—trouxeram; *te*—seus.
+*yat*—cuja; *sannidhau*—estando próximo; *aham*—eu mesmo; *u*—nota de espanto; *khāṇḍavam*—a floresta protegida de Indra, rei do céu; *agnaye*—ao deus do fogo; *adām*—entreguei; *indram*—Indra; *ca*—também; *sa*—junto com; *amara-gaṇam*—os semideuses; *tarasā*—com toda destreza; *vijitya*—tendo conquistado; *labdhā*—tendo obtido; *sabhā*—casa de assembleia; *maya-kṛtā*—construída por Maya; *adbhuta*—muito maravilhosa; *śilpa*—arte e artesanato; *māyā*—potência; *digbhyaḥ*—de todas as direções; *aharan*—coletando; *nṛpatayaḥ*—todos os príncipes; *balim*—presentes; *adhvare*—trouxeram; *te*—a ti.
 
 **Por estar Ele perto de mim, foi-me possível conquistar com grande destreza o poderoso rei do céu, Indradeva, juntamente com seus associados semideuses, e, assim, permitir que o deus do fogo devastasse a floresta Khāṇḍava. E somente por Sua graça, o demônio chamado Maya foi salvo da ardente floresta Khāṇḍava, e, dessa forma, pudemos construir nosso salão de assembleias, de maravilhosa obra arquitetônica, onde todos os príncipes se reuniram durante a realização do Rājasūya yajña e te prestaram tributos.**
 
