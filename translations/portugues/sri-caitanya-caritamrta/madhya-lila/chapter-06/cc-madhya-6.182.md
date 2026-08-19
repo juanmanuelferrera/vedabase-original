@@ -8,7 +8,7 @@ pracchannaṁ bauddham ucyate
 mayaiva vihitaṁ devi
 kalau brāhmaṇa-mūrtinā
 
-*māyāvādam*—a filosofia māyāvāda; *asat-śāstram*—escrituras falsas; *pracchannam*—encoberto; *bauddham*—budismo; *ucyate*—diz-se; *mayā*—por mim; *eva*—apenas; *vihitam*—ensinado; *devi*—ó deusa do mundo material; *kalau*—na Era de Kali; *brāhmaṇa-mūrtinā*—tendo o corpo de um brāhmaṇa.
+*māyāvādam*—a filosofia māyāvāda; *asat-śāstram*—escrituras falsas; *pracchannam*—encoberto; *bauddham*—budismo; *ucyate*—diz-se; *mayā*—por mim; *eva*—apenas; *vihitam*—executada; *devi*—ó deusa do mundo material; *kalau*—na Era de Kali; *brāhmaṇa-mūrtinā*—tendo o corpo de um brāhmaṇa.
 
 **"[O Senhor Śiva informou à Deusa Durgā, a superintendente do mundo material:] 'Na Era de Kali, assumo a forma de um brāhmaṇa e explico os Vedas através de escrituras falsas de maneira ateísta, semelhante à filosofia budista.' "**
 

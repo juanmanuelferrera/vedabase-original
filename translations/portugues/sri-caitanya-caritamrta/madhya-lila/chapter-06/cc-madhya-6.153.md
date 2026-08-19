@@ -7,7 +7,7 @@ svābhāvika tina śakti yei brahme haya
 
 'niḥśaktika' kari' tāṅre karaha niścaya?
 
-*svābhāvika*—por natureza; *tina*—três; *śakti*—potências; *yei*—que; *brahme*—na Verdade Absoluta; *haya*—há; *niḥśaktika*—sem potência; *kari'*—tornando; *tāṅre*—a Ele; *karaha*—fazes; *niścaya*—prova.
+*svābhāvika*—por natureza; *tina*—três; *śakti*—potências; *yei*—que; *brahme*—na Verdade Absoluta; *haya*—há; *niḥśaktika*—sem potência; *kari'*—tornando; *tāṅre*—a Ele; *karaha*—fazes; *niścaya*—determinação.
 
 **"A Suprema Personalidade de Deus possui três potências primárias. Está tentando afirmar que Ele não tem potências?**
 

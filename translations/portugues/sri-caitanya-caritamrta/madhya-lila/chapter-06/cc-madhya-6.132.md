@@ -6,7 +6,7 @@
 sūtrera mukhya artha nā karaha vyākhyāna
 kalpanārthe tumi tāhā kara ācchādana
 
-*sūtrera*—dos sūtras; *mukhya*—direto; *artha*—dos significados; *nā*—não; *karaha*—fazes; *vyākhyāna*—explicação; *kalpanā-arthe*—devido ao significado imaginativo; *tumi*—tu; *tāhā*—disso; *kara*—fazes; *ācchādana*—encobrimento.
+*sūtrera*—dos versos; *mukhya*—direto; *artha*—dos significados; *nā*—não; *karaha*—fazes; *vyākhyāna*—explicação; *kalpanā-arthe*—devido ao significado imaginativo; *tumi*—tu; *tāhā*—disso; *kara*—fazes; *ācchādana*—encobrimento.
 
 **"Tu não explicas o significado direto dos Brahma-sūtras. De fato, parece que teu intuito é encobrir o verdadeiro significado deles."**
 

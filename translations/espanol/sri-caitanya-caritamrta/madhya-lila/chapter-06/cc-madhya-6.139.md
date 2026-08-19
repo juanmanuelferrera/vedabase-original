@@ -6,7 +6,7 @@
 > veda-purāṇe kahe brahma-nirūpaṇa\
 > sei brahma--bṛhad-vastu, īśvara-lakṣaṇa
 
-*veda-purāṇe*—en los Vedas y los Purāṇas; *kahe*—se afirma; *brahma-nirūpaṇa*—explicación del Supremo; *sei brahma*—ese Supremo; *bṛhat-vastu*—lo más grande; *īśvara-lakṣaṇa*—rasgo de la Personalidad Suprema.
+*veda-purāṇe*—en los Vedas y los Purāṇas; *kahe*—se afirma; *brahma-nirūpaṇa*—determinación del Supremo; *sei brahma*—ese Supremo; *bṛhat-vastu*—lo más grande; *īśvara-lakṣaṇa*—rasgo de la Personalidad Suprema.
 
 **«Todos los *Vedas* y la literatura que sigue estrictamente los principios Védicos explican que el Brahman Supremo es la Verdad Absoluta, lo más grande de todo, y un aspecto del Señor Supremo.»**
 
