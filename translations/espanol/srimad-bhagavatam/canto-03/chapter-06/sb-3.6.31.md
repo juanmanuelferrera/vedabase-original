@@ -8,7 +8,7 @@
 > yo jātas trāyate varṇān\
 > pauruṣaḥ kaṇṭaka-kṣatāt
 
-*bāhubhyaḥ*—de los brazos; *avartata*—generada; *kṣatram*—la capacidad de protección; *kṣatriyaḥ*—en relación con la capacidad de protección; *tat*—eso; *anuvrataḥ*—seguidores; *yaḥ*—aquel que; *jātaḥ*—se vuelve así; *trāyate*—libera; *varṇān*—las otras ocupaciones; *pauruṣaḥ*—representante de la Personalidad de Dios; *kaṇṭaka*—de elementos perturbadores, como ladrones y libertinos; *kṣatāt*—del perjuicio.
+*bāhubhyaḥ*—de los brazos; *avartata*—generada; *kṣatram*—la capacidad de protección; *kṣatriyaḥ*—en relación con la capacidad de protección; *tat*—eso; *anuvrataḥ*—seguidores; *yaḥ*—aquel que; *jātaḥ*—se vuelve así; *trāyate*—libera; *varṇān*—las otras ocupaciones; *pauruṣaḥ*—representante de la Personalidad de Dios; *kaṇṭaka*—elementos perturbadores, como ladrones y libertinos; *kṣatāt*—perjuicio.
 
 **Después, la capacidad de protección se generó de los brazos de la gigantesca forma virāṭ, y, en relación con esa capacidad, los kṣatriyas también comenzaron a existir mediante la prosecución del principio kṣatriya de proteger a la sociedad de la perturbación causada por ladrones y malvados.**
 

@@ -8,7 +8,7 @@
 > kiṁ vā punas tac-caraṇāravinda-\
 > parāga-sevā-ratir ātma-labdhā
 
-*aśeṣa*—ilimitadas; *saṅkleśa*—condiciones miserables; *śamam*—cese; *vidhatte*—puede realizar; *guṇa-anuvāda*—de los trascendentales nombres, pasatiempos, séquito y enseres, etc.; *śravaṇam*—oyendo y cantando; *murāreḥ*—de Murāri (Śrī Kṛṣṇa), la Personalidad de Dios; *kim vā*—qué decir de; *punaḥ*—otra vez; *tat*—Sus; *caraṇa-aravinda*—pies de loto; *parāga-sevā*—al servicio del aromático polvo; *ratiḥ*—atracción; *ātma-labdhā*—aquellos que han conseguido semejante logro personal.
+*aśeṣa*—ilimitadas; *saṅkleśa*—condiciones miserables; *śamam*—cese; *vidhatte*—puede realizar; *guṇa-anuvāda*—de los trascendentales nombres, pasatiempos, séquito y enseres, etc.; *śravaṇam*—oyendo y cantando; *murāreḥ*—de Murāri (Śrī Kṛṣṇa), la Personalidad de Dios; *kim vā*—qué decir de; *punaḥ*—otra vez; *tat*—Sus; *caraṇa-aravinda*—pies de loto; *parāga-sevā*—al servicio del polvo del aroma; *ratiḥ*—atracción; *ātma-labdhā*—aquellos que han conseguido semejante logro personal.
 
 **Simplemente por cantar y oír acerca del nombre trascendental, la forma trascendental, etc., de la Personalidad de Dios, Śrī Kṛṣṇa, uno puede lograr el cese de una ilimitada cantidad de condiciones miserables. Por lo tanto, ¿qué decir de aquellos que han logrado tener la atracción de ofrecer servicio al aroma del polvo de los pies de loto del Señor?**
 

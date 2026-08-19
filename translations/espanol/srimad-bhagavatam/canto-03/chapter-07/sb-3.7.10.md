@@ -8,7 +8,7 @@
 > pratīyata upadraṣṭuḥ\
 > sva-śiraś chedanādikaḥ
 
-*yat*—así pues; *arthena*—un propósito o significado; *vinā*—sin; *amuṣya*—de alguien así; *puṁsaḥ*—de la entidad viviente; *ātma-viparyayaḥ*—afligida por la identidad del ser; *pratīyate*—así parecen; *upadraṣṭuḥ*—del espectador superficial; *sva-śiraḥ*—su propia cabeza; *chedana-ādikaḥ*—cortando.
+*yat*—así pues; *arthena*—por propósito o significado; *vinā*—sin; *amuṣya*—de alguien así; *puṁsaḥ*—de la entidad viviente; *ātma-viparyayaḥ*—afligida por la identidad del ser; *pratīyate*—así parecen; *upadraṣṭuḥ*—del espectador superficial; *sva-śiraḥ*—su propia cabeza; *chedana-ādikaḥ*—cortando.
 
 **La entidad viviente está acongojada en relación con la identidad de su ser. No tiene ninguna base real, como un hombre que en un sueño ve que le cortan la cabeza.**
 

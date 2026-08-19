@@ -8,7 +8,7 @@
 > bhagavad-bhakti-yogena\
 > tirodhatte śanair iha
 
-*saḥ*—eso; *vai*—también; *nivṛtti*—desapego; *dharmeṇa*—por ocuparse; *vāsudeva*—la Suprema Personalidad de Dios; *anukampayā*—por la misericordia de; *bhagavat*—en relación con la Personalidad de Dios; *bhakti-yogena*—por vincularse; *tirodhatte*—disminuye; *śanaiḥ*—gradualmente; *iha*—en esta existencia.
+*saḥ*—eso; *vai*—también; *nivṛtti*—desapego; *dharmeṇa*—por ocuparse; *vāsudeva*—la Suprema Personalidad de Dios; *anukampayā*—por la misericordia de; *bhagavat*—en relación con la Personalidad de Dios; *bhakti-yogena*—por vincularse; *tirodhatte*—disminuye gradualmente; *śanaiḥ*—gradualmente; *iha*—en esta existencia.
 
 **Pero ese erróneo concepto de la identidad del ser puede disminuirse gradualmente por la misericordia de la Personalidad de Dios, Vāsudeva, a través del proceso del servicio devocional al Señor bajo la modalidad del desapego.**
 

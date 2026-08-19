@@ -11,7 +11,7 @@ yathobhayeṣāṁ ta ime hi lokā
 
 baliṁ haranto 'nnam adanty anūhāḥ
 
-*yāvat*—na medida em que; *balim*—oferendas; *te*—Suas; *aja*—ó não nascido; *harāma*—ofereceremos; *kāle*—no momento certo; *yathā*—na medida em que; *vayam*—nós; *ca*—também; *annam*—grãos alimentícios; *adāma*—partilharemos; *yatra*—donde; *yathā*—na medida em que; *ubhayeṣām*—tanto para Vós como para nós; *te*—todos; *ime*—estes; *hi*—certamente; *lokāḥ*—entidades vivas; *balim*—oferendas; *harantaḥ*—enquanto oferecem; *annam*—grãos; *adanti*—comem; *anūhāḥ*—sem perturbação.
+*yāvat*—na medida em que; *balim*—oferendas; *te*—Suas; *aja*—ó não nascido; *harāma*—ofereceremos; *kāle*—no momento certo; *yathā*—na medida em que; *vayam*—nós; *ca*—também; *annam*—grãos alimentícios; *adāma*—partilharemos; *yatra*—donde; *yathā*—na medida em que; *ubhayeṣām*—tanto para Vós como para nós; *te*—todos; *ime*—estas entidades vivas; *hi*—certamente; *lokāḥ*—entidades vivas; *balim*—oferendas; *harantaḥ*—enquanto oferecem; *annam*—grãos; *adanti*—comem; *anūhāḥ*—sem perturbação.
 
 **Ó não nascido, por favor ilumine-nos quanto aos meios pelos quais podemos oferecer-Vos todos os grãos e artigos agradáveis, para que tanto nós como todas as demais entidades vivas neste mundo possamos manter-nos sem perturbação e facilmente acumular o necessário para a vida, tanto para Vós quanto para nós mesmos.**
 

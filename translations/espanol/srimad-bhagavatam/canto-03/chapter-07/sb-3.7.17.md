@@ -8,7 +8,7 @@
 > tāv ubhau sukham edhete\
 > kliśyaty antarito janaḥ
 
-*yaḥ*—aquel que es; *ca*—también; *mūḍha-tamaḥ*—el más bajo de los necios; *loke*—en el mundo; *yaḥ ca*—y aquel que es; *buddheḥ*—de inteligencia; *param*—trascendental; *gataḥ*—ido; *tau*—de ellos; *ubhau*—ambos; *sukham*—felicidad; *edhete*—disfrutan; *kliśyati*—sufren; *antaritaḥ*—situadas entre; *janaḥ*—personas.
+*yaḥ*—aquel que es; *ca*—también; *mūḍha-tamaḥ*—el más bajo de los necios; *loke*—en el mundo; *yaḥ ca*—y aquel que es; *buddheḥ*—de inteligencia; *param*—trascendental; *gataḥ*—ido; *tau*—todos ellos; *ubhau*—ambos; *sukham*—felicidad; *edhete*—disfrutan; *kliśyati*—sufren; *antaritaḥ*—el término medio; *janaḥ*—personas.
 
 **Tanto el más bajo de los necios como aquel que es trascendental a toda inteligencia disfrutan de felicidad, mientras que las personas que se encuentran entre ambos sufren los tormentos materiales.**
 

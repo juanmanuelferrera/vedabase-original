@@ -8,7 +8,7 @@
 > ubhayor antaraṁ vyoma\
 > ye rudra-pārṣadāṁ gaṇāḥ
 
-*tārtīyena*—por el excesivo desarrollo de la tercera modalidad de la naturaleza, la modalidad de la ignorancia; *svabhāvena*—por semejante naturaleza; *bhagavat-nābhim*—el ombligo abdominal de la gigantesca forma de la Personalidad de Dios; *āśritāḥ*—aquellos que están situados así; *ubhayoḥ*—entre los dos; *antaram*—en el medio de; *vyoma*—el cielo; *ye*—todos los cuales; *rudra-pārṣadām*—acompañantes de Rudra; *gaṇāḥ*—población.
+*tārtīyena*—por el excesivo desarrollo de la tercera modalidad de la naturaleza, la modalidad de la ignorancia; *svabhāvena*—por semejante naturaleza; *bhagavat-nābhim*—el ombligo abdominal de la gigantesca forma de la Personalidad de Dios; *āśritāḥ*—aquellos que están situados así; *ubhayoḥ*—entre los dos; *antaram*—en el medio de; *vyoma*—el cielo; *ye*—todos ellos; *rudra-pārṣadām*—acompañantes de Rudra; *gaṇāḥ*—población.
 
 **Las entidades vivientes que acompañan a Rudra se desarrollan en la tercera modalidad de la naturaleza material, la ignorancia. Están situados en el cielo que está entre los planetas terrenales y los planetas celestiales.**
 

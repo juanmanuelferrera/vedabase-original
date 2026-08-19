@@ -8,7 +8,7 @@
 > bhinnaṁ saṁyojayām āsa\
 > suptaṁ karma prabodhayan
 
-*saḥ*—eso; *anupraviṣṭaḥ*—así, entrando luego; *bhagavān*—la Personalidad de Dios; *ceṣṭā-rūpeṇa*—mediante la representación de Su intento, Kālī; *tam*—ellas; *gaṇam*—todas las entidades vivientes, incluyendo a los semidioses; *bhinnam*—separadamente; *saṁyojayām āsa*—puestas a trabajar; *suptam*—durmiendo; *karma*—trabajo; *prabodhayan*—iluminando.
+*saḥ*—eso; *anupraviṣṭaḥ*—así, entrando luego; *bhagavān*—la Personalidad de Dios; *ceṣṭā-rūpeṇa*—mediante la representación de Su intento, Kālī; *tam*—ellas; *gaṇam*—todas las entidades vivientes, incluyendo a los semidioses; *bhinnam*—separadamente; *saṁyojayām āsa*—puestas a trabajar; *suptam*—durmiendo; *karma*—trabajo; *prabodhayan*—iluminación.
 
 **Así pues, cuando la Personalidad de Dios entró en los elementos mediante Su energía, todas las entidades vivientes fueron animadas para la ejecución de diferentes actividades, de la misma manera en que uno se dedica a su trabajo después de que se despierta.**
 

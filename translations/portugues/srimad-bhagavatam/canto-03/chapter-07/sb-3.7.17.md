@@ -11,7 +11,7 @@ tāv ubhau sukham edhete
 
 kliśyaty antarito janaḥ
 
-*yaḥ*—aquele que é; *ca*—também; *mūḍha-tamaḥ*—o mais tolo dos tolos; *loke*—no mundo; *yaḥ ca*—e aquele que é; *buddheḥ*—da inteligência; *param*—transcendental; *gataḥ*—que alcançou; *tau*—deles; *ubhau*—ambos; *sukham*—felicidade; *edhete*—desfrutam; *kliśyati*—sofrem; *antaritaḥ*—situados entre; *janaḥ*—pessoas.
+*yaḥ*—aquele que é; *ca*—também; *mūḍha-tamaḥ*—o mais tolo dos tolos; *loke*—no mundo; *yaḥ ca*—e aquele que é; *buddheḥ*—da inteligência; *param*—transcendental; *gataḥ*—que alcançou; *tau*—todos eles; *ubhau*—ambos; *sukham*—felicidade; *edhete*—desfrutam; *kliśyati*—sofrem; *antaritaḥ*—o meio-termo; *janaḥ*—pessoas.
 
 **Tanto o mais tolo dos tolos quanto aquele que é transcendental a toda inteligência desfrutam de felicidade, ao passo que as pessoas situadas entre eles sofrem as dores materiais.**
 

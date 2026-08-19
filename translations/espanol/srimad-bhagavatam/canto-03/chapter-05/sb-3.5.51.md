@@ -8,7 +8,7 @@
 > tvaṁ naḥ sva-cakṣuḥ paridehi śaktyā\
 > deva kriyārthe yad-anugrahāṇām
 
-*tataḥ*—por lo tanto; *vayam*—todos nosotros; *mat-pramukhāḥ*—proveniente de la totalidad del cosmos, el *mahat-tattva*; *yat-arthe*—por el propósito del cual; *babhūvima*—creados; *ātman*—¡oh, Ser Supremo!; *karavāma*—haremos; *kim*—qué; *te*—Tu servicio; *tvam*—Tú mismo; *naḥ*—a nosotros; *sva-cakṣuḥ*—plan personal; *paridehi*—concédenos específicamente; *śaktyā*—con potencia para trabajar; *deva*—¡oh, Señor!; *kriyā-arthe*—para actuar; *yat*—de lo cual; *anugrahāṇām*—de aquellos que son favorecidos específicamente.
+*tataḥ*—por lo tanto; *vayam*—todos nosotros; *mat-pramukhāḥ*—proveniente de la totalidad del cosmos, el *mahat-tattva*; *yat-arthe*—por el propósito del cual; *babhūvima*—creados; *ātman*—el ser; *karavāma*—haremos; *kim*—qué; *te*—Tu servicio; *tvam*—Tú mismo; *naḥ*—a nosotros; *sva-cakṣuḥ*—plan personal; *paridehi*—concédenos específicamente; *śaktyā*—con potencia para trabajar; *deva*—¡oh, Señor!; *kriyā-arthe*—para actuar; *yat*—aquello que; *anugrahāṇām*—de aquellos que son favorecidos específicamente.
 
 **¡Oh, Ser Supremo! Dígnate darnos Tus amables instrucciones de cómo hemos de actuar, a nosotros, que somos creados al comienzo a partir del mahat-tattva, la energía cósmica total. Ten la bondad de conferirnos Tu potencia y conocimiento perfectos, de manera que podamos ofrecerte servicio en los diferentes departamentos de la creación subsiguiente.**
 

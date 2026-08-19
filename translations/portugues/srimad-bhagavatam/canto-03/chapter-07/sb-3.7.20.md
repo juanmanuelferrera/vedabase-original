@@ -11,7 +11,7 @@ yatropagīyate nityaṁ
 
 *deva*-devo janārdanaḥ
 
-*durāpā*—raramente obtenível; *hi*—certamente; *alpa-tapasaḥ*—daquele cuja austeridade é escassa; *sevā*—serviço; *vaikuṇṭha*—o reino transcendental de Deus; *vartmasu*—no caminho de; *yatra*—onde; *upagīyate*—é glorificado; *nityam*—sempre; *deva*—dos semideuses; *devaḥ*—o Senhor; *jana-ardanaḥ*—o controlador das entidades vivas.
+*durāpā*—raramente obtenível; *hi*—certamente; *alpa-tapasaḥ*—daquele cuja austeridade é escassa; *sevā*—serviço; *vaikuṇṭha*—o reino transcendental de Deus; *vartmasu*—no caminho de; *yatra*—onde; *upagīyate*—é glorificado; *nityam*—sempre; *deva*—Senhor; *devaḥ*—dos semideuses; *jana-ardanaḥ*—o controlador das entidades vivas.
 
 **As pessoas cuja austeridade é escassa dificilmente obtêm o serviço dos devotos puros que progridem no caminho de volta ao reino de Deus, as Vaikuṇṭhas. Os devotos puros se engajam cem por cento em glorificar o Senhor Supremo, que é o Senhor dos semideuses e o controlador de todas as entidades vivas.**
 

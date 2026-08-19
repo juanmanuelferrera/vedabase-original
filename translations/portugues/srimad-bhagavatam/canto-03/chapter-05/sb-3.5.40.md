@@ -11,7 +11,7 @@ dhātar yad asmin bhava īśa jīvās
 
 *cchāyāṁ sa*-vidyām ata āśrayema
 
-*dhātaḥ*—ó pai; *yat*—porque; *asmin*—neste; *bhave*—mundo material; *īśa*—ó Senhor; *jīvāḥ*—as entidades vivas; *tāpa*—misérias; *trayeṇa*—pelas três; *abhihatāḥ*—sempre perturbadas; *na*—nunca; *śarma*—na felicidade; *ātman*—eu; *labhante*—alcançam; *bhagavan*—ó Personalidade de Deus; *tava*—Seus; *aṅghri-chāyām*—sombra de Seus pés; *sa-vidyām*—plena de conhecimento; *ataḥ*—obter; *āśrayema*—refúgio.
+*dhātaḥ*—ó pai; *yat*—porque; *asmin*—neste; *bhave*—mundo material; *īśa*—ó Senhor; *jīvāḥ*—as entidades vivas; *tāpa*—misérias; *trayeṇa*—pelas três; *abhihatāḥ*—sempre perturbadas; *na*—nunca; *śarma*—na felicidade; *ātman*—eu; *labhante*—alcançam; *bhagavan*—Personalidade de Deus; *tava*—Seus; *aṅghri-chāyām*—sombra de Seus pés; *sa-vidyām*—plena de conhecimento; *ataḥ*—obter; *āśrayema*—refúgio.
 
 **Ó Pai, ó Senhor, ó Personalidade de Deus, as entidades vivas no mundo material nunca podem ter nenhuma felicidade porque estão sobrecarregadas pelos três tipos de misérias. Por isso, abrigam-se sob a sombra de Seus pés de lótus, que são plenos de conhecimento, e assim também nós nos abrigamos sob eles.**
 

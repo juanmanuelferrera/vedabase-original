@@ -11,7 +11,7 @@ ubhayor antaraṁ vyoma
 
 *ye rudra*-pārṣadāṁ gaṇāḥ
 
-*tārtīyena*—pelo desenvolvimento excessivo do terceiro modo da natureza material, o modo da ignorância; *svabhāvena*—por tal natureza; *bhagavat-nābhim*—o abdômen do Senhor da forma gigantesca da Personalidade de Deus; *āśritāḥ*—aqueles que assim estão situados; *ubhayoḥ*—entre os dois; *antaram*—no meio; *vyoma*—o céu; *ye*—todos os quais; *rudra-pārṣadām*—associados de Rudra; *gaṇāḥ*—população.
+*tārtīyena*—pelo desenvolvimento excessivo do terceiro modo da natureza material, o modo da ignorância; *svabhāvena*—por tal natureza; *bhagavat-nābhim*—o abdômen do Senhor da forma gigantesca da Personalidade de Deus; *āśritāḥ*—aqueles que assim estão situados; *ubhayoḥ*—entre os dois; *antaram*—no meio; *vyoma*—o céu; *ye*—todos eles; *rudra-pārṣadām*—associados de Rudra; *gaṇāḥ*—população.
 
 **Entidades vivas que são associados de Rudra desenvolvem-se no terceiro modo da natureza material, ou ignorância. Estão situadas no céu entre os planetas terrestres e celestiais.**
 

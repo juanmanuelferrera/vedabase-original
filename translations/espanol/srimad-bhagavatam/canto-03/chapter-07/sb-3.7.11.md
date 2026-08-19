@@ -8,7 +8,7 @@
 > dṛśyate 'sann api draṣṭur\
 > ātmano 'nātmano guṇaḥ
 
-*yathā*—como; *jale*—en el agua; *candramasaḥ*—de la Luna; *kampa-ādiḥ*—estremeciéndose, etc.; *tat-kṛtaḥ*—hecho por el agua; *guṇaḥ*—cualidad; *dṛśyate*—se ve así; *asan api*—sin existencia; *draṣṭuḥ*—del observador; *ātmanaḥ*—del ser; *anātmanaḥ*—de otro que no sea el ser; *guṇaḥ*—cualidad.
+*yathā*—como; *jale*—en el agua; *candramasaḥ*—de la Luna; *kampa-ādiḥ*—estremecimiento.; *tat-kṛtaḥ*—hecho por el agua; *guṇaḥ*—cualidad; *dṛśyate*—se ve así; *asan api*—sin existencia; *draṣṭuḥ*—del observador; *ātmanaḥ*—del ser; *anātmanaḥ*—de otro que no sea el ser; *guṇaḥ*—cualidad.
 
 **Así como a un observador le parece que la Luna tiembla cuando se refleja en el agua, pues está en contacto con la cualidad del agua, así mismo, cuando el ser entra en contacto con la materia, parece adquirir las cualidades de la materia.**
 

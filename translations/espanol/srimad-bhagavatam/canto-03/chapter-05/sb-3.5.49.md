@@ -8,7 +8,7 @@
 > yathobhayeṣāṁ ta ime hi lokā\
 > baliṁ haranto 'nnam adanty anūhāḥ
 
-*yāvat*—como sea; *balim*—ofrendas; *te*—Tu; *aja*—¡oh, innaciente!; *harāma*—ofreceremos; *kāle*—en el momento apropiado; *yathā*—tanto como; *vayam*—nosotros; *ca*—también; *annam*—granos alimenticios; *adāma*—comeremos; *yatra*—con lo cual; *yathā*—tanto como; *ubhayeṣām*—tanto para Ti como para nosotros; *te*—todas; *ime*—estas; *hi*—ciertamente; *lokāḥ*—entidades vivientes; *balim*—ofrendas; *harantaḥ*—mientras se ofrecen; *annam*—granos; *adanti*—comen; *anūhāḥ*—sin perturbación.
+*yāvat*—como sea; *balim*—ofrendas; *te*—Tu; *aja*—¡oh, innaciente!; *harāma*—ofreceremos; *kāle*—en el momento apropiado; *yathā*—tanto como; *vayam*—nosotros; *ca*—también; *annam*—granos alimenticios; *adāma*—comeremos; *yatra*—con lo cual; *yathā*—tanto como; *ubhayeṣām*—tanto para Ti como para nosotros; *te*—todas; *ime*—estas entidades vivientes; *hi*—ciertamente; *lokāḥ*—entidades vivientes; *balim*—ofrendas; *harantaḥ*—mientras se ofrecen; *annam*—granos; *adanti*—comen; *anūhāḥ*—sin perturbación.
 
 **¡Oh, Tú, el innaciente! Por favor, ilumínanos en relación con las formas y medios mediante los cuales podemos ofrecerte toda clase de agradables granos y productos, de manera que tanto nosotros como todas las demás entidades vivientes de este mundo podamos mantenernos sin perturbación, y acumular fácilmente las cosas necesarias en la vida, tanto para Ti como para nosotros.**
 

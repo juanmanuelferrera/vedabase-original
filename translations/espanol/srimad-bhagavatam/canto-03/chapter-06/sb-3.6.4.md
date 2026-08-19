@@ -8,7 +8,7 @@
 > prerito 'janayat svābhir\
 > mātrābhir adhipūruṣam
 
-*prabuddha*—despertadas; *karmā*—actividades; *daivena*—por la voluntad del Supremo; *trayaḥ-viṁśatikaḥ*—por los veintitrés componentes principales; *gaṇaḥ*—la combinación; *preritaḥ*—inducida por; *ajanayat*—manifestada; *svābhiḥ*—mediante Su personal; *mātrābhiḥ*—expansión plenaria; *adhipūruṣam*—la gigantesca forma universal *(viśva-rūpa).*.
+*prabuddha*—despertadas; *karmā*—actividades; *daivena*—por la voluntad del Supremo; *trayaḥ-viṁśatikaḥ*—por los veintitrés componentes principales; *gaṇaḥ*—la combinación; *preritaḥ*—inducida por; *ajanayat*—manifestada; *svābhiḥ*—mediante Su personal; *mātrābhiḥ*—por expansión plenaria; *adhipūruṣam*—la gigantesca forma universal *(viśva-rūpa).*.
 
 **Cuando los veintitrés elementos principales fueron puestos en acción por la voluntad del Supremo, comenzó a existir la gigantesca forma universal, el cuerpo viśva-rūpa del Señor.**
 

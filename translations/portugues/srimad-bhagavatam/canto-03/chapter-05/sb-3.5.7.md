@@ -11,7 +11,7 @@ mano na tṛpyaty api śṛṇvatāṁ naḥ
 
 *suśloka*-mauleś caritāmṛtāni
 
-*krīḍan*—manifestando passatempos; *vidhatte*—Ele realiza; *dvija*—os que nasceram duas vezes; *go*—vacas; *surāṇām*—dos semideuses; *kṣemāya*—para o bem-estar; *karmāṇi*—atividades transcendentais; *avatāra*—encarnações; *bhedaiḥ*—de modo diferente; *manaḥ*—a mente; *na*—jamais; *tṛpyati*—se satisfaz; *api*—apesar de; *śṛṇvatām*—ouvindo continuamente; *naḥ*—nossa; *su-śloka*—auspicioso; *mauleḥ*—do Senhor; *carita*—características; *amṛtāni*—imortais.
+*krīḍan*—manifestando passatempos; *vidhatte*—Ele realiza; *dvija*—os que nasceram duas vezes; *go*—vaca; *surāṇām*—dos semideuses; *kṣemāya*—para o bem-estar; *karmāṇi*—atividades transcendentais; *avatāra*—encarnações; *bhedaiḥ*—de modo diferente; *manaḥ*—a mente; *na*—jamais; *tṛpyati*—se satisfaz; *api*—apesar de; *śṛṇvatām*—ouvindo continuamente; *naḥ*—nossa; *su-śloka*—auspicioso; *mauleḥ*—do Senhor; *carita*—características; *amṛtāni*—imortais.
 
 **Narre também sobre as características auspiciosas do Senhor em Suas diferentes encarnações para o bem-estar dos que nasceram duas vezes, das vacas e dos semideuses. Nossas mentes jamais se satisfazem por completo, embora ouçamos continuamente Suas atividades transcendentais.**
 

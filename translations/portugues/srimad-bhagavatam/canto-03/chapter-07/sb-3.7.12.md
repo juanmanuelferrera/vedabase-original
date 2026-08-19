@@ -11,7 +11,7 @@ vāsudevānukampayā
 
 tirodhatte śanair iha
 
-*saḥ*—esse; *vai*—também; *nivṛtti*—desapego; *dharmeṇa*—por ocupação; *vāsudeva*—a Suprema Personalidade de Deus; *anukampayā*—pela misericórdia de; *bhagavat*—em relação com a Personalidade de Deus; *bhakti-yogena*—por vincular-se; *tirodhatte*—diminui; *śanaiḥ*—gradualmente; *iha*—nesta existência.
+*saḥ*—esse; *vai*—também; *nivṛtti*—desapego; *dharmeṇa*—por ocupação; *vāsudeva*—a Suprema Personalidade de Deus; *anukampayā*—pela misericórdia de; *bhagavat*—em relação com a Personalidade de Deus; *bhakti-yogena*—por vincular-se; *tirodhatte*—diminui gradualmente; *śanaiḥ*—gradualmente; *iha*—nesta existência.
 
 **Mas essa concepção equivocada de autoidentidade pode ser gradualmente diminuída pela misericórdia da Personalidade de Deus, Vāsudeva, por meio do processo de serviço devocional ao Senhor no modo do desapego.**
 

@@ -11,7 +11,7 @@ babhūvimātman karavāma kiṁ te
 
 *deva kriyārthe yad*-anugrahāṇām
 
-*tataḥ*—portanto; *vayam*—todos nós; *mat-pramukhāḥ*—provindo do cosmos total, o mahat-tattva; *yat-arthe*—para o propósito de; *babhūvima*—criados; *ātman*—ó Eu Supremo; *karavāma*—faremos; *kim*—que; *te*—Vosso serviço; *tvam*—Vós mesmo; *naḥ*—a nós; *sva-cakṣuḥ*—plano pessoal; *paridehi*—concedei-nos especificamente; *śaktyā*—com potência para trabalhar; *deva*—ó Senhor; *kriyā-arthe*—para agir; *yat*—do qual; *anugrahāṇām*—daqueles que são especificamente favorecidos.
+*tataḥ*—portanto; *vayam*—todos nós; *mat-pramukhāḥ*—provindo do cosmos total, o mahat-tattva; *yat-arthe*—para o propósito de; *babhūvima*—criados; *ātman*—o eu; *karavāma*—faremos; *kim*—que; *te*—Vosso serviço; *tvam*—Vós mesmo; *naḥ*—a nós; *sva-cakṣuḥ*—plano pessoal; *paridehi*—concedei-nos especificamente; *śaktyā*—com potência para trabalhar; *deva*—ó Senhor; *kriyā-arthe*—para agir; *yat*—aquilo que; *anugrahāṇām*—daqueles que são especificamente favorecidos.
 
 ***Ó Eu Supremo, por favor, dai-nos, que fomos criados no início do mahat*-tattva, a energia cósmica total, as Suas bondosas orientações sobre como deveremos agir. Dignai-vos conceder-nos Vosso perfeito conhecimento e potência para que possamos prestar-Vos serviço nos diferentes departamentos da criação subsequente.**
 

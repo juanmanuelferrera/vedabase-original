@@ -8,7 +8,7 @@
 > ātman labhante bhagavaṁs tavāṅghri-\
 > cchāyāṁ sa-vidyām ata āśrayema
 
-*dhātaḥ*—¡oh, Padre!; *yat*—debido a; *asmin*—en este; *bhave*—mundo material; *īśa*—¡oh, Señor!; *jīvāḥ*—las entidades vivientes; *tāpa*—miserias; *trayeṇa*—por los tres; *abhihatāḥ*—siempre desconcertadas; *na*—nunca; *śarma*—con felicidad; *ātman*—el ser; *labhante*—obtienen; *bhagavan*—¡oh, Personalidad de Dios!; *tava*—Tu; *aṅghri-chāyām*—sombra de Tus pies; *sa-vidyām*—llenos de conocimiento; *ataḥ*—obtienen; *āśrayema*—refugio.
+*dhātaḥ*—¡oh, Padre!; *yat*—debido a; *asmin*—en este; *bhave*—mundo material; *īśa*—¡oh, Señor!; *jīvāḥ*—las entidades vivientes; *tāpa*—miserias; *trayeṇa*—por los tres; *abhihatāḥ*—siempre desconcertadas; *na*—nunca; *śarma*—con felicidad; *ātman*—el ser; *labhante*—obtienen; *bhagavan*—Personalidad de Dios; *tava*—Tu; *aṅghri-chāyām*—sombra de Tus pies; *sa-vidyām*—llenos de conocimiento; *ataḥ*—obtienen; *āśrayema*—refugio.
 
 **¡Oh, Padre! ¡Oh, Señor! ¡Oh, Personalidad de Dios! Las entidades vivientes que se encuentran en el mundo material nunca pueden tener felicidad alguna, debido a que están sobrecogidas por las tres clases de miserias. Por consiguiente, se refugian en la sombra de Tus pies de loto, los cuales están llenos de conocimiento, y nosotros también nos refugiamos así en ellos.**
 

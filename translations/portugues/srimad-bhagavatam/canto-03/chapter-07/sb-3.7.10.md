@@ -11,7 +11,7 @@ pratīyata upadraṣṭuḥ
 
 sva-śiraś chedanādikaḥ
 
-*yat*—assim; *arthena*—um propósito ou significado; *vinā*—sem; *amuṣya*—de tal; *puṁsaḥ*—da entidade viva; *ātma-viparyayaḥ*—perturbada quanto à autoidentificação; *pratīyate*—assim parece; *upadraṣṭuḥ*—do observador superficial; *sva-śiraḥ*—a própria cabeça; *chedana-ādikaḥ*—sendo cortada.
+*yat*—assim; *arthena*—por propósito ou significado; *vinā*—sem; *amuṣya*—de tal; *puṁsaḥ*—da entidade viva; *ātma-viparyayaḥ*—perturbada quanto à autoidentificação; *pratīyate*—assim parece; *upadraṣṭuḥ*—do observador superficial; *sva-śiraḥ*—a própria cabeça; *chedana-ādikaḥ*—sendo cortada.
 
 **A entidade viva está em angústia quanto à sua autoidentificação. Não tem base factual, como um homem que sonha ver sua cabeça cortada.**
 

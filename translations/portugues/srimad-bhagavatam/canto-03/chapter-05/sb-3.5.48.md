@@ -11,7 +11,7 @@ tvayānusṛṣṭās tribhir ātmabhiḥ sma
 
 na śaknumas tat pratihartave te
 
-*tat*—portanto; *te*—Seu; *vayam*—todos nós; *loka*—mundo; *sisṛkṣayā*—em prol da criação; *ādya*—ó Pessoa Original; *tvayā*—por Vós; *anusṛṣṭāḥ*—sendo criados um após outro; *tribhiḥ*—pelos três modos da natureza; *ātmabhiḥ*—pelo próprio; *sma*—no passado; *sarve*—todos; *viyuktāḥ*—separados; *sva-vihāra-tantram*—a rede de atividades para o próprio prazer; *na*—não; *śaknumaḥ*—pudemos fazer; *tat*—isso; *pratihartave*—para conceder; *te*—a Vós.
+*tat*—portanto; *te*—Seu; *vayam*—todos nós; *loka*—mundo; *sisṛkṣayā*—em prol da criação; *ādya*—o original; *tvayā*—por Vós; *anusṛṣṭāḥ*—sendo criados um após outro; *tribhiḥ*—pelos três modos da natureza; *ātmabhiḥ*—pelo próprio; *sma*—no passado; *sarve*—todos; *viyuktāḥ*—separados; *sva-vihāra-tantram*—a rede de atividades para o próprio prazer; *na*—não; *śaknumaḥ*—pudemos fazer; *tat*—isso; *pratihartave*—para conceder; *te*—a Vós.
 
 **Ó Pessoa Original, portanto somos apenas Seus. Embora sejamos Suas criaturas, nascemos uns após os outros sob a influência dos três modos da natureza e, por isso, estamos separados em ação. Em consequência, após a criação não pudemos agir de forma concertada para Seu prazer transcendental.**
 

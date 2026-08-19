@@ -8,7 +8,7 @@
 > rati-rāso bhavet tīvraḥ\
 > pādayor vyasanārdanaḥ
 
-*yat*—a quien; *sevayā*—mediante el servicio; *bhagavataḥ*—de la Personalidad de Dios; *kūṭa-sthasya*—del inmutable; *madhu-dviṣaḥ*—el enemigo del *asura* Madhu; *rati-rāsaḥ*—apego en diferentes relaciones; *bhavet*—se desarrolla; *tīvraḥ*—sumamente extático; *pādayoḥ*—de los pies; *vyasana*—congojas; *ardanaḥ*—venciendo.
+*yat*—lo cual; *sevayā*—mediante el servicio; *bhagavataḥ*—de la Personalidad de Dios; *kūṭa-sthasya*—del inmutable; *madhu-dviṣaḥ*—el enemigo del *asura* Madhu; *rati-rāsaḥ*—apego en diferentes relaciones; *bhavet*—se desarrolla; *tīvraḥ*—sumamente extático; *pādayoḥ*—de los pies; *vyasana*—congojas; *ardanaḥ*—venciendo.
 
 **Por ofrecer servicio a los pies del maestro espiritual, uno se vuelve capaz de desarrollar éxtasis trascendental en el servicio de la Personalidad de Dios, que es el inmutable enemigo del demonio Madhu, y cuyo servicio vence las congojas materiales propias.**
 

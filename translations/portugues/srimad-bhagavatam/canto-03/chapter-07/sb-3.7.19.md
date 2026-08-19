@@ -11,7 +11,7 @@
 
 pādayor vyasanārdanaḥ
 
-*yat*—a quem; *sevayā*—pelo serviço; *bhagavataḥ*—da Personalidade de Deus; *kūṭa-sthasya*—do imutável; *madhu-dviṣaḥ*—o inimigo do demônio Madhu; *rati-rāsaḥ*—apego em diferentes relacionamentos; *bhavet*—desenvolve; *tīvraḥ*—altamente extático; *pādayoḥ*—dos pés; *vyasana*—angústias; *ardanaḥ*—aniquilando.
+*yat*—o qual; *sevayā*—pelo serviço; *bhagavataḥ*—da Personalidade de Deus; *kūṭa-sthasya*—do imutável; *madhu-dviṣaḥ*—o inimigo do demônio Madhu; *rati-rāsaḥ*—apego em diferentes relacionamentos; *bhavet*—desenvolve; *tīvraḥ*—altamente extático; *pādayoḥ*—dos pés; *vyasana*—angústias; *ardanaḥ*—aniquilando.
 
 **Ao servir os pés do mestre espiritual, torna-se possível desenvolver êxtase transcendental no serviço à Personalidade de Deus, que é o imutável inimigo do demônio Madhu e cujo serviço aniquila as angústias materiais.**
 

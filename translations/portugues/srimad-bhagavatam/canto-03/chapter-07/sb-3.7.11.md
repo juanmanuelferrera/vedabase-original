@@ -11,7 +11,7 @@ dṛśyate 'sann api draṣṭur
 
 ātmano 'nātmano guṇaḥ
 
-*yathā*—assim como; *jale*—na água; *candramasaḥ*—da lua; *kampa-ādiḥ*—tremulação, etc.; *tat-kṛtaḥ*—feita pela água; *guṇaḥ*—qualidade; *dṛśyate*—assim se vê; *asan api*—sem existência; *draṣṭuḥ*—do observador; *ātmanaḥ*—do eu; *anātmanaḥ*—do que não é o eu; *guṇaḥ*—qualidade.
+*yathā*—assim como; *jale*—na água; *candramasaḥ*—da lua; *kampa-ādiḥ*—tremulação.; *tat-kṛtaḥ*—feita pela água; *guṇaḥ*—qualidade; *dṛśyate*—assim se vê; *asan api*—sem existência; *draṣṭuḥ*—do observador; *ātmanaḥ*—do eu; *anātmanaḥ*—do que não é o eu; *guṇaḥ*—qualidade.
 
 **Assim como a lua refletida na água parece ao observador tremer por estar associada à qualidade da água, assim o eu associado à matéria parece ser qualificado como matéria.**
 

@@ -11,7 +11,7 @@ guṇānuvāda-śravaṇaṁ murāreḥ
 
 *parāga*-sevā-ratir ātma-labdhā
 
-*aśeṣa*—ilimitadas; *saṅkleśa*—condições miseráveis; *śamam*—cessação; *vidhatte*—pode realizar; *guṇa-anuvāda*—do nome, forma, qualidades, passatempos, séquito e parafernália transcendentais, etc.; *śravaṇam*—ouvir e cantar; *murāreḥ*—de Murāri (Śrī Kṛṣṇa), a Personalidade de Deus; *kim vā*—que dizer então de; *punaḥ*—ainda; *tat*—Seus; *caraṇa-aravinda*—pés de lótus; *parāga-sevā*—ao serviço do aromático pó; *ratiḥ*—atração; *ātma-labdhā*—aqueles que alcançaram tal conquista pessoal.
+*aśeṣa*—ilimitadas; *saṅkleśa*—condições miseráveis; *śamam*—cessação; *vidhatte*—pode realizar; *guṇa-anuvāda*—do nome, forma, qualidades, passatempos, séquito e parafernália transcendentais, etc.; *śravaṇam*—ouvir e cantar; *murāreḥ*—de Murāri (Śrī Kṛṣṇa), a Personalidade de Deus; *kim vā*—que dizer então de; *punaḥ*—ainda; *tat*—Seus; *caraṇa-aravinda*—pés de lótus; *parāga-sevā*—ao serviço do pó do aroma; *ratiḥ*—atração; *ātma-labdhā*—aqueles que alcançaram tal conquista pessoal.
 
 **Simplesmente cantando e ouvindo o nome, a forma etc. transcendentais da Personalidade de Deus, Śrī Kṛṣṇa, pode-se alcançar a cessação de ilimitadas condições miseráveis. Que dizer então daqueles que desenvolveram atração por servir o aromático pó dos pés de lótus do Senhor?**
 
