@@ -12,7 +12,7 @@ yacched dhāraṇayā dhīro
 *hanti yā tat*-kṛtaṁ malam
 
 *Sinônimos
-rajaḥ*—o modo apaixonado da natureza; *tamobhyām*—assim como pelo modo ignorante da natureza material; *ākṣiptam*—agitada; *vimūḍham*—perplexa; *manaḥ*—a mente; *ātmanaḥ*—da própria; *yacchet*—retificá-la; *dhāraṇayā*—pela concepção (de Viṣṇu); *dhīraḥ*—o pacificado; *hanti*—destrói; *yā*—todas essas; *tat-kṛtam*—produzidas por elas; *malam*—coisas impuras.
+rajaḥ*—os modos apaixonados da natureza; *tamobhyām*—assim como pelo modo ignorante da natureza material; *ākṣiptam*—agitada; *vimūḍham*—perplexa; *manaḥ*—a mente; *ātmanaḥ*—da própria; *yacchet*—retificá-la; *dhāraṇayā*—pela concepção (de Viṣṇu); *dhīraḥ*—o pacificado; *hanti*—destrói; *yā*—todas essas; *tat-kṛtam*—produzidas por elas; *malam*—coisas impuras.
 
 **A mente da pessoa está sempre agitada pelos apaixonados modos da natureza material e desorientada pelos ignorantes modos da natureza. Mas a pessoa pode retificar tais concepções pela relação com Viṣṇu e, assim, tornar-se apaziguada ao limpar as coisas impuras criadas por eles.**
 

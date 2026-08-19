@@ -12,7 +12,7 @@ mano yacchej jita-śvāso
 *brahma*-bījam avismaran
 
 *Sinônimos
-abhyaset*—deve-se praticar; *manasā*—pela mente; *śuddham*—sagrado; *tri-vṛt*—composto dos três; *brahma-akṣaram*—letras transcendentais; *param*—o supremo; *manaḥ*—mente; *yacchet*—dominar; *jita-śvāsaḥ*—regulando o ar da respiração; *brahma*—absoluto; *bījam*—semente; *avismaran*—sem ser esquecido.
+abhyaset*—basta pô-lo em prática; *manasā*—pela mente; *śuddham*—sagrado; *tri-vṛt*—composto dos três; *brahma-akṣaram*—letras transcendentais; *param*—o supremo; *manaḥ*—mente; *yacchet*—dominar; *jita-śvāsaḥ*—regulando o ar da respiração; *brahma*—absoluto; *bījam*—semente; *avismaran*—sem ser esquecido.
 
 ***Depois de sentar-se da maneira acima, faça a mente lembrar as três letras transcendentais [a-u-m], e regulando o processo de respiração, controle a mente de modo a não esquecer a semente transcendental.***
 

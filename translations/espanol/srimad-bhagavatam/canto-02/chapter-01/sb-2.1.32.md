@@ -8,7 +8,7 @@
 > kas tasya meḍhraṁ vṛṣaṇau ca mitrau\
 > kukṣiḥ samudrā girayo 'sthi-saṅghāḥ
 
-*vrīḍa*—modestia; *uttara*—superior; *oṣṭhaḥ*—labio; *adharaḥ*—mentón; *eva*—ciertamente; *lobhaḥ*—anhelo; *dharmaḥ*—religión; *stanaḥ*—pecho; *adharma*—irreligión; *pathaḥ*—camino; *asya*—Su; *pṛṣṭham*—espalda; *kaḥ*—Brahmā; *tasya*—Su; *meḍhram*—órgano genital; *vṛṣaṇau*—testículos; *ca*—también; *mitrau*—los Mitrā-varuṇas; *kukṣiḥ*—cintura; *samudrāḥ*—los océanos; *girayaḥ*—las colinas; *asthi*—huesos; *saṅghāḥ*—conjunto.
+*vrīḍa*—modestia; *uttara*—superior; *oṣṭhaḥ*—labio; *adharaḥ*—mentón; *eva*—ciertamente; *lobhaḥ*—anhelo; *dharmaḥ*—religiosidad; *stanaḥ*—pecho; *adharma*—irreligión; *pathaḥ*—camino; *asya*—Su; *pṛṣṭham*—espalda; *kaḥ*—Brahmā; *tasya*—Su; *meḍhram*—órgano genital; *vṛṣaṇau*—testículos; *ca*—también; *mitrau*—los Mitrā-varuṇas; *kukṣiḥ*—cintura; *samudrāḥ*—los océanos; *girayaḥ*—las colinas; *asthi*—huesos; *saṅghāḥ*—conjunto.
 
 **El pudor es la parte superior de Sus labios, el anhelo es Su mentón, la religiosidad es el pecho del Señor, y la irreligión es Su espalda. Brahmājī, que genera a todos los seres vivientes del mundo material, son Sus genitales, y los Mitrāvaruṇas son Sus dos testículos. El océano es Su cintura, y las colinas y montañas son las pilas de Sus huesos.**
 

@@ -12,7 +12,7 @@ gṛhāt pravrajito dhīraḥ
 vidhivat kalpitāsane
 
 *Sinônimos
-gṛhāt*—do próprio lar; *pravrajitaḥ*—tendo saído; *dhīraḥ*—autocontrolado; *puṇya*—piedoso; *tīrtha*—lugar sagrado; *jala-āplutaḥ*—completamente banhado; *śucau*—purificado; *vivikte*—solitário; *āsīnaḥ*—sentado; *vidhivat*—segundo as regulações; *kalpita*—tendo preparado; *āsane*—num lugar para sentar.
+gṛhāt*—do próprio lar; *pravrajitaḥ*—tendo saído; *dhīraḥ*—autocontrolado; *puṇya*—piedoso; *tīrtha*—lugar sagrado; *jala-āplutaḥ*—completamente banhado; *śucau*—purificado; *vivikte*—solitário; *āsīnaḥ*—sentado; *vidhivat*—segundo as regulações; *kalpita*—sendo preparado; *āsane*—num lugar para sentar.
 
 **A pessoa deve deixar o lar e praticar o autocontrole. Num lugar sagrado, deve banhar-se regularmente e sentar-se num lugar solitário, devidamente santificado.**
 

@@ -8,7 +8,7 @@
 > vairājaḥ puruṣo yo 'sau\
 > bhagavān dhāraṇāśrayaḥ
 
-*aṇḍa-kośe*—dentro del cascarón universal; *śarīre*—en el cuerpo de; *asmin*—este; *sapta*—siete; *āvaraṇa*—coberturas; *saṁyute*—habiéndolo hecho así; *vairājaḥ*—la gigantesca y universal; *puruṣaḥ*—forma del Señor; *yaḥ*—esa; *asau*—Él; *bhagavān*—la Personalidad de Dios; *dhāraṇā*—concepción; *āśrayaḥ*—objeto de.
+*aṇḍa-kośe*—dentro del cascarón universal; *śarīre*—en el cuerpo de; *asmin*—este; *sapta*—siete; *āvaraṇa*—coberturas; *saṁyute*—siendo hecho así; *vairājaḥ*—la gigantesca y universal; *puruṣaḥ*—forma del Señor; *yaḥ*—esa; *asau*—Él; *bhagavān*—la Personalidad de Dios; *dhāraṇā*—concepción; *āśrayaḥ*—objeto de.
 
 **La gigantesca forma universal de la Personalidad de Dios, dentro del cuerpo de la cubierta universal, que está revestida por siete capas de elementos materiales, es el objeto de la concepción virāṭa.**
 

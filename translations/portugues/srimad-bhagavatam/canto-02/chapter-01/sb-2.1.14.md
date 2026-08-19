@@ -12,7 +12,7 @@ upakalpaya tat sarvaṁ
 tāvad yat sāmparāyikam
 
 *Sinônimos
-tava*—sua; *api*—também; *etarhi*—portanto; *kauravya*—ó nascido na família dos Kurus; *saptāham*—sete dias; *jīvita*—duração de vida; *avadhiḥ*—até o limite de; *upakalpaya*—faça que sejam executados; *tat*—esses; *sarvam*—todos; *tāvat*—por enquanto; *yat*—os quais são; *sāmparāyikam*—rituais para a próxima vida.
+tava*—sua; *api*—também; *etarhi*—portanto; *kauravya*—nascido na família dos Kurus; *saptāham*—sete dias; *jīvita*—duração de vida; *avadhiḥ*—até o limite de; *upakalpaya*—faça que sejam executados; *tat*—esses; *sarvam*—todos; *tāvat*—por enquanto; *yat*—os quais são; *sāmparāyikam*—rituais para a próxima vida.
 
 **Mahārāja Parīkṣit, agora a duração de sua vida está limitada a mais sete dias, e durante esse tempo o senhor pode executar todos os rituais necessários para o melhor propósito de sua próxima vida.**
 

@@ -8,7 +8,7 @@
 > nāsatya-dasrau paramasya nāse\
 > ghrāṇo 'sya gandho mukham agnir iddhaḥ
 
-*indra-ādayaḥ*—semidioses encabezados por Indra, el rey celestial; *bāhavaḥ*—brazos; *āhuḥ*—se llaman; *usrāḥ*—los semidioses; *karṇau*—los oídos; *diśaḥ*—las cuatro direcciones; *śrotram*—el sentido de la audición; *amuṣya*—del Señor; *śabdaḥ*—sonido; *nāsatya-dasrau*—los semidioses conocidos como los Aśvinī-kumāras; *paramasya*—del Supremo; *nāse*—las fosas nasales; *ghrāṇaḥ*—el sentido del olfato; *asya*—de Él; *gandhaḥ*—fragancia; *mukham*—la boca; *agniḥ*—fuego; *iddhaḥ*—ardiente.
+*indra-ādayaḥ*—semidioses encabezados por Indra, el rey celestial; *bāhavaḥ*—brazos; *āhuḥ*—se llaman; *usrāḥ*—los semidioses; *karṇau*—los oídos; *diśaḥ*—las cuatro direcciones; *śrotram*—el sentido de la audición; *amuṣya*—del Señor; *śabdaḥ*—sonido; *nāsatya-dasrau*—los semidioses conocidos como los Aśvinī-kumāras; *paramasya*—del Supremo; *nāse*—las fosas nasales; *ghrāṇaḥ*—el sentido del olfato; *asya*—de Él; *gandhaḥ*—sabor; *mukham*—la boca; *agniḥ*—fuego; *iddhaḥ*—ardiente.
 
 **Sus brazos son los semidioses encabezados por Indra, los diez lados direccionales son Sus oídos, y el sonido físico es el sentido de Su oído. Sus fosas nasales son los dos Aśvinī-kumāras, y el sabor material es el sentido de Su olfato. Su boca es el fuego ardiente.**
 

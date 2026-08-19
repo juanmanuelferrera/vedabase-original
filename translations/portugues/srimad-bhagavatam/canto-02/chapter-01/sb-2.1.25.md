@@ -12,7 +12,7 @@ vairājaḥ puruṣo yo 'sau
 bhagavān dhāraṇāśrayaḥ
 
 *Sinônimos
-aṇḍa-kośe*—dentro da casca universal; *śarīre*—no corpo de; *asmin*—este; *sapta*—sétupla; *āvaraṇa*—coberturas; *saṁyute*—tendo assim feito; *vairājaḥ*—a gigantesca forma universal; *puruṣaḥ*—forma do Senhor; *yaḥ*—que; *asau*—Ele; *bhagavān*—a Personalidade de Deus; *dhāraṇā*—concepção; *āśrayaḥ*—objeto de.
+aṇḍa-kośe*—dentro da casca universal; *śarīre*—no corpo de; *asmin*—este; *sapta*—sétupla; *āvaraṇa*—coberturas; *saṁyute*—sendo assim feito; *vairājaḥ*—a gigantesca forma universal; *puruṣaḥ*—forma do Senhor; *yaḥ*—que; *asau*—Ele; *bhagavān*—a Personalidade de Deus; *dhāraṇā*—concepção; *āśrayaḥ*—objeto de.
 
 **A gigantesca forma universal da Personalidade de Deus, dentro do corpo do envoltório universal, que é coberto por sétuplos elementos materiais, é o tema da concepção virāṭa.**
 

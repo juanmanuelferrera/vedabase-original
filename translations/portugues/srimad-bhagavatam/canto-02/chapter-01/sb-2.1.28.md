@@ -12,7 +12,7 @@ grīvā mahar vadanaṁ vai jano 'sya
 satyaṁ tu śīrṣāṇi sahasra-śīrṣṇaḥ
 
 *Sinônimos
-uraḥ*—elevado; *sthalam*—lugar (o peito); *jyotiḥ-anīkam*—os planetas luminosos; *asya*—d'Ele; *grīvā*—o pescoço; *mahaḥ*—o sistema planetário acima dos luminosos; *vadanam*—boca; *vai*—exatamente; *janaḥ*—o sistema planetário acima de Mahar; *asya*—d'Ele; *tapaḥ*—o sistema planetário acima do Janas; *varāṭīm*—a testa; *viduḥ*—é conhecida; *ādi*—o original; *puṁsaḥ*—personalidade; *satyam*—o sistema planetário mais elevado; *tu*—mas; *śīrṣāṇi*—a cabeça; *sahasra*—mil; *śīrṣṇaḥ*—Aquele com cabeças.
+uraḥ*—elevado; *sthalam*—lugar (o peito); *jyotiḥ-anīkam*—os planetas luminosos; *asya*—d'Ele; *grīvā*—o pescoço; *mahaḥ*—o sistema planetário acima dos luminosos; *vadanam*—boca; *vai*—exatamente; *janaḥ*—o sistema planetário acima de Jano; *asya*—d'Ele; *tapaḥ*—o sistema planetário acima do Mahaḥ; *varāṭīm*—a testa; *viduḥ*—é conhecida; *ādi*—o original; *puṁsaḥ*—personalidade; *satyam*—o sistema planetário mais elevado; *tu*—mas; *śīrṣāṇi*—a cabeça; *sahasra*—mil; *śīrṣṇaḥ*—Aquele com cabeças.
 
 **O peito da Original Personalidade da forma gigantesca é o luminoso sistema planetário, Seu pescoço são os planetas Mahar, Sua boca são os planetas Jana, e Sua testa é o sistema planetário Tapas. O sistema planetário mais elevado, conhecido como Satyaloka, é a cabeça Daquele que tem mil cabeças.**
 

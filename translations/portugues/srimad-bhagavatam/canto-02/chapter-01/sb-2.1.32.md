@@ -12,7 +12,7 @@ kas tasya meḍhraṁ vṛṣaṇau ca mitrau
 *kukṣiḥ samudrā girayo 'sthi*-saṅghāḥ
 
 *Sinônimos
-vrīḍa*—modéstia; *uttara*—superior; *oṣṭhaḥ*—lábio; *adharaḥ*—queixo; *eva*—certamente; *lobhaḥ*—cobiça; *dharmaḥ*—religião; *stanaḥ*—peito; *adharma*—irreligião; *pathaḥ*—caminho; *asya*—Seu; *pṛṣṭham*—costas; *kaḥ*—Brahmā; *tasya*—Seu; *meḍhram*—órgão genital; *vṛṣaṇau*—testículos; *ca*—também; *mitrau*—os Mitrā-varuṇas; *kukṣiḥ*—cintura; *samudrāḥ*—os oceanos; *girayaḥ*—as colinas; *asthi*—ossos; *saṅghāḥ*—pilha.
+vrīḍa*—modéstia; *uttara*—superior; *oṣṭhaḥ*—lábio; *adharaḥ*—queixo; *eva*—certamente; *lobhaḥ*—cobiça; *dharmaḥ*—religiosidade; *stanaḥ*—peito; *adharma*—irreligião; *pathaḥ*—caminho; *asya*—Seu; *pṛṣṭham*—costas; *kaḥ*—Brahmā; *tasya*—Seu; *meḍhram*—órgão genital; *vṛṣaṇau*—testículos; *ca*—também; *mitrau*—os Mitrā-varuṇas; *kukṣiḥ*—cintura; *samudrāḥ*—os oceanos; *girayaḥ*—as colinas; *asthi*—ossos; *saṅghāḥ*—pilha.
 
 **O pudor é a porção superior de Seus lábios, o anseio é Seu queixo, a religiosidade é o peito do Senhor, e a irreligião é Suas costas. Brahmājī, que gera todos os seres vivos no mundo material, é Seus órgãos genitais, e os Mitrāvaruṇas são Seus dois testículos. O oceano é Sua cintura, e as colinas e montanhas são os feixes de Seus ossos.**
 

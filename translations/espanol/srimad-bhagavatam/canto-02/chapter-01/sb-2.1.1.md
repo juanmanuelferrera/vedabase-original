@@ -10,7 +10,7 @@
 > ātmavit-sammataḥ puṁsāṁ\
 > śrotavyādiṣu yaḥ paraḥ
 
-*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *varīyān*—gloriosa; *eṣaḥ*—esta; *te*—tu; *praśnaḥ*—pregunta; *kṛtaḥ*—hecha por ti; *lokahitam*—de beneficio para todos los hombres; *nṛpa*—¡oh, rey!; *ātmavit*—trascendentalista; *sammataḥ*—aprobada; *puṁsām*—de todos los hombres; *śrotavya-ādiṣu*—en toda clase de audiciones; *yaḥ*—que es; *paraḥ*—lo supremo.
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *varīyān*—gloriosa; *eṣaḥ*—todas estas; *te*—tu; *praśnaḥ*—preguntas; *kṛtaḥ*—hecha por ti; *lokahitam*—de beneficio para todos los hombres; *nṛpa*—el rey; *ātmavit*—trascendentalista; *sammataḥ*—aprobada; *puṁsām*—de todos los hombres; *śrotavya-ādiṣu*—en lo relativo a toda clase de audiciones; *yaḥ*—que es; *paraḥ*—lo supremo.
 
 **Śrī Śukadeva Gosvāmī dijo: Mi querido rey, tu pregunta es gloriosa, porque es muy beneficiosa para toda clase de personas. Oír la respuesta a esta pregunta es el principal tema de audición, y cuenta con la aprobación de todos los trascendentalistas.**
 

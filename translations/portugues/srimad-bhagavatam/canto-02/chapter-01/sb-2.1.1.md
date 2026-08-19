@@ -15,7 +15,7 @@ varīyān eṣa te praśnaḥ
 śrotavyādiṣu yaḥ paraḥ
 
 *Sinônimos
-śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī disse; *varīyān*—glorioso; *eṣaḥ*—esta; *te*—sua; *praśnaḥ*—pergunta; *kṛtaḥ*—feita por você; *loka-hitam*—benéfica para todos os homens; *nṛpa*—ó rei; *ātmavit*—transcendentalista; *sammataḥ*—aprovada; *puṁsām*—por todos os homens; *śrotavya-ādiṣu*—em todas as espécies de audição; *yaḥ*—o que é; *paraḥ*—o supremo.
+śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī disse; *varīyān*—glorioso; *eṣaḥ*—todas estas; *te*—sua; *praśnaḥ*—perguntas; *kṛtaḥ*—feita por você; *loka-hitam*—benéfica para todos os homens; *nṛpa*—o rei; *ātmavit*—transcendentalista; *sammataḥ*—aprovada; *puṁsām*—por todos os homens; *śrotavya-ādiṣu*—no que se refere a todas as espécies de audição; *yaḥ*—o que é; *paraḥ*—o supremo.
 
 **Śrī Śukadeva Gosvāmī disse: Meu querido rei, tua pergunta é gloriosa, pois é muito benéfica para todos os tipos de pessoas. Ouvir a resposta a esta pergunta é o principal assunto de ouvir, e ela é aprovada por todos os transcendentalistas.**
 

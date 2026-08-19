@@ -12,7 +12,7 @@ karṇau diśaḥ śrotram amuṣya śabdaḥ
 ghrāṇo 'sya gandho mukham agnir iddhaḥ
 
 *Sinônimos
-indra-ādayaḥ*—semideuses encabeçados pelo rei celestial, Indra; *bāhavaḥ*—braços; *āhuḥ*—são chamados; *usrāḥ*—os semideuses; *karṇau*—os ouvidos; *diśaḥ*—as quatro direções; *śrotram*—o sentido da audição; *amuṣya*—do Senhor; *śabdaḥ*—som; *nāsatya-dasrau*—os semideuses conhecidos como Aśvinī-kumāras; *paramasya*—do Supremo; *nāse*—narinas; *ghrāṇaḥ*—o sentido do olfato; *asya*—d'Ele; *gandhaḥ*—fragrância; *mukham*—a boca; *agniḥ*—fogo; *iddhaḥ*—ardente.
+indra-ādayaḥ*—semideuses encabeçados pelo rei celestial, Indra; *bāhavaḥ*—braços; *āhuḥ*—são chamados; *usrāḥ*—os semideuses; *karṇau*—os ouvidos; *diśaḥ*—as quatro direções; *śrotram*—o sentido da audição; *amuṣya*—do Senhor; *śabdaḥ*—som; *nāsatya-dasrau*—os semideuses conhecidos como Aśvinī-kumāras; *paramasya*—do Supremo; *nāse*—narinas; *ghrāṇaḥ*—o sentido do olfato; *asya*—d'Ele; *gandhaḥ*—sabor; *mukham*—a boca; *agniḥ*—fogo; *iddhaḥ*—ardente.
 
 **Seus braços são os semideuses encabeçados por Indra, os dez lados direcionais são Seus ouvidos, e o som físico é o sentido de Sua audição. Suas narinas são os dois Aśvinī-kumāras, e o sabor material é o sentido de Seu olfato. Sua boca é o ardente fogo.**
 

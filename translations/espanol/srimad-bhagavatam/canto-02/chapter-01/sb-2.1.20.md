@@ -8,7 +8,7 @@
 > yacched dhāraṇayā dhīro\
 > hanti yā tat-kṛtaṁ malam
 
-*rajaḥ*—la modalidad apasionada de la naturaleza; *tamobhyām*—así como también por la modalidad ignorante de la naturaleza material; *ākṣiptam*—agitada; *vimūḍham*—confundida; *manaḥ*—la mente; *ātmanaḥ*—de uno; *yacchet*—corrígela; *dhāraṇayā*—mediante el concepto (de Viṣṇu); *dhīraḥ*—el apaciguado; *hanti*—destruye; *yā*—todos esos; *tat-kṛtam*—hechos por ellos; *malam*—cosas sucias.
+*rajaḥ*—las modalidades apasionadas de la naturaleza; *tamobhyām*—así como también por la modalidad ignorante de la naturaleza material; *ākṣiptam*—agitada; *vimūḍham*—confundida; *manaḥ*—la mente; *ātmanaḥ*—de uno; *yacchet*—corrígela; *dhāraṇayā*—mediante el concepto (de Viṣṇu); *dhīraḥ*—el apaciguado; *hanti*—destruye; *yā*—todos esos; *tat-kṛtam*—hechos por ellos; *malam*—cosas sucias.
 
 **La mente de uno siempre está agitada por las modalidades apasionadas de la naturaleza material y confundida por las modalidades ignorantes de la naturaleza. Pero uno puede rectificar tales concepciones mediante la relación con Viṣṇu, y de ese modo apaciguarse al limpiar las cosas sucias creadas por ellas.**
 
