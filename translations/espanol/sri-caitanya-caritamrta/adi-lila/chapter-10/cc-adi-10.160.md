@@ -6,7 +6,7 @@
 > ekaika-śākhāte lāge koṭi koṭi ḍāla\
 > tāra śiṣya-upaśiṣya, tāra upaḍāla
 
-*eka-eka*—en cada; *śākhāte*—rama; *lāge*—crecen; *koṭi koṭi*—cientos de miles; *ḍāla*—ramitas; *tāra*—Sus; *śiṣya*—discípulos; *upaśiṣya*—sub-discípulos; *tāra*—Sus; *upaḍāla*—sub-ramas.
+*eka-eka*—en cada; *śākhāte*—rama; *lāge*—crecen; *koṭi koṭi*—cientos de miles; *ḍāla*—ramitas; *tāra*—Sus; *śiṣya*—discípulo; *upaśiṣya*—sub-discípulos; *tāra*—Sus; *upaḍāla*—sub-ramas.
 
 **De cada rama del árbol han crecido cientos de miles de sub-ramas de discípulos y nietos discipulares.**
 

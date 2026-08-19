@@ -11,7 +11,7 @@
 > ataeva dui-gaṇe duṅhāra gaṇana\
 > mādhava-vāsudeva ghoṣerao ei vivaraṇa
 
-*nityānande*—al Señor Nityānanda; *ājñā*—orden; *dila*—dio; *yabe*—cuando; *gauḍe*—a Bengala; *yāite*—ir; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *ei dui*—esos dos; *dilā*—dio; *tāṅra sāthe*—con Él; *ataeva*—por lo tanto; *dui-gaṇe*—en ambos grupos; *duṅhāra*—ambos; *gaṇana*—se cuentan; *mādhava*—Mādhava; *vāsudeva*—Vāsudeva; *ghoṣerao*—de apellido Ghoṣa; *ei*—esta; *vivaraṇa*—descripción.
+*nityānande*—al Señor Nityānanda; *ājñā*—orden; *dila*—dio; *yabe*—cuando; *gauḍe*—a Bengala; *yāite*—ir; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *ei dui*—esos dos; *dilā*—dio; *tāṅra sāthe*—con Él; *ataeva*—por lo tanto; *dui-gaṇe*—en ambos grupos; *duṅhāra*—ambos; *gaṇana*—se cuentan; *mādhava*—Mādhava; *vāsudeva*—Vāsudeva; *ghoṣerao*—de apellido Ghosh; *ei*—esta; *vivaraṇa*—descripción.
 
 **Cuando Nityānanda Prabhu recibió la orden de ir a Bengala para predicar, esos dos devotos [Śrī Rāmadāsa y Gadādhara dāsa] también recibieron la orden de ir con Él. De manera que a veces se cuentan entre los devotos de Śrī Caitanya y a veces entre los de Śrī Nityānanda. Igualmente, Mādhava Ghoṣa y Vāsudeva Ghoṣa pertenecían a los dos grupos de devotos al mismo tiempo.**
 

@@ -6,7 +6,7 @@
 > baḍa-śākhā eka,--sārvabhauma bhaṭṭācārya\
 > tāṅra bhagnī-pati śrī-gopīnāthācārya
 
-*baḍa-śākhā eka*—una de las ramas más grandes; *sārvabhauma bhaṭṭācārya*—de nombre Sārvabhauma Bhaṭṭācārya; *tāṅra bhagnī-pati*—su cuñado (el esposo de la hermana de Sārvabhauma); *śrī-gopīnāthācārya*—de nombre Śrī Gopīnātha Ācārya.
+*baḍa-śākhā eka*—una de las ramas más grandes; *sārvabhauma bhaṭṭācārya*—de nombre Sārvabhauma Bhaṭṭācārya; *tāṅra bhagnī-pati*—su cuñado (el esposo de la hermana de Sārvabhauma); *śrī-gopīnāthācārya*—de nombre Śrī Gopīnāthācārya.
 
 **Estaba Sārvabhauma Bhaṭṭācārya, una de las ramas más grandes del árbol del Señor, y el esposo de su hermana, Śrī Gopīnātha Ācārya.**
 

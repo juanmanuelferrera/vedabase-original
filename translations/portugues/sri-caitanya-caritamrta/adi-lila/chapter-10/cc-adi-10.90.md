@@ -7,7 +7,7 @@
 
 vṛndāvane kaila śrīmūrti-sevāra pracāra
 
-*śāstra-dṛṣṭye*—segundo as orientações das escrituras reveladas; *kaila*—fizeram; *lupta*—esquecidos; *tīrthera*—dos lugares de peregrinação; *uddhāra*—escavação; *vṛndāvane*—em Vṛndāvana; *kaila*—fizeram; *śrī-mūrti*—da Deidade; *sevāra*—de adoração; *pracāra*—propagação.
+*śāstra-dṛṣṭye*—segundo as orientações das escrituras reveladas; *kaila*—fizeram; *lupta*—esquecidos; *tīrthera*—do lugar de peregrinação; *uddhāra*—escavação; *vṛndāvane*—em Vṛndāvana; *kaila*—fizeram; *śrī-mūrti*—da Deidade; *sevāra*—de adoração; *pracāra*—propagação.
 
 **De acordo com as orientações das escrituras reveladas, ambos os Gosvāmīs escavaram os lugares de peregrinação perdidos e inauguraram a adoração às Deidades em Vṛndāvana.**
 

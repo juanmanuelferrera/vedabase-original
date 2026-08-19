@@ -8,7 +8,7 @@
 > dadāmi buddhi-yogaṁ taṁ\
 > yena mām upayānti te
 
-*teṣām*—a ellos; *satata-yuktānām*—siempre ocupados; *bhajatām*—en prestar servicio devocional; *prīti-pūrvakam*—con éxtasis amoroso; *dadāmi*—Yo doy; *buddhi-yogam*—inteligencia verdadera; *tam*—esa; *yena*—por la cual; *mām*—a Mí; *upayānti*—vienen; *te*—ellos.
+*teṣām*—a ellos; *satata-yuktānām*—siempre ocupados; *bhajatām*—en el servicio devocional; *prīti-pūrvakam*—con éxtasis amoroso; *dadāmi*—Yo doy; *buddhi-yogam*—inteligencia verdadera; *tam*—esa; *yena*—por la cual; *mām*—a Mí; *upayānti*—vienen; *te*—ellos.
 
 **«A aquellos que están constantemente consagrados a servirme con amor, Yo les doy la comprensión mediante la cual pueden llegar a Mí.»**
 
