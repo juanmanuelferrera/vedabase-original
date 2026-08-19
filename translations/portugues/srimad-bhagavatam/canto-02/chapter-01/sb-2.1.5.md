@@ -12,7 +12,7 @@ bhagavān īśvaro hariḥ
 smartavyaś cecchatābhayam
 
 *Sinônimos
-tasmāt*—por esta razão; *bhārata*—ó descendente de Bharata; *sarvātmā*—a Superalma; *bhagavān*—a Suprema Personalidade de Deus; *īśvaraḥ*—o controlador; *hariḥ*—o Senhor, que elimina todas as misérias; *śrotavyaḥ*—deve ser ouvido; *kīrtitavyaḥ*—deve ser glorificado; *ca*—também; *smartavyaḥ*—deve ser lembrado; *ca*—e; *icchatā*—daquele que deseja; *abhayam*—liberdade.
+tasmāt*—por esta razão; *bhārata*—ó descendente de Bharata; *sarvātmā*—a Superalma; *bhagavān*—a Personalidade de Deus; *īśvaraḥ*—o controlador; *hariḥ*—o Senhor, que elimina todas as misérias; *śrotavyaḥ*—deve ser ouvido; *kīrtitavyaḥ*—deve ser glorificado; *ca*—também; *smartavyaḥ*—deve ser lembrado; *ca*—e; *icchatā*—daquele que deseja; *abhayam*—liberdade.
 
 **Ó descendente do rei Bharata, aquele que deseja livrar-se de todas as misérias deve ouvir, glorificar e também lembrar a Personalidade de Deus, que é a Superalma, o controlador e o salvador de todas as misérias.**
 

@@ -11,7 +11,7 @@ nadyaḥ samudrāś ca tayos
 
 tuṣṭiḥ puṣṭis tad-āśraye
 
-*āditsoḥ*—desejando ter; *anna-pānānām*—de alimentos e bebidas; *āsan*—manifestaram-se; *kukṣi*—o abdômen; *antra*—os intestinos; *nāḍayaḥ*—e as artérias; *nadyaḥ*—os rios; *samudrāḥ*—mares; *ca*—também; *tayoḥ*—deles; *tuṣṭiḥ*—sustento; *puṣṭiḥ*—metabolismo; *tat*—deles; *āśraye*—a fonte.
+*āditsoḥ*—desejando ter; *anna-pānānām*—de alimentos e bebidas; *āsan*—manifestaram-se; *kukṣi*—o abdômen; *antra*—os intestinos; *nāḍayaḥ*—e a artéria; *nadyaḥ*—os rios; *samudrāḥ*—mares; *ca*—também; *tayoḥ*—deles; *tuṣṭiḥ*—sustento; *puṣṭiḥ*—metabolismo; *tat*—deles; *āśraye*—a fonte.
 
 **Quando houve o desejo de ter alimento e bebida, o abdômen e os intestinos e também as artérias se manifestaram. Os rios e os mares são a fonte de sua sustentação e metabolismo.**
 

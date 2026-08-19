@@ -11,7 +11,7 @@ apānantam apānanti
 
 *nara*-devam ivānugāḥ
 
-*anuprāṇanti*—seguem os sintomas de vida; *yam*—a quem; *prāṇāḥ*—sentidos; *prāṇantam*—empreendendo; *sarva-jantuṣu*—em todas as entidades vivas; *apānantam*—cessam de empreender; *apānanti*—todos os outros param; *nara-devam*—um rei; *iva*—como; *anugāḥ*—os seguidores.
+*anuprāṇanti*—seguem os sintomas de vida; *yam*—a quem; *prāṇāḥ*—sentidos; *prāṇantam*—empreendendo; *sarva-jantuṣu*—em todas as entidades vivas; *apānantam*—cessam de empreender; *apānanti*—todos os outros param; *nara-devam*—o rei; *iva*—como; *anugāḥ*—os seguidores.
 
 **Assim como os seguidores do rei acompanham seu senhor, de modo semelhante, quando a energia total está em movimento, todas as outras entidades vivas se movem, e, quando a energia total cessa o esforço, todas as outras entidades vivas interrompem suas atividades sensoriais.**
 

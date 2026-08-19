@@ -8,7 +8,7 @@
 > padbhyāṁ yajñaḥ svayaṁ havyaṁ\
 > karmabhiḥ kriyate nṛbhiḥ
 
-*gatim*—movimiento; *jigīṣataḥ*—deseando así; *pādau*—las piernas; *ruruhāte*—manifestándose; *abhikāmikām*—con un propósito; *padbhyām*—de las piernas; *yajñaḥ*—el Señor Viṣṇu; *svayam*—Él Mismo, personalmente; *havyam*—los deberes; *karmabhiḥ*—por la ocupación obligatoria de uno; *kriyate*—causados para ser hechos; *nṛbhiḥ*—por diferentes seres humanos.
+*gatim*—movimiento; *jigīṣataḥ*—deseando así; *pādau*—las piernas; *ruruhāte*—manifestándose; *abhikāmikām*—con un propósito; *padbhyām*—de las piernas; *yajñaḥ*—cierto semidiós de nombre Viṣṇu; *svayam*—Él Mismo, personalmente; *havyam*—los deberes; *karmabhiḥ*—por la ocupación obligatoria de uno; *kriyate*—causados para ser hechos; *nṛbhiḥ*—por diferentes seres humanos.
 
 **Acto seguido, al desear de ese modo controlar el movimiento, Sus piernas se manifestaron, y de las piernas se generó la deidad regente llamada Viṣṇu. Mediante Su supervisión personal de este acto, toda clase de seres humanos se ocupan afanosamente en el sacrificio de los deberes ocupacionales.**
 
