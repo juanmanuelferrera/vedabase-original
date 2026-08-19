@@ -8,7 +8,7 @@
 > āste sva-puryāṁ yadu-deva-devo\
 > vinirjitāśeṣa-nṛdeva-devaḥ
 
-*pārthān*—los hijos de Pṛthā (Kuntī); *tu*—pero; *devaḥ*—el Señor; *bhagavān*—la Personalidad de Dios; *mukundaḥ*—Śrī Kṛṣṇa, quien otorga la liberación; *gṛhītavān*—ha adoptado; *sa*—con; *kṣiti-deva-devaḥ*—los *brāhmaṇas* y los semidioses; *āste*—está presente; *sva-puryām*—juntamente con Su familia; *yadu-deva-devaḥ*—adorado por los miembros de la orden real de la dinastía Yadu; *vinirjita*—que han sido conquistados; *aśeṣa*—ilimitados; *nṛdeva*—reyes; *devaḥ*—el Señor.
+*pārthān*—los hijos de Pṛthā (Kuntī); *tu*—pero; *devaḥ*—el Señor; *bhagavān*—la Personalidad de Dios; *mukundaḥ*—Śrī Kṛṣṇa, quien otorga la liberación; *gṛhītavān*—ha adoptado; *sa*—con; *kṣiti-deva-devaḥ*—los *brāhmaṇas* y los semidioses; *āste*—está presente; *sva-puryām*—juntamente con Su familia; *yadu-deva-devaḥ*—adorado por los miembros de la orden real de la dinastía Yadu; *vinirjita*—conquistados por; *aśeṣa*—ilimitados; *nṛdeva*—reyes; *devaḥ*—el Señor.
 
 **Śrī Kṛṣṇa, la Personalidad de Dios, ha aceptado a los hijos de Pṛthā como parientes Suyos, y todos los reyes del mundo están con Śrī Kṛṣṇa. Él está presente en Su hogar con todos Sus familiares, los reyes y príncipes de la dinastía Yadu, que han conquistado un ilimitado número de gobernantes, y Él es su Señor.**
 

@@ -8,7 +8,7 @@
 > āliṅgya gāḍhaṁ praṇayena bhadraṁ\
 > svānām apṛcchad bhagavat-prajānām
 
-*saḥ*—él, Vidura; *vāsudeva*—Śrī Kṛṣṇa; *anucaram*—compañero constante; *praśāntam*—muy ecuánime y bondadoso; *bṛhaspateḥ*—de Bṛhaspatī, el erudito maestro espiritual de los semidioses; *prāk*—anteriormente; *tanayam*—hijo o discípulo; *pratītam*—reconoció; *āliṅgya*—abrazando; *gāḍham*—con mucha emoción; *praṇayena*—con amor; *bhadram*—auspicioso; *svānām*—su propia; *apṛcchat*—preguntó; *bhagavat*—de la Personalidad de Dios; *prajānām*—familia.
+*saḥ*—Vidura; *vāsudeva*—Śrī Kṛṣṇa; *anucaram*—compañero constante; *praśāntam*—muy ecuánime y bondadoso; *bṛhaspateḥ*—de Bṛhaspatī, el erudito maestro espiritual de los semidioses; *prāk*—anteriormente; *tanayam*—hijo o discípulo; *pratītam*—reconoció; *āliṅgya*—abrazando; *gāḍham*—con mucha emoción; *praṇayena*—con amor; *bhadram*—auspicioso; *svānām*—su propia; *apṛcchat*—preguntó; *bhagavat*—de la Personalidad de Dios; *prajānām*—familia.
 
 **Luego, por su gran amor y emoción, Vidura abrazó a Uddhava, que era un compañero constante de Śrī Kṛṣṇa y, anteriormente, un gran alumno de Bṛhaspatī. Vidura le pidió después que le diera noticias de la familia de Śrī Kṛṣṇa, la Personalidad de Dios.**
 

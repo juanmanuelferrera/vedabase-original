@@ -11,7 +11,7 @@ bṛhaspateḥ prāk tanayaṁ pratītam
 
 *svānām apṛcchad bhagavat*-prajānām
 
-*saḥ*—ele, Vidura; *vāsudeva*—o Senhor Kṛṣṇa; *anucaram*—companheiro constante; *praśāntam*—muito sereno e gentil; *bṛhaspateḥ*—de Bṛhaspati, o erudito mestre espiritual dos semideuses; *prāk*—outrora; *tanayam*—filho ou discípulo; *pratītam*—reconhecido; *āliṅgya*—abraçando; *gāḍham*—muito sentidamente; *praṇayena*—com amor; *bhadram*—auspicioso; *svānām*—os seus; *apṛcchat*—perguntou; *bhagavat*—da Personalidade de Deus; *prajānām*—família.
+*saḥ*—Vidura; *vāsudeva*—o Senhor Kṛṣṇa; *anucaram*—companheiro constante; *praśāntam*—muito sereno e gentil; *bṛhaspateḥ*—de Bṛhaspati, o erudito mestre espiritual dos semideuses; *prāk*—outrora; *tanayam*—filho ou discípulo; *pratītam*—reconhecido; *āliṅgya*—abraçando; *gāḍham*—muito sentidamente; *praṇayena*—com amor; *bhadram*—auspicioso; *svānām*—os seus; *apṛcchat*—perguntou; *bhagavat*—da Personalidade de Deus; *prajānām*—família.
 
 **Então, movido por seu grande amor e sentimento, Vidura abraçou-o [Uddhava], que era companheiro constante do Senhor Kṛṣṇa e outrora grande discípulo de Bṛhaspati. Vidura então lhe perguntou sobre a família do Senhor Kṛṣṇa, a Personalidade de Deus.**
 

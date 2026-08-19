@@ -11,7 +11,7 @@ kṛtāni nānāyatanāni viṣṇoḥ
 
 *yad*-darśanāt kṛṣṇam anusmaranti
 
-*anyāni*—outros; *ca*—também; *iha*—aqui; *dvija-deva*—pelos grandes sábios; *devaiḥ*—e pelos semideuses; *kṛtāni*—estabelecidos por; *nānā*—vários; *āyatanāni*—várias formas; *viṣṇoḥ*—da Suprema Personalidade de Deus; *prati*—em cada; *aṅga*—parte; *mukhya*—o principal; *aṅkita*—marcado; *mandirāṇi*—templos; *yat*—os quais; *darśanāt*—ao ver de longe; *kṛṣṇam*—a Personalidade de Deus original; *anusmaranti*—lembra constantemente.
+*anyāni*—outros; *ca*—também; *iha*—aqui; *dvija-deva*—grandes sábios; *devaiḥ*—pelos semideuses; *kṛtāni*—estabelecidos por; *nānā*—vários; *āyatanāni*—várias formas; *viṣṇoḥ*—da Suprema Personalidade de Deus; *prati*—em cada; *aṅga*—parte; *mukhya*—o principal; *aṅkita*—marcado; *mandirāṇi*—templos; *yat*—os quais; *darśanāt*—ao ver de longe; *kṛṣṇam*—a Personalidade de Deus original; *anusmaranti*—lembra constantemente.
 
 **Havia também muitos outros templos de várias formas da Suprema Personalidade de Deus Viṣṇu, estabelecidos por grandes sábios e semideuses. Estes templos estavam marcados com os principais emblemas do Senhor, e sempre faziam lembrar a Personalidade de Deus original, o Senhor Kṛṣṇa.**
 

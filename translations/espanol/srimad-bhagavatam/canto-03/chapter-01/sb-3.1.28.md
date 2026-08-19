@@ -8,7 +8,7 @@
 > yaṁ rukmiṇī bhagavato 'bhilebhe\
 > ārādhya viprān smaram ādi-sarge
 
-*kaccit*—si; *varūtha*—del militar; *adhipatiḥ*—comandante en jefe; *yadūnām*—de los Yadus; *pradyumnaḥ*—el hijo de Kṛṣṇa llamado Pradyumna; *āste*—es; *sukham*—feliz; *aṅga*—¡oh, Uddhava!; *vīraḥ*—el gran guerrero; *yam*—a quien; *rukmiṇī*—la esposa de Kṛṣṇa llamada Rukmiṇī; *bhagavataḥ*—de la Personalidad de Dios; *abhilebhe*—obtuvo como premio; *ārādhya*—complaciendo; *viprān*—*brāhmaṇas*; *smaram*—Cupido (Kāmadeva); *ādi-sarge*—en su vida anterior.
+*kaccit*—si; *varūtha*—militar; *adhipatiḥ*—comandante en jefe; *yadūnām*—de los Yadus; *pradyumnaḥ*—el hijo de Kṛṣṇa llamado Pradyumna; *āste*—es; *sukham*—feliz; *aṅga*—¡oh, Vidura!; *vīraḥ*—el gran guerrero; *yam*—a quien; *rukmiṇī*—la esposa de Kṛṣṇa llamada Rukmiṇī; *bhagavataḥ*—de la Personalidad de Dios; *abhilebhe*—obtuvo como premio; *ārādhya*—complaciendo; *viprān*—*brāhmaṇas*; *smaram*—Cupido (Kāmadeva); *ādi-sarge*—en su vida anterior.
 
 **¡Oh, Uddhava! Por favor, dime, ¿cómo está Pradyumna, el comandante en jefe de los Yadus, que era Cupido en una vida anterior? Nació como hijo de Śrī Kṛṣṇa y Rukmiṇī, por la gracia de los brāhmaṇas a los que ella complació.**
 

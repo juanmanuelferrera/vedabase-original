@@ -8,7 +8,7 @@
 > pratyaṅga-mukhyāṅkita-mandirāṇi\
 > yad-darśanāt kṛṣṇam anusmaranti
 
-*anyāni*—otros; *ca*—también; *iha*—aquí; *dvija-deva*—por los grandes sabios; *devaiḥ*—y los semidioses; *kṛtāni*—establecidos por; *nānā*—varias; *āyatanāni*—varias formas; *viṣṇoḥ*—de la Suprema Personalidad de Dios; *prati*—todas y cada una de las; *aṅga*—parte; *mukhya*—los principales; *aṅkita*—marcados; *mandirāṇi*—templos; *yat*—los cuales; *darśanāt*—por verlos desde lejos; *kṛṣṇam*—la Personalidad de Dios original; *anusmaranti*—recuerda constantemente.
+*anyāni*—otros; *ca*—también; *iha*—aquí; *dvija-deva*—grandes sabios; *devaiḥ*—por los semidioses; *kṛtāni*—establecidos por; *nānā*—varias; *āyatanāni*—varias formas; *viṣṇoḥ*—de la Suprema Personalidad de Dios; *prati*—todas y cada una de las; *aṅga*—parte; *mukhya*—los principales; *aṅkita*—marcados; *mandirāṇi*—templos; *yat*—los cuales; *darśanāt*—por verlos desde lejos; *kṛṣṇam*—la Personalidad de Dios original; *anusmaranti*—recuerda constantemente.
 
 **Había también muchos otros templos en honor a varias formas de Viṣṇu, la Suprema Personalidad de Dios, establecidos por grandes sabios y semidioses. Esos templos estaban marcados con los emblemas principales del Señor, y siempre hacían recordar a la Personalidad de Dios original, Śrī Kṛṣṇa.**
 

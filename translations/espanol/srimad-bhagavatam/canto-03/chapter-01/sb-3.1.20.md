@@ -8,7 +8,7 @@
 > tāvac chaśāsa kṣitim eka cakrām\
 > ekātapatrām ajitena pārthaḥ
 
-*ittham*—así; *vrajan*—mientras viajaba; *bhāratam*—la India; *eva*—únicamente; *varṣam*—el terreno; *kālena*—a su debido tiempo; *yāvat*—cuando; *gatavān*—visitó; *prabhāsam*—Prabhāsa, el lugar de peregrinaje; *tāvat*—en ese entonces; *śaśāsa*—regía; *kṣitim*—el mundo; *eka-cakrām*—mediante una sola fuerza militar; *eka*—una; *ātapatrām*—bandera; *ajitena*—por la misericordia del inconquistable Kṛṣṇa; *pārthaḥ*—Mahārāja Yudhiṣṭhira.
+*ittham*—así; *vrajan*—mientras viajaba; *bhāratam*—la India; *eva*—únicamente; *varṣam*—el terreno; *kālena*—a su debido tiempo; *yāvat*—cuando; *gatavān*—visitó; *prabhāsam*—Prabhāsa, el lugar de peregrinaje; *tāvat*—en ese entonces; *śaśāsa*—rige; *kṣitim*—el mundo; *eka-cakrām*—mediante una sola fuerza militar; *eka*—una; *ātapatrām*—bandera; *ajitena*—por la misericordia del inconquistable Kṛṣṇa; *pārthaḥ*—Mahārāja Yudhiṣṭhira.
 
 **Así, cuando se encontraba en la tierra de Bhāratavarṣa viajando por todos los lugares de peregrinaje, visitó Prabhāsakṣetra. En ese entonces, Mahārāja Yudhiṣṭhira era el emperador, y mantenía al mundo bajo el control de una sola fuerza militar y bajo una sola bandera.**
 

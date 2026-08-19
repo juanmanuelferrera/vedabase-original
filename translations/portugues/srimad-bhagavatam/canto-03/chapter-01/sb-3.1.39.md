@@ -11,7 +11,7 @@ pārthair vṛtau pakṣmabhir akṣiṇīva
 
 *parāt suparṇāv iva vajri*-vaktrāt
 
-*yamau*—os gêmeos (Nakula e Sahadeva); *utasvit*—se; *tanayau*—filhos; *pṛthāyāḥ*—de Pṛthā; *pārthaiḥ*—pelos filhos de Pṛthā; *vṛtau*—protegidos; *pakṣmabhiḥ*—pelas pálpebras; *akṣiṇī*—dos olhos; *iva*—como; *remāte*—jogam despreocupados; *uddāya*—ao recuperar; *mṛdhe*—na batalha; *sva-riktham*—propriedade própria; *parāt*—do inimigo Duryodhana; *suparṇau*—Garuḍa, o transportador do Senhor Viṣṇu; *iva*—como; *vajri-vaktrāt*—da boca de Indra.
+*yamau*—os gêmeos (Nakula e Sahadeva); *utasvit*—se; *tanayau*—filhos; *pṛthāyāḥ*—de Pṛthā; *pārthaiḥ*—pelos filhos de Pṛthā; *vṛtau*—protegidos; *pakṣmabhiḥ*—pelos escudos; *akṣiṇī*—dos olhos; *iva*—como; *remāte*—jogam despreocupados; *uddāya*—ao recuperar; *mṛdhe*—na batalha; *sva-riktham*—propriedade própria; *parāt*—do inimigo Duryodhana; *suparṇau*—Garuḍa, o transportador do Senhor Viṣṇu; *iva*—como; *vajri-vaktrāt*—da boca de Indra.
 
 **Os irmãos gêmeos que são protegidos por seus irmãos estão bem? Assim como o olho é sempre protegido pelas pálpebras, eles são protegidos pelos filhos de Pṛthā, que recuperaram seu legítimo reino das mãos de seu inimigo Duryodhana, assim como Garuḍa arrebatou o néctar da boca de Indra, o portador do raio.**
 

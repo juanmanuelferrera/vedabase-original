@@ -11,7 +11,7 @@
 
 cacāra tīrthāyataneṣv ananyaḥ
 
-*pureṣu*—lugares sagrados como Ayodhyā, Dvārakā e Mathurā; *puṇya*—piedade; *upavana*—o ar; *adri*—colina; *kuñjeṣu*—nos pomares; *apaṅka*—sem pecado; *toyeṣu*—nas águas; *sarit*—rio; *saraḥsu*—lagos; *ananta-liṅgaiḥ*—as formas do Ilimitado; *samalaṅkṛteṣu*—sendo assim decorados; *cacāra*—executou; *tīrtha*—lugares de peregrinação; *āyataneṣu*—terras sagradas; *ananyaḥ*—sozinho ou vendo apenas Kṛṣṇa.
+*pureṣu*—lugares sagrados como Ayodhyā, Dvārakā e Mathurā; *puṇya*—piedade; *upavana*—o ar; *adri*—colina; *kuñjeṣu*—nos pomares; *apaṅka*—sem pecado; *toyeṣu*—nas águas; *sarit*—rio; *saraḥsu*—lagos; *ananta-liṅgaiḥ*—as formas do Ilimitado; *samalaṅkṛteṣu*—sendo assim decorados; *cacāra*—executou; *tīrtha*—lugares de peregrinação; *āyataneṣu*—terra sagrada; *ananyaḥ*—sozinho ou vendo apenas Kṛṣṇa.
 
 **Começou a viajar, pensando apenas em Kṛṣṇa, por vários lugares sagrados como Ayodhyā, Dvārakā e Mathurā. Viajou onde o ar, a colina, o pomar, o rio e o lago são todos puros e sem pecado, e onde as formas do Ilimitado decoram os templos. Assim realizou a peregrinação.**
 

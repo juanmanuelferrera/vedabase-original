@@ -11,7 +11,7 @@ tāvac chaśāsa kṣitim eka cakrām
 
 ekātapatrām ajitena pārthaḥ
 
-*ittham*—assim; *vrajan*—enquanto viajava; *bhāratam*—a Índia; *eva*—somente; *varṣam*—a extensão de terra; *kālena*—no devido tempo; *yāvat*—quando; *gatavān*—visitou; *prabhāsam*—o local de peregrinação de Prabhāsa; *tāvat*—naquele momento; *śaśāsa*—governava; *kṣitim*—o mundo; *eka-cakrām*—por uma única força militar; *eka*—uma; *ātapatrām*—bandeira; *ajitena*—pela misericórdia do inconquistável Kṛṣṇa; *pārthaḥ*—Mahārāja Yudhiṣṭhira.
+*ittham*—assim; *vrajan*—enquanto viajava; *bhāratam*—a Índia; *eva*—somente; *varṣam*—a extensão de terra; *kālena*—no devido tempo; *yāvat*—quando; *gatavān*—visitou; *prabhāsam*—o local de peregrinação de Prabhāsa; *tāvat*—naquele momento; *śaśāsa*—governa; *kṣitim*—o mundo; *eka-cakrām*—por uma única força militar; *eka*—uma; *ātapatrām*—bandeira; *ajitena*—pela misericórdia do inconquistável Kṛṣṇa; *pārthaḥ*—Mahārāja Yudhiṣṭhira.
 
 **Assim, enquanto estava na terra de Bhāratavarṣa viajando a todos os lugares de peregrinação, visitou Prabhāsakṣetra. Naquele momento, o Mahārāja Yudhiṣṭhira era o imperador e mantinha o mundo sob uma única força militar e uma única bandeira.**
 

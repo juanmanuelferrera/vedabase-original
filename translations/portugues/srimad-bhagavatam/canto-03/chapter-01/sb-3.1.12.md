@@ -11,7 +11,7 @@ pārthāṁs tu devo bhagavān mukundo
 
 *vinirjitāśeṣa*-nṛdeva-devaḥ
 
-*pārthān*—os filhos de Pṛthā (Kuntī); *tu*—porém; *devaḥ*—o Senhor; *bhagavān*—a Personalidade de Deus; *mukundaḥ*—Śrī Kṛṣṇa, que concede a liberação; *gṛhītavān*—tomou sob Sua proteção; *sa*—com; *kṣiti-deva-devaḥ*—os *brāhmaṇas* e os semideuses; *āste*—está presente; *sva-puryām*—junto com Sua família; *yadu-deva-devaḥ*—adorado pela ordem real da dinastia Yadu; *vinirjita*—que foram conquistados; *aśeṣa*—ilimitados; *nṛdeva*—reis; *devaḥ*—Senhor.
+*pārthān*—os filhos de Pṛthā (Kuntī); *tu*—porém; *devaḥ*—o Senhor; *bhagavān*—a Personalidade de Deus; *mukundaḥ*—Śrī Kṛṣṇa, que concede a liberação; *gṛhītavān*—tomou sob Sua proteção; *sa*—com; *kṣiti-deva-devaḥ*—os *brāhmaṇas* e os semideuses; *āste*—está presente; *sva-puryām*—junto com Sua família; *yadu-deva-devaḥ*—adorado pela ordem real da dinastia Yadu; *vinirjita*—conquistados por; *aśeṣa*—ilimitados; *nṛdeva*—reis; *devaḥ*—Senhor.
 
 **O Senhor Kṛṣṇa, a Personalidade de Deus, tomou sob Sua proteção os filhos de Pṛthā como Seus parentes, e todos os reis do mundo estão com o Senhor Śrī Kṛṣṇa. Ele está presente em Sua morada com todos os Seus familiares, os reis e príncipes da dinastia Yadu, que conquistaram um número ilimitado de governantes, e Ele é o Senhor deles.**
 
