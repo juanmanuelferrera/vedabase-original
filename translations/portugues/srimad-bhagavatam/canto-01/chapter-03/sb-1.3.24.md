@@ -11,7 +11,7 @@ tataḥ kalau sampravṛtte
 
 kīkaṭeṣu bhaviṣyati
 
-*tataḥ*—em seguida; *kalau*—a era de Kali; *sampravṛtte*—tendo se iniciado; *sammohāya*—com o propósito de iludir; *sura*—os teístas; *dviṣām*—aqueles que são invejosos; *buddhaḥ*—o Senhor Buda; *nāmnā*—de nome; *añjana-sutaḥ*—o filho de Añjana; *kīkaṭeṣu*—na província de Gayā (Bihar); *bhaviṣyati*—se manifestará.
+*tataḥ*—em seguida; *kalau*—a era de Kali; *sampravṛtte*—tendo se iniciado; *sammohāya*—com o propósito de iludir; *sura*—os teístas; *dviṣām*—aqueles que são invejosos; *buddhaḥ*—o Senhor Buda; *nāmnā*—de nome; *añjana-sutaḥ*—o filho de Añjanā; *kīkaṭeṣu*—na província de Gayā (Bihar); *bhaviṣyati*—se manifestará.
 
 **Então, no início de Kali-yuga, o Senhor aparecerá como o Senhor Buddha, o filho de Añjanā, na província de Gayā, apenas com o propósito de iludir aqueles que têm inveja do teísta fiel.**
 

@@ -8,7 +8,7 @@
 > manye tvāṁ viṣaye vācāṁ\
 > snātam anyatra chāndasāt
 
-*tat*—eso; *sarvam*—todo; *naḥ*—a nosotros; *samācakṣva*—explica claramente; *pṛṣṭaḥ*—preguntado; *yat iha*—aquí; *kiñcana*—todo lo que; *manye*—pensamos; *tvām*—tú; *viṣaye*—en todos los temas; *vācām*—significados de palabras; *snātam*—plenamente familiarizado; *anyatra*—excepto; *chāndasāt*—porción de los *Vedas*.
+*tat*—eso; *sarvam*—todo; *naḥ*—a nosotros; *samācakṣva*—explica claramente; *pṛṣṭaḥ*—preguntado; *yat iha*—aquí; *kiñcana*—todo lo que; *manye*—pensamos; *tvām*—tú mismo; *viṣaye*—en todos los temas; *vācām*—significados de palabras; *snātam*—plenamente familiarizado; *anyatra*—excepto; *chāndasāt*—porción de los *Vedas*.
 
 **Sabemos que eres experto en el significado de todos los temas, excepto algunas porciones de los Vedas, y por eso puedes explicar con claridad las respuestas a todas las preguntas que acabamos de plantearte.**
 

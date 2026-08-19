@@ -11,7 +11,7 @@ kṛṣṇasya nārado 'bhyāgād
 
 āśramaṁ prāg udāhṛtam
 
-*tasya*—seu; *evam*—assim; *khilam*—inferior; *ātmānam*—alma; *manya-mānasya*—pensando consigo mesmo; *khidyataḥ*—lamentando; *kṛṣṇasya*—de Kṛṣṇa-dvaipāyana Vyāsa; *nāradaḥ abhyāgāt*—Nārada chegou lá; *āśramam*—a cabana; *prāk*—antes; *udāhṛtam*—dito.
+*tasya*—seu; *evam*—assim; *khilam*—inferior; *ātmānam*—alma; *manya-mānasya*—pensando consigo mesmo; *khidyataḥ*—lamentando; *kṛṣṇasya*—de Kṛṣṇa; *nāradaḥ abhyāgāt*—Nārada chegou lá; *āśramam*—a cabana; *prāk*—antes; *udāhṛtam*—dito.
 
 **Como se mencionou antes, Nārada chegou à cabana de Kṛṣṇa-dvaipāyana Vyāsa, nas margens do Sarasvatī, justamente quando este lamentava suas deficiências.**
 

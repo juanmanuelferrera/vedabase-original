@@ -11,7 +11,7 @@ sarvātmakenāpi yadā
 
 nātuṣyad dhṛdayaṁ tataḥ
 
-*evam*—assim; *pravṛttasya*—daquele que está engajado em; *sadā*—sempre; *bhūtānām*—dos seres vivos; *śreyasi*—no bem supremo; *dvijāḥ*—ó nascidos duas vezes; *sarvātmakena api*—por todos os meios; *yadā*—quando; *na*—não; *atuṣyat*—ficou satisfeito; *hṛdayam*—mente; *tataḥ*—com isso.
+*evam*—assim; *pravṛttasya*—daquele que está engajado em; *sadā*—sempre; *bhūtānām*—dos seres vivos; *śreyasi*—no bem supremo; *dvijāḥ*—ó nascidos duas vezes; *sarvātmakena api*—por todos os meios; *yadā*—quando; *na*—não; *atuṣyat*—ficou satisfeito; *hṛdayam*—mente; *tataḥ*—naquele momento.
 
 **Ó *brāhmaṇas* nascidos duas vezes, mesmo assim sua mente não estava satisfeita, embora ele estivesse empenhado em trabalhar pelo bem-estar total de todas as pessoas.**
 

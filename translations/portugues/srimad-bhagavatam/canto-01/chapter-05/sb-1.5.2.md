@@ -14,7 +14,7 @@ parituṣyati śārīra
 
 ātmā mānasa eva vā
 
-*nāradaḥ*—Nārada; *uvāca*—disse; *pārāśarya*—ó filho de Parāśara; *mahā-bhāga*—o muito afortunado; *bhavataḥ*—seu; *kaccit*—se é que; *ātmanā*—pela autorrealização de; *parituṣyati*—satisfaz-se; *śārīraḥ*—identificando o corpo; *ātmā*—o eu; *mānasaḥ*—identificando a mente; *eva*—certamente; *vā*—e.
+*nāradaḥ*—Nārada; *uvāca*—disse; *pārāśarya*—ó filho de Parāśara; *mahā-bhāga*—o muito afortunado; *bhavataḥ*—seu; *kaccit*—se é que; *ātmanā*—pela autorrealização de; *parituṣyati*—satisfaz-se; *śārīraḥ*—identificar o corpo; *ātmā*—o eu; *mānasaḥ*—identificando a mente; *eva*—certamente; *vā*—e.
 
 ***Dirigindo-se a Vyāsadeva, o filho de Parāśara, Nārada perguntou: Está satisfeito identificando-se com o corpo ou com a mente como objetos de autorrealização?***
 

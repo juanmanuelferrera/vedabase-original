@@ -8,7 +8,7 @@
 > buddho nāmnāñjana-sutaḥ\
 > kīkaṭeṣu bhaviṣyati
 
-*tataḥ*—después; *kalau*—en la era de Kali; *sampravṛtte*—habiendo sobrevenido; *sammohāya*—con el propósito de engañar; *sura*—los teístas; *dviṣām*—aquellos que son envidiosos; *buddhaḥ*—el Señor Buddha; *nāmnā*—de nombre; *añjana-sutaḥ*—cuya madre era Añjanā; *kīkaṭeṣu*—en la provincia de Gayā (Bihar); *bhaviṣyati*—ocurrirá.
+*tataḥ*—después; *kalau*—en la era de Kali; *sampravṛtte*—habiendo sobrevenido; *sammohāya*—con el propósito de engañar; *sura*—los teístas; *dviṣām*—aquellos que son envidiosos; *buddhaḥ*—el Señor Buddha; *nāmnā*—de nombre; *añjana-sutaḥ*—el hijo de Añjanā; *kīkaṭeṣu*—en la provincia de Gayā (Bihar); *bhaviṣyati*—ocurrirá.
 
 **Después, al comienzo de Kali-yuga, el Señor aparecerá como el Señor Buddha, el hijo de Añjanā, en la provincia de Gayā, únicamente con el propósito de engañar a quienes son envidiosos del fiel teísta.**
 

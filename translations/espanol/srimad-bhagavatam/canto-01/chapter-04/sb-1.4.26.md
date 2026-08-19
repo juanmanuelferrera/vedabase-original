@@ -8,7 +8,7 @@
 > sarvātmakenāpi yadā\
 > nātuṣyad dhṛdayaṁ tataḥ
 
-*evam*—así pues; *pravṛttasya*—aquel que está dedicado a; *sadā*—siempre; *bhūtānām*—de los seres vivientes; *śreyasi*—por el bien máximo; *dvijāḥ*—¡oh, tú, el nacido por segunda vez!; *sarvātmakena api*—por todos los medios; *yadā*—cuando; *na*—no; *atuṣyat*—se satisfizo; *hṛdayam*—mente; *tataḥ*—en aquel entonces.
+*evam*—así pues; *pravṛttasya*—aquel que está dedicado a; *sadā*—siempre; *bhūtānām*—de los seres vivientes; *śreyasi*—por el bien máximo; *dvijāḥ*—¡oh, tú, el nacido por segunda vez!; *sarvātmakena api*—por todos los medios; *yadā*—cuando; *na*—no; *atuṣyat*—se satisfizo; *hṛdayam*—mente; *tataḥ*—en ese momento.
 
 **¡Oh, *brāhmaṇas* nacidos por segunda vez!, aunque él se dedicó a trabajar por el bienestar total de toda la gente, aun así su mente no estaba satisfecha.**
 
