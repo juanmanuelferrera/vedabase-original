@@ -11,7 +11,7 @@ dhiyānupaśyanti hi tattvam ātmanaḥ
 
 sa me mukundo bhagavān prasīdatām
 
-*yat-aṅghri*—cujos pés de lótus; *abhidhyāna*—pensando em, a cada segundo; *samādhi*—transe; *dhautayā*—sendo lavado; *dhiyā*—por tal inteligência pura; *anupaśyanti*—vê seguindo as autoridades; *hi*—certamente; *tattvam*—a Verdade Absoluta; *ātmanaḥ*—do Senhor Supremo e de si mesmo; *vadanti*—eles dizem; *ca*—também; *etat*—isto; *kavayaḥ*—filósofos ou estudiosos eruditos; *yathā-rucam*—como pensa; *saḥ*—Ele; *me*—meu; *mukundaḥ*—o Senhor Kṛṣṇa (que concede a liberação); *bhagavān*—a Personalidade de Deus; *prasīdatām*—sede complacente comigo.
+*yat-aṅghri*—cujos pés de lótus; *abhidhyāna*—pensando a cada segundo; *samādhi*—transe; *dhautayā*—sendo lavado; *dhiyā*—por tal inteligência pura; *anupaśyanti*—vê seguindo as autoridades; *hi*—certamente; *tattvam*—a Verdade Absoluta; *ātmanaḥ*—do Senhor Supremo e de si mesmo; *vadanti*—eles dizem; *ca*—também; *etat*—isto; *kavayaḥ*—filósofos ou estudiosos eruditos; *yathā-rucam*—como pensa; *saḥ*—Ele; *me*—meu; *mukundaḥ*—o Senhor Kṛṣṇa (que concede a liberação); *bhagavān*—a Personalidade de Deus; *prasīdatām*—sede complacente comigo.
 
 **É a Personalidade de Deus Śrī Kṛṣṇa quem concede a liberação. Pensando em Seus pés de lótus a cada segundo, o devoto em transe pode ver a Verdade Absoluta seguindo as pegadas das autoridades, ao passo que os eruditos especuladores mentais pensam nEle conforme seus caprichos. Que o Senhor Se agrade de mim.**
 

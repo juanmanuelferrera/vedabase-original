@@ -11,7 +11,7 @@ yat saṁsthaṁ yat paraṁ yac ca
 
 tat tattvaṁ vada tattvataḥ
 
-*yat*—o que; *rūpam*—os sintomas da manifestação; *yat*—o que; *adhiṣṭhānam*—base; *yataḥ*—de onde; *sṛṣṭam*—criado; *idam*—este mundo; *prabho*—ó meu pai; *yat*—no qual; *saṁstham*—conservado; *yat*—o que; *param*—sob controle; *yat*—o que são; *ca*—e; *tat*—disto; *tattvam*—os sintomas; *vada*—por favor, descreva; *tattvataḥ*—factualmente.
+*yat*—o que; *rūpam*—os sintomas da manifestação; *yat*—o que; *adhiṣṭhānam*—base; *yataḥ*—de onde; *sṛṣṭam*—criado; *idam*—este mundo; *prabho*—ó meu pai; *yat*—no qual; *saṁstham*—conservado; *yat*—o que; *param*—sob controle; *yat*—o que são; *ca*—e; *tat*—todos estes; *tattvam*—os sintomas; *vada*—por favor, descreva; *tattvataḥ*—factualmente.
 
 **Meu querido pai, descreve, por favor, de fato, os sintomas deste mundo manifesto. Qual é o seu fundamento? Como é criado? Como é conservado? E sob o controle de quem tudo isso é feito?**
 

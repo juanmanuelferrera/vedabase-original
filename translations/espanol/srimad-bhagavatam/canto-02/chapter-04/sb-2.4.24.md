@@ -8,7 +8,7 @@
 > papur jñānam ayaṁ saumyā\
 > yan-mukhāmburuhāsavam
 
-*namaḥ*—mis reverencias; *tasmai*—a Él; *bhagavate*—a la Personalidad de Dios; *vāsudevāya*—a Vāsudeva o Sus encarnaciones; *vedhase*—el compilador de las Escrituras védicas; *papuḥ*—debido; *jñānam*—conocimiento; *ayam*—este conocimiento védico; *saumyāḥ*—los devotos, especialmente las consortes del Señor Kṛṣṇa; *yat*—de cuya; *mukha-amburuha*—la boca cual loto; *āsavam*—néctar de Su boca.
+*namaḥ*—mis reverencias; *tasmai*—a Él; *bhagavate*—a la Personalidad de Dios; *vāsudevāya*—a Vāsudeva o Sus encarnaciones; *vedhase*—el compilador de las Escrituras védicas; *papuḥ*—debido; *jñānam*—conocimiento; *ayam*—este conocimiento védico; *saumyāḥ*—los devotos, especialmente las consortes del Señor Kṛṣṇa; *yat*—de cuya; *mukha-amburuha*—la boca cual loto; *āsavam*—néctar de esa boca.
 
 **Ofrezco mis respetuosas reverencias a la encarnación de Vāsudeva, Śrīla Vyāsadeva, quien compiló las Escrituras Védicas. Los devotos puros beben el nectáreo conocimiento trascendental que mana de la boca de loto del Señor.**
 

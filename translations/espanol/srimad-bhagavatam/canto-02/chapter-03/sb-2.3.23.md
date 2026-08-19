@@ -8,7 +8,7 @@
 > śrī-viṣṇu-padyā manujas tulasyāḥ\
 > śvasañ chavo yas tu na veda gandham
 
-*jīvan*—mientras vive; *śavaḥ*—un cuerpo muerto; *bhāgavata-aṅghri-reṇum*—el polvo de los pies de un devoto puro; *na*—nunca; *jātu*—en ningún momento; *martyaḥ*—mortal; *abhilabheta*—recibido en particular; *yaḥ*—una persona; *tu*—pero; *śrī*—con opulencia; *viṣṇu-padyāḥ*—de los pies de loto de Viṣṇu; *manu-jaḥ*—un descendiente de Manu (un hombre); *tulasyāḥ*—hojas del árbol de *tulasī*; *śvasan*—mientras respiran; *śavaḥ*—aun así es un cuerpo muerto; *yaḥ*—el cual; *tu*—pero; *na veda*—nunca experimentado; *gandham*—el aroma.
+*jīvan*—mientras vive; *śavaḥ*—un cuerpo muerto; *bhāgavata-aṅghri-reṇum*—el polvo de los pies de un devoto puro; *na*—nunca; *jātu*—en ningún momento; *martyaḥ*—mortal; *abhilabheta*—recibido en particular; *yaḥ*—una persona; *tu*—pero; *śrī*—con opulencia; *viṣṇu-padyāḥ*—de los pies de loto de Viṣṇu; *manu-jaḥ*—un descendiente de Manu (un hombre); *tulasyāḥ*—hojas del árbol de *tulasī*; *śvasan*—mientras respiran; *śavaḥ*—aun así es un cuerpo muerto; *yaḥ*—el cual; *tu*—pero; *na veda*—nunca experimentado; *gandham*—el sabor.
 
 **La persona que en ningún momento ha recibido sobre su cabeza el polvo de los pies de un devoto puro del Señor es, sin duda, un cadáver. Y la persona que nunca ha experimentado el aroma de las hojas de tulasī de los pies de loto del Señor es también un cadáver, aunque respire.**
 

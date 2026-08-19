@@ -11,7 +11,7 @@ na jātu martyo 'bhilabheta yas tu
 
 śvasañ chavo yas tu na veda gandham
 
-*jīvan*—enquanto vivo; *śavaḥ*—um corpo morto; *bhāgavata-aṅghri-reṇum*—a poeira dos pés de um devoto puro; *na*—nunca; *jātu*—em qualquer momento; *martyaḥ*—mortal; *abhilabheta*—particularmente recebeu; *yaḥ*—uma pessoa; *tu*—mas; *śrī*—com opulência; *viṣṇu-padyāḥ*—dos pés de lótus de Viṣṇu; *manu-jaḥ*—um descendente de Manu (um homem); *tulasyāḥ*—folhas da árvore tulasi; *śvasan*—enquanto respirando; *śavaḥ*—ainda um corpo morto; *yaḥ*—quem; *tu*—mas; *na veda*—nunca experimentou; *gandham*—o aroma.
+*jīvan*—enquanto vivo; *śavaḥ*—um corpo morto; *bhāgavata-aṅghri-reṇum*—a poeira dos pés de um devoto puro; *na*—nunca; *jātu*—em qualquer momento; *martyaḥ*—mortal; *abhilabheta*—particularmente recebeu; *yaḥ*—uma pessoa; *tu*—mas; *śrī*—com opulência; *viṣṇu-padyāḥ*—dos pés de lótus de Viṣṇu; *manu-jaḥ*—um descendente de Manu (um homem); *tulasyāḥ*—folhas da árvore tulasi; *śvasan*—enquanto respirando; *śavaḥ*—ainda um corpo morto; *yaḥ*—quem; *tu*—mas; *na veda*—nunca experimentou; *gandham*—o sabor.
 
 **A pessoa que em momento algum recebeu sobre sua cabeça a poeira dos pés de um devoto puro do Senhor é certamente um cadáver. E a pessoa que nunca experimentou a fragrância das folhas de tulasī provenientes dos pés de lótus do Senhor também é um cadáver, embora respire.**
 

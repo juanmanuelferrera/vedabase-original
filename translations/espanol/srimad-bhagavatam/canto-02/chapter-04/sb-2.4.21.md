@@ -8,7 +8,7 @@
 > vadanti caitat kavayo yathā-rucaṁ\
 > sa me mukundo bhagavān prasīdatām
 
-*yat-aṅghri*—cuyos pies de loto; *abhidhyāna*—pensando en, a cada segundo; *samādhi*—trance; *dhautayā*—siendo limpiado; *dhiyā*—mediante esa inteligencia limpia; *anupaśyanti*—ve por el hecho de seguir a las autoridades; *hi*—ciertamente; *tattvam*—la Verdad Absoluta; *ātmanaḥ*—del Señor Supremo y de uno; *vadanti*—dicen ellos; *ca*—también; *etat*—esto; *kavayaḥ*—filósofos o eruditos entendidos; *yathā-rucam*—como él piensa; *saḥ*—Él; *me*—mío; *mukundaḥ*—el Señor Kṛṣṇa (quien da la liberación); *bhagavān*—la Personalidad de Dios; *prasīdatām*—se complazca conmigo.
+*yat-aṅghri*—cuyos pies de loto; *abhidhyāna*—pensando a cada segundo; *samādhi*—trance; *dhautayā*—siendo limpiado; *dhiyā*—mediante esa inteligencia limpia; *anupaśyanti*—ve por el hecho de seguir a las autoridades; *hi*—ciertamente; *tattvam*—la Verdad Absoluta; *ātmanaḥ*—del Señor Supremo y de uno; *vadanti*—dicen ellos; *ca*—también; *etat*—esto; *kavayaḥ*—filósofos o eruditos entendidos; *yathā-rucam*—como él piensa; *saḥ*—Él; *me*—mío; *mukundaḥ*—el Señor Kṛṣṇa (quien da la liberación); *bhagavān*—la Personalidad de Dios; *prasīdatām*—se complazca conmigo.
 
 **Es la Personalidad de Dios Śrī Kṛṣṇa quien otorga la liberación. Pensando en Sus pies de loto a cada segundo, el devoto en trance puede ver la Verdad Absoluta siguiendo los pasos de las autoridades, mientras que los eruditos especuladores mentales piensan en Él según sus caprichos. Que el Señor Se complazca conmigo.**
 

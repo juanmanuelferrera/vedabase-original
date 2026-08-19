@@ -11,7 +11,7 @@ vaikārikas taijasaś ca
 dravya-śaktiḥ kriyā-śaktir
 jñāna-śaktir iti prabho
 
-*saḥ*—essa mesma coisa; *ahaṅkāraḥ*—o ego; *iti*—assim; *proktaḥ*—dito; *vikurvan*—sendo transformado; *samabhūt*—manifestou-se; *tridhā*—em três aspectos; *vaikārikaḥ*—no modo da bondade; *taijasaḥ*—no modo da paixão; *ca*—e; *tāmasaḥ*—no modo da ignorância; *ca*—também; *iti*—assim; *yat*—o que é; *bhidā*—dividido; *dravya-śaktiḥ*—poderes que evoluem a matéria; *kriyā-śaktiḥ*—iniciação que cria; *jñāna-śaktiḥ*—inteligência que orienta; *iti*—assim; *prabho*—ó mestre.
+*saḥ*—essa mesma coisa; *ahaṅkāraḥ*—o ego; *iti*—assim; *proktaḥ*—dito; *vikurvan*—sendo transformado; *samabhūt*—manifestou-se; *tridhā*—em três aspectos; *vaikārikaḥ*—no modo da bondade; *taijasaḥ*—no modo da paixão; *ca*—e; *tāmasaḥ*—no modo da ignorância; *ca*—também; *iti*—assim; *yat*—o que é; *bhidā*—dividido; *dravya-śaktiḥ*—poderes que evoluem a matéria; *kriyā-śaktiḥ*—iniciação que cria; *jñāna-śaktiḥ*—inteligência que orienta; *iti*—assim; *prabho*—o mestre.
 
 **O ego materialista centrado em si mesmo, sendo assim transformado em três aspectos, torna-se conhecido como os modos da bondade, da paixão e da ignorância em três divisões, a saber: os poderes que evoluem a matéria, o conhecimento das criações materiais e a inteligência que orienta tais atividades materialistas. Nārada, és plenamente competente para compreender isto.**
 

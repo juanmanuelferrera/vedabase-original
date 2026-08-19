@@ -8,7 +8,7 @@
 > puṁsāṁ punaḥ pāramahaṁsya āśrame\
 > vyavasthitānām anumṛgya-dāśuṣe
 
-*bhūyaḥ*—de nuevo; *namaḥ*—mis reverencias; *sat*—de los devotos o de los piadosos; *vṛjina*—aflicciones; *chide*—el redentor; *asatām*—de los ateos; *asambhavāya*—el cese de la infelicidad subsiguiente; *akhila*—completo; *sattva*—bondad; *mūrtaye*—a la Personalidad; *puṁsām*—de los trascendentalistas; *punaḥ*—de nuevo; *pāramahaṁsye*—la máxima etapa de la perfección; *āśrame*—en la condición; *vyavasthitānām*—situado particularmente; *anumṛgya*—el destino; *dāśuṣe*—aquel que libera.
+*bhūyaḥ*—de nuevo; *namaḥ*—mis reverencias; *sat*—de los devotos o de los piadosos; *vṛjina*—aflicciones; *chide*—el redentor; *asatām*—de los ateos, los demonios no devotos; *asambhavāya*—el cese de la infelicidad subsiguiente; *akhila*—completo; *sattva*—bondad; *mūrtaye*—a la Personalidad; *puṁsām*—de los trascendentalistas; *punaḥ*—de nuevo; *pāramahaṁsye*—la máxima etapa de la perfección; *āśrame*—en la condición; *vyavasthitānām*—situado particularmente; *anumṛgya*—el destino; *dāśuṣe*—aquel que libera.
 
 **De nuevo ofrezco mis respetuosas reverencias a la forma de existencia y trascendencia completas, que es el liberador de todas las aflicciones de los devotos piadosos y el destructor de los nuevos avances en el temperamento ateo de los demonios no devotos. Para los trascendentalistas, que están situados en la más elevada perfección espiritual, Él otorga sus destinos específicos.**
 

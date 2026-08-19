@@ -8,7 +8,7 @@ devā vaikārikā daśa
 *dig*-vātārka-praceto 'śvi-
 *vahnīndropendra*-mitra-kāḥ
 
-*vaikārikāt*—do modo da bondade; *manaḥ*—a mente; *jajñe*—gerou-se; *devāḥ*—semideuses; *vaikārikāḥ*—no modo da bondade; *daśa*—dez; *dik*—o controlador das direções; *vāta*—o controlador do ar; *arka*—o sol; *pracetaḥ*—Varuṇa; *aśvi*—os Aśvinī-kumāras; *vahni*—o deus do fogo; *indra*—o rei do céu; *upendra*—a divindade do céu; *mitra*—um dos doze Ādityas; *kāḥ*—Prajāpati Brahmā.
+*vaikārikāt*—do modo da bondade; *manaḥ*—a mente; *jajñe*—gerou-se; *devāḥ*—semideuses; *vaikārikāḥ*—no modo da bondade; *daśa*—dez; *dik*—o controlador da direção; *vāta*—o controlador do ar; *arka*—o sol; *pracetaḥ*—Varuṇa; *aśvi*—os Aśvinī-kumāras; *vahni*—o deus do fogo; *indra*—o rei do céu; *upendra*—a divindade do céu; *mitra*—um dos doze Ādityas; *kāḥ*—Prajāpati Brahmā.
 
 **Do modo da bondade foi gerada e manifestada a mente, bem como os dez semideuses que controlam os movimentos corporais. Tais semideuses são conhecidos como o controlador das direções, o controlador do ar, o deus do Sol, o pai de Dakṣa Prajāpati, os Aśvinī-kumāras, o deus do fogo, o rei do céu, a deidade adorável no céu, o chefe dos Ādityas e Brahmājī, o Prajāpati. Todos vieram a existir.**
 

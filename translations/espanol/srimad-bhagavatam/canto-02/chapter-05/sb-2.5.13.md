@@ -8,7 +8,7 @@
 > vimohitā vikatthante\
 > mamāham iti durdhiyaḥ
 
-*vilajjamānayā*—por aquel que se siente avergonzado; *yasya*—cuyo; *sthātum*—quedarse; *īkṣā-pathe*—enfrente; *amuyā*—mediante la energía que confunde; *vimohitāḥ*—aquellos que están confundidos; *vikatthante*—hablar tonterías; *mama*—es mío; *aham*—yo lo soy todo; *iti*—vituperando así; *durdhiyaḥ*—mal concebido así.
+*vilajjamānayā*—por aquel que se siente avergonzado; *yasya*—cuyo; *sthātum*—quedarse; *īkṣā-pathe*—enfrente; *amuyā*—mediante la energía que confunde; *vimohitāḥ*—aquellos que están confundidos; *vikatthante*—habla tonterías; *mama*—es mío; *aham*—yo lo soy todo; *iti*—vituperando así; *durdhiyaḥ*—mal concebido así.
 
 **La energía ilusoria del Señor no puede tomar precedencia, pues se avergüenza de su posición, pero aquellos que están desconcertados por ella siempre hablan disparates, estando absortos en el pensamiento de «Soy yo, y es mío».**
 
