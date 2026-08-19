@@ -14,7 +14,7 @@ maitreya uvāca
 
 virarāma sa khinnavat
 
-*maitreyaḥ uvāca*—o grande sábio Maitreya disse; *sva-sambhavam*—a fonte de seu aparecimento; *niśāmya*—ao ver; *evam*—assim; *tapaḥ*—penitência; *vidyā*—conhecimento; *samādhibhiḥ*—bem como pela concentração da mente; *yāvat*—tanto quanto possível; *manaḥ*—mente; *vacaḥ*—palavras; *stutvā*—tendo orado; *virarāma*—tornou-se silencioso; *saḥ*—ele (Brahmā); *khinna-vat*—como se cansado.
+*maitreyaḥ uvāca*—o grande sábio Maitreya disse; *sva-sambhavam*—a fonte de seu aparecimento; *niśāmya*—ao ver; *evam*—assim; *tapaḥ*—penitência; *vidyā*—conhecimento; *samādhibhiḥ*—bem como pela concentração da mente; *yāvat*—tanto quanto possível; *manaḥ*—mente; *vacaḥ*—palavras; *stutvā*—por orações; *virarāma*—tornou-se silencioso; *saḥ*—ele (Brahmā); *khinna-vat*—como se cansado.
 
 **O sábio Maitreya disse: Ó Vidura, após observar a fonte de seu aparecimento, a saber, a Personalidade de Deus, Brahmā orou por Sua misericórdia tanto quanto sua mente e suas palavras lho permitiram. Orando assim, ficou em silêncio, como que cansado de suas atividades de penitência, conhecimento e concentração mental.**
 

@@ -10,7 +10,7 @@
 > kāmāgninācyuta-ruṣā ca sudurbhareṇa\
 > sampaśyato mana urukrama sīdate me
 
-*kṣut*—hambre; *tṛṭ*—sed; *tri-dhātubhiḥ*—tres humores, a saber: moco, bilis y viento; *imāḥ*—todos ellos; *muhuḥ*—siempre; *ardyamānāḥ*—perplejos; *śīta*—invierno; *uṣṇa*—verano; *vāta*—viento; *varaṣaiḥ*—por lluvias; *itara-itarāt*—y muchas otras perturbaciones; *ca*—también; *kāma-agninā*—por fuertes impulsos sexuales; *acyuta-ruṣā*—ira infatigable; *ca*—también; *sudurbhareṇa*—sumamente insoportable; *sampaśyataḥ*—observando así; *manaḥ*—mente; *urukrama*—¡oh, gran actor!; *sīdate*—se desanima; *me*—mía.
+*kṣut*—hambre; *tṛṭ*—sed; *tri-dhātubhiḥ*—tres secreciones, a saber: moco, bilis y viento; *imāḥ*—todos ellos; *muhuḥ*—siempre; *ardyamānāḥ*—perplejos; *śīta*—invierno; *uṣṇa*—verano; *vāta*—viento; *varaṣaiḥ*—por lluvias; *itara-itarāt*—y muchas otras perturbaciones; *ca*—también; *kāma-agninā*—por fuertes impulsos sexuales; *acyuta-ruṣā*—ira infatigable; *ca*—también; *sudurbhareṇa*—sumamente insoportable; *sampaśyataḥ*—observando así; *manaḥ*—mente; *urukrama*—¡oh, gran actor!; *sīdate*—se desanima; *me*—mía.
 
 **¡Oh, gran actor, mi Señor! Todas estas pobres criaturas están constantemente perplejas por el hambre, la sed, el severo frío, las secreciones y la bilis, atacadas por un helado invierno, un verano sofocante, lluvias, y muchos otros elementos perturbadores, y dominadas por fuertes impulsos sexuales y una infatigable ira. Yo me compadezco de ellas, y estoy muy afligido por ellas.**
 

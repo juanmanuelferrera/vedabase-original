@@ -10,7 +10,7 @@
 > yāvan mano-vacaḥ stutvā\
 > virarāma sa khinnavat
 
-*maitreyaḥ uvāca*—el gran sabio Maitreya dijo; *sva-sambhavam*—la fuente de su aparición; *niśāmya*—viendo; *evam*—de esa manera; *tapaḥ*—penitencia; *vidyā*—conocimiento; *samādhibhiḥ*—así como también mediante la concentración de la mente; *yāvat*—tanto como era posible; *manaḥ*—mente; *vacaḥ*—palabras; *stutvā*—habiendo orado; *virarāma*—calló; *saḥ*—él (Brahmā); *khinna-vat*—como si estuviera cansado.
+*maitreyaḥ uvāca*—el gran sabio Maitreya dijo; *sva-sambhavam*—la fuente de su aparición; *niśāmya*—viendo; *evam*—de esa manera; *tapaḥ*—penitencia; *vidyā*—conocimiento; *samādhibhiḥ*—así como también mediante la concentración de la mente; *yāvat*—tanto como era posible; *manaḥ*—mente; *vacaḥ*—palabras; *stutvā*—mediante oraciones; *virarāma*—calló; *saḥ*—él (Brahmā); *khinna-vat*—como si estuviera cansado.
 
 **El sabio Maitreya dijo: ¡Oh, Vidura!, tras observar la fuente de su aparición, es decir, la Personalidad de Dios, Brahmā oró por Su misericordia en la medida en que su mente y sus palabras se lo permitían. Tras orar así, guardó silencio, como cansado de sus actividades de penitencia, conocimiento y concentración mental.**
 

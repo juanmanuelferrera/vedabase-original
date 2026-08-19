@@ -11,7 +11,7 @@ vidyāṁ caiva mad-āśrayām
 
 lokān drakṣyasy apāvṛtān
 
-*bhūyaḥ*—novamente; *tvam*—você mesmo; *tapaḥ*—penitência; *ātiṣṭha*—situa-te; *vidyām*—no conhecimento; *ca*—também; *eva*—certamente; *mat*—Minha; *āśrayām*—sob a proteção; *tābhyām*—por essas qualificações; *antaḥ*—dentro; *hṛdi*—no coração; *brahman*—ó brāhmaṇa; *lokān*—todos os mundos; *drakṣyasi*—verás; *apāvṛtān*—todos revelados.
+*bhūyaḥ*—novamente; *tvam*—você mesmo; *tapaḥ*—penitência; *ātiṣṭha*—situa-te; *vidyām*—no conhecimento; *ca*—também; *eva*—certamente; *mat*—Minha; *āśrayām*—sob a proteção; *tābhyām*—por essas qualificações; *antaḥ*—dentro; *hṛdi*—no coração; *brahman*—ó brāhmaṇa; *lokān*—todos os mundos; *drakṣyasi*—podes ver; *apāvṛtān*—todos revelados.
 
 **Ó Brahmā, situa-te na penitência e na meditação e segue os princípios do conhecimento para receber Meu favor. Por meio dessas ações, serás capaz de compreender tudo a partir do interior de teu coração.**
 

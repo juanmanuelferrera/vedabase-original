@@ -13,7 +13,7 @@
 
 sampaśyato mana urukrama sīdate me
 
-*kṣut*—fome; *tṛṭ*—sede; *tri-dhātubhiḥ*—três humores, a saber, muco, bile e vento; *imāḥ*—todos eles; *muhuḥ*—sempre; *ardyamānāḥ*—perturbados; *śīta*—inverno; *uṣṇa*—verão; *vāta*—vento; *varaṣaiḥ*—pelas chuvas; *itara-itarāt*—e muitas outras perturbações; *ca*—também; *kāma-agninā*—por fortes impulsos sexuais; *acyuta-ruṣā*—ira indomável; *ca*—também; *sudurbhareṇa*—muito insuportável; *sampaśyataḥ*—ao assim observar; *manaḥ*—mente; *urukrama*—ó grande ator; *sīdate*—se abate; *me*—minha.
+*kṣut*—fome; *tṛṭ*—sede; *tri-dhātubhiḥ*—três secreções, a saber, muco, bile e vento; *imāḥ*—todos eles; *muhuḥ*—sempre; *ardyamānāḥ*—perturbados; *śīta*—inverno; *uṣṇa*—verão; *vāta*—vento; *varaṣaiḥ*—pelas chuvas; *itara-itarāt*—e muitas outras perturbações; *ca*—também; *kāma-agninā*—por fortes impulsos sexuais; *acyuta-ruṣā*—ira indomável; *ca*—também; *sudurbhareṇa*—muito insuportável; *sampaśyataḥ*—ao assim observar; *manaḥ*—mente; *urukrama*—ó grande ator; *sīdate*—se abate; *me*—minha.
 
 **Ó grande ator, meu Senhor, todas essas pobres criaturas são constantemente perturbadas pela fome, sede, frio intenso, secreções e bile, atacadas pelo inverno sufocante, pelo verão escaldante, pelas chuvas e por muitos outros elementos perturbadores, além de dominadas por fortes impulsos sexuais e ira indomável. Tenho pena delas, e estou muito angustiado por elas.**
 

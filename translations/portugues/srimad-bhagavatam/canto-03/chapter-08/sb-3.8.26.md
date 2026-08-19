@@ -11,7 +11,7 @@ pradarśayantaṁ kṛpayā nakhendu-
 
 *mayūkha*-bhinnāṅguli-cāru-patram
 
-*puṁsām*—do ser humano; *sva-kāmāya*—conforme o desejo; *vivikta-mārgaiḥ*—pelo caminho do serviço devocional; *abhyarcatām*—adorado; *kāma-dugha-aṅghri-padmam*—os pés de lótus do Senhor, que podem conceder todos os frutos desejados; *pradarśayantam*—ao mostrá-los; *kṛpayā*—por misericórdia sem causa; *nakha*—unhas; *indu*—semelhante à lua; *mayūkha*—raios; *bhinna*—divididos; *aṅguli*—figuras; *cāru-patram*—muito belos.
+*puṁsām*—do ser humano; *sva-kāmāya*—conforme o seu desejo; *vivikta-mārgaiḥ*—pelo caminho do serviço devocional; *abhyarcatām*—adorado; *kāma-dugha-aṅghri-padmam*—os pés de lótus do Senhor, que podem conceder todos os frutos desejados; *pradarśayantam*—ao mostrá-los; *kṛpayā*—por misericórdia sem causa; *nakha*—unhas; *indu*—semelhante à lua; *mayūkha*—raios; *bhinna*—divididos; *aṅguli*—figuras; *cāru-patram*—muito belos.
 
 **O Senhor mostrou Seus pés de lótus ao erguê-los. Seus pés de lótus são a fonte de todas as recompensas obtidas pelo serviço devocional livre de contaminação material. Tais recompensas destinam-se àqueles que O adoram em devoção pura. O esplendor dos raios transcendentais de Suas unhas dos pés e das mãos, semelhantes à lua, apareceu como pétalas de uma flor.**
 

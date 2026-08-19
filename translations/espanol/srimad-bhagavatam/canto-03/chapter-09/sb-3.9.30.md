@@ -8,7 +8,7 @@
 > tābhyām antar-hṛdi brahman\
 > lokān drakṣyasy apāvṛtān
 
-*bhūyaḥ*—de nuevo; *tvam*—tú; *tapaḥ*—penitencia; *ātiṣṭha*—sitúate; *vidyām*—en el conocimiento; *ca*—también; *eva*—ciertamente; *mat*—Mi; *āśrayām*—bajo la protección; *tābhyām*—mediante esas cualidades; *antaḥ*—por dentro; *hṛdi*—en el corazón; *brahman*—¡oh, *brāhmaṇa*!; *lokān*—todos los mundos; *drakṣyasi*—habrás de ver; *apāvṛtān*—todo revelado.
+*bhūyaḥ*—de nuevo; *tvam*—tú; *tapaḥ*—penitencia; *ātiṣṭha*—sitúate; *vidyām*—en el conocimiento; *ca*—también; *eva*—ciertamente; *mat*—Mi; *āśrayām*—bajo la protección; *tābhyām*—mediante esas cualidades; *antaḥ*—por dentro; *hṛdi*—en el corazón; *brahman*—¡oh, *brāhmaṇa*!; *lokān*—todos los mundos; *drakṣyasi*—puedes ver; *apāvṛtān*—todo revelado.
 
 **¡Oh, Brahmā! Sitúate en la ejecución de penitencia y meditación, y, para recibir Mi favor, sigue los principios del conocimiento. Mediante esas acciones podrás entender todo desde dentro de tu corazón.**
 

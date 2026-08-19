@@ -10,7 +10,7 @@
 > tan mayāpāditaṁ hy agre\
 > yan māṁ prārthayate bhavān
 
-*śrī-bhagavān uvāca*—el Señor, la Personalidad de Dios, dijo; *mā*—no; *veda-garbha*—¡oh, tú, que tienes la profundidad de toda la sabiduría védica!; *gāḥ tandrīm*—desanimarse; *sarge*—para la creación; *udyamam*—empresas; *āvaha*—tan solo sométete; *tat*—eso (que quieres); *mayā*—por Mí; *āpāditam*—ejecutado; *hi*—ciertamente; *agre*—anteriormente; *yat*—lo cual; *mām*—de Mí; *prārthayate*—suplicando; *bhavān*—tú.
+*śrī-bhagavān uvāca*—el Señor, la Personalidad de Dios, dijo; *mā*—no; *veda-garbha*—¡oh, tú, que tienes la profundidad de toda la sabiduría védica!; *gāḥ tandrīm*—desanimarse; *sarge*—para la creación; *udyamam*—empresas; *āvaha*—tan solo sométete; *tat*—eso (que quieres); *mayā*—por Mí; *āpāditam*—ejecutado; *hi*—ciertamente; *agre*—anteriormente; *yat*—lo cual; *mām*—de Mí; *prārthayate*—suplicando; *bhavān*—tú mismo.
 
 **La Suprema Personalidad de Dios dijo entonces: ¡Oh, Brahmā! ¡Oh, profundidad de la sabiduría védica! No estés deprimido ni angustiado por la ejecución de la creación. Lo que estás pidiendo de Mí, ya se ha otorgado antes.**
 

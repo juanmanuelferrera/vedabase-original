@@ -8,7 +8,7 @@
 > draṣṭāsi māṁ tataṁ brahman\
 > mayi lokāṁs tvam ātmanaḥ
 
-*tataḥ*—después; *ātmani*—en ti; *loke*—en el universo; *ca*—también; *bhakti-yuktaḥ*—estando situado en servicio devocional; *samāhitaḥ*—estando completamente absorto; *draṣṭā asi*—verás; *mām*—a Mí; *tatam*—extendido por todas partes; *brahman*—¡oh, Brahmā!; *mayi*—en Mí; *lokān*—todo el universo; *tvam*—tú; *ātmanaḥ*—las entidades vivientes.
+*tataḥ*—después; *ātmani*—en ti; *loke*—en el universo; *ca*—también; *bhakti-yuktaḥ*—estando situado en servicio devocional; *samāhitaḥ*—estando completamente absorto; *draṣṭā asi*—verás; *mām*—a Mí; *tatam*—extendido por todas partes; *brahman*—Brahmā; *mayi*—en Mí; *lokān*—todo el universo; *tvam*—tú; *ātmanaḥ*—las entidades vivientes.
 
 **¡Oh, Brahmā! Cuando estés absorto en el servicio devocional, en el transcurso de tus actividades creadoras, Me verás en ti y en todas partes del universo, y verás que tú mismo, el universo y las entidades vivientes, están todos en Mí.**
 

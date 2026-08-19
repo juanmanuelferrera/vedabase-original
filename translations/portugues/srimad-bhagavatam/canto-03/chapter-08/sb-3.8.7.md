@@ -11,7 +11,7 @@ proktaṁ kilaitad bhagavattamena
 
 *sāṅkhyāyanāyāṅga dhṛta*-vratāya
 
-*proktam*—foi dito; *kila*—certamente; *etat*—isto; *bhagavattamena*—pelo Senhor Saṅkarṣaṇa; *nivṛtti-dharma-abhiratāya*—àquele que tomou este voto religioso de renúncia; *tena*—por Ele; *sanat-kumārāya*—a Sanat-kumāra; *saḥ*—ele; *ca*—também; *āha*—disse; *pṛṣṭaḥ*—quando interrogado; *sāṅkhyāyanāya*—ao grande sábio Sāṅkhyāyana; *aṅga*—meu caro Vidura; *dhṛta-vratāya*—àquele que assumiu tal voto.
+*proktam*—foi dito; *kila*—certamente; *etat*—isto; *bhagavattamena*—pelo Senhor Saṅkarṣaṇa; *nivṛtti-dharma-abhiratāya*—àquele que tomou este voto religioso de renúncia; *tena*—a ele; *sanat-kumārāya*—a Sanat-kumāra; *saḥ*—ele; *ca*—também; *āha*—disse; *pṛṣṭaḥ*—quando interrogado; *sāṅkhyāyanāya*—ao grande sábio Sāṅkhyāyana; *aṅga*—meu caro Vidura; *dhṛta-vratāya*—àquele que assumiu tal voto.
 
 **O Senhor Saṅkarṣaṇa assim falou o significado do Śrīmad-Bhāgavatam ao grande sábio Sanat-kumāra, que já havia assumido o voto de renúncia. Sanat-kumāra também, por sua vez, quando interrogado por Sāṅkhyāyana Muni, explicou o Śrīmad-Bhāgavatam tal como havia ouvido de Saṅkarṣaṇa.**
 

@@ -8,7 +8,7 @@
 > avyakta-mūlaṁ bhuvanāṅghripendram\
 > ahīndra-bhogair adhivīta-valśam
 
-*parārdhya*—muy valiosos; *keyūra*—adornos; *maṇi-praveka*—joyas sumamente valiosas; *paryasta*—diseminando; *dordaṇḍa*—brazos; *sahasra-śākham*—con miles de ramas; *avyakta-mūlam*—situado por sí solo; *bhuvana*—universales; *aṅghripa*—árboles; *indram*—el Señor; *ahi-indra*—Anantadeva; *bhogaiḥ*—por cabezas; *adhivīta*—rodeados; *valśam*—hombros.
+*parārdhya*—muy valiosos; *keyūra*—adornos; *maṇi-praveka*—joyas sumamente valiosas; *paryasta*—diseminando; *dordaṇḍa*—brazos; *sahasra-śākham*—con miles de ramas; *avyakta-mūlam*—situado por sí solo; *bhuvana*—universales; *aṅghripa*—árboles; *indram*—el Señor; *ahi-indra*—Anantadeva; *bhogaiḥ*—por cabezas; *adhivīta*—rodeados; *valśam*—ramas.
 
 **Así como un árbol de sándalo se adorna con ramas y flores fragantes, el cuerpo del Señor estaba adornado con valiosas joyas y perlas. Él era el árbol situado por sí solo, el Señor de todos los demás seres del universo. Y así como un árbol de sándalo está cubierto por muchas serpientes, así mismo el cuerpo del Señor estaba cubierto por las cabezas de Ananta.**
 

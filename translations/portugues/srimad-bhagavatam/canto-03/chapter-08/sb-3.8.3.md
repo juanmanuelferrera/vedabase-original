@@ -11,7 +11,7 @@ vivitsavas tattvam ataḥ parasya
 
 *kumāra*-mukhyā munayo 'nvapṛcchan
 
-*āsīnam*—sentado; *urvyām*—no fundo do universo; *bhagavantam*—ao Senhor; *ādyam*—o original; *saṅkarṣaṇam*—Saṅkarṣaṇa; *devam*—a Personalidade de Deus; *akuṇṭha-sattvam*—conhecimento inabalável; *vivitsavaḥ*—sendo curiosos para saber; *tattvam ataḥ*—verdade como esta; *parasya*—relativa à Suprema Personalidade de Deus; *kumāra*—o santo-menino; *mukhyāḥ*—encabeçados por; *munayaḥ*—grandes sábios; *anvapṛcchan*—indagaram assim.
+*āsīnam*—sentado; *urvyām*—no fundo do universo; *bhagavantam*—ao Senhor; *ādyam*—o original; *saṅkarṣaṇam*—Saṅkarṣaṇa; *devam*—a Personalidade de Deus; *akuṇṭha-sattvam*—conhecimento inabalável; *vivitsavaḥ*—sendo curiosos para saber; *tattvam ataḥ*—verdade como esta; *parasya*—relativa à Suprema Personalidade de Deus; *kumāra*—o santo-menino; *mukhyāḥ*—os principais; *munayaḥ*—grandes sábios; *anvapṛcchan*—indagaram assim.
 
 **Há algum tempo, sendo curiosos para saber, Sanat-kumāra, o chefe dos santos-meninos, acompanhado de outros grandes sábios, perguntou exatamente como você sobre as verdades relativas a Vāsudeva, o Supremo, ao Senhor Saṅkarṣaṇa, que está situado no fundo do universo.**
 

@@ -8,7 +8,7 @@
 > kirīṭa-sāhasra-maṇi-praveka-\
 > pradyotitoddāma-phaṇā-sahasram
 
-*muhuḥ*—una y otra vez; *gṛṇantaḥ*—glorificando; *vacasā*—mediante palabras; *anurāga*—con gran afecto; *skhalat-padena*—con ritmo simétrico; *asya*—del Señor; *kṛtāni*—actividades; *tat-jñāḥ*—aquellos que conocen los pasatiempos; *kirīṭa*—yelmos; *sāhasra*—miles; *maṇi-praveka*—refulgencia radiante de las valiosas piedras; *pradyotita*—que emana de; *uddāma*—erguidas; *phaṇā*—cabezas; *sahasram*—miles.
+*muhuḥ*—una y otra vez; *gṛṇantaḥ*—glorificando; *vacasā*—mediante palabras; *anurāga*—con gran afecto; *skhalat-padena*—con ritmo simétrico; *asya*—del Señor; *kṛtāni*—actividades; *tat-jñāḥ*—aquel que conoce los pasatiempos; *kirīṭa*—yelmos; *sāhasra*—miles; *maṇi-praveka*—refulgencia radiante de las valiosas piedras; *pradyotita*—que emana de; *uddāma*—erguidas; *phaṇā*—cabezas; *sahasram*—miles.
 
 **Los cuatro Kumāras, encabezados por Sanat-kumāra, todos los cuales conocían los pasatiempos trascendentales del Señor, glorificaron al Señor de una manera rítmica, con palabras selectas llenas de afecto y amor. En esos momentos, Śrī Saṅkarṣaṇa, con Sus miles de cuellos erguidos, comenzó a irradiar una refulgencia a través de las destellantes piedras de Sus cabezas.**
 

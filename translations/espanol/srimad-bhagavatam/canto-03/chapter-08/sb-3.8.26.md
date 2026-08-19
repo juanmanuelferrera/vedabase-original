@@ -8,7 +8,7 @@
 > pradarśayantaṁ kṛpayā nakhendu-\
 > mayūkha-bhinnāṅguli-cāru-patram
 
-*puṁsām*—del ser humano; *sva-kāmāya*—conforme al deseo; *vivikta-mārgaiḥ*—por el sendero del servicio devocional; *abhyarcatām*—adorado; *kāma-dugha-aṅghri-padmam*—los pies de loto del Señor, que pueden conceder todos los frutos deseados; *pradarśayantam*—mientras los mostraba; *kṛpayā*—por la misericordia sin causa; *nakha*—uñas; *indu*—como lunas; *mayūkha*—rayos; *bhinna*—dividido; *aṅguli*—figuras; *cāru-patram*—muy hermoso.
+*puṁsām*—del ser humano; *sva-kāmāya*—conforme a su deseo; *vivikta-mārgaiḥ*—por el sendero del servicio devocional; *abhyarcatām*—adorado; *kāma-dugha-aṅghri-padmam*—los pies de loto del Señor, que pueden conceder todos los frutos deseados; *pradarśayantam*—mientras los mostraba; *kṛpayā*—por la misericordia sin causa; *nakha*—uñas; *indu*—como lunas; *mayūkha*—rayos; *bhinna*—dividido; *aṅguli*—figuras; *cāru-patram*—muy hermoso.
 
 **El Señor mostró Sus pies de loto, levantándolos. Sus pies de loto son la fuente de todas las recompensas que se alcanzan mediante el servicio devocional libre de contaminación material. Esas recompensas son para aquellos que Lo adoran con devoción pura. El esplendor de los rayos trascendentales de la uñas cual lunas de Sus pies y de Sus manos recordaba los pétalos de una flor.**
 

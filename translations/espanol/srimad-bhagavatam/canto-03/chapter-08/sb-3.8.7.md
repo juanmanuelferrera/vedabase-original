@@ -8,7 +8,7 @@
 > sanat-kumārāya sa cāha pṛṣṭaḥ\
 > sāṅkhyāyanāyāṅga dhṛta-vratāya
 
-*proktam*—se dijo; *kila*—ciertamente; *etat*—esto; *bhagavattamena*—por Śrī Saṅkarṣaṇa; *nivṛtti*—renunciación; *dharma-abhiratāya*—a aquel que ha hecho este voto religioso; *tena*—por Él; *sanat-kumārāya*—a Sanat-kumāra; *saḥ*—él; *ca*—también; *āha*—dijo; *pṛṣṭaḥ*—cuando se le preguntó; *sāṅkhyāyanāya*—al gran sabio Sāṅkhyāyana; *aṅga*—mi querido Vidura; *dhṛta-vratāya*—a aquel que ha hecho semejante voto.
+*proktam*—se dijo; *kila*—ciertamente; *etat*—esto; *bhagavattamena*—por Śrī Saṅkarṣaṇa; *nivṛtti*—renunciación; *dharma-abhiratāya*—a aquel que ha hecho este voto religioso; *tena*—a él; *sanat-kumārāya*—a Sanat-kumāra; *saḥ*—él; *ca*—también; *āha*—dijo; *pṛṣṭaḥ*—cuando se le preguntó; *sāṅkhyāyanāya*—al gran sabio Sāṅkhyāyana; *aṅga*—mi querido Vidura; *dhṛta-vratāya*—a aquel que ha hecho semejante voto.
 
 **Śrī Saṅkarṣaṇa habló entonces el significado del Śrīmad-Bhāgavatam al gran sabio Sanat-kumāra, que ya había hecho el voto de la renunciación. Cuando Sāṅkhyāyana Muni hizo preguntas a Sanat-kumāra, este también, a su vez, le explicó el Śrīmad-Bhāgavatam tal como lo había oído de Saṅkarṣaṇa.**
 

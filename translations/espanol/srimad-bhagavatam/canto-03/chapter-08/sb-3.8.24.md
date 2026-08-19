@@ -8,7 +8,7 @@
 > ratnodadhārauṣadhi-saumanasya\
 > vana-srajo veṇu-bhujāṅghripāṅghreḥ
 
-*prekṣām*—el panorama; *kṣipantam*—burlándose; *harita*—verde; *upala*—coral; *adreḥ*—del infierno; *sandhyā-abhra-nīveḥ*—del vestido del cielo nocturno; *uru*—gran; *rukma*—oro; *mūrdhnaḥ*—en la cima; *ratna*—joyas; *udadhāra*—cascadas; *auṣadhi*—hierbas; *saumanasya*—del escenario; *vana-srajaḥ*—collar de flores; *veṇu*—ropa; *bhuja*—manos; *aṅghripa*—árboles; *aṅghreḥ*—piernas.
+*prekṣām*—el panorama; *kṣipantam*—burlándose; *harita*—verde; *upala*—coral; *adreḥ*—de la colina; *sandhyā-abhra-nīveḥ*—del vestido del cielo nocturno; *uru*—gran; *rukma*—oro; *mūrdhnaḥ*—en la cima; *ratna*—joyas; *udadhāra*—cascadas; *auṣadhi*—hierbas; *saumanasya*—del escenario; *vana-srajaḥ*—collar de flores; *veṇu*—ropa; *bhuja*—manos; *aṅghripa*—árboles; *aṅghreḥ*—piernas.
 
 **El brillo del cuerpo trascendental del Señor se burlaba de la belleza de la montaña de coral. A la montaña de coral la viste con gran hermosura la nube nocturna, pero las ropas amarillas del Señor se burlaban de su belleza. En la cima de la montaña hay oro, pero el yelmo del Señor, adornado con joyas, se burlaba de él. Las cascadas, hierbas, etc., de la montaña, con un panorama de flores, parecen guirnaldas, pero el gigantesco cuerpo del Señor, y Sus manos y piernas, decorados con joyas, perlas, hojas de tulasī y collares de flores, se burlaban del paisaje de la montaña.**
 

@@ -11,7 +11,7 @@ muhur gṛṇanto vacasānurāga-
 
 *pradyotitoddāma*-phaṇā-sahasram
 
-*muhuḥ*—repetidas vezes; *gṛṇantaḥ*—glorificando; *vacasā*—por palavras; *anurāga*—com grande afeição; *skhalat-padena*—com ritmo simétrico; *asya*—do Senhor; *kṛtāni*—atividades; *tat-jñāḥ*—aqueles que conhecem os passatempos; *kirīṭa*—elmos; *sāhasra*—milhares; *maṇi-praveka*—efulgência brilhante das pedras preciosas; *pradyotita*—emanando de; *uddāma*—erguidas; *phaṇā*—capelos; *sahasram*—milhares.
+*muhuḥ*—repetidas vezes; *gṛṇantaḥ*—glorificando; *vacasā*—por palavras; *anurāga*—com grande afeição; *skhalat-padena*—com ritmo simétrico; *asya*—do Senhor; *kṛtāni*—atividades; *tat-jñāḥ*—aquele que conhece os passatempos; *kirīṭa*—elmos; *sāhasra*—milhares; *maṇi-praveka*—efulgência brilhante das pedras preciosas; *pradyotita*—emanando de; *uddāma*—erguidas; *phaṇā*—capelos; *sahasram*—milhares.
 
 **Os quatro Kumāras, encabeçados por Sanat-kumāra, que todos conheciam os passatempos transcendentais do Senhor, glorificaram o Senhor em acentos rítmicos com palavras escolhidas repletas de afeição e amor. Naquele momento, o Senhor Saṅkarṣaṇa, com Seus milhares de capelos erguidos, começou a irradiar uma efulgência das pedras brilhantes em Sua cabeça.**
 
