@@ -11,7 +11,7 @@ yair vā yajñas tu sambhṛtaḥ
 
 *śilā*-lohābhra-vidyutām
 
-*romāṇi*—pelos do corpo; *udbhijja*—vegetais; *jātīnām*—dos reinos; *yaiḥ*—pelos quais; *vā*—ou; *yajñaḥ*—sacrifícios; *tu*—mas; *sambhṛtaḥ*—particularmente servido; *keśa*—cabelos da cabeça; *śmaśru*—pelos faciais; *nakhāni*—unhas; *asya*—d'Ele; *śilā*—pedras; *loha*—minérios de ferro; *abhra*—nuvens; *vidyutām*—eletricidade.
+*romāṇi*—pelos do corpo; *udbhijja*—vegetais; *jātīnām*—dos reinos; *yaiḥ*—pelos quais; *vā*—ou; *yajñaḥ*—sacrifícios; *tu*—mas; *sambhṛtaḥ*—particularmente servido; *keśa*—cabelos; *śmaśru*—pelos faciais; *nakhāni*—unhas; *asya*—d'Ele; *śilā*—pedras; *loha*—minérios de ferro; *abhra*—mica; *vidyutām*—eletricidade.
 
 **Os pelos de Seu corpo são a causa de toda a vegetação, particularmente daquelas árvores que se requerem como ingredientes para o sacrifício. Os cabelos de Sua cabeça são reservatórios para as nuvens, e Seu rosto é o solo gerador da eletricidade e da mica. Suas unhas são de pedras e minérios de ferro.**
 

@@ -11,7 +11,7 @@ kṣemasya śaraṇasya ca
 
 hareś caraṇa āspadam
 
-*vikramaḥ*—passos à frente; *bhūḥ bhuvaḥ*—dos planetas inferiores e superiores; *svaḥ*—bem como do céu; *ca*—também; *kṣemasya*—da proteção de tudo que temos; *śaraṇasya*—da ausência de temor; *ca*—também; *sarva-kāma*—tudo que necessitamos; *varasya*—de todas as bênçãos; *api*—exatamente; *hareḥ*—do Senhor; *caraṇaḥ*—os pés de lótus; *āspadam*—abrigo.
+*vikramaḥ*—passos à frente; *bhūḥ bhuvaḥ*—dos planetas inferiores e superiores; *svaḥ*—bem como do céu; *ca*—também; *kṣemasya*—da proteção de tudo que temos; *śaraṇasya*—da ausência de temor; *ca*—também; *sarva-kāma*—tudo que necessitamos; *varasya*—de toda bênção; *api*—exatamente; *hareḥ*—do Senhor; *caraṇaḥ*—os pés de lótus; *āspadam*—abrigo.
 
 **Assim, os passos avançados do Senhor são o abrigo dos três planetas superiores, inferiores e celestiais, bem como de tudo de que necessitamos. Eles servem de proteção contra todo tipo de medo.**
 

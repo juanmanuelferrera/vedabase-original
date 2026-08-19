@@ -8,7 +8,7 @@
 > keśa-śmaśru-nakhāny asya\
 > śilā-lohābhra-vidyutām
 
-*romāni*—vellos del cuerpo; *udbhijja*—vegetales; *jātīnām*—de los reinos; *yaiḥ*—por el cual; *vā*—o; *yajñaḥ*—sacrificios; *tu*—pero; *sambhṛtaḥ*—particularmente servidos; *keśa*—cabellos; *śmaśru*—vello facial; *nakhāni*—uñas; *asya*—de Él; *ilā*—piedras; *loha*—menas de hierro; *abhra*—nubes; *vidyutām*—electricidad.
+*romāni*—vellos del cuerpo; *udbhijja*—vegetales; *jātīnām*—de los reinos; *yaiḥ*—por el cual; *vā*—o; *yajñaḥ*—sacrificios; *tu*—pero; *sambhṛtaḥ*—particularmente servidos; *keśa*—cabellos; *śmaśru*—vello facial; *nakhāni*—uñas; *asya*—de Él; *ilā*—piedras; *loha*—menas de hierro; *abhra*—mica; *vidyutām*—electricidad.
 
 **Los vellos de Su cuerpo son la causa de toda la vegetación, en particular de aquellos árboles que se requieren como ingredientes para el sacrificio. Los cabellos de Su cabeza son los depósitos de las nubes, y Su rostro es el campo de cultivo de la electricidad y la mica. Sus uñas son las piedras y los minerales de hierro.**
 

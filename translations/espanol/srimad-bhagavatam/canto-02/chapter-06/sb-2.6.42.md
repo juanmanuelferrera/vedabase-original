@@ -8,7 +8,7 @@
 > dravyaṁ vikāro guṇa indriyāṇi\
 > virāṭ svarāṭ sthāsnu cariṣṇu bhūmnaḥ
 
-*ādyaḥ*—primera; *avatāraḥ*—encarnación; *puruṣaḥ*—Kāraṇārṇavaśāyī Viṣṇu; *parasya*—del Señor; *kālaḥ*—tiempo; *svabhāvaḥ*—espacio; *sat*—resultado; *asat*—causa; *manaḥ*—mente; *ca*—también; *dravyam*—elementos; *vikāraḥ*—ego material; *guṇaḥ*—modalidades de la naturaleza; *indriyāṇi*—sentidos; *virāṭ*—todo el cuerpo completo; *svarāṭ*—Garbhodakaśāyī Viṣṇu; *sthāsnu*—inmóviles; *cariṣṇu*—móviles; *bhūmnaḥ*—del Señor Supremo.
+*ādyaḥ*—primera; *avatāraḥ*—encarnación; *puruṣaḥ*—Kāraṇārṇavaśāyī Viṣṇu; *parasya*—del Señor; *kālaḥ*—tiempo; *svabhāvaḥ*—espacio; *sat*—resultante; *asat*—causa; *manaḥ*—mente; *ca*—también; *dravyam*—elementos; *vikāraḥ*—ego material; *guṇaḥ*—modalidades de la naturaleza; *indriyāṇi*—sentidos; *virāṭ*—todo el cuerpo completo; *svarāṭ*—Garbhodakaśāyī Viṣṇu; *sthāsnu*—inmóviles; *cariṣṇu*—móviles; *bhūmnaḥ*—del Señor Supremo.
 
 **Kāraṇārṇavaśāyī Viṣṇu es la primera encarnación del Señor Supremo, y es el amo del tiempo eterno, el espacio, la causa y los efectos, la mente, los elementos, el ego material, las modalidades de la naturaleza, los sentidos, la forma universal del Señor, Garbhodakaśāyī Viṣṇu, y la suma total de todos los seres vivientes, tanto móviles como inmóviles.**
 

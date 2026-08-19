@@ -11,7 +11,7 @@ dravyaṁ vikāro guṇa indriyāṇi
 
 virāṭ svarāṭ sthāsnu cariṣṇu bhūmnaḥ
 
-*ādyaḥ*—primeira; *avatāraḥ*—encarnação; *puruṣaḥ*—Kāraṇārṇavaśāyī Viṣṇu; *parasya*—do Senhor; *kālaḥ*—tempo; *svabhāvaḥ*—espaço; *sat*—resultado; *asat*—causa; *manaḥ*—mente; *ca*—também; *dravyam*—elementos; *vikāraḥ*—ego material; *guṇaḥ*—modos da natureza; *indriyāṇi*—sentidos; *virāṭ*—a forma corporal total completa; *svarāṭ*—Garbhodakaśāyī Viṣṇu; *sthāsnu*—imóvel; *cariṣṇu*—móvel; *bhūmnaḥ*—do Senhor Supremo.
+*ādyaḥ*—primeira; *avatāraḥ*—encarnação; *puruṣaḥ*—Kāraṇārṇavaśāyī Viṣṇu; *parasya*—do Senhor; *kālaḥ*—tempo; *svabhāvaḥ*—espaço; *sat*—resultante; *asat*—causa; *manaḥ*—mente; *ca*—também; *dravyam*—elementos; *vikāraḥ*—ego material; *guṇaḥ*—modos da natureza; *indriyāṇi*—sentidos; *virāṭ*—a forma corporal total completa; *svarāṭ*—Garbhodakaśāyī Viṣṇu; *sthāsnu*—imóvel; *cariṣṇu*—móvel; *bhūmnaḥ*—do Senhor Supremo.
 
 **Kāraṇārṇavaśāyī Viṣṇu é a primeira encarnação do Senhor Supremo, e Ele é o senhor do tempo, do espaço, das causas e dos efeitos eternos, da mente, dos elementos, do ego material, dos modos da natureza, dos sentidos, da forma universal do Senhor, de Garbhodakaśāyī Viṣṇu e da soma total de todos os seres vivos, móveis e imóveis.**
 
