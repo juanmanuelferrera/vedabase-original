@@ -8,7 +8,7 @@ līlā-sūtrānuvarṇane
 gaurasya kṛṣṇa-viccheda-
 pralāpādy anuvarṇyate
 
-*vicchede*—no capítulo; *asmin*—este; *prabhoḥ*—do Senhor; *antya-līlā*—da última divisão de Seus passatempos; *sūtra*—de uma sinopse; *anuvarṇane*—no que diz respeito à descrição; *gaurasya*—do Senhor Śrī Caitanya Mahāprabhu; *kṛṣṇa-viccheda*—da separação de Kṛṣṇa; *pralāpa*—loucura; *ādi*—outros assuntos; *anuvarṇyate*—está sendo descrita.
+*vicchede*—no capítulo; *asmin*—este; *prabhoḥ*—do Senhor; *antya-līlā*—da última divisão de Seus passatempos; *sūtra*—dos códigos; *anuvarṇane*—no que diz respeito à descrição; *gaurasya*—do Senhor Śrī Caitanya Mahāprabhu; *kṛṣṇa-viccheda*—da separação de Kṛṣṇa; *pralāpa*—loucura; *ādi*—outros assuntos; *anuvarṇyate*—está sendo descrita.
 
 **Ao relatar em forma de sinopse a última divisão dos passatempos do Senhor Caitanya Mahāprabhu, neste capítulo descreverei o êxtase transcendental do Senhor, que se assemelha à loucura devido à Sua separação de Kṛṣṇa.**
 

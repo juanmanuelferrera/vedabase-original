@@ -6,7 +6,7 @@
 > gopāla-campū-nāme grantha-mahāśūra\
 > nitya-līlā sthāpana yāhe vraja-rasa-pūra
 
-*gopāla-campū*—Gopāla-campū; *nāme*—de nombre; *grantha*—la obra literaria trascendental; *mahā-śūra*—la más formidable; *nitya-līlā*—de los pasatiempos eternos; *sthāpana*—establecimiento; *yāhe*—en la cual; *vraja-rasa*—los mellows trascendentales de los que se disfruta en Vṛndāvana; *pūra*—completos.
+*gopāla-campū*—Gopāla-campū; *nāme*—de nombre; *grantha*—la literatura trascendental; *mahā-śūra*—la más formidable; *nitya-līlā*—de los pasatiempos eternos; *sthāpana*—establecimiento; *yāhe*—en la cual; *vraja-rasa*—los mellows trascendentales de los que se disfruta en Vṛndāvana; *pūra*—completos.
 
 **La literatura trascendental más famosa y formidable es el libro denominado *Gopāla-campū*. En este libro se establecen los pasatiempos eternos del Señor, y se describen en su totalidad los humores trascendentales disfrutados en Vṛndāvana.**
 

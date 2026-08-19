@@ -6,7 +6,7 @@
 kājī, yavana ihāra nā kariha hiṁsana
 āpana-icchāya buluna, yāhāṅ uṅhāra mana
 
-*kājī*—magistrado; *yavana*—muçulmano; *ihāra*—d'Ele; *nā*—não; *kariha*—façais; *hiṁsana*—inveja; *āpana-icchāya*—segundo Sua própria vontade; *buluna*—deixai-O ir; *yāhāṅ*—onde quer que; *uṅhāra*—d'Ele; *mana*—a mente.
+*kājī*—magistrado; *yavana*—maometano; *ihāra*—d'Ele; *nā*—não; *kariha*—façais; *hiṁsana*—inveja; *āpana-icchāya*—segundo Sua própria vontade; *buluna*—deixai-O ir; *yāhāṅ*—onde quer que; *uṅhāra*—d'Ele; *mana*—a mente.
 
 **O rei muçulmano ordenou ao magistrado: "Não perturbeis este profeta hindu por inveja. Deixai-O fazer Sua própria vontade onde quer que Lhe apraza."**
 

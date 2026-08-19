@@ -7,7 +7,7 @@ ei ta' kahila madhya-līlāra sūtra-gaṇa
 
 śeṣa dvādaśa vatsarera śuna vivaraṇa
 
-*ei ta'*—assim; *kahila*—expliquei; *madhya-līlāra*—dos passatempos intermediários; *sūtra-gaṇa*—uma sinopse; *śeṣa*—últimos; *dvādaśa*—doze; *vatsarera*—dos anos; *śuna*—ouvi; *vivaraṇa*—a descrição.
+*ei ta'*—assim; *kahila*—expliquei; *madhya-līlāra*—dos passatempos intermediários; *sūtra-gaṇa*—os códigos; *śeṣa*—últimos; *dvādaśa*—doze; *vatsarera*—dos anos; *śuna*—ouvi; *vivaraṇa*—a descrição.
 
 **Assim apresentei uma sinopse da madhya-līlā. Ouça agora os passatempos que o Senhor realizou durante os últimos doze anos.**
 
