@@ -6,7 +6,7 @@
 hena-kāle āilā tathā bhavānanda rāya
 cāri-putra-saṅge paḍe mahāprabhura pāya
 
-*hena-kāle*—nesse momento; *āilā*—veio; *tathā*—ali; *bhavānanda rāya*—Bhavānanda Rāya; *cāri-putra-saṅge*—com quatro de seus filhos; *paḍe*—caiu; *mahāprabhura pāya*—aos pés de lótus de Śrī Caitanya Mahāprabhu.
+*hena-kāle*—nesse momento; *āilā*—veio; *tathā*—ali; *bhavānanda rāya*—Bhavānanda Rāya; *cāri-putra-saṅge*—com seus quatro filhos; *paḍe*—caiu; *mahāprabhura pāya*—aos pés de lótus de Śrī Caitanya Mahāprabhu.
 
 **Nesse momento, Bhavānanda Rāya apareceu com quatro de seus filhos, e todos eles caíram aos pés de lótus de Śrī Caitanya Mahāprabhu.**
 

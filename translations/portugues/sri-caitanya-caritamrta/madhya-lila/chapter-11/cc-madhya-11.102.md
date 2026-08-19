@@ -6,7 +6,7 @@
 bhaṭṭa kahe,-tāṅra kṛpā-leśa haya yāṅre
 sei se tāṅhāre 'kṛṣṇa' kari' la-ite pāre
 
-*bhaṭṭa kahe*—Sārvabhauma Bhaṭṭācārya disse; *tāṅra kṛpā*—da misericórdia do Senhor Caitanya; *leśa*—mesmo uma fração; *haya*—há; *yāṅre*—a quem; *sei se*—somente essa pessoa; *tāṅhāre*—o Senhor Śrī Caitanya Mahāprabhu; *kṛṣṇa kari'*—aceitando como Kṛṣṇa; *la-ite pāre*—pode aceitar.
+*bhaṭṭa kahe*—Sārvabhauma Bhaṭṭācārya disse; *tāṅra kṛpā*—da misericórdia do Senhor Kṛṣṇa; *leśa*—mesmo uma fração; *haya*—há; *yāṅre*—a quem; *sei se*—somente essa pessoa; *tāṅhāre*—o Senhor Śrī Caitanya Mahāprabhu; *kṛṣṇa kari'*—aceitando como Kṛṣṇa; *la-ite pāre*—pode aceitar.
 
 **O Bhaṭṭācārya respondeu: "Uma pessoa que recebeu apenas uma pequena fração da misericórdia de Śrī Caitanya Mahāprabhu pode compreender que Ele é o Senhor Kṛṣṇa. Mais ninguém pode.**
 
