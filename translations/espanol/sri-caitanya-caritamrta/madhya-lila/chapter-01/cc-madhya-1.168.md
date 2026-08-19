@@ -6,7 +6,7 @@
 > gauḍeśvara yavana-rājā prabhāva śuniñā\
 > kahite lāgila kichu vismita hañā
 
-*gauḍa-īśvara*—rey de Bengala; *yavana-rājā*—rey musulmán; *prabhāva*—influencia; *śuniñā*—al oír; *kahite*—a decir; *lāgila*—comenzó; *kichu*—algo; *vismita*—asombrado; *hañā*—quedando.
+*gauḍa-īśvara*—rey de Bengala; *yavana-rājā*—rey mahometano; *prabhāva*—influencia; *śuniñā*—al oír; *kahite*—a decir; *lāgila*—comenzó; *kichu*—algo; *vismita*—asombrado; *hañā*—quedando.
 
 **Cuando el rey mahometano de Bengala tuvo noticia de la influencia de Caitanya Mahāprabhu al atraer a innumerables personas, quedó muy asombrado y comenzó a hablar del siguiente modo.**
 

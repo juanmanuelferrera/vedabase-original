@@ -7,6 +7,6 @@ kṛṣṇa-janma-yātrāte prabhu gopa-veśa hailā
 
 dadhi-bhāra vahi' tabe laguḍa phirāilā
 
-*kṛṣṇa-janma-yātrāte*—na cerimônia do aniversário do Senhor Kṛṣṇa; *prabhu*—o Senhor Caitanya Mahāprabhu; *gopa-veśa*—vestido como um vaqueirinho; *hailā*—ficou; *dadhi-bhāra*—uma balança para potes de iogurte; *vahi'*—carregando; *tabe*—naquela ocasião; *laguḍa*—uma vara; *phirāilā*—girou.
+*kṛṣṇa-janma-yātrāte*—na cerimônia do aniversário do Senhor Kṛṣṇa; *prabhu*—o Senhor Caitanya Mahāprabhu; *gopa-veśa*—vestido como um vaqueirinho; *hailā*—ficou; *dadhi-bhāra*—uma balança para potes de iogurte; *vahi'*—carregando; *tabe*—naquela ocasião; *laguḍa*—um tronco; *phirāilā*—cercou.
 
 **Em Janmāṣṭamī, o aniversário do Senhor Kṛṣṇa, Śrī Caitanya Mahāprabhu Se vestiu como um pastor de vacas e, carregando uma balança com potes de iogurte, rodou um bastão.**
