@@ -5,6 +5,6 @@
 rāma! rāghava! rāma! rāghava! rāma! rāghava! pāhi mām
 kṛṣṇa! keśava! kṛṣṇa! keśava! kṛṣṇa! keśava! rakṣa mām
 
-*rāma*—ó Rāma; *rāghava*—ó descendente de Raghu; *pāhi*—por favor, protege; *mām*—a mim; *kṛṣṇa*—ó Kṛṣṇa; *keśava*—ó matador de Keśī; *rakṣa*—protege; *mām*—a mim.
+*rāma*—ó Rāma; *rāghava*—descendente de Raghu; *pāhi*—por favor, protege; *mām*—a mim; *kṛṣṇa*—ó Kṛṣṇa; *keśava*—matador de Keśī; *rakṣa*—protege; *mām*—a mim.
 
 **" 'Ó Senhor Rāmacandra, descendente de Mahārāja Raghu, por favor, protege-me! Ó Senhor Kṛṣṇa, matador do demônio Keśī, por favor, protege-me!' "**

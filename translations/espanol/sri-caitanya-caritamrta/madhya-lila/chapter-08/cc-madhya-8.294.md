@@ -5,7 +5,7 @@
 > tāmā, kāṅsā, rūpā, sonā, ratna-cintāmaṇi\
 > keha yadi kāhāṅ potā pāya eka-khāni
 
-*tāmā*—cobre; *kāṅsā*—metal de campana; *rūpā*—plata; *sonā*—oro; *ratna-cintāmaṇi*—la piedra de toque, base de todos los metales; *keha*—alguien; *yadi*—si; *kāhāṅ*—en algún lugar; *potā*—enterrado; *pāya*—encuentra; *eka-khāni*—en un solo lugar.
+*tāmā*—cobre; *kāṅsā*—metal de campana; *rūpā*—plata; *sonā*—oro; *ratna-cintāmaṇi*—el mejor de todos los metales; *keha*—alguien; *yadi*—si; *kāhāṅ*—en algún lugar; *potā*—enterrado; *pāya*—encuentra; *eka-khāni*—en un solo lugar.
 
 **En realidad, esas conversaciones son como una gran mina de la que se pueden extraer toda clase de metales: cobre, bronce, plata, oro, metales comunes y todos los metales.**
 
