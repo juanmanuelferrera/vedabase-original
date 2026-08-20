@@ -25,7 +25,10 @@ One should always engage in the Lord's devotional service. As recommended in the
 
 As stated in Bhagavad-gītā:
 
-evaṁ paramparā-prāptam imaṁ rājarṣayo viduḥ sa kāleneha mahatā yogo naṣṭaḥ parantapa
+> evaṁ paramparā-prāptam
+> imaṁ rājarṣayo viduḥ
+> sa kāleneha mahatā
+> yogo naṣṭaḥ parantapa
 
 "This supreme science was thus received through the chain of disciplic succession, and the saintly kings understood it in that way. But in course of time the succession was broken, and therefore the science as it is appears to be lost." (Bg. 4.2)
 

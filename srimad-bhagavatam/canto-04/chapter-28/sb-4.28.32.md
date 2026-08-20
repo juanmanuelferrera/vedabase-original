@@ -16,6 +16,7 @@ The name Agastya Muni is very significant. The word agastya indicates that his s
 
 Thus from bhakti-latā the son Dṛḍhacyuta is born, and from Dṛḍhacyuta the next son, Idhmavāha, is born. The word idhma-vāha refers to one who carries wood for burning in a sacrifice when approaching a spiritual master. The point is that bhakti-latā, the cult of devotion, fixes one in his spiritual position. One so fixed never comes down, and he begets children who are strict followers of the śāstric injunctions. As said in the Vedas:
 
-tad-vijñānārthaṁ sa gurum evābhigacchet samit-pāṇiḥ śrotriyaṁ brahma-niṣṭham
+> tad-vijñānārthaṁ sa gurum evābhigacchet
+> samit-pāṇiḥ śrotriyaṁ brahma-niṣṭham
 
 In the line of devotional service, those who are initiated are strict followers of the Vedic scriptural injunctions.

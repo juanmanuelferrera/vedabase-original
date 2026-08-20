@@ -18,7 +18,10 @@ The word nirviṣaṅgaḥ (uncontaminated) is very significant because Mahārā
 
 In one's home or in a temple, the Deity is considered the proprietor of everything, and everyone is considered the Deity's eternal servant. The Lord is transcendental, for He is not part of this material creation. The words prakṛteḥ param are used in this verse because everything within this material world is created by the external material energy of the Lord, but the Lord Himself is not a creation of this material energy. The Lord is the supreme superintendent of all material creations, as confirmed in Bhagavad-gītā:
 
-mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram hetunānena kaunteya jagad viparivartate
+> mayādhyakṣeṇa prakṛtiḥ
+> sūyate sa-carācaram
+> hetunānena kaunteya
+> jagad viparivartate
 
 "This material nature is working under My direction, O son of Kuntī, producing all the moving and unmoving beings, and by its rule this manifestation is created and annihilated again and again." (Bg. 9.10)
 

@@ -14,7 +14,8 @@
 
 The Supreme Personality of Godhead is situated in everyone's heart, and from Him issue a living entity's inclinations and disinclinations. This is confirmed in Bhagavad-gītā:
 
-sarvasya cāhaṁ hṛdi sanniviṣṭo mattaḥ smṛtir jñānam apohanaṁ ca
+> sarvasya cāhaṁ hṛdi sanniviṣṭo
+> mattaḥ smṛtir jñānam apohanaṁ ca
 
 "I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness." (Bg. 15.15)
 

@@ -23,7 +23,8 @@ The three activities of religion, economic development and sense gratification a
 
 āśliṣya vā pāda-ratāṁ pinaṣṭu mām adarśanān marma-hatāṁ karotu vā
 
-yathā tathā vā vidadhātu lampaṭo mat-prāṇa-nāthas tu sa eva nāparaḥ
+> yathā tathā vā vidadhātu lampaṭo
+> mat-prāṇa-nāthas tu sa eva nāparaḥ
 
 "Lord Kṛṣṇa, who is the lover of many devotees (women), may embrace this fully surrendered maidservant or may trample me with His feet, or He may render me brokenhearted by not being present before me for a long duration of time, still He is nothing less than the Absolute Lord of my heart."
 

@@ -178,6 +178,7 @@ The cream of Śrīmad-Bhāgavatam in the foregoing four ślokas is sometimes squ
 
 nāyam ātmā pravacanena labhyo na medhayā na bahudhā śrutena
 
-yam evaiṣa vṛṇute tena labhyas tasyaiṣa ātmā vivṛṇute tanuṁ svām
+> yam evaiṣa vṛṇute tena labhyas
+> tasyaiṣa ātmā vivṛṇute tanuṁ svām
 
 The whole matter is explained by the Lord Himself, and one who has no approach to the Lord in His personal feature can rarely understand the purport of Śrīmad-Bhāgavatam without being taught by the bhāgavatas in the disciplic succession.

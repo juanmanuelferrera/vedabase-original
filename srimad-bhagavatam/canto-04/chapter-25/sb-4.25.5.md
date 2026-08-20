@@ -16,7 +16,8 @@
 
 Śrī Narottama dāsa Ṭhākura has sung:
 
-sat-saṅga chāḍi' kainu asate vilāsa te-kāraṇe lāgila ye karma-bandha-phāṅsa
+> sat-saṅga chāḍi' kainu asate vilāsa
+> te-kāraṇe lāgila ye karma-bandha-phāṅsa
 
 As long as a person is entangled in fruitive activities, he is bound to accept one body after another. This is called karma-bandha-phāṅsa—entanglement in fruitive activities. It does not matter whether one is engaged in pious or impious activities, for both are causes for further entanglement in material bodies. By pious activities one can take birth in a rich family and get a good education and a beautiful body, but this does not mean that the distresses of life are ultimately eliminated. In the Western countries it is not unusual for one to take birth in a rich aristocratic family, nor is it unusual for one to have a good education and a very beautiful body, but this does not mean that Westerners are free from the distresses of life. Although at the present moment the younger generation in Western countries has sufficient education, beauty and wealth, and although there is enough food, clothing and facilities for sense gratification, they are in distress. Indeed, they are so distressed that they become "hippies," and the laws of nature force them to accept a wretched life. Thus they go about unclean and without shelter or food, and they are forced to sleep in the street. It can be concluded that one cannot become happy by simply performing pious activities. It is not a fact that those who are born with a silver spoon in their mouth are free from the material miseries of birth, old age, disease and death. The conclusion is that one cannot be happy by simply executing pious or impious activities. Such activities simply cause entanglement and transmigration from one body to another. Narottama dāsa Ṭhākura calls this karma-bandha-phāṅsa.
 

@@ -18,6 +18,7 @@ The minds of those who are addicted to fruitive activity are always filled with 
 
 King Pṛthu's activities took place in Satya-yuga, and in this age this practice of yoga is misunderstood by fallen souls who are not capable of practicing anything. Consequently the śāstras enjoin: kalau nāsty eva nāsty eva nāsty eva gatir anyathā. The conclusion is that unless the karmīs, jñānīs and yogīs come to the point of devotional service to Lord Kṛṣṇa, their so-called austerities and yoga have no value. Nārādhitaḥ: if Hari, the Supreme Personality of Godhead, is not worshiped, there is no point in practicing meditational yoga, performing karma-yoga or culturing empiric knowledge. As far as prāṇāyāma is concerned, chanting of the holy name of the Lord and dancing in ecstasy are also considered prāṇāyāma. In a previous verse, Sanat-kumāra instructed Mahārāja Pṛthu to engage constantly in the service of the Supreme Lord, Vāsudeva:
 
-yat pāda-paṅkaja-palāśa-vilāsa-bhaktyā karmāśayaṁ grathitam udgrathayanti santaḥ
+> yat pāda-paṅkaja-palāśa-vilāsa-bhaktyā
+> karmāśayaṁ grathitam udgrathayanti santaḥ
 
 Only by worshiping Vāsudeva can one become free from the desires of fruitive activities. Outside of worshiping Vāsudeva, the yogīs and jñānīs cannot attain freedom from such desires. Tadvan na rikta-matayo yatayo 'pi ruddha-srotogaṇās tam araṇaṁ bhaja vāsudevam (Bhāg. 4.22.39). Here the word prāṇāyāma does not refer to any ulterior motive. The actual aim is to strengthen the mind and senses in order to engage them in devotional service. In the present age this determination can be very easily acquired simply by chanting the holy names—Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.

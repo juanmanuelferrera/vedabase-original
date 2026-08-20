@@ -28,7 +28,8 @@ The living entity is the marginal energy of the Supreme Personality of Godhead, 
 
 The entire cosmic manifestation is but a combination of matter and spirit. The spiritual part is the living entity, and these living entities are described as prakṛti, or energy. The living entity is never described as puruṣa, the Supreme Person; therefore to identify the living entity with the Supreme Lord is simply ignorance. The living entity is the marginal potency of the Supreme Lord, although there is factually no difference between the energy and the energetic. The duty of the living entity is to understand his real identity. When he does, Kṛṣṇa gives him all the facilities to come to the platform of devotional service. That is the perfection of life. This is indicated in the Vedic Upaniṣad:
 
-yam evaiṣa vṛṇute tena labhyas tasyaiṣa ātmā vivṛṇute tanūṁ svām
+> yam evaiṣa vṛṇute tena labhyas
+> tasyaiṣa ātmā vivṛṇute tanūṁ svām
 
 Lord Kṛṣṇa confirms this in Bhagavad-gītā:
 

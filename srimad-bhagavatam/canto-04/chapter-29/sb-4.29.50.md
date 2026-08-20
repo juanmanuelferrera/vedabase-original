@@ -51,7 +51,8 @@ tāhāre se bali vidyā, mantra, adhyayana kṛṣṇa-pāda-padme ye karaye sth
 
 "One who has fixed his mind on the lotus feet of Kṛṣṇa is to be understood as having the best education and as having studied all the Vedas." (Cb. Antya 3.45) There are also other appropriate quotes in Caitanya-bhāgavata:
 
-sei se vidyāra phala jāniha niścaya kṛṣṇa-pāda-padme yadi citta-vṛtti raya
+> sei se vidyāra phala jāniha niścaya
+> kṛṣṇa-pāda-padme yadi citta-vṛtti raya
 
 "The perfect result of an education is the fixing of one's mind on the lotus feet of Kṛṣṇa." (Cb. Ādi 13.178)
 
@@ -63,6 +64,7 @@ paḍe kene loka—kṛṣṇa-bhakti jānibāre se yadi nahila, tabe vidyāya k
 
 "The purpose of education is to understand Kṛṣṇa and His devotional service. If one does not do so, then education is false." (Cb. Ādi 12.49)
 
-tāhāre se bali dharma, karma sadācāra īśvare se prīti janme sammata sabāra
+> tāhāre se bali dharma, karma sadācāra
+> īśvare se prīti janme sammata sabāra
 
 "Being cultured, educated, very active and religious means developing natural love for Kṛṣṇa." (Cb. Antya 3.44) Everyone has dormant love for Kṛṣṇa, and by culture and education that has to be awakened. That is the purpose of this Kṛṣṇa consciousness movement. Once Lord Caitanya asked Śrī Rāmānanda Rāya what the best part of education was, and Rāmānanda Rāya replied that the best part of education is advancement in Kṛṣṇa consciousness.

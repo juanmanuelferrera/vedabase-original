@@ -40,7 +40,8 @@ Gṛha. Home. For spiritual cultivation one requires an undisturbed place or the
 
 Idhmavāha. The devotee who approaches the spiritual master. Idhma refers to wood that is taken to burn as fuel for a fire. A brahmacārī is supposed to take this idhma to ignite the fire used in performing sacrifices. By spiritual instruction a brahmacāri is trained to ignite a fire and offer oblations in the morning. He is supposed to go to the spiritual master to take lessons on transcendental subject matter, and the Vedic injunction is that when approaching the spiritual master one must carry with him fuel to perform yajñas, or sacrifices. The exact Vedic injunction is as follows:
 
-tad-vijñānārthaṁ sa gurum evābhigacchet samit-pāṇiḥ śrotriyaṁ brahma-niṣṭham
+> tad-vijñānārthaṁ sa gurum evābhigacchet
+> samit-pāṇiḥ śrotriyaṁ brahma-niṣṭham
 
 "To learn transcendental subject matter, one must approach the spiritual master. In doing so, he should carry fuel to burn in sacrifice. The symptom of such a spiritual master is that he is expert in understanding the Vedic conclusion and therefore he constantly engages in the service of the Supreme Personality of Godhead." (Muṇḍaka Upaniṣad 1.2.12) By serving such a bona fide spiritual master, gradually a conditioned soul becomes detached from material enjoyment and invariably makes progress in spiritual realization under the direction of the spiritual master. Those who are misled by the illusory energy are never interested in approaching a spiritual master to make life successful.
 

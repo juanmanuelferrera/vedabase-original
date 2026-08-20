@@ -25,7 +25,8 @@ Since the material world cannot work independently, the living entities enter in
 
 The materialistic scientists' contention that living entities other than human beings have no soul is nullified herein. Whether they are born through an embryo, eggs, perspiration or seeds, all living entities in the 8,400,000 species of life are parts and parcels of the Supreme Personality of Godhead, and each therefore is an individual spiritual spark and soul. The Supreme Personality of Godhead also remains within the heart of the living entity, regardless of whether the living entity is a man, animal, tree, germ or microbe. The Lord resides in everyone's heart, and because all living entities who come to this material world do so in order to fulfill their desire for sense enjoyment, the Lord directs the living entities to enjoy their senses. Thus the Paramātmā, the Supreme Personality of Godhead, knows everyone's desires. As stated in Bhagavad-gītā :
 
-sarvasya cāhaṁ hṛdi sanniviṣṭo mattaḥ smṛtir jñānam apohanaṁ ca
+> sarvasya cāhaṁ hṛdi sanniviṣṭo
+> mattaḥ smṛtir jñānam apohanaṁ ca
 
 "I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness." (Bg. 15.15)
 

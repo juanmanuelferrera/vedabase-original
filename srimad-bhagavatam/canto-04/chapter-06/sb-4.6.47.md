@@ -14,7 +14,10 @@
 
 Persons who are materialistic and always engaged in fruitive activities for material profit cannot endure seeing the flourishing life of others. But for a few persons in Kṛṣṇa consciousness, the entire world is full of such envious persons, who are perpetually full of anxieties because they are attached to the material body and are without self-realization. Since their hearts are always filled with anxiety, it is understood that they have already been killed by Providence. Thus Lord Śiva, as a self-realized Vaiṣṇava, was advised not to kill Dakṣa. A Vaiṣṇava is described as para-duḥkha-duḥkhī because although he is never distressed in any condition of life, he is distressed to see others in a distressed condition. Vaiṣṇavas, therefore, should not try to kill by any action of the body or mind but should try to revive the Kṛṣṇa consciousness of others out of compassion for them. The Kṛṣṇa consciousness movement has been started to deliver the envious persons of the world from the clutches of māyā, and even though they are sometimes put in trouble, devotees push on the Kṛṣṇa consciousness movement in all tolerance. Lord Caitanya advises:
 
-tṛṇād api sunīcena taror api sahiṣṇunā amāninā mānadena kīrtanīyaḥ sadā hariḥ
+> tṛṇād api sunīcena
+> taror api sahiṣṇunā
+> amāninā mānadena
+> kīrtanīyaḥ sadā hariḥ
 
 "One can chant the holy name of the Lord in a humble state of mind, thinking himself lower than the straw in the street. One should be more tolerant than the tree, devoid of all sense of false prestige and ready to offer all respects to others. In such a state of mind one can chant the holy name of the Lord constantly." (Śikṣāṣṭakam, 3)
 

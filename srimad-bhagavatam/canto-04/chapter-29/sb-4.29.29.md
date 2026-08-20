@@ -25,6 +25,7 @@ Under the influence of māyā, the living entity becomes exactly like a person h
 
 Only by the grace of Kṛṣṇa can one get out of the clutches of māyā. It is not possible to get out by mental speculation or other activities. When the living entity understands his real position by the grace of Kṛṣṇa, he keeps himself always fit in Kṛṣṇa consciousness and acts accordingly. Thus he gradually becomes completely free from the clutches of māyā. When he is strong in Kṛṣṇa consciousness, māyā cannot touch him. In this way, in the association of Kṛṣṇa conscious devotees, the living entity can get free from the contamination of material existence. In this connection, Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī says:
 
-tāte kṛṣṇa bhaje, kare gurura sevana māyā-jāla chuṭe, pāya kṛṣṇera caraṇa
+> tāte kṛṣṇa bhaje, kare gurura sevana
+> māyā-jāla chuṭe, pāya kṛṣṇera caraṇa
 
 "In the Kṛṣṇa conscious state, the living entity engages in devotional service under the direction of the spiritual master. In this way he gets out of the clutches of māyā and takes shelter under the lotus feet of Lord Kṛṣṇa." (Cc. Madhya 22.25)

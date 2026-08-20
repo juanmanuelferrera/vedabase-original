@@ -25,6 +25,7 @@ In other words, this system of bhakti-yoga has been existing from time immemoria
 
 The word muni-vratāḥ is significant in this regard because those who are interested in advancing in spiritual life must be silent. Silence means talking only of Kṛṣṇa-kathā. This is the silence of Mahārāja Ambarīṣa:
 
-sa vai manaḥ kṛṣṇa-padāravindayor vacāṁsi vaikuṇṭha-guṇānuvarṇane
+> sa vai manaḥ kṛṣṇa-padāravindayor
+> vacāṁsi vaikuṇṭha-guṇānuvarṇane
 
 "King Ambarīṣa always fixed his mind on the lotus feet of the Lord and talked of Him only." (Bhāg. 9.4.19) We should also take this opportunity in life to become as good as a great saint simply by not talking unnecessarily with unwanted persons. We should either talk of Kṛṣṇa or chant Hare Kṛṣṇa undeviatingly. This is called muni-vrata. The intelligence (samāhita-dhiyaḥ) must be very sharp and should always be acting in Kṛṣṇa consciousness. The words etad abhyasatādṛtāḥ indicate that if one takes these instructions from a spiritual master with great reverence (ādṛta) and practices them accordingly, he will find this bhakti-yoga process to be very, very easy.

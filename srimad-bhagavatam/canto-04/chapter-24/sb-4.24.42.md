@@ -17,7 +17,10 @@
 
 The words kṛṣṇāya akuṇṭha-medhase are significant in this verse. Modern scientists have stopped their brainwork by discovering the theory of uncertainty, but factually for a living being there cannot be any brain activity which is not checked by time and space limitations. A living entity is called aṇu, an atomic particle of the spirit soul, and therefore his brain is also atomic. It cannot accommodate unlimited knowledge. This does not mean, however, that the Supreme Personality of Godhead, Kṛṣṇa, has a limited brain. What Kṛṣṇa says and does is not limited by time and space. In Bhagavad-gītā it is said:
 
-vedāhaṁ samatītāni vartamānāni cārjuna bhaviṣyāṇi ca bhūtāni māṁ tu veda na kaścana
+> vedāhaṁ samatītāni
+> vartamānāni cārjuna
+> bhaviṣyāṇi ca bhūtāni
+> māṁ tu veda na kaścana
 
 "O Arjuna, as the Supreme Personality of Godhead, I know everything that has happened in the past, all that is happening in the present, and all things that are yet to come. I also know all living entities; but Me no one knows." (Bg. 7.26)
 

@@ -14,7 +14,8 @@
 
 We should note very carefully that the Personality of Godhead is addressing Lord Brahmā and specifying with great emphasis Himself, pointing out that it is He, the Personality of Godhead, who existed before the creation, it is He only who maintains the creation, and it is He only who remains after the annihilation of the creation. Brahmā is also a creation of the Supreme Lord. The impersonalist puts forth the theory of oneness in the sense that Brahmā, also being the same principle of "I" because he is an emanation from the I, the Absolute Truth, is identical with the Lord, the principle of I, and thus there is nothing more than the principle of I, as explained in this verse. Accepting the argument of the impersonalist, it is to be admitted that the Lord is the creator I, and the Brahmā is the created I. Therefore there is a difference between the two "I's," namely the predominator I and the predominated I. Therefore there are still two I's, even accepting the argument of the impersonalist. But we must note carefully that these two I's are accepted in the Vedic literature (Kaṭhopaniṣad) in the sense of quality. The Kaṭhopaniṣad says,
 
-nityo nityānāṁ cetanaś cetanānām eko bahūnāṁ yo vidadhāti kāmān
+> nityo nityānāṁ cetanaś cetanānām
+> eko bahūnāṁ yo vidadhāti kāmān
 
 (Kaṭha 2.2.13)
 

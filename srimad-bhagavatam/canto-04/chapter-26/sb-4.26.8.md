@@ -32,11 +32,13 @@ Thus one who is deliberately transgressing the rules and regulations of the śā
 
 Every living entity is part and parcel of God. There is no reason for the living entity's being put into the miserable threefold condition of material existence but that he voluntarily accepts material existence on the false pretext of becoming an enjoyer. To save him from this horrible condition, the Lord has given all the Vedic literatures in His incarnation of Vyāsadeva. It is therefore said:
 
-kṛṣṇa bhuli' sei jīva anādi-bahirmukha ataeva māyā tāre deya saṁsāra-duḥkha
+> kṛṣṇa bhuli' sei jīva anādi-bahirmukha
+> ataeva māyā tāre deya saṁsāra-duḥkha
 
 "By forgetting Kṛṣṇa, the living entity has become materialistic since time immemorial. Therefore the illusory energy of Kṛṣṇa is giving him different types of miseries in material existence." (Cc. Madya 20.117)
 
-māyā-mugdha jīvera nāhi svataḥ kṛṣṇa-jñāna jīvere kṛpāya kailā kṛṣṇa veda-purāṇa
+> māyā-mugdha jīvera nāhi svataḥ kṛṣṇa-jñāna
+> jīvere kṛpāya kailā kṛṣṇa veda-purāṇa
 
 "When a living entity is enchanted by the external energy, he cannot revive his original Kṛṣṇa consciousness independently. Due to such circumstances, Kṛṣṇa has kindly given him the Vedic literatures, such as the four Vedas and eighteen Purāṇas." (Cc. Madya 20.122)
 
