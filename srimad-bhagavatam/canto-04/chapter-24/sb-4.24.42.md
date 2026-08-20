@@ -31,6 +31,9 @@ The word sāṅkhya-yogeśvarāya is also significant herein, for Kṛṣṇa is
 
 The words purāṇāya puruṣāya are also worthy of special attention. In Brahma-saṁhitā, Kṛṣṇa is accepted as the ādi-puruṣa, the original person, or the original enjoyer. In Bhagavad-gītā, Lord Kṛṣṇa is also accepted as purāṇa-puruṣa, the oldest person. Although He is the oldest of all personalities, He is also the youngest of all, or nava-yauvana. Another significant word is dharmāya. Since Kṛṣṇa is the original propounder of all kinds of religious principles, it is said: dharmaṁ tu sākṣād bhagavat-praṇītam. No one can introduce a new type of religion, for religion is already there, having been established by Lord Kṛṣṇa. In Bhagavad-gītā Kṛṣṇa informs us of the original dharma and asks us to give up all kinds of religious principles. The real dharma is surrender unto Him. In the Mahābhārata, it is also said:
 
-ye ca veda-vido viprā ye cādhyātma-vido janāḥ te vadanti mahātmānaṁ kṛṣṇaṁ dharmaṁ sanātanam
+> ye ca veda-vido viprā
+> ye cādhyātma-vido janāḥ
+> te vadanti mahātmānaṁ
+> kṛṣṇaṁ dharmaṁ sanātanam
 
 The purport is that one who has studied the Vedas perfectly, who is a perfect vipra, or knower of the Vedas, who knows what spiritual life actually is, speaks about Kṛṣṇa, the Supreme Person, as one's sanātana-dharma. Lord Śiva therefore teaches us the principles of sanātana-dharma.

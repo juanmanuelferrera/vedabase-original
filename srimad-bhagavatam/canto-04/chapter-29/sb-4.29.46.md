@@ -14,7 +14,10 @@
 
 In the previous verse, those who are in knowledge have been described as unable to appreciate the Supreme Personality of Godhead. Similarly, this verse indicates that those who are followers of the Vedic rituals, as well as those who are followers of fruitive activities, are unable to see the Supreme Personality of Godhead. In these two verses both the karmīs and jñānīs are described as unfit to understand Him. As described by Śrīla Rūpa Gosvāmī, only when one is completely free from mental speculation and fruitive activity (anyābhilāṣitā-śūnyaṁ jñāna-karmādy-anāvṛtam) can one engage in pure devotional service without being polluted by material desires. The significant word ātma-bhāvitaḥ indicates that the Lord is awakened in one's mind if one constantly thinks of Him. A pure devotee is always thinking of the lotus feet of the Lord (sa vai manaḥ kṛṣṇa-padāravindayoḥ). A pure devotee cannot remain a moment without being absorbed in thoughts of the Supreme Personality of Godhead. This constant thinking of the Lord is described in Bhagavad-gītā as satata-yuktānām, always engaging in the Lord's service. Bhajatāṁ prīti-pūrvakam: this is devotional service in love and affection. Because the Supreme Personality of Godhead dictates to the pure devotee from within, the devotee is saved from all material activities. Even the Vedic ritualistic ceremonies are considered material activities because by such activities one is simply elevated to other planetary systems, the residential abodes of the demigods. Lord Kṛṣṇa says in Bhagavad-gītā:
 
-yānti deva-vratā devān pitḷn yānti pitṛ-vratāḥ bhūtāni yānti bhūtejyā yānti mad-yājino 'pi mām
+> yānti deva-vratā devān
+> pitḷn yānti pitṛ-vratāḥ
+> bhūtāni yānti bhūtejyā
+> yānti mad-yājino 'pi mām
 
 "Those who worship the demigods will take birth among the demigods; those who worship ghosts and spirits will take birth among such beings; those who worship ancestors go to the ancestors; and those who worship Me will live with Me." (Bg. 9.25)
 

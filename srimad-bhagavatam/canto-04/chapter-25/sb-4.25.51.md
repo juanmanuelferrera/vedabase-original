@@ -14,7 +14,10 @@
 
 The two ears are situated on the northern side and the southern side. The ear on the southern side is very strong and is always anxious to hear about sense enjoyment. The ear on the northern side, however, is used for taking initiation from the spiritual master and for gaining promotion to the spiritual sky. The right ear, or the ear on the southern side, is called Pitṛhū, which indicates that it is used for attaining the higher planetary systems known as Pitṛloka, but the left ear, which is known as Devahū, is utilized for hearing about even higher planetary systems such as Maharloka, Tapoloka and Brahmaloka—or yet even higher planets situated in the spiritual universe, where one becomes more inclined to be permanently situated. This is explained in Bhagavad-gītā:
 
-yānti deva-vratā devān pitḷn yānti pitṛ-vratāḥ bhūtāni yānti bhūtejyā yānti mad-yājino 'pi mām
+> yānti deva-vratā devān
+> pitḷn yānti pitṛ-vratāḥ
+> bhūtāni yānti bhūtejyā
+> yānti mad-yājino 'pi mām
 
 "Those who worship the demigods will take birth among the demigods; those who worship ghosts and spirits will take birth among such beings; those who worship ancestors go to the ancestors; and those who worship Me will live with Me." (Bg. 9.25)
 

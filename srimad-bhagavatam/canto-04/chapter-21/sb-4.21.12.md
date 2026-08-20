@@ -20,7 +20,10 @@ Material designations create differentiation in terms of caste, color, creed, na
 
 Pṛthu Mahārāja had no control over the brāhmaṇa-kula, which refers to the learned scholars in Vedic knowledge, nor over the Vaiṣṇavas, who are above the considerations of Vedic knowledge. It is therefore said:
 
-arcye viṣṇau śilādhīr guruṣu nara-matir vaiṣṇave jāti-buddhir viṣṇor vā vaiṣṇavānāṁ kali-mala-mathane pāda-tīrthe 'mbu-buddhiḥ śrī-viṣṇor nāmni mantre sakala-kaluṣa-he śabda-sāmānya-buddhir viṣṇau sarveśvareśe tad-itara-sama-dhīr yasya vā nārakī saḥ
+> arcye viṣṇau śilādhīr guruṣu nara-matir vaiṣṇave jāti-buddhir
+> viṣṇor vā vaiṣṇavānāṁ kali-mala-mathane pāda-tīrthe 'mbu-buddhiḥ
+> śrī-viṣṇor nāmni mantre sakala-kaluṣa-he śabda-sāmānya-buddhir
+> viṣṇau sarveśvareśe tad-itara-sama-dhīr yasya vā nārakī saḥ
 
 "One who thinks the Deity in the temple to be made of wood or stone, who thinks of the spiritual master in the disciplic succession as an ordinary man, who thinks the Vaiṣṇava in the acyuta-gotra to belong to a certain caste or creed, or who thinks of caraṇāmṛta or Ganges water as ordinary water, is taken to be a resident of hell." (Padma Purāṇa)
 

@@ -19,7 +19,10 @@ The word śaukra janma means taking birth by seminal discharge. Animals can take
 
 "As bell metal, when mixed with mercury, is transformed to gold, a person, even though not golden pure, can be transformed into a brāhmaṇa or dvija simply by the initiation process." Thus if one is initiated by a proper person, he can be accepted as twice-born immediately. In our Kṛṣṇa consciousness movement, we therefore offer the student his first initiation and allow him to chant the Hare Kṛṣṇa mahā-mantra. By chanting the Hare Kṛṣṇa mahā-mantra regularly and following the regulative principles, one becomes qualified to be initiated as a brāhmaṇa, because unless one is a qualified brāhmaṇa he cannot be allowed to worship Lord Viṣṇu. This is called yājñika janma. In our Kṛṣṇa consciousness society, unless one is twice initiated—first by chanting Hare Kṛṣṇa and second by the Gāyatrī mantra—he is not allowed to enter the kitchen or Deity room to execute duties. However, when one is elevated to the platform on which he can worship the Deity, his previous birth does not matter.
 
-caṇḍālo 'pi dvija-śreṣṭho hari-bhakti-parāyaṇaḥ hari-bhakti-vihīnaś ca dvijo 'pi śvapacādhamaḥ
+> caṇḍālo 'pi dvija-śreṣṭho
+> hari-bhakti-parāyaṇaḥ
+> hari-bhakti-vihīnaś ca
+> dvijo 'pi śvapacādhamaḥ
 
 "Even if one is born in the family of a caṇḍāla, if one engages in the devotional service of the Lord, he becomes the best of brāhmaṇas. But even a brāhmaṇa who is devoid of devotional service is on the level of the lowest dog-eater."
 

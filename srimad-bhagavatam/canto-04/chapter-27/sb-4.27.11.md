@@ -14,7 +14,10 @@
 
 In this verse the great sage Nārada discloses that the character of Purañjana was being described to give lessons to King Prācīnabarhiṣat. Actually the entire description was figuratively describing the activities of King Prācīnabarhiṣat. In this verse Nārada frankly says "like you" (yathā bhavān), which indicates that King Purañjana is none other than King Prācīnabarhiṣat himself. Being a great Vaiṣṇava, Nārada Muni wanted to stop animal killing in sacrifices. He knew that if he tried to stop the King from performing sacrifices, the King would not hear him. Therefore he is describing the life of Purañjana. But in this verse he first discloses the intention, although not fully, by saying "like you." Generally the karmīs, who are attached to increasing descendants, have to perform so many sacrifices and worship so many demigods for future generations, as well as to satisfy so many leaders, politicians, philosophers and scientists to make things go on properly for future generations. The so-called scientists are very eager to see that future generations will live very comfortably, and as such they are trying to find different means of generating energy to drive locomotives, cars, airplanes and so on. Now they are exhausting the petroleum supply. These activities are described in the Bhagavad-gītā:
 
-vyavasāyātmikā buddhir ekena kuru-nandana bahu-śākhā hy anantāś ca buddhayo 'vyavasāyinām
+> vyavasāyātmikā buddhir
+> ekena kuru-nandana
+> bahu-śākhā hy anantāś ca
+> buddhayo 'vyavasāyinām
 
 "Those who are on the spiritual path are resolute in purpose, and their aim is one. O beloved child of the Kurus, the intelligence of those who are irresolute is many-branched." (Bg. 2.41)
 
