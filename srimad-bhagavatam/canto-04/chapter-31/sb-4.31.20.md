@@ -14,7 +14,10 @@
 
 It is clear from the previous verse that the Supreme Personality of Godhead, Janārdana, is very quickly satisfied by the activities of His devotees. The pure devotee is always absorbed in the thought of the Supreme Personality of Godhead. As stated, śṛṇvatāṁ sva-kathāḥ kṛṣṇaḥ. By always thinking of Kṛṣṇa, the pure devotee's heart is freed from all kinds of desires. In the material world, the heart of the living entity is filled with material desires. When the living entity is cleansed, he does not think of anything material. As the mind is completely cleansed, one attains the perfectional stage of mystic yoga, for then the yogī always sees the Supreme Personality of Godhead within his heart. As soon as the Lord is seated within the heart of the devotee, the devotee cannot be contaminated by the material modes of nature. As long as one is under the control of the material modes, he desires so many things and makes so many plans for material sense enjoyment, but as soon as the Lord is perceived in the heart, all material desires vanish. When the mind is completely free from material desire, the devotee can think of the Lord constantly. In this way he becomes completely dependent upon the lotus feet of the Lord. Caitanya Mahāprabhu prays:
 
-ayi nanda-tanuja kiṅkaraṁ patitaṁ māṁ viṣame bhavāmbudhau kṛpayā tava pāda-paṅkaja- sthita-dhūlī-sadṛśaṁ vicintaya
+> ayi nanda-tanuja kiṅkaraṁ
+> patitaṁ māṁ viṣame bhavāmbudhau
+> kṛpayā tava pāda-paṅkaja-
+> sthita-dhūlī-sadṛśaṁ vicintaya
 
 "My dear Lord, I am Your eternal servant, but somehow or other I have fallen into the ocean of this material world. Kindly pick me up and fix me as a speck of dust at Your lotus feet." Similarly, Śrīla Narottama dāsa Ṭhākura prays:
 

@@ -14,7 +14,10 @@
 
 Those who are very enthusiastic about killing animals in the name of religion or for food must await similar punishment after death. The word māṁsa (meat) indicates that those animals whom we kill will be given an opportunity to kill us. Although in actuality no living entity is killed, the pains of being pierced by the horns of animals will be experienced after death. Not knowing this, rascals unhesitatingly go on killing poor animals. So-called human civilization has opened many slaughterhouses for animals in the name of religion or food. Those who are a little religious kill animals in temples, mosques or synagogues, and those who are more fallen maintain various slaughterhouses. Just as in civilized human society the law is a life for a life, no living entity can encroach upon another living entity as far as the Supreme Lord is concerned. Everyone should be given freedom to live at the cost of the Supreme Father, and animal killing—either for religion or for food—is always condemned by the Supreme Personality of Godhead. In Bhagavad-gītā Lord Kṛṣṇa says:
 
-tān ahaṁ dviṣataḥ krūrān saṁsāreṣu narādhamān kṣipāmy ajasram aśubhān āsurīṣv eva yoniṣu
+> tān ahaṁ dviṣataḥ krūrān
+> saṁsāreṣu narādhamān
+> kṣipāmy ajasram aśubhān
+> āsurīṣv eva yoniṣu
 
 "Those who are envious and mischievous, who are the lowest among men, are cast by Me into the ocean of material existence, into various demoniac species of life." (Bg. 16.19)
 

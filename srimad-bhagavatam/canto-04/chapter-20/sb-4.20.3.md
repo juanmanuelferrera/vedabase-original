@@ -14,7 +14,10 @@
 
 In daily life we find that when a madman commits murder, he is excused even by a high-court judge. The idea is that a living entity is always pure because he is part and parcel of the Supreme Personality of Godhead. When he falls into the clutches of material energy, he becomes a victim of the three modes of material nature. Indeed, whatever he does, he does under the influence of material nature. As stated in Bhagavad-gītā:
 
-na kartṛtvaṁ na karmāṇi lokasya sṛjati prabhuḥ na karma-phala-saṁyogaṁ svabhāvas tu pravartate
+> na kartṛtvaṁ na karmāṇi
+> lokasya sṛjati prabhuḥ
+> na karma-phala-saṁyogaṁ
+> svabhāvas tu pravartate
 
 "The embodied spirit, master of the city of his body, does not create activities, nor does he induce people to act, nor does he create the fruits of action. All this is enacted by the modes of material nature." (Bg. 5.14)
 

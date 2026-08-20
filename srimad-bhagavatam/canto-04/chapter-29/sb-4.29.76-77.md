@@ -21,31 +21,46 @@
 
 A living entity too much absorbed in material activity becomes very much attracted to the material body. Even at the point of death, he thinks of his present body and the relatives connected to it. Thus he remains fully absorbed in the bodily conception of life, so much so that even at the point of death he abhors leaving his present body. Sometimes it is found that a person on the verge of death remains in a coma for many days before giving up the body. This is common among so-called leaders and politicians who think that without their presence the entire country and all society will be in chaos. This is called māyā. Political leaders do not like to leave their political posts, and they either have to be shot by an enemy or obliged to leave by the arrival of death. By superior arrangement a living entity is offered another body, but because of his attraction to the present body, he does not like to transfer himself to another body. Thus he is forced to accept another body by the laws of nature.
 
-prakṛteḥ kriyamāṇāni guṇaiḥ karmāṇi sarvaśaḥ ahaṅkāra-vimūḍhātmā kartāham iti manyate
+> prakṛteḥ kriyamāṇāni
+> guṇaiḥ karmāṇi sarvaśaḥ
+> ahaṅkāra-vimūḍhātmā
+> kartāham iti manyate
 
 "The bewildered spirit soul, under the influence of the three modes of material nature, thinks himself the doer of activities that are in actuality carried out by nature." (Bg. 3.27)
 
 Material nature is very strong, and the material modes force one to accept another body. This force is visible when the living entity transmigrates from a superior body to an inferior one. One who acts like a dog or hog in the present body will certainly be forced to accept the body of a dog or hog in the next life. A person may be enjoying the body of a prime minister or a president, but when he understands that he will be forced to accept the body of a dog or hog, he chooses not to leave the present body. Therefore he lies in a coma many days before death. This has been experienced by many politicians at the time of death. The conclusion is that the next body is already determined by superior control. The living entity immediately gives up the present body and enters another. Sometimes in the present body the living entity feels that many of his desires and imaginations are not fulfilled. Those who are overly attracted to their life situation are forced to remain in a ghostly body and are not allowed to accept another gross body. Even in the body of a ghost, they create disturbances for neighbors and relatives. The mind is the prime cause of such a situation. According to one's mind, different types of bodies are generated, and one is forced to accept them. As confirmed in Bhagavad-gītā:
 
-yaṁ yaṁ vāpi smaran bhāvaṁ tyajaty ante kalevaram taṁ tam evaiti kaunteya sadā tad-bhāva-bhāvitaḥ
+> yaṁ yaṁ vāpi smaran bhāvaṁ
+> tyajaty ante kalevaram
+> taṁ tam evaiti kaunteya
+> sadā tad-bhāva-bhāvitaḥ
 
 "Whatever state of being one remembers when he quits his body, that state he will attain without fail." (Bg. 8.6)
 
 Within one's body and mind, one can think as either a dog or a god, and the next life is offered to him accordingly. This is explained in Bhagavad-gītā:
 
-puruṣaḥ prakṛti-stho hi bhuṅkte prakṛti-jān guṇān kāraṇaṁ guṇa-saṅgo 'sya sad-asad-yoni-janmasu
+> puruṣaḥ prakṛti-stho hi
+> bhuṅkte prakṛti-jān guṇān
+> kāraṇaṁ guṇa-saṅgo 'sya
+> sad-asad-yoni-janmasu
 
 "The living entity in material nature thus follows the ways of life, enjoying the three modes of nature. This is due to his association with that material nature. Thus he meets with good and evil amongst various species." (Bg. 13.22)
 
 The living entity may transmigrate to either a superior or inferior body according to his association with the modes of material nature. If he associates with the mode of ignorance, he gets the body of an animal or an inferior man, but if he associates with the mode of goodness or passion, he gets a body accordingly. This is also confirmed in Bhagavad-gītā:
 
-ūrdhvaṁ gacchanti sattva-sthā madhye tiṣṭhanti rājasāḥ jaghanya-guṇa-vṛtti-sthā adho gacchanti tāmasāḥ
+> ūrdhvaṁ gacchanti sattva-sthā
+> madhye tiṣṭhanti rājasāḥ
+> jaghanya-guṇa-vṛtti-sthā
+> adho gacchanti tāmasāḥ
 
 "Those situated in the mode of goodness gradually go upward to the higher planets; those in the mode of passion live on the earthly planets; and those in the mode of ignorance go down to the hellish worlds." (Bg. 14.18)
 
 The root cause of one's association is the mind. This great Kṛṣṇa consciousness movement is the greatest boon to human society because it is teaching everyone to think always of Kṛṣṇa by executing devotional service. In this way, at the end of life, one may be transferred to the association of Kṛṣṇa. This is technically called nitya-līlā-praviṣṭa, entering into the planet Goloka Vṛndāvana. Bhagavad-gītā explains:
 
-bhaktyā mām abhijānāti yāvān yaś cāsmi tattvataḥ tato māṁ tattvato jñātvā viśate tad-anantaram
+> bhaktyā mām abhijānāti
+> yāvān yaś cāsmi tattvataḥ
+> tato māṁ tattvato jñātvā
+> viśate tad-anantaram
 
 "One can understand the Supreme Personality as He is only by devotional service. And when one is in full consciousness of the Supreme Lord by such devotion, he can enter into the kingdom of God." (Bg. 18.55)
 

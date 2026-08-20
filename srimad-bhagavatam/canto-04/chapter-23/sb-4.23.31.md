@@ -14,7 +14,10 @@
 
 In the execution of devotional service, śravaṇaṁ kīrtanaṁ viṣṇoḥ is especially stressed. This means that bhakti, or devotional service, begins by hearing and chanting about Viṣṇu. When we speak of Viṣṇu, we also refer to that which relates to Viṣṇu. In the Śiva Purāṇa, Lord Śiva recommends Viṣṇu worship to be the topmost worship, and better than Viṣṇu worship is worship of the Vaiṣṇava or anything that is related to Viṣṇu. The fact is explained herein that hearing and chanting about a Vaiṣṇava is as good as hearing and chanting about Viṣṇu, for Maitreya has explained that anyone who hears about Pṛthu Mahārāja with attention also attains the planet which Mahārāja Pṛthu attained. There is no duality between Viṣṇu and the Vaiṣṇava, and this is called advaya-jñāna. A Vaiṣṇava is as important as Viṣṇu, and therefore Śrīla Viśvanātha Cakravartī Ṭhākura wrote in his Gurv-aṣṭaka:
 
-sākṣād-dharitvena samasta-śāstrair uktas tathā bhāvyata eva sadbhiḥ kintu prabhor yaḥ priya eva tasya vande guroḥ śrī-caraṇāravindam
+> sākṣād-dharitvena samasta-śāstrair
+> uktas tathā bhāvyata eva sadbhiḥ
+> kintu prabhor yaḥ priya eva tasya
+> vande guroḥ śrī-caraṇāravindam
 
 "The spiritual master is honored as much as the Supreme Lord because he is the most confidential servitor of the Lord. This is acknowledged in all revealed scriptures and is followed by all authorities. Therefore I offer my respectful obeisances unto the lotus feet of my spiritual master, who is a bona fide representative of Śrī Hari."
 

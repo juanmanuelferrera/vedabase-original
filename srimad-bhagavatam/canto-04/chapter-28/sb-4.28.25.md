@@ -14,7 +14,10 @@
 
 In Bhagavad-gītā Lord Kṛṣṇa says:
 
-bhoktāraṁ yajña-tapasāṁ sarva-loka-maheśvaram suhṛdaṁ sarva-bhūtānāṁ jñātvā māṁ śāntim ṛcchati
+> bhoktāraṁ yajña-tapasāṁ
+> sarva-loka-maheśvaram
+> suhṛdaṁ sarva-bhūtānāṁ
+> jñātvā māṁ śāntim ṛcchati
 
 "The sages, knowing Me as the ultimate purpose of all sacrifices and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries." (Bg. 5.29)
 

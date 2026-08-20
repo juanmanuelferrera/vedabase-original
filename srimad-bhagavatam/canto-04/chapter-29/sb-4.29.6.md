@@ -16,7 +16,10 @@ kṛṣṇa-bahirmukha hañā bhoga-vāñchā kare nikaṭa-stha māyā tāre j�
 
 Because of his desire to enjoy the material world, the living entity is dressed with the material gross and subtle bodies. Thus he is given a chance to enjoy the senses. The senses are therefore the instruments for enjoying the material world; consequently the senses have been described as friends. Sometimes, because of too much sinful activity, the living entity does not get a material gross body, but hovers on the subtle platform. This is called ghostly life. Because of his not possessing a gross body, he creates a great deal of trouble in his subtle body. Thus the presence of a ghost is horrible for those who are living in the gross body. As stated in Bhagavad-gītā:
 
-utkrāmantaṁ sthitaṁ vāpi bhuñjānaṁ vā guṇānvitam vimūḍhā nānupaśyanti paśyanti jñāna-cakṣuṣaḥ
+> utkrāmantaṁ sthitaṁ vāpi
+> bhuñjānaṁ vā guṇānvitam
+> vimūḍhā nānupaśyanti
+> paśyanti jñāna-cakṣuṣaḥ
 
 "The foolish cannot understand how a living entity can quit his body, nor can they understand what sort of body he enjoys under the spell of the modes of nature. But one whose eyes are trained in knowledge can see all this." (Bg. 15.10)
 

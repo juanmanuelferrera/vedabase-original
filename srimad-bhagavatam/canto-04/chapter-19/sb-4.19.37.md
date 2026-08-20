@@ -14,7 +14,10 @@
 
 The way in which Lord Viṣṇu kills the demons and protects the faithful is mentioned in Bhagavad-gītā:
 
-paritrāṇāya sādhūnāṁ vināśāya ca duṣkṛtām dharma-saṁsthāpanārthāya sambhavāmi yuge yuge
+> paritrāṇāya sādhūnāṁ
+> vināśāya ca duṣkṛtām
+> dharma-saṁsthāpanārthāya
+> sambhavāmi yuge yuge
 
 "In order to deliver the pious and to annihilate the miscreants, as well as to reestablish the principles of religion, I advent Myself millennium after millennium." (Bg. 4.8)
 

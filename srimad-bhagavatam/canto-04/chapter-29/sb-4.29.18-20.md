@@ -44,7 +44,10 @@ eita brahmāṇḍa bhari' ananta jīva-gaṇa caurāśī-lakṣa yonite karaye 
 
 The living entity is wandering throughout the entire universe and taking birth in different species on different planets. Thus he moves up and down, but that is not real progress. Real progress is getting out of this material world altogether. As stated in Bhagavad-gītā:
 
-ābrahma-bhuvanāl lokāḥ punar āvartino 'rjuna mām upetya tu kaunteya punar janma na vidyate
+> ābrahma-bhuvanāl lokāḥ
+> punar āvartino 'rjuna
+> mām upetya tu kaunteya
+> punar janma na vidyate
 
 "From the highest planet in the material world down to the lowest, all are places of misery wherein repeated birth and death take place. But one who attains to My abode, O son of Kuntī, never takes birth again." (Bg. 8.16)
 

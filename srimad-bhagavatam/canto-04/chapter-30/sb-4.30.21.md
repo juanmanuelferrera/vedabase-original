@@ -16,7 +16,10 @@
 
 The Lord is herein described as puruṣārtha-bhājanam (the bestower of the ultimate goal of life). Whatever success we want in life can be attained by the mercy of the Lord. Since the Pracetās had already attained the Lord's mercy, they were no longer subject to the contamination of the material modes. The material modes dissipated from them just as the darkness of night immediately dissipates when the sun rises. Because the Lord appeared before them, naturally all the contaminations of the material qualities of rajas and tamas completely disappeared. Similarly, when an unalloyed devotee chants the Hare Kṛṣṇa mahā-mantra, he is also purified of all material contamination because the name of the Lord and the Lord are identical. As stated in Śrīmad-Bhāgavatam:
 
-śṛṇvatāṁ sva-kathāḥ kṛṣṇaḥ puṇya-śravaṇa-kīrtanaḥ hṛdy antaḥ-stho hy abhadrāṇi vidhunoti suhṛt satām
+> śṛṇvatāṁ sva-kathāḥ kṛṣṇaḥ
+> puṇya-śravaṇa-kīrtanaḥ
+> hṛdy antaḥ-stho hy abhadrāṇi
+> vidhunoti suhṛt satām
 
 "Śrī Kṛṣṇa, the Personality of Godhead, who is the Paramātmā [Supersoul] in everyone's heart and the benefactor of the truthful devotee, cleanses desire for material enjoyment from the heart of the devotee who relishes his messages, which are in themselves virtuous when properly heard and chanted." (Bhāg. 1.2.17)
 

@@ -14,7 +14,10 @@
 
 As one's body engages in sense gratification, it becomes weaker and weaker daily. Finally the vital force becomes so weak that it is herein compared to a weak serpent. The life air has already been compared to the serpent. When the vital force within the body becomes weak, the body itself also becomes weak. At such a time the death symptoms—that is, the dangerous soldiers of death's superintendent, Yamarāja—begin to attack very severely. According to the Vedic system, before coming to such a stage one should leave home and take sannyāsa to preach the message of God for the duration of life. However, if one sits at home and is served by his beloved wife and children, he certainly becomes weaker and weaker due to sense gratification. When death finally comes, one leaves the body devoid of spiritual assets. At the present time, even the oldest man in the family does not leave home, being attracted by wife, children, money, opulence, dwelling, etc. Thus at the end of life one worries about how his wife will be protected and how she will manage the great family responsibilities. In this way a man usually thinks of his wife before death. According to Bhagavad-gītā:
 
-yaṁ yaṁ vāpi smaran bhāvaṁ tyajaty ante kalevaram taṁ tam evaiti kaunteya sadā tad-bhāva-bhāvitaḥ
+> yaṁ yaṁ vāpi smaran bhāvaṁ
+> tyajaty ante kalevaram
+> taṁ tam evaiti kaunteya
+> sadā tad-bhāva-bhāvitaḥ
 
 "Whatever state of being one remembers when he quits his body, that state he will attain without fail." (Bg. 8.6)
 

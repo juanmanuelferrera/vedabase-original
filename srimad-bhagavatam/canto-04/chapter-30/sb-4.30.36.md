@@ -14,11 +14,17 @@
 
 The Māyāvādī sannyāsīs are missing the real presence of Nārāyaṇa. This is because they falsely claim to be Nārāyaṇa Himself. According to the customary etiquette of Māyāvādī sannyāsīs, they address one another as Nārāyaṇa. To say that everyone is a temple of Nārāyaṇa is correct, but to accept another human being as Nārāyaṇa is a great offense. The conception of daridra-nārāyaṇa (poor Nārāyaṇa), an attempt to identify the poor with Nārāyaṇa, is also a great offense. Even to identify Nārāyaṇa with demigods like Lord Brahmā and Lord Śiva is an offense.
 
-yas tu nārāyaṇaṁ devaṁ brahma-rudrādi-daivataiḥ samatvenaiva vīkṣeta sa pāṣaṇḍī bhaved dhruvam
+> yas tu nārāyaṇaṁ devaṁ
+> brahma-rudrādi-daivataiḥ
+> samatvenaiva vīkṣeta sa
+> pāṣaṇḍī bhaved dhruvam
 
 "One who considers Lord Nārāyaṇa on a level with great demigods like Lord Brahmā and Lord Śiva is immediately listed amongst nonbelievers." The fact is that by performing saṅkīrtana-yajña one can immediately please the Supreme Personality of Godhead. Then Nārāyaṇa Himself descends and immediately is present. In this age of Kali, Nārāyaṇa is immediately present in the form of Lord Caitanya. Concerning Lord Caitanya, Śrīmad-Bhāgavatam states:
 
-kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ sāṅgopāṅgāstra-pārṣadam yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ
+> kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ
+> sāṅgopāṅgāstra-pārṣadam
+> yajñaiḥ saṅkīrtana-prāyair
+> yajanti hi sumedhasaḥ
 
 "In the age of Kali, intelligent persons perform congregational chanting to worship the incarnation of Godhead who constantly sings the name of Kṛṣṇa. Although His complexion is not blackish, He is Kṛṣṇa Himself. He is accompanied by His associates, servants, weapons and confidential companions." (Bhāg. 11.5.32)
 

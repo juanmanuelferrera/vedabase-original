@@ -18,6 +18,7 @@ King Purañjana's coming home, taking bath and having an appropriate dinner indi
 
 The word ucitāhāraḥ used in this verse is important. Ucita means appropriate. One must eat appropriately and not take after food as hogs take after stool. For a human being there are eatables described in Bhagavad-gītā (Bg. 17.8) as sāttvika-āhāra, or food in the mode of goodness. One should not indulge in eating food in the modes of passion and ignorance. This is called ucitāhāra, or appropriate eating. One who is always eating meat or drinking liquor, which is eating and drinking in passion and ignorance, must give these things up so that his real consciousness may be awakened. In this way one may become peaceful and refreshed. If one is restless or fatigued, one cannot understand the science of God. As stated in Śrīmad-Bhāgavatam (1.2.20):
 
-evaṁ prasanna-manaso bhagavad-bhakti-yogataḥ bhagavat-tattva-vijñānaṁ mukta-saṅgasya jāyate
+> evaṁ prasanna-manaso bhagavad-bhakti-yogataḥ
+> bhagavat-tattva-vijñānaṁ mukta-saṅgasya jāyate
 
 Unless one can become free from the influence of passion and ignorance, he cannot be pacified, and without being pacified, one cannot understand the science of God. King Purañjana's returning home is indicative of man's returning to his original consciousness, known as Kṛṣṇa consciousness. Kṛṣṇa consciousness is absolutely necessary for one who has committed a lot of sinful activities, especially killing animals or hunting in the forest.

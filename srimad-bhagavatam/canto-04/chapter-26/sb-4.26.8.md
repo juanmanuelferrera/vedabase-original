@@ -14,13 +14,19 @@
 
 There are many important words in this verse. The first is anyathā, "otherwise," which indicates one who does not care for the Vedic rules and regulations. The rules and regulations laid down in the Vedas are called śāstra-vidhi. Bhagavad-gītā clearly states that one who does not accept the śāstra-vidhi, or rules and regulations mentioned in the Vedic scriptures, and acts whimsically or puffed up with false pride, never attains perfection in this life, nor does he attain happiness or liberation from the material condition.
 
-yaḥ śāstra-vidhim utsṛjya vartate kāma-kārataḥ na sa siddhim avāpnoti na sukhaṁ na parāṁ gatim
+> yaḥ śāstra-vidhim utsṛjya
+> vartate kāma-kārataḥ
+> na sa siddhim avāpnoti
+> na sukhaṁ na parāṁ gatim
 
 "He who discards scriptural injunctions and acts according to his own whims attains neither perfection, nor happiness, nor the supreme destination." (Bg. 16.23)
 
 Thus one who is deliberately transgressing the rules and regulations of the śāstras is simply involving himself more and more in material existence in the three modes of material nature. Human society should therefore follow the Vedic principles of life, which are summarized in Bhagavad-gītā. Otherwise life in material existence will continue. Foolish persons do not know that the soul is passing through 8,400,000 species of life. By the gradual process of evolution, when one comes to the human form of life, he is supposed to follow the rules and regulations laid down in the Vedas. Śrī Caitanya Mahāprabhu says that the living entity, since time immemorial, is suffering the threefold miseries of material nature due to his demoniac attitude, which is his spirit of revolt against the Supreme Personality of Godhead. Kṛṣṇa also confirms this in Bhagavad-gītā:
 
-mamaivāṁśo jīva-loke jīva-bhūtaḥ sanātanaḥ manaḥ-ṣaṣṭhānīndriyāṇi prakṛti-sthāni karṣati
+> mamaivāṁśo jīva-loke
+> jīva-bhūtaḥ sanātanaḥ
+> manaḥ-ṣaṣṭhānīndriyāṇi
+> prakṛti-sthāni karṣati
 
 "The living entities in this conditioned world are My eternal, fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind." (Bg. 15.7)
 
@@ -46,7 +52,10 @@ The material conditions are described in this verse as guṇa-pravāha, the flow
 
 Naṣṭa-prajñaḥ. The word prajña means "perfect knowledge," and naṣṭa-prajña means "one who has no perfect knowledge." One who does not have perfect knowledge has only mental speculation. By such mental speculation one falls down and down into a hellish condition of life. By transgressing the laws laid down in the śāstras, one cannot become pure in heart. When one's heart is not purified, one acts according to the three material modes of nature. These activities are very nicely explained in verses 1-6 of the Seventeenth Chapter of Bhagavad-gītā. Bhagavad-gītā further explains:
 
-traiguṇya-viṣayā vedā nistraiguṇyo bhavārjuna nirdvandvo nitya-sattva-stho niryoga-kṣema ātmavān
+> traiguṇya-viṣayā vedā
+> nistraiguṇyo bhavārjuna
+> nirdvandvo nitya-sattva-stho
+> niryoga-kṣema ātmavān
 
 "The Vedas mainly deal with the subject of the three modes of material nature. Rise above these modes, O Arjuna. Be transcendental to all of them. Be free from all dualities and from all anxieties for gain and safety, and be established in the Self." (Bg. 2.45)
 

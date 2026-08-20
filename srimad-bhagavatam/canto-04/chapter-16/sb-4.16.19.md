@@ -16,7 +16,10 @@ The reciters of these prayers are describing the transcendental qualities of P�
 
 The word kūṭastha, meaning "without change," is also very significant. There are two kinds of living entities—nitya-mukta and nitya-baddha. A nitya-mukta never forgets his position as the eternal servant of the Supreme Personality of Godhead. One who does not forget this position and knows that he is part and parcel of the Supreme Lord is nitya-mukta. Such a nitya-mukta living entity represents the Supersoul as His expansion. As stated in the Vedas, nityo nityānām. Thus the nitya-mukta living entity knows that he is an expansion of the supreme nitya, or the eternal Supreme Personality of Godhead. Being in such a position, he sees the material world with a different vision. The living entity who is nitya-baddha, or eternally conditioned, sees the material varieties as being actually different from one another. In this connection we should remember that the embodiment of the conditioned soul is considered to be like a dress. One may dress in different ways, but a really learned man does not take dresses into consideration. As stated in Bhagavad-gītā:
 
-vidyā-vinaya-sampanne brāhmaṇe gavi hastini śuni caiva śvapāke ca paṇḍitāḥ sama-darśinaḥ
+> vidyā-vinaya-sampanne
+> brāhmaṇe gavi hastini
+> śuni caiva śvapāke ca
+> paṇḍitāḥ sama-darśinaḥ
 
 "The humble sage, by virtue of true knowledge, sees with equal vision a learned and gentle brāhmaṇa, a cow, an elephant, a dog and a dog-eater [outcaste]." (Bg. 5.18)
 

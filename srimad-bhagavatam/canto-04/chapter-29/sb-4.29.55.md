@@ -22,7 +22,10 @@ karma-kāṇḍa, jñāna-kāṇḍa, kevala viṣera bhāṇḍa, amṛta baliy
 
 People are generally enamored of the fruitive results of worldly activity and mental speculation. They generally desire to be promoted to heavenly planets, merge into the existence of Brahman, or keep themselves in the midst of family life, enchanted by the pleasures of the tongue and genitals. The great sage Nārada clearly instructs King Barhiṣmān not to remain his entire life in the gṛhastha-āśrama. Being in the gṛhastha-āśrama means being under the control of one's wife. One has to give up all this and put himself into the āśrama of the paramahaṁsa, that is, put himself under the control of the spiritual master. The paramahaṁsa-āśrama is the āśrama of the Supreme Personality of Godhead, under whom the spiritual master has taken shelter. The symptoms of the bona fide spiritual master are stated in Śrīmad-Bhāgavatam:
 
-tasmād guruṁ prapadyeta jijñāsuḥ śreya uttamam śābde pare ca niṣṇātaṁ brahmaṇy upaśamāśrayam
+> tasmād guruṁ prapadyeta
+> jijñāsuḥ śreya uttamam
+> śābde pare ca niṣṇātaṁ
+> brahmaṇy upaśamāśrayam
 
 "Any person who is seriously desirous of achieving real happiness must seek out a bona fide spiritual master and take shelter of him by initiation. The qualification of a spiritual master is that he must have realized the conclusion of the scriptures by deliberation and arguments and thus be able to convince others of these conclusions. Such great personalities, who have taken complete shelter of the Supreme Godhead, leaving aside all material considerations, are to be understood as bona fide spiritual masters." (Bhāg. 11.3.21)
 
@@ -30,7 +33,10 @@ A paramahaṁsa is one who has taken shelter of the Parabrahman, the Supreme Per
 
 The pleasing words of the Vedas that inspire one to elevate oneself to the heavenly planets or merge into the existence of the Supreme are for the less intelligent who are described in Bhagavad-gītā as māyayāpahṛta-jñānāḥ (those whose knowledge is taken away by the illusory energy). Real knowledge means understanding the miserable condition of material life. One should take shelter of a bona fide liberated soul, the spiritual master, and gradually elevate himself to the spiritual platform and thus become detached from the material world. According to Śrīla Viśvanātha Cakravartī Ṭhākura, haṁsa-śaraṇam refers to the cottage in which saintly persons live. Generally a saintly person lives in a remote place in the forest or in a humble cottage. However, we should note that the times have changed. It may be beneficial for a saintly person's own interest to go to the forest and live in a cottage, but if one becomes a preacher, especially in Western countries, he has to invite many classes of men who are accustomed to living in comfortable apartments. Therefore in this age a saintly person has to make proper arrangements to receive people and attract them to the message of Kṛṣṇa consciousness. Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura, perhaps for the first time, introduced palatial buildings and motor cars for the residence of saintly persons just to attract the general public in big cities. The main fact is that one has to associate with a saintly person. In this age people are not going to search out a saint in the forest, so the saints and sages have to come to the big cities to make arrangements to receive the people in general, who are accustomed to the modern amenities of material life. Gradually such persons will learn that palatial buildings or comfortable apartments are not at all necessary. The real necessity is to become free from material bondage in whatever way possible. According to the orders of Śrīla Rūpa Gosvāmī:
 
-anāsaktasya viṣayān yathārham upayuñjataḥ nirbandhaḥ kṛṣṇa-sambandhe yuktaṁ vairāgyam ucyate
+> anāsaktasya viṣayān
+> yathārham upayuñjataḥ
+> nirbandhaḥ kṛṣṇa-sambandhe
+> yuktaṁ vairāgyam ucyate
 
 "When one is not attached to anything, but at the same time accepts everything in relation to Kṛṣṇa, one is rightly situated above possessiveness." (Bh.r.s. 1.2.255)
 

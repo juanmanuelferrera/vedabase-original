@@ -14,7 +14,10 @@
 
 After seeing all the life symptoms in her husband stop, the Queen lamented for a while. The word kiñcit means "for a little while." The Queen was completely aware that her husband was not dead, although the symptoms of life—action, intelligence and sense perception—had ceased. As stated in Bhagavad-gītā:
 
-dehino 'smin yathā dehe kaumāraṁ yauvanaṁ jarā tathā dehāntara-prāptir dhīras tatra na muhyati
+> dehino 'smin yathā dehe
+> kaumāraṁ yauvanaṁ jarā
+> tathā dehāntara-prāptir
+> dhīras tatra na muhyati
 
 "As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change." (Bg. 2.13)
 

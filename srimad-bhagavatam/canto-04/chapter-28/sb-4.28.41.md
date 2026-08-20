@@ -14,7 +14,10 @@
 
 In this verse the words sākṣād bhagavatoktena guruṇā hariṇā are very significant. The Supreme Personality of Godhead speaks directly to the individual soul when the devotee has completely purified himself by rendering devotional service to the Lord. Lord Kṛṣṇa confirms this also in Bhagavad-gītā:
 
-teṣāṁ satata-yuktānāṁ bhajatāṁ prīti-pūrvakam dadāmi buddhi-yogaṁ taṁ yena mām upayānti te
+> teṣāṁ satata-yuktānāṁ
+> bhajatāṁ prīti-pūrvakam
+> dadāmi buddhi-yogaṁ taṁ
+> yena mām upayānti te
 
 "To those who are constantly devoted and worship Me with love, I give the understanding by which they can come to Me." (Bg. 10.10)
 

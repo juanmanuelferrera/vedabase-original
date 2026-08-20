@@ -14,7 +14,10 @@
 
 The word paṇḍita means "a wise man." Who is actually a wise man? The wise man is described in Bhagavad-gītā in this way:
 
-bahūnāṁ janmanām ante jñānavān māṁ prapadyate vāsudevaḥ sarvam iti sa mahātmā sudurlabhaḥ
+> bahūnāṁ janmanām ante
+> jñānavān māṁ prapadyate
+> vāsudevaḥ sarvam iti
+> sa mahātmā sudurlabhaḥ
 
 "After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare." (Bg. 7.19)
 

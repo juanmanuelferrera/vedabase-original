@@ -17,7 +17,10 @@
 
 As stated in the Vedas, the Supreme Personality of Godhead is the source of material energy. Consequently He is sometimes called māyāmaya, or the Supreme Person who can create His pastimes through His potency known as the material energy. The jīva, or the individual living entity, becomes entrapped by the material energy by the supreme will of the Supreme Personality of Godhead. In Bhagavad-gītā we understand:
 
-īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati bhrāmayan sarva-bhūtāni yantrārūḍhāni māyayā
+> īśvaraḥ sarva-bhūtānāṁ
+> hṛd-deśe 'rjuna tiṣṭhati
+> bhrāmayan sarva-bhūtāni
+> yantrārūḍhāni māyayā
 
 "The Supreme Lord is situated in everyone's heart, O Arjuna, and is directing the wanderings of all living entities, who are seated as on a machine, made of the material energy." (Bg. 18.61)
 

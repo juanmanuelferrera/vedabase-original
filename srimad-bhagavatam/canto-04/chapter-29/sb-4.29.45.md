@@ -14,7 +14,10 @@
 
 As stated in Bhagavad-gītā:
 
-kāmais tais tair hṛta-jñānāḥ prapadyante 'nya-devatāḥ taṁ taṁ niyamam āsthāya prakṛtyā niyatāḥ svayā
+> kāmais tais tair hṛta-jñānāḥ
+> prapadyante 'nya-devatāḥ
+> taṁ taṁ niyamam āsthāya
+> prakṛtyā niyatāḥ svayā
 
 "Those whose minds are distorted by material desires surrender unto demigods and follow the particular rules and regulations of worship according to their own natures." (Bg. 7.20)
 

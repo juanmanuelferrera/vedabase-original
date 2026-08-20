@@ -14,7 +14,10 @@
 
 Now Lord Śiva explains the reason he has personally come before the princes. It is because all the princes are devotees of Lord Kṛṣṇa. As stated in Bhagavad-gītā:
 
-bahūnāṁ janmanām ante jñānavān māṁ prapadyate vāsudevaḥ sarvam iti sa mahātmā sudurlabhaḥ
+> bahūnāṁ janmanām ante
+> jñānavān māṁ prapadyate
+> vāsudevaḥ sarvam iti
+> sa mahātmā sudurlabhaḥ
 
 "After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare." (Bg. 7.19)
 
@@ -34,7 +37,10 @@ yayedaṁ dhāryate jagat
 
 Thus the jīva, or living entity, is actually prakṛti, or the marginal energy of the Supreme Lord. Being associated with material energy, he tries to lord it over the material nature. This is also confirmed in Bhagavad-gītā:
 
-mamaivāṁśo jīva-loke jīva-bhūtaḥ sanātanaḥ manaḥ-ṣaṣṭhānīndriyāṇi prakṛti-sthāni karṣati
+> mamaivāṁśo jīva-loke
+> jīva-bhūtaḥ sanātanaḥ
+> manaḥ-ṣaṣṭhānīndriyāṇi
+> prakṛti-sthāni karṣati
 
 "The living entities in this conditioned world are My eternal fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind." (Bg. 15.7)
 

@@ -21,7 +21,10 @@
 
 These different types of bodies are explained in Bhagavad-gītā :
 
-puruṣaḥ prakṛti-stho hi bhuṅkte prakṛti-jān guṇān kāraṇaṁ guṇa-saṅgo 'sya sad-asad-yoni-janmasu
+> puruṣaḥ prakṛti-stho hi
+> bhuṅkte prakṛti-jān guṇān
+> kāraṇaṁ guṇa-saṅgo 'sya
+> sad-asad-yoni-janmasu
 
 "The living entity in material nature follows the ways of life, enjoying the three modes of nature. This is due to his association with that material nature. Thus he meets with good and evil amongst various species." (Bg. 13.22)
 

@@ -14,7 +14,10 @@
 
 As stated in Bhagavad-gītā:
 
-sahasra-yuga-paryantam ahar yad brahmaṇo viduḥ rātriṁ yuga-sahasrāntāṁ te 'ho-rātra-vido janāḥ
+> sahasra-yuga-paryantam
+> ahar yad brahmaṇo viduḥ
+> rātriṁ yuga-sahasrāntāṁ
+> te 'ho-rātra-vido janāḥ
 
 "By human calculation, a thousand ages taken together is the duration of Brahmā's one day. And such also is the duration of his night." (Bg. 8.17)
 
@@ -22,6 +25,9 @@ Brahmā's one day consists of one thousand cycles of the four yugas—Satya, Tre
 
 Thus there are fourteen Manus in one day of Brahmā. In a year there are 5,040 Manus. Brahmā has to live for one hundred years; consequently the total of Manus appearing and disappearing during the life of one Brahmā is 504,000. This is the calculation for one universe, and there are innumerable universes. All these Manus come and go simply by the breathing process of Mahā-Viṣṇu. As stated in the Brahma-saṁhitā:
 
-yasyaika-niśvasita-kālam athāvalambya jīvanti loma-vilajā jagad-aṇḍa-nāthāḥ viṣṇur mahān sa iha yasya kalā-viśeṣo govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+> yasyaika-niśvasita-kālam athāvalambya
+> jīvanti loma-vilajā jagad-aṇḍa-nāthāḥ
+> viṣṇur mahān sa iha yasya kalā-viśeṣo
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 The word jagad-aṇḍa-nātha means Lord Brahmā. There are innumerable jagad-aṇḍa-nātha Brahmās, and thus we can calculate the many Manus. The present age is under the control of Vaivasvata Manu. Each Manu lives 4,320,000 years multiplied by 71. The present Manu has already lived for 4,320,000 years multiplied by 28. All these long life-spans are ultimately ended by the laws of material nature. The controversy of the Dakṣa-yajña took place in the Svāyambhuva manvantara period. As a result, Dakṣa was punished by Lord Śiva, but by virtue of his prayers to Lord Śiva he became eligible to regain his former opulence. According to Viśvanātha Cakravartī Ṭhākura, Dakṣa underwent severe penances up to the fifth manvantara. Thus at the beginning of the sixth manvantara, known as the Cākṣuṣa manvantara, Dakṣa regained his former opulence by the blessings of Lord Śiva.

@@ -14,11 +14,17 @@
 
 If the whole creation is one, that is, nothing but the Supreme Lord, or Viṣṇu, then why do the expert transcendentalists make such categories as are found in the above verse? Why do learned and expert scholars distinguish between matter and spirit? In answer to these questions, Lord Śiva says that spirit and matter are not creations of various philosophers, but are manifested by Lord Viṣṇu, as described in this verse: tvam eka ādyaḥ puruṣaḥ. Spiritual and material categories are made possible by the Supreme Personality of Godhead, but actually there are no such distinctions for the living entities who are eternally engaged in the service of the Lord. There is only a material world for those who want to imitate the Lord and become enjoyers. Indeed, the material world is nothing but forgetfulness of the original Supreme Personality of Godhead, the creator of everything. The distinction between matter and spirit is created by the sleeping energy of the Lord when the Lord wants to give some facility to those living entities who want to imitate the Lord in His enjoyment. It is only for them that this material world is created by the dormant energy of the Lord. For instance, sometimes children want to imitate their mother and cook in the kitchen, and at such a time the mother supplies them with some toys so that the children can imitate her cooking. Similarly, when some of the living entities want to imitate the activities of the Lord, this material cosmic manifestation is created for them by the Lord. The material creation is therefore caused by the Lord through His material energy. It is by the glance of the Lord that the material energy is activated. At that time the three material qualities are set into motion, and the material energy is manifested first in the form of the mahat-tattva, then egotism, then ether, then air, fire, water and earth. After the creation, the living entities are impregnated in the cosmic manifestation, and they emerge as Lord Brahmā and the seven great ṛṣis, then as different demigods. From the demigods come human beings, animals, trees, birds, beasts and everything else. The original cause, however, is the Supreme Personality of Godhead, as verified herein-tvam eka ādyaḥ puruṣaḥ. This is also confirmed in Brahma-saṁhitā:
 
-īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ anādir ādir govindaḥ sarva-kāraṇa-kāraṇam
+> īśvaraḥ paramaḥ kṛṣṇaḥ
+> sac-cid-ānanda-vigrahaḥ
+> anādir ādir govindaḥ
+> sarva-kāraṇa-kāraṇam
 
 Those who are covered by the material energy cannot understand that the origin of everything is the Supreme Personality of Godhead, Kṛṣṇa. This is summarized in the Vedānta aphorism, janmādy asya yataḥ (Vedānta-sūtra 1.1.2). Kṛṣṇa also confirms this in Bhagavad-gītā:
 
-ahaṁ sarvasya prabhavo mattaḥ sarvaṁ pravartate iti matvā bhajante māṁ budhā bhāva-samanvitāḥ
+> ahaṁ sarvasya prabhavo
+> mattaḥ sarvaṁ pravartate
+> iti matvā bhajante māṁ
+> budhā bhāva-samanvitāḥ
 
 "I am the source of all spiritual and material worlds. Everything emanates from Me. The wise who know this perfectly engage in My devotional service and worship Me with all their hearts." (Bg. 10.8)
 

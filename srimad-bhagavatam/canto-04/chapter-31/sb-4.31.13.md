@@ -14,9 +14,15 @@
 
 The living entity is the marginal energy of the Supreme Personality of Godhead, and the material world is the external energy. Under the circumstances, one must understand that the Supreme Personality of Godhead is factually the original source of both matter and spirit. This is explained in the Seventh Chapter of Bhagavad-gītā:
 
-bhūmir āpo 'nalo vāyuḥ khaṁ mano buddhir eva ca ahaṅkāra itīyaṁ me bhinnā prakṛtir aṣṭadhā
+> bhūmir āpo 'nalo vāyuḥ
+> khaṁ mano buddhir eva ca
+> ahaṅkāra itīyaṁ me
+> bhinnā prakṛtir aṣṭadhā
 
-apareyam itas tv anyāṁ prakṛtiṁ viddhi me parām jīva-bhūtāṁ mahā-bāho yayedaṁ dhāryate jagat
+> apareyam itas tv anyāṁ
+> prakṛtiṁ viddhi me parām
+> jīva-bhūtāṁ mahā-bāho
+> yayedaṁ dhāryate jagat
 
 "Earth, water, fire, air, ether, mind, intelligence and false ego—all together these eight comprise My separated material energies. But besides this inferior nature, O mighty-armed Arjuna, there is a superior energy of Mine, which consists of all living entities who are struggling with material nature and are sustaining the universe." (Bg. 7.4-5)
 
@@ -26,6 +32,9 @@ yam evaiṣa vṛṇute tena labhyas tasyaiṣa ātmā vivṛṇute tanūṁ sv�
 
 Lord Kṛṣṇa confirms this in Bhagavad-gītā:
 
-teṣāṁ satata-yuktānāṁ bhajatāṁ prīti-pūrvakam dadāmi buddhi-yogaṁ taṁ yena mām upayānti te
+> teṣāṁ satata-yuktānāṁ
+> bhajatāṁ prīti-pūrvakam
+> dadāmi buddhi-yogaṁ taṁ
+> yena mām upayānti te
 
 "To those who are constantly devoted and worship Me with love, I give the understanding by which they can come to Me." (Bg. 10.10) The conclusion is that one must come to the platform of bhakti-yoga, even though one may begin with karma-yoga, jñāna-yoga or aṣṭāṅga-yoga. Unless one comes to the platform of bhakti-yoga, self-realization or realization of the Absolute Truth cannot be achieved.

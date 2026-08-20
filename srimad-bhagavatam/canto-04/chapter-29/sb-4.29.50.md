@@ -38,7 +38,10 @@ vedānta-kṛd veda-vid eva cāham
 
 Everything is being directed by the Supersoul within the body; therefore the better part of valor is to take His direction and be happy. To take His directions, one needs to be a devotee, and this is also confirmed in Bhagavad-gītā:
 
-teṣāṁ satata-yuktānāṁ bhajatāṁ prīti-pūrvakam dadāmi buddhi-yogaṁ taṁ yena mām upayānti te
+> teṣāṁ satata-yuktānāṁ
+> bhajatāṁ prīti-pūrvakam
+> dadāmi buddhi-yogaṁ taṁ
+> yena mām upayānti te
 
 "To those who are constantly devoted and worship Me with love, I give the understanding by which they can come to Me." (Bg. 10.10)
 

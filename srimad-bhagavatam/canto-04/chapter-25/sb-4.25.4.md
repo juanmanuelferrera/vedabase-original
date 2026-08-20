@@ -18,7 +18,10 @@ Actually pure happiness cannot be had within this material world. If we wish to 
 
 Therefore Nārada Muni asked King Prācīnabarhiṣat what he desired to attain by performing so many costly sacrifices. Even if one attains a heavenly planet, he cannot avoid the distresses of birth, old age, disease and death. Someone may argue that even devotees have to undergo many distresses in executing austerities and penances connected with devotional service. Of course for the neophytes the routine of devotional service may be very painful, but at least they have the hope that they will ultimately be able to avoid all kinds of distresses and achieve the highest perfectional stage of happiness. For the common karmīs, there is no such hope because even if they are promoted to the higher planetary systems, they are not guaranteed freedom from the miseries of birth, old age, disease and death. Even Lord Brahmā, who is situated in the highest planetary system (Brahmaloka), has to die. Lord Brahmā's birth and death may be different from an ordinary man's, but within this material world he cannot avoid the distresses of birth, old age, disease and death. If one is at all serious about attaining liberation from these miseries, he must take to devotional service. This is confirmed by the Lord Himself in Bhagavad-gītā:
 
-janma karma ca me divyam evaṁ yo vetti tattvataḥ tyaktvā dehaṁ punar janma naiti mām eti so 'rjuna
+> janma karma ca me divyam
+> evaṁ yo vetti tattvataḥ
+> tyaktvā dehaṁ punar janma
+> naiti mām eti so 'rjuna
 
 "One who knows the transcendental nature of My appearance and activities does not, upon leaving the body, take his birth again in this material world, but attains My eternal abode, O Arjuna." (Bg. 4.9)
 

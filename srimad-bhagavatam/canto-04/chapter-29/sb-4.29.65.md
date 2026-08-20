@@ -18,11 +18,17 @@ Actually the Supreme Personality of Godhead, Kṛṣṇa, is the supreme enjoyer
 
 If the mind is purified by Kṛṣṇa consciousness, one will naturally in the future get a body that is spiritual and full of Kṛṣṇa consciousness. Such a body is our original form, as Śrī Caitanya Mahāprabhu confirms: jīvera 'svarūpa' haya—kṛṣṇera 'nitya-dāsa': "Every living entity is constitutionally an eternal servant of Kṛṣṇa." If a person is engaged in the devotional service of the Lord, he is to be considered a liberated soul even in this life. This is confirmed by Śrīla Rūpa Gosvāmī:
 
-īhā yasya harer dāsye karmaṇā manasā girā nikhilāsv apy avasthāsu jīvan-muktaḥ sa ucyate
+> īhā yasya harer dāsye
+> karmaṇā manasā girā
+> nikhilāsv apy avasthāsu
+> jīvan-muktaḥ sa ucyate
 
 "One who engages in the transcendental service of the Lord in body, mind and word is to be considered liberated in all conditions of material existence." (Bh.r.s. 1.2.187) The Kṛṣṇa consciousness movement is based on this principle. We must teach people to absorb themselves always in the service of the Lord because that position is their natural position. One who is always serving the Lord is to be considered already liberated. This is also confirmed in Bhagavad-gītā:
 
-māṁ ca yo 'vyabhicāreṇa bhakti-yogena sevate sa guṇān samatityaitān brahma-bhuyāya kalpate
+> māṁ ca yo 'vyabhicāreṇa
+> bhakti-yogena sevate
+> sa guṇān samatityaitān
+> brahma-bhuyāya kalpate
 
 "One who engages in full devotional service, who does not fall down in any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman." (Bg. 14.26)
 

@@ -14,7 +14,10 @@
 
 As stated in the Vedas, the living entity is always separate from two kinds of material bodies—the subtle and the gross. All our sufferings are due to these material bodies. This is explained in Bhagavad-gītā :
 
-mātrā-sparśās tu kaunteya śītoṣṇa-sukha-duḥkha-dāḥ āgamāpāyino 'nityās tāṁs titikṣasva bhārata
+> mātrā-sparśās tu kaunteya
+> śītoṣṇa-sukha-duḥkha-dāḥ
+> āgamāpāyino 'nityās
+> tāṁs titikṣasva bhārata
 
 "O son of Kuntī, the nonpermanent appearance of happiness and distress, and their disappearance in due course, are like the appearance and disappearance of winter and summer seasons. They arise from sense perception, O scion of Bharata, and one must learn to tolerate them without being disturbed." (Bg. 2.14)
 

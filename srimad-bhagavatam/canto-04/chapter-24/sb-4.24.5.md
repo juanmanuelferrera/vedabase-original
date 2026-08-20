@@ -14,7 +14,10 @@
 
 It is understood from various scriptures and Purāṇas that the King of heaven, Indra, was very expert in stealing and kidnapping. He could steal anything without being visible to the proprietor, and he could kidnap anyone's wife without being detected. Once he raped the wife of Gautama Muni by using his disappearing art, and similarly by becoming invisible he stole the horse of Mahārāja Pṛthu. Although in human society such activities are considered abominable, the demigod Indra was not considered to be degraded by them. Although Antardhāna could understand that King Indra was stealing the horse from his father, he did not kill him, for he knew that if one who is very powerful sometimes commits an abominable act, it should be disregarded. In Bhagavad-gītā it is clearly stated:
 
-api cet su-durācāro bhajate mām ananya-bhāk sādhur eva sa mantavyaḥ samyag vyavasito hi saḥ
+> api cet su-durācāro
+> bhajate mām ananya-bhāk
+> sādhur eva sa mantavyaḥ
+> samyag vyavasito hi saḥ
 
 "Even if one commits the most abominable actions, if he is engaged in devotional service, he is to be considered saintly because he is properly situated." (Bg. 9.30)
 

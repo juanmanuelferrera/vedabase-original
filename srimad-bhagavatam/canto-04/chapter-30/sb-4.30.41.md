@@ -16,7 +16,10 @@ Lord Brahmā, Lord Śiva, Manu (the father of mankind), great saintly persons an
 
 Nonetheless, everyone in devotional service can offer essential prayers to the Lord. Everyone is situated in a relative position, and no one is perfect in glorifying the Lord. Beginning with Lord Brahmā and Lord Śiva down to ourselves, everyone is the servant of the Supreme Lord. We are all situated in relative positions according to our own karma. Yet every one of us can offer prayers with heart and soul as far as we can appreciate the Lord's glories. That is our perfection. Even when one is in the darkest region of existence, he is allowed to offer prayers to the Lord according to his own capacity. The Lord therefore says in Bhagavad-gītā:
 
-māṁ hi pārtha vyapāśritya ye 'pi syuḥ pāpa-yonayaḥ striyo vaiśyās tathā śūdrās te 'pi yānti parāṁ gatim
+> māṁ hi pārtha vyapāśritya
+> ye 'pi syuḥ pāpa-yonayaḥ
+> striyo vaiśyās tathā śūdrās
+> te 'pi yānti parāṁ gatim
 
 "O son of Pṛthā, those who take shelter in Me, though they be of lower birth—women, vaiśyas [merchants], as well as śūdras [workers]—can approach the supreme destination." (Bg. 9.32)
 

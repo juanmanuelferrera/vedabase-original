@@ -14,7 +14,10 @@
 
 Self-realization, understanding oneself as Brahman or spirit soul, is very difficult in the material condition. However, if we accept the devotional service of the Lord, the Lord will gradually reveal Himself. In this way the progressive devotee will gradually realize his spiritual position. We cannot see anything in the darkness of night, not even our own selves, but when there is sunshine we can see not only the sun but everything within the world as well. Lord Kṛṣṇa explains in the Seventh Chapter of the Bhagavad-gītā:
 
-mayy āsakta-manāḥ pārtha yogaṁ yuñjan mad-āśrayaḥ asaṁśayaṁ samagraṁ māṁ yathā jñāsyasi tac chṛṇu
+> mayy āsakta-manāḥ pārtha
+> yogaṁ yuñjan mad-āśrayaḥ
+> asaṁśayaṁ samagraṁ māṁ
+> yathā jñāsyasi tac chṛṇu
 
 "Now hear, O son of Pṛthā [Arjuna], how by practicing yoga in full consciousness of Me, with mind attached to Me, you can know Me in full, free from doubt." (Bg. 7.1)
 

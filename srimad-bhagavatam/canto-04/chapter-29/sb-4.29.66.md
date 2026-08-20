@@ -14,13 +14,19 @@
 
 The mind is the index of information about one's past and future life. If a man is a devotee of the Lord, he cultivated devotional service in his previous life. Similarly, if one's mind is criminal, he was criminal in his last life. In the same way, according to the mind, we can understand what will happen in a future life. In Bhagavad-gītā it is said:
 
-ūrdhvaṁ gacchanti sattva-sthā madhye tiṣṭhanti rājasāḥ jaghanya-guṇa-vṛtti-sthā adho gacchanti tāmasāḥ
+> ūrdhvaṁ gacchanti sattva-sthā
+> madhye tiṣṭhanti rājasāḥ
+> jaghanya-guṇa-vṛtti-sthā
+> adho gacchanti tāmasāḥ
 
 "Those situated in the mode of goodness gradually go upward to the higher planets; those in the mode of passion live on the earthly planets; and those in the mode of ignorance go down to the hellish worlds." (Bg. 14.18)
 
 If a person is in the mode of goodness, his mental activities will promote him to a higher planetary system. Similarly, if he has a low mentality, his future life will be most abominable. The lives of the living entity, in both the past and the future, are indicated by the mental condition. Nārada Muni is herein offering the King blessings of all good fortune so that the King will not desire anything or make plans for sense gratification. The King was engaged in fruitive ritualistic ceremonies because he hoped to get a better life in the future. Nārada Muni desired him to give up all mental concoctions. As explained before, all bodies in heavenly planets and hellish planets arise from mental concoctions, and the sufferings and enjoyments of material life are simply on the mental platform. They take place on the chariot of the mind (mano-ratha). It is therefore said:
 
-yasyāsti bhaktir bhagavaty akiñcanā sarvair guṇais tatra samāsate surāḥ harāv abhaktasya kuto mahad-guṇā mano-rathenāsati dhāvato bahiḥ
+> yasyāsti bhaktir bhagavaty akiñcanā
+> sarvair guṇais tatra samāsate surāḥ
+> harāv abhaktasya kuto mahad-guṇā
+> mano-rathenāsati dhāvato bahiḥ
 
 "One who has unflinching devotion for the Personality of Godhead has all the good qualities of the demigods. But one who is not a devotee of the Lord has only material qualifications that are of little value. This is because he is hovering on the mental plane and is certain to be attracted by the glaring material energy." (Bhāg. 5.18.12)
 

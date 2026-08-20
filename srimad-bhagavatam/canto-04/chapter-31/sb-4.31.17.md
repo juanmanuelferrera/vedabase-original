@@ -14,13 +14,19 @@
 
 Darkness, illumination and clouds sometimes appear and sometimes disappear, but even when they have disappeared, the potency is still there, always existing. In the sky sometimes we see clouds, sometimes rainfall and sometimes snow. Sometimes we see night, sometimes day, sometimes illumination and sometimes darkness. All these exist due to the sun, but the sun is unaffected by all these changes. Similarly, although the Supreme Personality of Godhead is the original cause of the total cosmic manifestation, He is unaffected by the material existence. This is confirmed in Bhagavad-gītā:
 
-bhūmir āpo 'nalo vāyuḥ khaṁ mano buddhir eva ca ahaṅkāra itīyaṁ me bhinnā prakṛtir aṣṭadhā
+> bhūmir āpo 'nalo vāyuḥ
+> khaṁ mano buddhir eva ca
+> ahaṅkāra itīyaṁ me
+> bhinnā prakṛtir aṣṭadhā
 
 "Earth, water, fire, air, ether, mind, intelligence and false ego—all together these eight comprise My separated material energies." (Bg. 7.4)
 
 Although the material, or physical, elements are the energy of the Supreme Personality of Godhead, they are separate. The Supreme Personality of Godhead is therefore not affected by material conditions. The Vedānta-sūtra confirms (janmādy asya yataḥ) that the creation, maintenance and dissolution of this cosmic manifestation are due to the existence of the Supreme Lord. Nonetheless the Lord is unaffected by all these changes in the material elements. This is indicated by the word pravāha (emanation). The sun always shines brilliantly and is not affected by clouds or darkness. Similarly, the Supreme Personality of Godhead is always present in His spiritual energy and is not affected by the material emanations. Brahma-saṁhitā confirms:
 
-īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ anādir ādir govindaḥ sarva-kāraṇa-kāraṇam
+> īśvaraḥ paramaḥ kṛṣṇaḥ
+> sac-cid-ānanda-vigrahaḥ
+> anādir ādir govindaḥ
+> sarva-kāraṇa-kāraṇam
 
 "Kṛṣṇa, who is known as Govinda, is the Supreme Godhead. He has an eternal, blissful, spiritual body. He is the origin of all. He has no other origin, and He is the prime cause of all causes." (Bs. 5.1)
 

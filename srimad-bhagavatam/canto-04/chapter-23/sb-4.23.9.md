@@ -16,6 +16,9 @@ In this verse it is clearly said that Mahārāja Pṛthu, practicing the prāṇ
 
 Actually one who is self-realized engages himself in the service of the Lord perpetually, both in this life and in the next. Indeed, for devotees there is no difference between this life and the next. In this life a neophyte devotee is trained to serve the Supreme Personality of Godhead, and in the next life he approaches that Supreme Person in Vaikuṇṭha and renders the same devotional service. Even for the neophyte devotee, devotional service is considered brahma-bhūyāya kalpate. Devotional service to the Lord is never considered a material activity. Since he is acting on the brahma-bhūta platform, a devotee is already liberated. He therefore has no need to practice any other type of yoga in order to approach the brahma-bhūta stage. If the devotee adheres strictly to the orders of the spiritual master, follows the rules and regulations and chants the Hare Kṛṣṇa mantra, it should be concluded that he is already at the brahma-bhūta stage, as confirmed in Bhagavad-gītā:
 
-māṁ ca yo 'vyabhicāreṇa bhakti-yogena sevate sa guṇān samatītyaitān brahma-bhūyāya kalpate
+> māṁ ca yo 'vyabhicāreṇa
+> bhakti-yogena sevate
+> sa guṇān samatītyaitān
+> brahma-bhūyāya kalpate
 
 "One who is engaged in full devotional service, unfailing in all circumstances, at once transcends the modes of material nature and thus comes to the level of Brahman." (Bg. 14.26)

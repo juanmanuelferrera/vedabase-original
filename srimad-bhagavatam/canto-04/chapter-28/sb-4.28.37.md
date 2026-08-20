@@ -16,7 +16,10 @@ Liberation means becoming free from the relativities of the world. Unless one is
 
 The common man has to undergo much austerity to become equipoised before dualities. One who becomes agitated by the relativities of life has accepted a relative position and must therefore undergo the austerities prescribed in the śāstras to transcend the material body and put an end to material existence. King Malayadhvaja underwent severe austerities by leaving his home, going to Kulācala, taking his bath in the sacred rivers and eating only vegetables like stems, roots, seeds, flowers and leaves, avoiding any cooked food or grains. These are very, very austere practices. In this age it is very difficult to leave home and go to the forest or the Himalayas to adopt the processes of austerity. Indeed, it is almost impossible. If one is even advised to give up meat-eating, drinking, gambling and illicit sex, one will fail to do so. What, then, would a person do if he went to the Himalayas or Kulācala? Such acts of renunciation are not possible in this age; therefore Lord Kṛṣṇa has advised us to accept the bhakti-yoga process. Bhakti-yoga will automatically liberate a person from the dualities of life. In bhakti-yoga, Kṛṣṇa is the center, and Kṛṣṇa is always transcendental. Thus in order to transcend dualities, one must always engage in the service of the Lord, as confirmed by Bhagavad-gītā:
 
-māṁ ca yo 'vyabhicāreṇa bhakti-yogena sevate sa guṇān samatītyaitān brahma-bhūyāya kalpate
+> māṁ ca yo 'vyabhicāreṇa
+> bhakti-yogena sevate
+> sa guṇān samatītyaitān
+> brahma-bhūyāya kalpate
 
 "One who engages in full devotional service, who does not fall down in any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman." (Bg. 14.26)
 

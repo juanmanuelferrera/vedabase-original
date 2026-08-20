@@ -14,7 +14,10 @@
 
 At the time of death King Purañjana was thinking of his wife, and this is called polluted consciousness. As Lord Kṛṣṇa explains in Bhagavad-gītā:
 
-mamaivāṁśo jīva-loke jīva-bhūtaḥ sanātanaḥ manaḥ-ṣaṣṭhānīndriyāṇi prakṛti-sthāni karṣati
+> mamaivāṁśo jīva-loke
+> jīva-bhūtaḥ sanātanaḥ
+> manaḥ-ṣaṣṭhānīndriyāṇi
+> prakṛti-sthāni karṣati
 
 "The living entities in this conditioned world are My eternal, fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind." (Bg. 15.7)
 
@@ -62,7 +65,10 @@ Thus real happiness must be appreciated by one's transcendental senses. Unless o
 
 It is stated in Bhagavad-gītā:
 
-śarīraṁ yad avāpnoti yac cāpy utkrāmatīśvaraḥ gṛhītvaitāni saṁyāti vāyur gandhān ivāśayāt
+> śarīraṁ yad avāpnoti
+> yac cāpy utkrāmatīśvaraḥ
+> gṛhītvaitāni saṁyāti
+> vāyur gandhān ivāśayāt
 
 "The living entity in the material world carries his different conceptions of life from one body to another as the air carries aromas." (Bg. 15.8)
 

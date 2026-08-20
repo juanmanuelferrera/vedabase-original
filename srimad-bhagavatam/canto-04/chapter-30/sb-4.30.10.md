@@ -14,7 +14,10 @@
 
 Good intelligence means going back home, back to Godhead. This is confirmed in Bhagavad-gītā:
 
-teṣāṁ satata-yuktānāṁ bhajatāṁ prīti-pūrvakam dadāmi buddhi-yogaṁ taṁ yena mām upayānti te
+> teṣāṁ satata-yuktānāṁ
+> bhajatāṁ prīti-pūrvakam
+> dadāmi buddhi-yogaṁ taṁ
+> yena mām upayānti te
 
 "To those who are constantly devoted and worship Me with love, I give the understanding by which they can come to Me." (Bg. 10.10)
 

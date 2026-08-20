@@ -18,7 +18,10 @@ On the whole, for spiritual advancement, one must give up the company of women. 
 
 How one becomes captivated by the association of one's dear wife is explained in this chapter by Nārada Muni. Attraction for one's wife means attraction for the material qualities. One who is attracted by the material quality of darkness is in the lowest stage of life, whereas one who is attracted by the material quality of goodness is in a better position. Sometimes we see that when a person is on the platform of material goodness, he is attracted more or less by the cultivation of knowledge. This is, of course, a better position, for knowledge gives one the preference to accept devotional service. Unless one comes to the platform of knowledge, the brahma-bhūta stage, one cannot advance in devotional service. As Kṛṣṇa says in Bhagavad-gītā:
 
-brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati samaḥ sarveṣu bhūteṣu mad-bhaktiṁ labhate parām
+> brahma-bhūtaḥ prasannātmā
+> na śocati na kāṅkṣati
+> samaḥ sarveṣu bhūteṣu
+> mad-bhaktiṁ labhate parām
 
 "One who is thus transcendentally situated at once realizes the Supreme Brahman. He never laments nor desires to have anything; he is equally disposed to every living entity. In that state he attains pure devotional service unto Me." (Bg. 18.54)
 

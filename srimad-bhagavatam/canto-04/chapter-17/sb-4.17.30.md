@@ -14,7 +14,10 @@
 
 The planet earth herein exhibits the symptoms of full surrender before the Lord. As stated, no one can protect the person whom Kṛṣṇa is prepared to kill, and no one can kill the person whom Kṛṣṇa protects. Because the Lord was prepared to kill the planet earth, there was no one to give protection to her. We are all receiving protection from the Lord, and it is therefore proper that every one of us surrender unto Him. In Bhagavad-gītā the Lord instructs:
 
-sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja ahaṁ tvāṁ sarva-pāpebhyo mokṣayiṣyāmi mā śucaḥ
+> sarva-dharmān parityajya
+> mām ekaṁ śaraṇaṁ vraja
+> ahaṁ tvāṁ sarva-pāpebhyo
+> mokṣayiṣyāmi mā śucaḥ
 
 "Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear." (Bg. 18.66)
 

@@ -16,7 +16,10 @@ There are two kinds of devotees. One is called goṣṭhānandī and the other b
 
 Devotees like the great sage Nārada who travel all over to preach, are called goṣṭhānandī. Nārada Muni is always wandering throughout the universe just to create different types of devotees. Nārada even made a hunter a devotee. He also made Dhruva Mahārāja and Prahlāda devotees. Actually all devotees are indebted to the great sage Nārada, for he has wandered both in heaven and in hell. A devotee of the Lord is not even afraid of hell. He goes to preach the glories of the Lord everywhere—even in hell—because there is no distinction between heaven and hell for a devotee.
 
-nārāyaṇa-parāḥ sarve na kutaścana bibhyati svargāpavarga-narakeṣv api tulyārtha-darśinaḥ
+> nārāyaṇa-parāḥ sarve
+> na kutaścana bibhyati
+> svargāpavarga-narakeṣv
+> api tulyārtha-darśinaḥ
 
 "A pure devotee of Nārāyaṇa is never afraid of going anywhere and everywhere. For him heaven and hell are one and the same." (Bhāg. 6.17.28) Such devotees, wandering all over the world, deliver those who are actually afraid of this material existence. Some people are already disgusted with material existence, being confused and frustrated by material enjoyment, and some people, who are intelligent, are interested in understanding the Supreme Lord. Both may take advantage of the pure devotee who wanders throughout the world.
 

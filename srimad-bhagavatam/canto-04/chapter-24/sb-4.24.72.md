@@ -18,7 +18,10 @@ dharmaḥ svanuṣṭhitaḥ puṁsāṁ viṣvaksena-kathāsu yaḥ notpādayed
 
 The conclusion is that even if one is busy executing his occupational duty, his business in Kṛṣṇa consciousness need not be hampered. He has simply to execute the devotional service of śravaṇaṁ kīrtanam—hearing, chanting and remembering. One need not abandon his occupational duty. As stated in Bhagavad-gītā:
 
-yataḥ pravṛttir bhūtānāṁ yena sarvam idaṁ tatam sva-karmaṇā tam abhyarcya siddhiṁ vindati mānavaḥ
+> yataḥ pravṛttir bhūtānāṁ
+> yena sarvam idaṁ tatam
+> sva-karmaṇā tam abhyarcya
+> siddhiṁ vindati mānavaḥ
 
 "By worship of the Lord—who is the source of all beings and who is all-pervading—man can, in the performance of his own duty, attain perfection." (Bg. 18.46)
 

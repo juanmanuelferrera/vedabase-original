@@ -18,7 +18,10 @@ In the Nārada-pañcarātra, devotional service to the Lord is likened unto a qu
 
 At present we have contacted a material body, material mind and material intelligence, but when we become free from these material conditions, our spiritual body, spiritual mind and spiritual intelligence become manifest. In that transcendental state, a devotee attains all the benefits of karma, jñāna and yoga. Although he never engages in fruitive activities or empiric speculation to attain mystic powers, automatically mystic powers appear in his service. A devotee does not want any kind of material opulence, but such opulence appears before him automatically. He does not have to endeavor for it. Because of his devotional service, he automatically becomes brahma-bhūta. As stated before, this is confirmed in Bhagavad-gītā:
 
-māṁ ca yo 'vyabhicāreṇa bhakti-yogena sevate sa guṇān samatītyaitān brahma-bhūyāya kalpate
+> māṁ ca yo 'vyabhicāreṇa
+> bhakti-yogena sevate
+> sa guṇān samatītyaitān
+> brahma-bhūyāya kalpate
 
 "One who is engaged in full devotional service, unfailing in all circumstances, at once transcends the modes of material nature and thus comes to the level of Brahman." (Bg. 14.26)
 

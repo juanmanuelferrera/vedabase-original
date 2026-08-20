@@ -18,7 +18,10 @@ akāmaḥ sarva-kāmo vā mokṣa-kāma udāra-dhīḥ tīvreṇa bhakti-yogena 
 
 The devotees, the jñānīs, who are known as mokṣa-kāma, and the karmīs, who are known as sarva-kāma, are all aspiring to worship the Supreme Personality of Godhead, Viṣṇu. Even when one performs yajñas, as stated here (kriyā-kalāpaiḥ), he should always remember that the demigods are but agents of the Supreme Lord. Actually the worshipful Lord is Viṣṇu, Yajñeśvara. Thus even when different demigods are worshiped in the Vedic and Tantric sacrifices, the actual goal of sacrifice is Lord Viṣṇu. Therefore in Bhagavad-gītā it is said:
 
-ye 'py anya-devatā-bhaktā yajante śraddhayānvitāḥ te 'pi mām eva kaunteya yajanty avidhi-pūrvakam
+> ye 'py anya-devatā-bhaktā
+> yajante śraddhayānvitāḥ
+> te 'pi mām eva kaunteya
+> yajanty avidhi-pūrvakam
 
 "Whatever a man may sacrifice to other gods, O son of Kuntī, is really meant for Me alone, but is offered without true understanding." (Bg. 9.23)
 

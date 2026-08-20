@@ -21,7 +21,10 @@
 
 The living entity's position is herein likened to a dog's. By chance a dog may have a very rich owner, and by chance he may become a street dog. As the dog of a rich man, he will live very opulently. Sometimes in Western countries we hear of a master leaving millions of dollars to a dog in his will. Of course there are many dogs loitering in the street without food. Therefore, to liken the conditional existence of the living entity to that of a dog is very appropriate. An intelligent human being, however, can understand that if he has to live the life of a dog, he had best become Kṛṣṇa's dog. In the material world a dog is sometimes elevated and is sometimes on the street, but in the spiritual world, Kṛṣṇa's dog is perpetually, eternally happy. Śrīla Bhaktivinoda Ṭhākura has therefore sung: vaiṣṇava ṭhākura tomāra kukura baliyā jānaha more. In this way Bhaktivinoda Ṭhākura offers to become a Vaiṣṇava's dog. A dog always keeps himself at his master's door and does not allow any person unfavorable to the master to enter. Similarly, one should engage in the service of a Vaiṣṇava and try to please him in every respect. Unless one does so, he does not make spiritual advancement. Apart from spiritual advancement, in the material world if one does not develop his qualities in goodness, he cannot be promoted to the higher planetary system. As confirmed by Bhagavad-gītā:
 
-ūrdhvaṁ gacchanti sattva-sthā madhye tiṣṭhanti rājasāḥ jaghanya-guṇa-vṛtti-sthā adho gacchanti tāmasāḥ
+> ūrdhvaṁ gacchanti sattva-sthā
+> madhye tiṣṭhanti rājasāḥ
+> jaghanya-guṇa-vṛtti-sthā
+> adho gacchanti tāmasāḥ
 
 "Those situated in the mode of goodness gradually go upward to the higher planets; those in the mode of passion live on the earthly planets; and those in the mode of ignorance go down to the hellish worlds." (Bg. 14.18)
 

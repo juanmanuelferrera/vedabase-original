@@ -14,6 +14,9 @@
 
 The word kamala-nābhāya indicates that Lord Viṣṇu is the origin of the material creation. From the abdomen of Garbhodakaśāyī Viṣṇu, a lotus flower sprouts. Lord Brahmā, the first creature of the universe, is born from this lotus flower, and, subsequently, Lord Brahmā creates the whole universe. The origin of all creation is therefore Lord Viṣṇu, and the origin of all the viṣṇu-tattvas is Lord Kṛṣṇa. Consequently, Kṛṣṇa is the origin of everything. This is also confirmed in Bhagavad-gītā:
 
-ahaṁ sarvasya prabhavo mattaḥ sarvaṁ pravartate iti matvā bhajante māṁ budhā bhāva-samanvitāḥ
+> ahaṁ sarvasya prabhavo
+> mattaḥ sarvaṁ pravartate
+> iti matvā bhajante māṁ
+> budhā bhāva-samanvitāḥ
 
 "I am the source of all spiritual and material worlds. Everything emanates from Me. The wise who perfectly know this engage in My devotional service and worship Me with all their hearts." (Bg. 10.8) Lord Kṛṣṇa says: "I am the origin of everything." Therefore whatever we see emanates from Him. This is also confirmed in the Vedānta-sūtra. Janmādy asya yataḥ: "The Absolute Truth is He from whom everything emanates."

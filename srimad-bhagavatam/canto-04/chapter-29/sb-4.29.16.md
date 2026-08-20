@@ -14,6 +14,9 @@
 
 The mind and intelligence of the living entity in material existence are affected by the modes of material nature, and according to the association of the material modes, the mind is habituated to go here and there. The heart feels satisfaction, jubilation or illusion according to the effects of the modes of material nature. Actually the living entity in his material condition remains inert. It is the modes of material nature that act on the mind and heart. The results are enjoyed or suffered by the living entity. This is clearly stated in Bhagavad-gītā:
 
-prakṛteḥ kriyamāṇāni guṇaiḥ karmāṇi sarvaśaḥ ahaṅkāra-vimūḍhātmā kartāham iti manyate
+> prakṛteḥ kriyamāṇāni
+> guṇaiḥ karmāṇi sarvaśaḥ
+> ahaṅkāra-vimūḍhātmā
+> kartāham iti manyate
 
 "The bewildered spirit soul, under the influence of the three modes of material nature, thinks himself the doer of activities that are in actuality carried out by nature." (Bg. 3.27)

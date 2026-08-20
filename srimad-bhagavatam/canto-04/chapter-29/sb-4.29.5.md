@@ -14,7 +14,10 @@
 
 In material existence so-called intelligence is actually ignorance. When intelligence is cleared up, it is called buddhi-yoga. In other words, when intelligence is dovetailed with the desires of Kṛṣṇa, it is called buddhi-yoga or bhakti-yoga. Therefore in Bhagavad-gītā Kṛṣṇa says:
 
-teṣāṁ satata-yuktānāṁ bhajatāṁ prīti-pūrvakam dadāmi buddhi-yogaṁ taṁ yena mām upayānti te
+> teṣāṁ satata-yuktānāṁ
+> bhajatāṁ prīti-pūrvakam
+> dadāmi buddhi-yogaṁ taṁ
+> yena mām upayānti te
 
 "To those who are constantly devoted and worship Me with love, I give the understanding by which they can come to Me." (Bg. 10.10)
 

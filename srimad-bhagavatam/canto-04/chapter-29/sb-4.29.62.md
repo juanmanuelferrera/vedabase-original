@@ -28,7 +28,10 @@ vedānta-kṛd veda-vid eva cāham
 
 In the next birth, one acquires remembrance from the Supersoul and begins to execute the plans begun in the previous life. This is also explained in Bhagavad-gītā in another verse:
 
-īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati bhrāmayan sarva-bhūtāni yantrārūḍhāni māyayā
+> īśvaraḥ sarva-bhūtānāṁ
+> hṛd-deśe 'rjuna tiṣṭhati
+> bhrāmayan sarva-bhūtāni
+> yantrārūḍhāni māyayā
 
 "The Supreme Lord is situated in everyone's heart, O Arjuna, and is directing the wanderings of all living entities, who are seated as on a machine, made of the material energy." (Bg. 18.61)
 

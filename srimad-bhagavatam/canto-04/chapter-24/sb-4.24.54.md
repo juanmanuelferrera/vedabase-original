@@ -14,7 +14,10 @@
 
 As stated in Brahma-saṁhitā: vedeṣu durlabham adurlabham ātma-bhaktau. This indicates that it is very difficult for one to attain the ultimate goal of life and reach the supreme destination, Vaikuṇṭhaloka or Goloka Vṛndāvana, simply by studying Vedānta philosophy or Vedic literature. However, this highest perfectional stage can be attained by the devotees very easily. That is the meaning of vedeṣu durlabham adurlabham ātma-bhaktau. The same point is confirmed by Lord Śiva in this verse. The Lord is very difficult for the karma-yogīs, jñāna-yogīs and dhyāna-yogīs to attain. Those who are bhakti-yogīs, however, have no difficulty at all. In the word svārājyasya, svar refers to Svargaloka, the heavenly planet, and svārājya refers to the ruler of the heavenly planet, Indra. Generally, karmīs desire elevation to heavenly planets, but King Indra desires to become perfect in bhakti-yoga. Those who identify themselves as ahaṁ brahmāsmi ("I am the Supreme Brahman, one with the Absolute Truth") also ultimately desire to attain perfect liberation in the Vaikuṇṭha planets or Goloka Vṛndāvana. In Bhagavad-gītā it is said:
 
-bhaktyā mām abhijānāti yāvān yaś cāsmi tattvataḥ tato māṁ tattvato jñātvā viśate tad-anantaram
+> bhaktyā mām abhijānāti
+> yāvān yaś cāsmi tattvataḥ
+> tato māṁ tattvato jñātvā
+> viśate tad-anantaram
 
 "One can understand the Supreme Personality as He is only by devotional service. And when one is in full consciousness of the Supreme Lord by such devotion, he can enter into the kingdom of God." (Bg. 18.55)
 

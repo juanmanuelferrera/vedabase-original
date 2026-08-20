@@ -16,7 +16,10 @@
 
 One can offer prayers to the Supreme Personality of Godhead directly, but if one repeats the prayers offered by great devotees like Lord Śiva and Lord Brahmā, or if one follows in the footsteps of great personalities, one can please the Supreme Personality of Godhead very easily. For instance, we sometimes chant this mantra of Brahma-saṁhitā:
 
-cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa- lakṣāvṛteṣu surabhīr abhipālayantam lakṣmī-sahasra-śata-sambhrama-sevyamānaṁ govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+> cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa-
+> lakṣāvṛteṣu surabhīr abhipālayantam
+> lakṣmī-sahasra-śata-sambhrama-sevyamānaṁ
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 "I worship Govinda, the primeval Lord, the first progenitor, who is tending the cows, yielding all desires, in abodes built with spiritual gems and surrounded by millions of purpose trees. He is always served with great reverence and affection by hundreds of thousands of lakṣmīs, or gopīs." (Bs. 5.29) Because this prayer was offered by Lord Brahmā, we follow him by reciting this prayer. That is the easiest way to satisfy the Supreme Personality of Godhead. The pure devotee never attempts to reach the Supreme Lord directly. The most important way to worship the Lord is to go through the disciplic succession of devotees. The prayers offered by Lord Śiva to the Supreme Personality of Godhead were thus repeated by the Pracetās, who were thus very successful in pleasing the Supreme Lord.
 

@@ -14,7 +14,10 @@
 
 The word pākhaṇḍa used in this verse is sometimes pronounced pāṣaṇḍa. Both of these words indicate an imposter who presents himself as a very religious person but in actuality is sinful. Indra took up the saffron-colored dress as a way of cheating others. This saffron dress has been misused by many imposters who present themselves as liberated persons or incarnations of God. In this way people are cheated. As we have mentioned many times, the conditioned soul has a tendency to cheat; therefore this quality is also visible in a person like King Indra. It is understood that even King Indra is not liberated from the clutches of material contamination. Thus the word āmuktam iva, meaning "as if he were liberated," is used. The saffron dress worn by a sannyāsī announces to the world that he has renounced all worldly affairs and is simply engaged in the service of the Lord. Such a devotee is actually a sannyāsī, or liberated person. In Bhagavad-gītā it is said:
 
-anāśritaḥ karma-phalaṁ kāryaṁ karma karoti yaḥ sa sannyāsī ca yogī ca na niragnir na cākriyaḥ
+> anāśritaḥ karma-phalaṁ
+> kāryaṁ karma karoti yaḥ
+> sa sannyāsī ca yogī ca
+> na niragnir na cākriyaḥ
 
 "One who is unattached to the fruits of his work and who works as he is obligated is in the renounced order of life, and he is the true mystic: not he who lights no fire and performs no work." (Bg. 6.1)
 

@@ -14,7 +14,10 @@
 
 Generally people are not aware of their interest in life—to return home, back to Godhead. People do not know about their real home in the spiritual world. In the spiritual world there are many Vaikuṇṭha planets, and the topmost planet is Kṛṣṇaloka, Goloka Vṛndāvana. Despite the so-called advancement of civilization, there is no information of the Vaikuṇṭhalokas, the spiritual planets. At the present moment so-called advanced civilized men are trying to go to other planets, but they do not know that even if they go to the highest planetary system, Brahmaloka, they have to come back again to this planet. This is confirmed in Bhagavad-gītā:
 
-ābrahma-bhuvanāl lokāḥ punar āvartino 'rjuna mām upetya tu kaunteya punar janma na vidyate
+> ābrahma-bhuvanāl lokāḥ
+> punar āvartino 'rjuna
+> mām upetya tu kaunteya
+> punar janma na vidyate
 
 "From the highest planet in the material world down to the lowest, all are places of misery wherein repeated birth and death take place. But one who attains to My abode, O son of Kuntī, never takes birth again." (Bg. 8.16)
 

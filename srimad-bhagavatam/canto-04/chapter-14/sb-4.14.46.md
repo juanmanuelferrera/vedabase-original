@@ -14,7 +14,10 @@
 
 The Naiṣādas are not allowed to live in cities and towns because they are sinful by nature. As such, their bodies are very ugly, and their occupations are also sinful. We should, however, know that even these sinful men (who are sometimes called kirātas) can be delivered from their sinful condition to the topmost Vaiṣṇava platform by the mercy of a pure devotee. Engagement in the transcendental loving devotional service of the Lord can make anyone, however sinful he may be, fit to return home, back to Godhead. One has only to become free from all contamination by the process of devotional service. In this way everyone can become fit to return home, back to Godhead. This is confirmed by the Lord Himself in Bhagavad-gītā:
 
-māṁ hi pārtha vyapāśritya ye 'pi syuḥ pāpa-yonayaḥ striyo vaiśyās tathā śūdrās te 'pi yānti parāṁ gatim
+> māṁ hi pārtha vyapāśritya
+> ye 'pi syuḥ pāpa-yonayaḥ
+> striyo vaiśyās tathā śūdrās
+> te 'pi yānti parāṁ gatim
 
 "O son of Pṛthā, those who take shelter of Me, though they be of lower birth—women, vaiśyas [merchants], as well as śūdras [workers]—can approach the supreme destination." (Bg. 9.32)
 

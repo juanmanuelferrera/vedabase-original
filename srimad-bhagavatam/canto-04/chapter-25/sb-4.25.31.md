@@ -14,7 +14,10 @@
 
 Such a speech is typical of a living entity attracted by the opposite sex. This is called bewilderment occasioned by becoming conditioned by material nature. When thus attracted by the beauty of the material energy, one becomes very eager to enjoy. This is elaborately described in this instance of Purañjana's becoming attracted by the beautiful woman. In conditional life the living entity is attracted by a face, eyebrows, or eyes, a voice or anything. In short, everything becomes attractive. When a man or a woman is attracted by the opposite sex, it does not matter whether the opposite sex is beautiful or not. The lover sees everything beautiful in the face of the beloved and thus becomes attracted. This attraction causes the living entity to fall down in this material world. This is described in Bhagavad-gītā:
 
-icchā-dveṣa-samutthena dvandva-mohena bhārata sarva-bhūtāni sammohaṁ sarge yānti parantapa
+> icchā-dveṣa-samutthena
+> dvandva-mohena bhārata
+> sarva-bhūtāni sammohaṁ
+> sarge yānti parantapa
 
 "O scion of Bharata [Arjuna], O conqueror of the foe, all living entities are born into delusion, overcome by the dualities of desire and hate." (Bg. 7.27)
 

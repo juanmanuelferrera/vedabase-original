@@ -14,7 +14,10 @@
 
 It is herein stated that one should strictly follow the scriptures if one actually wants an auspicious life. The same is explained in Bhagavad-gītā:
 
-yaḥ śāstra-vidhim utsṛjya vartate kāma-kārataḥ na sa siddhim avāpnoti na sukhaṁ na parāṁ gatim
+> yaḥ śāstra-vidhim utsṛjya
+> vartate kāma-kārataḥ
+> na sa siddhim avāpnoti
+> na sukhaṁ na parāṁ gatim
 
 "But he who discards scriptural injunctions and acts according to his own whims attains neither perfection, nor happiness, nor the supreme destination." (Bg. 16.23)
 

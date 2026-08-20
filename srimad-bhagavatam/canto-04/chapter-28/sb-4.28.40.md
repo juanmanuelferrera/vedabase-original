@@ -14,7 +14,10 @@
 
 The conditioned soul is often frustrated in trying to understand the distinctions between the material body, the Supersoul and the individual soul. There are two types of Māyāvādī philosophers—the followers of the Buddhist philosophy and the followers of the Śaṅkara philosophy. The followers of Buddha do not recognize that there is anything beyond the body; the followers of Śaṅkara conclude that there is no separate existence of the Paramātmā, the Supersoul. The Śaṅkarites believe that the individual soul is identical with the Paramātmā in the ultimate analysis. But the Vaiṣṇava philosopher, who is perfect in knowledge, knows that the body is made of the external energy and that the Supersoul, the Paramātmā, the Supreme Personality of Godhead, is sitting with the individual soul and is distinct from him. As Lord Kṛṣṇa states in Bhagavad-gītā:
 
-kṣetrajñaṁ cāpi māṁ viddhi sarva-kṣetreṣu bhārata kṣetra-kṣetrajñayor jñānaṁ yat taj jñānaṁ mataṁ mama
+> kṣetrajñaṁ cāpi māṁ viddhi
+> sarva-kṣetreṣu bhārata
+> kṣetra-kṣetrajñayor jñānaṁ
+> yat taj jñānaṁ mataṁ mama
 
 "O scion of Bharata, you should understand that I am also the knower in all bodies, and to understand this body and its owner is called knowledge. That is My opinion." (Bg. 13.3)
 

@@ -23,6 +23,9 @@ The cultivation of Kṛṣṇa consciousness is possible where great devotees li
 
 The word bhagavad-guṇānukathana-śravaṇa-vyagra-cetasaḥ, meaning "always eager to find the place where the glories of the Lord are being heard and chanted," is significant in this verse. A businessman is always very eager to go to a place where business is transacted. Similarly, a devotee is very eager to hear from the lips of liberated devotees. As soon as one hears the glories of the Lord from the liberated devotees, he immediately becomes impregnated with Kṛṣṇa consciousness. This is also confirmed in another verse:
 
-satāṁ prasaṅgān mama vīrya-saṁvido bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ taj-joṣaṇād āśv apavarga-vartmani śraddhā ratir bhaktir anukramiṣyati
+> satāṁ prasaṅgān mama vīrya-saṁvido
+> bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ
+> taj-joṣaṇād āśv apavarga-vartmani
+> śraddhā ratir bhaktir anukramiṣyati
 
 "In the association of pure devotees, discussion of the pastimes and activities of the Supreme Personality of Godhead is very pleasing and satisfying to the ear and to the heart. By cultivating such knowledge one gradually becomes advanced on the path of liberation, and thereafter he is freed, and his attraction becomes fixed. Then real devotion and devotional service begin." (Bhāg. 3.25.25) In the association of pure devotees, one becomes attached to hearing and chanting the glories of the Lord. In this way one can cultivate Kṛṣṇa consciousness, and as soon as this cultivation is advanced, one can become faithful to the Lord, devoted to the Lord and attached to the Lord, and thus one can very quickly attain full Kṛṣṇa consciousness. The secret of success in the cultivation of Kṛṣṇa consciousness is hearing from the right person. A Kṛṣṇa conscious person is never disturbed by the bodily necessities—namely, eating, sleeping, mating and defending.

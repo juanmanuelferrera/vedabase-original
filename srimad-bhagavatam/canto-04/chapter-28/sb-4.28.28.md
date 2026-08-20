@@ -14,13 +14,19 @@
 
 Since King Purañjana thought of his wife at the time of death, he attained the body of a woman in his next birth. This verifies the following verse in Bhagavad-gītā:
 
-yaṁ yaṁ vāpi smaran bhāvaṁ tyajaty ante kalevaram taṁ tam evaiti kaunteya sadā tad-bhāva-bhāvitaḥ
+> yaṁ yaṁ vāpi smaran bhāvaṁ
+> tyajaty ante kalevaram
+> taṁ tam evaiti kaunteya
+> sadā tad-bhāva-bhāvitaḥ
 
 "Whatever state of being one remembers when he quits his body, that state he will attain without fail." (Bg. 8.6)
 
 When a living entity is accustomed to think of a particular subject matter or become absorbed in a certain type of thought, he will think of that subject at the time of death. At the time of death, one will think of the subject that has occupied his life while he was awake, lightly sleeping or dreaming, or while he was deeply sleeping. After falling from the association of the Supreme Lord, the living entity thus transmigrates from one bodily form to another according to nature's course, until he finally attains the human form. If he is absorbed in material thoughts and ignorant of spiritual life, and if he does not take shelter under the lotus feet of the Supreme Personality of Godhead, Govinda, who solves all questions of birth and death, he will become a woman in the next life, especially if he thinks of his wife. As stated in Śrīmad-Bhāgavatam: karmaṇā daiva-netreṇa. A living entity acts piously and impiously, and sometimes in both ways. All actions are taken into account, and the living entity is offered a new body by his superiors. Although King Purañjana was overly attached to his wife, he nonetheless performed many pious fruitive activities. Consequently, although he took the form of a woman, he was given a chance to be the daughter of a powerful king. As confirmed in Bhagavad-gītā:
 
-prāpya puṇya-kṛtaṁ lokān uṣitvā śāśvatīḥ samāḥ śucīnāṁ śrīmatāṁ gehe yoga-bhraṣṭo 'bhijāyate
+> prāpya puṇya-kṛtaṁ lokān
+> uṣitvā śāśvatīḥ samāḥ
+> śucīnāṁ śrīmatāṁ gehe
+> yoga-bhraṣṭo 'bhijāyate
 
 "The unsuccessful yogī, after many, many years of enjoyment on the planets of the pious living entities, is born into a family of righteous people, or into a family of rich aristocracy." (Bg. 6.41)
 

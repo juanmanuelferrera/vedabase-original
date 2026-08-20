@@ -14,7 +14,10 @@
 
 This is a very nice explanation of how the spiritual being, the part and parcel of Kṛṣṇa, God, accepts a material body by virtue of his own desires. Accepting two hands, two legs, and so on, the living entity fully enjoys the modes of material nature. Lord Kṛṣṇa says in Bhagavad-gītā:
 
-icchā-dveṣa-samutthena dvandva-mohena bhārata sarva-bhūtāni sammohaṁ sarge yānti parantapa
+> icchā-dveṣa-samutthena
+> dvandva-mohena bhārata
+> sarva-bhūtāni sammohaṁ
+> sarge yānti parantapa
 
 "O scion of Bharata [Arjuna], O conquerer of the foe, all living entities are born into delusion, overcome by the dualities of desire and hate." (Bg. 7.27)
 
@@ -22,7 +25,10 @@ Originally the living entity is a spiritual being, but when he actually desires 
 
 The desire of the living entity to come into the material world is not very difficult to understand. Although one may be born in a family of Āryans, where there are restrictions against meat-eating, intoxication, gambling and illicit sex, still one may want to enjoy these forbidden things. There is always someone who wants to go to a prostitute for illicit sex or to a hotel to eat meat and drink wine. There is always someone who wants to gamble at nightclubs or enjoy so-called sports. All these propensities are already within the hearts of the living entities, but some living entities stop to enjoy these abominable activities and consequently fall down to a degraded platform. The more one desires a degraded life within his heart, the more he falls down to occupy different forms of abominable existence. This is the process of transmigration and evolution. A particular type of animal may have a strong tendency to enjoy one kind of sense enjoyment, but in the human form one can enjoy all the senses. The human form has the facility to utilize all the senses for gratification. Unless one is properly trained, he becomes a victim of the modes of material nature, as confirmed by Bhagavad-gītā:
 
-prakṛteḥ kriyamāṇāni guṇaiḥ karmāṇi sarvaśaḥ ahaṅkāra-vimūḍhātmā kartāham iti manyate
+> prakṛteḥ kriyamāṇāni
+> guṇaiḥ karmāṇi sarvaśaḥ
+> ahaṅkāra-vimūḍhātmā
+> kartāham iti manyate
 
 "The bewildered spirit soul, under the influence of the three modes of material nature, thinks himself the doer of activities that are in actuality carried out by nature." (Bg. 3.27)
 

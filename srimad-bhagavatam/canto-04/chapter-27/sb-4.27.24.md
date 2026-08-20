@@ -16,7 +16,10 @@ The words yavanānām ṛṣabham refer to the King of the Yavanas. The Sanskrit
 
 If a person is Kṛṣṇa conscious, he can work like a young man even if he is seventy-five or eighty years old. Thus the daughter of Kāla (time) cannot overcome a Vaiṣṇava. Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī engaged in writing Caitanya-caritāmṛta when he was very old, yet he presented the most wonderful literature of the activities of Lord Caitanya. Śrīla Rūpa Gosvāmī and Sanātana Gosvāmī began their spiritual lives at a very old age, that is, after they retired from their occupations and family lives. Yet they presented many valuable literatures for the advancement of spiritual life. This is confirmed by Śrīla Śrīnivāsa Ācārya, who praised the Gosvāmīs in this way:
 
-nānā-śāstra-vicāraṇaika-nipuṇau sad-dharma-saṁsthāpakau lokānāṁ hita-kāriṇau tri-bhuvane mānyau śaraṇyākarau rādhā-kṛṣṇa-padāravinda-bhajanānandena mattālikau vande rūpa-sanātanau raghu-yugau śrī-jīva-gopālakau
+> nānā-śāstra-vicāraṇaika-nipuṇau sad-dharma-saṁsthāpakau
+> lokānāṁ hita-kāriṇau tri-bhuvane mānyau śaraṇyākarau
+> rādhā-kṛṣṇa-padāravinda-bhajanānandena mattālikau
+> vande rūpa-sanātanau raghu-yugau śrī-jīva-gopālakau
 
 "I offer my respectful obeisances unto the six Gosvāmīs, namely Śrī Sanātana Gosvāmī, Śrī Rūpa Gosvāmī, Śrī Raghunātha Bhaṭṭa Gosvāmī, Śrī Raghunātha dāsa Gosvāmī, Śrī Jīva Gosvāmī and Śrī Gopāla Bhaṭṭa Gosvāmī, who are very expert in scrutinizingly studying all the revealed scriptures with the aim of establishing eternal religious principles for the benefit of all human beings. Thus they are honored all over the three worlds, and they are worth taking shelter of because they are absorbed in the mood of the gopīs and are engaged in the transcendental loving service of Rādhā and Kṛṣṇa."
 

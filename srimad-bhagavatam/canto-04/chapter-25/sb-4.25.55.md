@@ -18,7 +18,10 @@ When the living entity is encircled by wife, children and home, he acts on the m
 
 Everyone who is not in Kṛṣṇa consciousness must be considered to be in illusion. One's so-called feelings of happiness and satisfaction resulting from material things are also illusions. Factually neither society, friendship, love nor anything else can save one from the onslaught of the external energy, which is symptomized by birth, death, old age and disease. To get even one living entity out of the illusory condition is very difficult; therefore Lord Kṛṣṇa says in Bhagavad-gītā :
 
-daivī hy eṣā guṇamayī mama māyā duratyayā mām eva ye prapadyante māyām etāṁ taranti te
+> daivī hy eṣā guṇamayī
+> mama māyā duratyayā
+> mām eva ye prapadyante
+> māyām etāṁ taranti te
 
 "This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it." (Bg. 7.14)
 

@@ -14,7 +14,10 @@
 
 Vedic evidence is called śabda-brahma. There are many things which are beyond the perception of our imperfect senses, yet the authoritative evidence of sound vibration is perfect. The Vedas are known as śabda-brahma because evidence taken from the Vedas constitutes the ultimate understanding. This is because śabda-brahma, or the Vedas, represents the Supreme Personality of Godhead. However, the real essence of śabda-brahma is the chanting of the Hare Kṛṣṇa mantra. By vibrating this transcendental sound, the meaning of everything both material and spiritual is revealed. This Hare Kṛṣṇa is nondifferent from the Personality of Godhead. The meaning of everything is received through the air through sound vibration. The vibration may be material or spiritual, but without sound vibration no one can understand the meaning of anything. In the Vedas it is said, antar bahiś ca tat sarvaṁ vyāpya nārāyaṇaḥ sthitaḥ: "Nārāyaṇa is all-pervading, and He exists both within and without." This is also confirmed in Bhagavad-gītā:
 
-yathā prakāśayaty ekaḥ kṛtsnaṁ lokam imaṁ raviḥ kṣetraṁ kṣetrī tathā kṛtsnaṁ prakāśayati bhārata
+> yathā prakāśayaty ekaḥ
+> kṛtsnaṁ lokam imaṁ raviḥ
+> kṣetraṁ kṣetrī tathā kṛtsnaṁ
+> prakāśayati bhārata
 
 "O son of Bharata, as the sun alone illuminates all this universe, so do the living entity and the Supersoul illuminate the entire body by consciousness." (Bg. 13.34)
 

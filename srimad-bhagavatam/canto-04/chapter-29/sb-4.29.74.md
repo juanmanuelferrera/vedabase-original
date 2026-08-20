@@ -14,7 +14,10 @@
 
 Lord Kṛṣṇa says in Bhagavad-gītā:
 
-mamaivāṁśo jīva-loke jīva-bhūtaḥ sanātanaḥ manaḥ ṣaṣṭhānīndriyāṇi prakṛti-sthāni karṣati
+> mamaivāṁśo jīva-loke
+> jīva-bhūtaḥ sanātanaḥ
+> manaḥ ṣaṣṭhānīndriyāṇi
+> prakṛti-sthāni karṣati
 
 "The living entities in this conditioned world are My eternal, fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind." (Bg. 15.7)
 

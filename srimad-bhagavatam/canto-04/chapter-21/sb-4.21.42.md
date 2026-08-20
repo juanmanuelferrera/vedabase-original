@@ -14,7 +14,10 @@
 
 Since it is described in the previous verse that feeding a living brāhmaṇa is more effective than offering oblations in a fire sacrifice, in this verse it is now clearly described what brahminism is and who a brāhmaṇa is. In the age of Kali, taking advantage of the fact that by feeding a brāhmaṇa one obtains a more effective result than by performing sacrifices, a class of men with no brahminical qualifications claim the eating privilege known as brāhmaṇa-bhojana simply on the basis of their births in brāhmaṇa families. In order to distinguish this class of men from the real brāhmaṇas, Mahārāja Pṛthu is giving an exact description of a brāhmaṇa and brahminical culture. One should not take advantage of his position simply to live like a fire without light. A brāhmaṇa must be fully conversant with the Vedic conclusion, which is described in Bhagavad-gītā. Vedaiś ca sarvair aham eva vedyaḥ (Bg. 15.15). The Vedic conclusion—the ultimate understanding, or Vedānta understanding—is knowledge of Kṛṣṇa. Actually that is a fact because simply by understanding Kṛṣṇa as He is, as described in Bhagavad-gītā (janma karma ca me divyam evaṁ yo vetti tattvataḥ), one becomes a perfect brāhmaṇa. The brāhmaṇa who knows Kṛṣṇa perfectly well is always in a transcendental position. This is also confirmed in Bhagavad-gītā:
 
-māṁ ca yo 'vyabhicāreṇa bhakti-yogena sevate sa guṇān samatītyaitān brahma-bhūyāya kalpate
+> māṁ ca yo 'vyabhicāreṇa
+> bhakti-yogena sevate
+> sa guṇān samatītyaitān
+> brahma-bhūyāya kalpate
 
 "One who engages in full devotional service and who does not fall down in any circumstance at once transcends the modes of material nature and thus comes to the level of Brahman." (Bg. 14.26)
 
@@ -22,6 +25,9 @@ Therefore a devotee of Lord Kṛṣṇa is actually a perfect brāhmaṇa. His s
 
 The word maṅgala ("auspicious") in this verse is very significant. Śrīla Śrīdhara Svāmī quotes that to do what is good and to reject what is not good is called maṅgala, or auspicious. To do what is good means to accept everything favorable to the discharge of devotional service, and to reject what is not good means to reject everything not favorable for discharging devotional service. In our Kṛṣṇa consciousness movement, we accept this principle by rejecting four prohibited items—namely, illicit sex life, intoxication, gambling and flesh-eating—and accepting the daily chanting of at least sixteen rounds of the Hare Kṛṣṇa mahā-mantra and daily meditation three times a day by chanting the Gāyatrī mantra. In this way one can keep his brahminical culture and spiritual strength intact. By following these principles of devotional service strictly, chanting twenty-four hours a day the mahā-mantra—Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare—one makes positive progress in spiritual life and ultimately becomes completely fit to see the Supreme Personality of Godhead face to face. Because the ultimate goal of studying or understanding the Vedic knowledge is to find Kṛṣṇa, one who follows the Vedic principles as described above can from the very beginning see all the features of Lord Kṛṣṇa, the Absolute Truth, very distinctly, as one can see his own face completely reflected in a clear mirror. The conclusion is, therefore, that a brāhmaṇa does not become a brāhmaṇa simply because he is a living entity or is born in a brāhmaṇa family; he must possess all the qualities mentioned in the śāstras and practice the brahminical principles in his life. Thus he ultimately becomes a fully Kṛṣṇa conscious person and can understand what Kṛṣṇa is. How a devotee continuously sees Kṛṣṇa face to face within his heart is described in the Brahma-saṁhitā as follows:
 
-premāñjana-cchurita-bhakti-vilocanena santaḥ sadaiva hṛdayeṣu vilokayanti yaṁ śyāmasundaram acintya-guṇa-svarūpaṁ govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+> premāñjana-cchurita-bhakti-vilocanena
+> santaḥ sadaiva hṛdayeṣu vilokayanti
+> yaṁ śyāmasundaram acintya-guṇa-svarūpaṁ
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 The devotee, by development of pure love for Kṛṣṇa, constantly sees the Supreme Personality of Godhead, who is known as Śyāmasundara, within his heart. That is the perfectional stage of brahminical culture.

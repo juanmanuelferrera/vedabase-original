@@ -16,7 +16,10 @@ Human life is meant for self-realization. First of all one has to realize his ow
 
 King Purañjana was a great soul, highly intellectual and possessed of advanced consciousness, but due to his being too much addicted to women, his whole consciousness was covered. In the modern age the consciousness of people is too much covered by wine, women and flesh. Consequently people are completely unable to make any progress in self-realization. The first step of self-realization is to know oneself as spirit soul apart from the body. In the second stage of self-realization one comes to know that every soul, every individual living entity, is part and parcel of the Supreme Soul, Paramātmā, or the Supreme Personality of Godhead. This is confirmed in Bhagavad-gītā:
 
-mamaivāṁśo jīva-loke jīva-bhūtaḥ sanātanaḥ manaḥ-ṣaṣṭhānīndriyāṇi prakṛti-sthāni karṣati
+> mamaivāṁśo jīva-loke
+> jīva-bhūtaḥ sanātanaḥ
+> manaḥ-ṣaṣṭhānīndriyāṇi
+> prakṛti-sthāni karṣati
 
 "The living entities in this conditioned world are My eternal, fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind." (Bg. 15.7)
 

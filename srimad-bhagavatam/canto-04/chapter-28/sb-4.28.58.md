@@ -14,7 +14,10 @@
 
 The living entity enters the material creation with the aid of the five elements—earth, water, fire, air and ether—and thus his body is formed. Although the living entity is working from within, he is nonetheless unknown. The living entity enters the material creation, but because he is bewildered by the material energy, he appears to be hidden. The bodily conception of life is prominent because of ignorance (nāvabudhyate). Intelligence is described in the feminine gender, but owing to her prominence in all activities, she is described in this verse as adhīśaḥ, the controller. The living entity lives by means of fire, water and foodgrain. It is through the combination of these three that the body is maintained. Consequently the body is called prakṛti, material creation. All the elements gradually combine to form flesh, bone, blood and so on. All these appear as various apartments. It is said in the Vedas that the digested foods are ultimately divided into three. The solid portion becomes stool, and the semiliquid portion turns into flesh. The liquid portion turns yellow and is again divided into three. One of these liquid portions is called urine. Similarly, the fiery portion is divided into three, and one is called bone. Out of the five elements, fire, water and food grains are very important. These three are mentioned in the previous verse, whereas sky (ether) and air are not mentioned. This is all explained in Bhagavad-gītā:
 
-prakṛtiṁ puruṣaṁ caiva viddhy anādī ubhāv api vikārāṁś ca guṇāṁś caiva viddhi prakṛti-sambhavān
+> prakṛtiṁ puruṣaṁ caiva
+> viddhy anādī ubhāv api
+> vikārāṁś ca guṇāṁś caiva
+> viddhi prakṛti-sambhavān
 
 "Material nature and the living entities should be understood to be beginningless. Their transformations and the modes of matter are products of material nature." (Bg. 13.20)
 

@@ -14,7 +14,10 @@
 
 The demigods in charge of the various departmental activities that maintain this world are but assistants to the Supreme Personality of Godhead. When an incarnation of Godhead descends on this planet, demigods like the sun-god, the moon-god, or the King of heaven, Indra, all join Him. Consequently the incarnation of Godhead is able to act for the departmental demigods to keep the planetary systems in order. The protection of the earthly planet is dependent on proper rainfall, and as stated in Bhagavad-gītā and other scriptures, sacrifices are performed to please those demigods who are in charge of rainfall.
 
-annād bhavanti bhūtāni parjanyād anna-sambhavaḥ yajñād bhavati parjanyo yajñaḥ karma-samudbhavaḥ
+> annād bhavanti bhūtāni
+> parjanyād anna-sambhavaḥ
+> yajñād bhavati parjanyo
+> yajñaḥ karma-samudbhavaḥ
 
 "All living bodies subsist on food grains, which are produced from rains. Rains are produced by performance of yajña [sacrifice], and yajña is born of prescribed duties." (Bg. 3.14)
 

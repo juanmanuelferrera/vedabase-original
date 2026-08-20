@@ -12,7 +12,10 @@
 
 **In this way he stayed immovable in one place for one hundred years by the calculations of the demigods. After this time, he developed pure devotional attraction for Kṛṣṇa, the Supreme Personality of Godhead, and remained fixed in that position.**
 
-bahūnāṁ janmanām ante jñānavān māṁ prapadyate vāsudevaḥ sarvam iti sa mahātmā sudurlabhaḥ
+> bahūnāṁ janmanām ante
+> jñānavān māṁ prapadyate
+> vāsudevaḥ sarvam iti
+> sa mahātmā sudurlabhaḥ
 
 "After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare." (Bg. 7.19)
 

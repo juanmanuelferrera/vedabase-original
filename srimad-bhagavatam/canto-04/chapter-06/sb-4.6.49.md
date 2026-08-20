@@ -14,7 +14,10 @@
 
 A Vaiṣṇava is never bewildered by the influence of the external energy because he is engaged in the transcendental loving service of the Lord. The Lord states in Bhagavad-gītā:
 
-daivī hy eṣā guṇamayī mama māyā duratyayā mām eva ye prapadyante māyām etāṁ taranti te
+> daivī hy eṣā guṇamayī
+> mama māyā duratyayā
+> mām eva ye prapadyante
+> māyām etāṁ taranti te
 
 "My divine energy consisting of the three modes of material nature is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it." (Bg. 7.14) A Vaiṣṇava should take care of those who are bewildered by this māyā instead of becoming angry with them because without a Vaiṣṇava's mercy they have no way to get out of the clutches of māyā. Those who have been condemned by māyā are rescued by the mercy of devotees.
 

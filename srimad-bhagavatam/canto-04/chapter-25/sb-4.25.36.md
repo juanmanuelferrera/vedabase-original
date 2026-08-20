@@ -14,7 +14,10 @@
 
 The living entity comes down into this material world for sense gratification, and his intelligence, represented by the woman, gives him the proper direction by which he can satisfy his senses to their best capacity. In actuality, however, intelligence comes from the Supersoul, or the Supreme Personality of Godhead, and He gives full facility to the living entity who has come down to this material world. As stated in Bhagavad-gītā:
 
-vyavasāyātmikā buddhir ekeha kuru-nandana bahu-śākhā hy anantāś ca buddhayo 'vyavasāyinām
+> vyavasāyātmikā buddhir
+> ekeha kuru-nandana
+> bahu-śākhā hy anantāś ca
+> buddhayo 'vyavasāyinām
 
 "Those who are on this path are resolute in purpose, and their aim is one. O beloved child of the Kurus, the intelligence of those who are irresolute is many-branched." (Bg. 2.41)
 

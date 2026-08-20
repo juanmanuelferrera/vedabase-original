@@ -18,13 +18,19 @@ The travelings of Purañjana are similar to the travelings of the modern hippies
 
 Thus in this verse it is said (na anurūpam) that the King could never find a place suitable for his purposes. This is because in any form of life and on any planet in the material world, a living entity cannot be happy because everything in the material world is unsuitable for the spirit soul. As stated in this verse, the living entity independently wants to become a prabhu, but as soon as he gives up this idea and becomes a servant of God, Kṛṣṇa, his happiness immediately begins. Therefore Śrīla Bhaktivinoda Ṭhākura sings: (miche) māyāra vaśe, yāccha bhese', khāccha hābuḍubu, bhāi. "My dear living entity, why are you being carried away by the waves of māyā?" As stated in the Bhagavad-gītā:
 
-īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati bhrāmayan sarva-bhūtāni yantrārūḍhāni māyayā
+> īśvaraḥ sarva-bhūtānāṁ
+> hṛd-deśe 'rjuna tiṣṭhati
+> bhrāmayan sarva-bhūtāni
+> yantrārūḍhāni māyayā
 
 "The Supreme Lord is situated in everyone's heart, O Arjuna, and is directing the wanderings of all living entities, who are seated as on a machine, made of the material energy." (Bg. 18.61)
 
 The living entity is carried in the machine of the body through so many species of life on so many planets. Therefore Bhaktivinoda Ṭhākura asks the living entity why he is being carried away in these bodily machines to be placed in so many different circumstances. He advises that one surmount the waves of māyā by surrendering unto Kṛṣṇa. (Jīva) kṛṣṇa-dāsa, ei viśvāsa, karle ta' āra duḥkha nāi. As soon as we confront Kṛṣṇa, Kṛṣṇa advises:
 
-sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja ahaṁ tvāṁ sarva-pāpebhyo mokṣayiṣyāmi mā śucaḥ
+> sarva-dharmān parityajya
+> mām ekaṁ śaraṇaṁ vraja
+> ahaṁ tvāṁ sarva-pāpebhyo
+> mokṣayiṣyāmi mā śucaḥ
 
 "Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear." (Bg. 18.66)
 

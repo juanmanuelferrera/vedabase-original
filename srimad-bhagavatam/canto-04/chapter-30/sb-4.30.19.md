@@ -26,15 +26,24 @@ jñātvā māṁ śāntim ṛcchati
 
 The Supreme Lord is the supreme proprietor; consequently the devotee does not consider himself the proprietor of any occupation. The devotee always thinks of the Supreme Personality of Godhead as the proprietor; therefore the results of his business are offered to the Supreme Lord. One who thus lives in the material world with his family and children never becomes affected by the contaminations of the material world. This is confirmed in Bhagavad-gītā (Bg. 3.9):
 
-yajñārthāt karmaṇo 'nyatra loko 'yaṁ karma-bandhanaḥ tad-arthaṁ karma kaunteya mukta-saṅgaḥ samācara
+> yajñārthāt karmaṇo 'nyatra
+> loko 'yaṁ karma-bandhanaḥ
+> tad-arthaṁ karma kaunteya
+> mukta-saṅgaḥ samācara
 
 One who tries to enjoy the results of his activities becomes bound by the results. One who offers the results or profits to the Supreme Personality of Godhead, however, does not become entangled in the results. This is the secret of success. Generally people take sannyāsa to become free from the reactions of fruitive activity. One who does not receive the results of his actions but offers them instead to the Supreme Personality of Godhead certainly remains in a liberated condition. In Bhakti-rasāmṛta-sindhu, Śrīla Rūpa Gosvāmī confirms this:
 
-īhā yasya harer dāsye karmaṇā manasā girā nikhilāsv apy avasthāsu jīvan-muktaḥ sa ucyate
+> īhā yasya harer dāsye
+> karmaṇā manasā girā
+> nikhilāsv apy avasthāsu
+> jīvan-muktaḥ sa ucyate
 
 If one engages himself in the service of the Lord through his life, wealth, words, intelligence, and everything he possesses, he will always be liberated in any condition. Such a person is called a jīvan-mukta, one who is liberated during this lifetime. Devoid of Kṛṣṇa consciousness, those who engage in material activities simply become more entangled in material bondage. They have to suffer and enjoy the actions and reactions of all activity. This Kṛṣṇa consciousness movement is therefore the greatest boon to humanity because it keeps one always engaged in Kṛṣṇa's service. The devotees think of Kṛṣṇa, act for Kṛṣṇa, eat for Kṛṣṇa, sleep for Kṛṣṇa and work for Kṛṣṇa. Thus everything is engaged in the service of Kṛṣṇa. A total life in Kṛṣṇa consciousness saves one from material contamination. As stated by Bhaktisiddhānta Sarasvatī Gosvāmī Mahārāja: kṛṣṇa-bhajane yāhā haya anukūla, viṣaya baliyā tyāge tāhā haya bhūla. If one is so expert that he can engage everything or dovetail everything in the service of the Lord, to give up the material world would be a great blunder. One should learn how to dovetail everything in the service of the Lord, for everything is connected to Kṛṣṇa. That is the real purpose of life and secret of success. As reiterated later in the Third Chapter of Bhagavad-gītā:
 
-tasmād asaktaḥ satataṁ kāryaṁ karma samācara asakto hy ācaran karma param āpnoti pūruṣaḥ
+> tasmād asaktaḥ satataṁ
+> kāryaṁ karma samācara
+> asakto hy ācaran karma
+> param āpnoti pūruṣaḥ
 
 "Therefore, without being attached to the fruits of activities, one should act as a matter of duty; for by working without attachment, one attains the Supreme." (Bg. 3.19)
 

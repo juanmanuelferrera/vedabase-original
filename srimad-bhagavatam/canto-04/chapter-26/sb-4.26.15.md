@@ -17,7 +17,10 @@
 
 The great politician Cāṇakya Paṇḍita said:
 
-mātā yasya gṛhe nāsti bhāryā ca priya-vādinī araṇyaṁ tena gantavyaṁ yathāraṇyaṁ tathā gṛham
+> mātā yasya gṛhe nāsti
+> bhāryā ca priya-vādinī
+> araṇyaṁ tena gantavyaṁ
+> yathāraṇyaṁ tathā gṛham
 
 "If a person has neither a mother nor a pleasing wife at home, he should leave home and go to the forest, because for him there is no difference between the forest and home." The real mātā, or mother, is devotional service to the Lord, and the real patnī, or devoted wife, is a wife who helps her husband execute religious principles in devotional service. These two things are required for a happy home.
 

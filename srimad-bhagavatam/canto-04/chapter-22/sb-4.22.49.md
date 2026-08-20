@@ -16,7 +16,10 @@ Remaining fixed in devotional service gives one the utmost in self-satisfaction.
 
 King Pṛthu's statements in previous verses regarding his vast knowledge and perfect devotional service are justified here, for he is considered best amongst all mahātmās. In Bhagavad-gītā Śrī Kṛṣṇa speaks of mahātmās in this way:
 
-mahātmānas tu māṁ pārtha daivīṁ prakṛtim āśritāḥ bhajanty ananya-manaso jñātvā bhūtādim avyayam
+> mahātmānas tu māṁ pārtha
+> daivīṁ prakṛtim āśritāḥ
+> bhajanty ananya-manaso
+> jñātvā bhūtādim avyayam
 
 "O son of Pṛthā, those who are not deluded, the great souls, are under the protection of the divine nature. They are fully engaged in devotional service because they know Me as the Supreme Personality of Godhead, original and inexhaustible." (Bg. 9.13)
 

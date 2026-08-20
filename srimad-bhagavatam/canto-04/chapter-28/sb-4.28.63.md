@@ -42,6 +42,9 @@ na cāhaṁ teṣv avasthitaḥ
 
 Although all living beings are resting in Him, as small fiery sparks rest on a large flame, both are differently situated. Similarly, in the Viṣṇu Purāṇa it is said:
 
-eka-deśa-sthitasyāgner jyotsnā vistāriṇī yathā parasya brahmaṇaḥ śaktis tathedam akhilaṁ jagat
+> eka-deśa-sthitasyāgner
+> jyotsnā vistāriṇī yathā
+> parasya brahmaṇaḥ śaktis
+> tathedam akhilaṁ jagat
 
 "Fire is situated in one place, but it distributes heat and light. Similarly, the Supreme Personality of Godhead is distributing His energies in different ways." The living entity is but one of these energies (marginal energy). The energy and the energetic are one in one sense, but they are differently situated as energy and the energetic. Similarly, the sac-cid-ānanda form confirmed in Brahma-saṁhitā (īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ) is different from that of the living entity in both his conditioned and liberated states. Only atheists consider the living entity and the Personality of Godhead equal in all respects. Caitanya Mahāprabhu therefore says, māyāvādi-bhāṣya śunile haya sarva-nāśa: "If one follows the instructions of Māyāvādī philosophers and believes that the Supreme Personality of Godhead and the individual soul are one, his understanding of real philosophy is forever doomed."

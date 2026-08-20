@@ -14,7 +14,10 @@
 
 There is special significance in the words tat-sāmyatām agāt. The King attained the position of possessing the same status or the same form as that of the Lord. This definitely proves that the Supreme Personality of Godhead is always a person. In His impersonal feature, He is the rays of His transcendental body. When a living entity attains spiritual perfection, he also attains the same type of body, known as sac-cid-ānanda-vigraha. This spiritual body never mixes with the material elements. Although in conditional life the living entity is surrounded by material elements (earth, water, fire, air, sky, mind, intelligence and ego), he remains always aloof from them. In other words, the living entity can be liberated from the material condition at any moment, provided that he wishes to do so. The material environment is called māyā. According to Kṛṣṇa:
 
-daivī hy eṣā guṇamayī mama māyā duratyayā mām eva ye prapadyante māyām etāṁ taranti te
+> daivī hy eṣā guṇamayī
+> mama māyā duratyayā
+> mām eva ye prapadyante
+> māyām etāṁ taranti te
 
 "This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it." (Bg. 7.14)
 

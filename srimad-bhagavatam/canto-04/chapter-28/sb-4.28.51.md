@@ -16,12 +16,18 @@ The appearance of an old friend in the form of a brāhmaṇa is very significant
 
 The Supreme Personality of Godhead, Paramātmā, appeared before the Queen as a brāhmaṇa, but why didn't He appear in His original form as Śrī Kṛṣṇa? Śrīla Viśvanātha Cakravartī Ṭhākura remarks that unless one is very highly elevated in loving the Supreme Personality of Godhead, one cannot see Him as He is. Nonetheless, if one sticks to the principles enunciated by the spiritual master, somehow or other he is in association with the Supreme Personality of Godhead. Since the Lord is in the heart, He can advise a sincere disciple from within. This is also confirmed in Bhagavad-gītā:
 
-teṣāṁ satata-yuktānāṁ bhajatāṁ prīti-pūrvakam dadāmi buddhi-yogaṁ taṁ yena mām upayānti te
+> teṣāṁ satata-yuktānāṁ
+> bhajatāṁ prīti-pūrvakam
+> dadāmi buddhi-yogaṁ taṁ
+> yena mām upayānti te
 
 "To those who are constantly devoted and worship Me with love, I give the understanding by which they can come to Me." (Bg. 10.10)
 
 In conclusion, if a disciple is very serious to execute the mission of the spiritual master, he immediately associates with the Supreme Personality of Godhead by vāṇī or vapuḥ. This is the only secret of success in seeing the Supreme Personality of Godhead. Instead of being eager to see the Lord in some bush of Vṛndāvana while at the same time engaging in sense gratification, if one instead sticks to the principle of following the words of the spiritual master, he will see the Supreme Lord without difficulty. Śrīla Bilvamaṅgala Ṭhākura has therefore said:
 
-bhaktis tvayi sthiratarā bhagavan yadi syād daivena naḥ phalati divya-kiśora-mūrtiḥ muktiḥ svayaṁ mukulitāñjali sevate 'smān dharmārtha-kāma-gatayaḥ samaya-pratīkṣāḥ
+> bhaktis tvayi sthiratarā bhagavan yadi syād
+> daivena naḥ phalati divya-kiśora-mūrtiḥ
+> muktiḥ svayaṁ mukulitāñjali sevate 'smān
+> dharmārtha-kāma-gatayaḥ samaya-pratīkṣāḥ
 
 "If I am engaged in devotional service unto You, my dear Lord, then very easily can I perceive Your presence everywhere. And as far as liberation is concerned, I think that liberation stands at my door with folded hands, waiting to serve me—and all material conveniences of dharma [religiosity], artha [economic development] and kāma [sense gratification] stand with her." (Kṛṣṇa-karṇāmṛta 107) If one is very highly advanced in devotional service, he will have no difficulty in seeing the Supreme Personality of Godhead. If one engages in the service of the spiritual master, he not only sees the Supreme Personality of Godhead but attains liberation. As far as material conveniences are concerned, they automatically come, just as the maidservants of a queen follow the queen wherever she goes. Liberation is no problem for the pure devotee, and all material conveniences are simply awaiting him at all stages of life.

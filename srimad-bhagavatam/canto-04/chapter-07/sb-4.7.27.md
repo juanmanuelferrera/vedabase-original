@@ -18,6 +18,9 @@
 
 The Vedas are known as traiguṇya-viṣayā vedāḥ (Bg. 2.45). Those who are serious students of the Vedas are very much attached to the ritualistic ceremonies mentioned in the Vedas, and therefore these Vedavādīs cannot understand that the ultimate goal of the Vedas is to understand Lord Kṛṣṇa, or Viṣṇu. Those who have transcended the qualitative Vedic attractions, however, can understand Kṛṣṇa, who is never contaminated by the material qualities. Therefore Lord Viṣṇu is addressed here as anañjana (free from material contamination). In Bhagavad-gītā the crude Vedic scholars have been deprecated by Kṛṣṇa as follows:
 
-yām imāṁ puṣpitāṁ vācaṁ pravadanty avipaścitaḥ veda-vāda-ratāḥ pārtha nānyad astīti vādinaḥ
+> yām imāṁ puṣpitāṁ vācaṁ
+> pravadanty avipaścitaḥ
+> veda-vāda-ratāḥ pārtha
+> nānyad astīti vādinaḥ
 
 "Men of small knowledge are very much attached to the flowery words of the Vedas, and they say that there is nothing more than this." (Bg. 2.42)

@@ -28,7 +28,10 @@ It is therefore concluded that there are two kinds of duties—mundane duty and 
 
 In order to regulate the activities of the living entities, God has given us codes, just as a king gives codes of law in a state, and whoever breaks the law is punished. Similarly, the Lord has given the infallible knowledge of the Vedas, which are not contaminated by the four defects of human life—namely, the tendency to commit mistakes, to be illusioned, to cheat and to have imperfect senses. If we do not take direction from the Vedas but act whimsically according to our own choice, we are sure to be punished by the laws of the Lord, who offers different types of bodies in the 8,400,000 species of forms. Material existence, or the sense gratification process, is conducted according to the type of body we are given by prakṛti, or material nature. As such, there must be divisions of pious and impious activities (puṇya and pāpa). In Bhagavad-gītā it is clearly stated:
 
-yeṣāṁ tv anta-gataṁ pāpaṁ janānāṁ puṇya-karmaṇām te dvandva-moha-nirmuktā bhajante māṁ dṛḍha-vratāḥ
+> yeṣāṁ tv anta-gataṁ pāpaṁ
+> janānāṁ puṇya-karmaṇām
+> te dvandva-moha-nirmuktā
+> bhajante māṁ dṛḍha-vratāḥ
 
 "One who has completely surpassed the resultant activities of the impious path of life (this is possible only when one engages exclusively in pious activities) can understand his eternal relationship with the Supreme Personality of Godhead. Thus one engages in His transcendental loving service." (Bg. 7.28) This life of engaging always in the loving service of the Lord is called adhokṣaja-dhiyaḥ, or a life of Kṛṣṇa consciousness, which King Pṛthu meant his citizens to follow.
 
@@ -36,6 +39,9 @@ The different varieties of life and of material existence do not come about by c
 
 The theory of chance can best be explained in the Vedic literature by the words ajñāta-sukṛti, which refer to pious activities performed without the actor's knowledge. But these are also planned. For example, Kṛṣṇa comes like an ordinary human being, He comes as a devotee like Lord Caitanya, or He sends His representative, the spiritual master or pure devotee. This is also the planned activity of the Supreme Personality of Godhead. They come to canvass and educate, and thus a person in the illusory energy of the Supreme Lord gets a chance to mix with them, talk with them, and take lessons from them, and somehow or other if a conditioned soul surrenders to such personalities and by intimate association with them chances to become Kṛṣṇa conscious, he is saved from the material conditions of life. Kṛṣṇa therefore instructs:
 
-sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja ahaṁ tvāṁ sarva-pāpebhyo mokṣayiṣyāmi mā śucaḥ
+> sarva-dharmān parityajya
+> mām ekaṁ śaraṇaṁ vraja
+> ahaṁ tvāṁ sarva-pāpebhyo
+> mokṣayiṣyāmi mā śucaḥ
 
 "Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear." (Bg. 18.66) The word sarva-pāpebhyaḥ means "from all sinful activities." A person who surrenders unto Him by utilizing the chance to associate with the pure devotee, spiritual master or other authorized incarnations of Godhead like Pṛthu Mahārāja, is saved by Kṛṣṇa. Then his life becomes successful.

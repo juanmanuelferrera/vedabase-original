@@ -14,7 +14,10 @@
 
 The form of the Lord known as arcā-vigraha is an expansion of His unlimited potencies. When the Lord is gradually satisfied with the service of a devotee, in due course of time He accepts the devotee as one of His many unalloyed servants. By nature, the Lord is very compassionate; therefore the service of neophyte devotees is accepted by the Lord. As confirmed in Bhagavad-gītā:
 
-patraṁ puṣpaṁ phalaṁ toyaṁ yo me bhaktyā prayacchati tad ahaṁ bhakty-upahṛtam aśnāmi prayatātmanaḥ
+> patraṁ puṣpaṁ phalaṁ toyaṁ
+> yo me bhaktyā prayacchati
+> tad ahaṁ bhakty-upahṛtam
+> aśnāmi prayatātmanaḥ
 
 "If one offers Me with love and devotion a leaf, a flower, fruit or water, I will accept it." (Bg. 9.26)
 

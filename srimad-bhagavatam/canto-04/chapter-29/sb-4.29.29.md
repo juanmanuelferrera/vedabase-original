@@ -16,7 +16,10 @@ Actually the living entity is part and parcel of the Lord; therefore he is spiri
 
 Under the influence of māyā, the living entity becomes exactly like a person haunted by a ghost. Such a person speaks all kinds of nonsense. When the living entity is covered by the influence of māyā, he becomes a so-called scientist, philosopher, politician or socialist, and at every moment presents different plans for the benefit of human society. All these plans are ultimately failures because they are illusory. In this way the living entity forgets his position as an eternal servant of the Lord. He instead becomes a servant of māyā. In any case he remains a servant. It is his misfortune that by forgetting his real contact with the Supreme Lord, he becomes a servant of māyā. As servant of māyā, he sometimes becomes a king, sometimes an ordinary citizen, sometimes a brāhmaṇa, a śūdra, and so on. Sometimes he is a happy man, sometimes a prosperous man, sometimes a small insect. Sometimes he is in heaven, and sometimes in hell. Sometimes he is a demigod, and sometimes he is a demon. Sometimes he is a servant, and sometimes he is a master. In this way the living entity wanders all over the universe. Only when he comes in contact with the bona fide spiritual master can he understand his real constitutional position. He then becomes disgusted with material existence. At that time, in full Kṛṣṇa consciousness, he regrets his past experiences in material existence. This regret is very beneficial because it purifies the living entity of material conditional life. He then prays to the Lord to engage in His service, and, at that time, Kṛṣṇa grants liberation from the clutches of māyā. Lord Kṛṣṇa explains this in Bhagavad-gītā:
 
-daivī hy eṣā guṇa-mayī mama māyā duratyayā mām eva ye prapadyante māyām etāṁ taranti te
+> daivī hy eṣā guṇa-mayī
+> mama māyā duratyayā
+> mām eva ye prapadyante
+> māyām etāṁ taranti te
 
 "This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it." (Bg. 7.14)
 

@@ -14,7 +14,10 @@
 
 The word avadhūta means "most free." A person is not under the rules and regulations of any injunction when he has attained the stage of avadhūta. In other words, he can act as he likes. This avadhūta is exactly like air, which does not care for any obstruction. In Bhagavad-gītā it is said:
 
-cañcalaṁ hi manaḥ kṛṣṇa pramāthi balavad dṛḍham tasyāhaṁ nigrahaṁ manye vāyor iva suduṣkaram
+> cañcalaṁ hi manaḥ kṛṣṇa
+> pramāthi balavad dṛḍham
+> tasyāhaṁ nigrahaṁ manye
+> vāyor iva suduṣkaram
 
 "The mind is restless, turbulent, obstinate and very strong, O Kṛṣṇa, and to subdue it is, it seems to me, more difficult than controlling the wind." (Bg. 6.34)
 

@@ -14,13 +14,19 @@
 
 Everyone is greedy, and everyone makes plans for material enjoyment. In his lust for material enjoyment, the living entity is described as a madman. As stated in Bhagavad-gītā:
 
-prakṛteḥ kriyamāṇāni guṇaiḥ karmāṇi sarvaśaḥ ahaṅkāra-vimūḍhātmā kartāham iti manyate
+> prakṛteḥ kriyamāṇāni
+> guṇaiḥ karmāṇi sarvaśaḥ
+> ahaṅkāra-vimūḍhātmā
+> kartāham iti manyate
 
 "The bewildered spirit soul, under the influence of the three modes of material nature, thinks himself to be the doer of activities, which are in actuality carried out by nature." (Bg. 3.27)
 
 Everything is enacted by the laws of nature, and these laws are under the direction of the Supreme Personality of Godhead. The atheists, or unintelligent men, do not know this. They are busy making their own plans, and big nations are busy expanding their empire. And yet we know that in due course of time many empires have come into existence and been destroyed. Many aristocratic families were created by the people in their extreme madness, but we can see that in the course of time those families and empires have all been destroyed. But still the foolish atheists do not accept the supreme authority of the Lord. Such foolish people unnecessarily concoct their own duties without referring to the supreme authority of the Lord. The so-called political leaders are busy making plans to advance the material prosperity of their nation, but factually these political leaders only want an exalted position for themselves. Due to their greed for material position, they falsely present themselves as leaders before the people and collect their votes, although they are completely under the grip of the laws of material nature. These are some of the faults of modern civilization. Without taking to God consciousness and accepting the authority of the Lord, the living entities become ultimately confused and frustrated in their planmaking attempts. Due to their unauthorized plans for economic development, the price of commodities is rising daily all over the world, so much so that it has become difficult for the poorer classes, and they are suffering the consequences. And due to lack of Kṛṣṇa consciousness, people are being fooled by so-called leaders and planmakers. Consequently, the sufferings of the people are increasing. According to the laws of nature, which are backed by the Lord, nothing can be permanent within this material world; therefore everyone should be allowed to take shelter of the Absolute in order to be saved. In this regard, Lord Kṛṣṇa says in Bhagavad-gītā:
 
-bhoktāraṁ yajña-tapasāṁ sarva-loka-maheśvaram suhṛdaṁ sarva-bhūtānāṁ jñātvā māṁ śāntim ṛcchati
+> bhoktāraṁ yajña-tapasāṁ
+> sarva-loka-maheśvaram
+> suhṛdaṁ sarva-bhūtānāṁ
+> jñātvā māṁ śāntim ṛcchati
 
 "The sages, knowing Me as the ultimate purpose of all sacrifices and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries." (Bg. 5.29)
 

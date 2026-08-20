@@ -58,7 +58,8 @@ Kuṭumbinī. Intelligence.
 
 Madirekṣaṇā. Madirekṣaṇā refers to one whose eyes are so attractive that one who observes them becomes maddened by her. In other words, madirekṣaṇā means a very beautiful young girl. According to Jīva Gosvāmī, madirekṣaṇā means the personified deity of bhakti. If one is attracted by the bhakti cult, he becomes engaged in the service of the Lord and the spiritual master, and thus his life becomes successful. Vaidarbhī, the woman, became a follower of her husband. As she left her comfortable home for the service of her husband, so a serious student of spiritual understanding must give up everything for the service of the spiritual master. As stated by Viśvanātha Cakravartī Ṭhākura, yasya prasādād bhagavat-prasādaḥ: if one wants actual success in life, he must strictly follow the instructions of the spiritual master. By following such instructions, one is sure to make rapid progress in spiritual life. This statement by Viśvanātha Cakravartī is in pursuance of the following injunction from the Śvetāśvatara Upaniṣad:
 
-yasya deve parā bhaktir yathā deve tathā gurau tasyaite kathitā hy arthāḥ prakāśante mahātmanaḥ
+> yasya deve parā bhaktir yathā deve tathā gurau
+> tasyaite kathitā hy arthāḥ prakāśante mahātmanaḥ
 
 "Only unto those great souls who have implicit faith in both the Lord and the spiritual master are all the imports of Vedic knowledge automatically revealed." (Śvet. Up. 6.23) In the Chāndogya Upaniṣad it is said, ācāryavān puruṣo veda: "One who approaches a bona fide spiritual master can understand everything about spiritual realization."
 

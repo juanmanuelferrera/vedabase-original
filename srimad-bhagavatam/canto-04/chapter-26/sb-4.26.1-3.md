@@ -46,7 +46,10 @@ The living entity is bewildered by the three qualities of material nature. These
 
 According to karma-kāṇḍīya, the process of fruitive activities, a person performs various sacrifices directed by the Vedas, and in all those sacrifices animal-killing, or experimenting on the life of animals to test the power of Vedic mantras, is enjoined. Animal-killing is certainly conducted under the influence of the mode of ignorance. Even though one may be religiously inclined, animal sacrifice is nonetheless recommended in the śāstras, not only in the Vedas but even in the modern scriptures of other sects. These animal sacrifices are recommended in the name of religion, but actually animal sacrifice is meant for persons in the mode of ignorance. When such people kill animals, they can at least do so in the name of religion. However, when the religious system is transcendental, like the Vaiṣṇava religion, there is no place for animal sacrifice. Such a transcendental religious system is recommended by Kṛṣṇa in Bhagavad-gītā:
 
-sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja ahaṁ tvāṁ sarva-pāpebhyo mokṣayiṣyāmi mā śucaḥ
+> sarva-dharmān parityajya
+> mām ekaṁ śaraṇaṁ vraja
+> ahaṁ tvāṁ sarva-pāpebhyo
+> mokṣayiṣyāmi mā śucaḥ
 
 "Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear." (Bg. 18.66)
 

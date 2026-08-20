@@ -14,6 +14,9 @@
 
 The brāhmaṇas and Vaiṣṇavas are the bearers of Lord Viṣṇu, the all-auspicious. As confirmed in the Brahma-saṁhitā:
 
-premāñjana-cchurita-bhakti-vilocanena santaḥ sadaiva hṛdayeṣu vilokayanti yaṁ śyāmasundaram acintya-guṇa-svarūpaṁ govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+> premāñjana-cchurita-bhakti-vilocanena
+> santaḥ sadaiva hṛdayeṣu vilokayanti
+> yaṁ śyāmasundaram acintya-guṇa-svarūpaṁ
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 The devotees, out of their extreme love for Govinda, the Supreme Personality of Godhead, always carry the Lord within their hearts. The Lord is already in the heart of everyone, but the Vaiṣṇavas and the brāhmaṇas actually perceive and see Him always in ecstasy. Therefore brāhmaṇas and Vaiṣṇavas are carriers of Viṣṇu. Wherever they go, Lord Viṣṇu, Lord Śiva or the devotees of Lord Viṣṇu are all carried. The four Kumāras are brāhmaṇas, and they visited the place of Mahārāja Pṛthu. Naturally Lord Viṣṇu and His devotees were also present. Under the circumstances, the conclusion is that when the brāhmaṇas and Vaiṣṇavas are pleased with a person, Lord Viṣṇu is also pleased. This is confirmed by Śrīla Viśvanātha Cakravartī Ṭhākura in his eight stanzas on the spiritual master: yasya prasādād bhagavat-prasādaḥ. By pleasing the spiritual master, who is both brāhmaṇa and Vaiṣṇava, one pleases the Supreme Personality of Godhead. If the Supreme Personality of Godhead is pleased, then one has nothing more to achieve either in this world or after death.

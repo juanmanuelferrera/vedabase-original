@@ -24,7 +24,10 @@ This material world, the cosmic manifestation, is created by the Supreme Persona
 
 When one is engaged in devotional service, he is no longer attracted to material activities. When a man is covered by different designations, he cannot engage in devotional service. One has to become freed from such designative activities (sarvopādhi-vinirmuktam) and become pure in order to serve the Supreme Personality of Godhead through purified senses. Hṛṣīkeṇa hṛṣīkeśa-sevanaṁ bhaktir ucyate: the service of the Lord through purified senses is called bhakti-yoga or devotional service. The sincere devotee is always helped by the Supersoul, who resides within the heart of every living entity, as Lord Kṛṣṇa confirms in Bhagavad-gītā:
 
-teṣāṁ satata-yuktānāṁ bhajatāṁ prīti-pūrvakam dadāmi buddhi-yogaṁ taṁ yena mām upayānti te
+> teṣāṁ satata-yuktānāṁ
+> bhajatāṁ prīti-pūrvakam
+> dadāmi buddhi-yogaṁ taṁ
+> yena mām upayānti te
 
 "To those who are constantly devoted and worship Me with love, I give the understanding by which they can come to Me." (Bg. 10.10)
 

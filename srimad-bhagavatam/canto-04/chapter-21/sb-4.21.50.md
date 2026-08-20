@@ -16,6 +16,9 @@ A king's duty is to give protection to his citizens and levy taxes from them for
 
 The symptom of a qualified king or political leader is mentioned herein—he must be very merciful and compassionate to the people and see to their prime interest, which is to become elevated devotees of the Supreme Personality of Godhead. Great souls are naturally inclined to do good to others, and a Vaiṣṇava especially is the most compassionate and merciful personality in society. Therefore we offer our respects to a Vaiṣṇava leader as follows:
 
-vāñchā-kalpatarubhyaś ca kṛpā-sindhubhya eva ca patitānāṁ pāvanebhyo vaiṣṇavebhyo namo namaḥ
+> vāñchā-kalpatarubhyaś ca
+> kṛpā-sindhubhya eva ca
+> patitānāṁ pāvanebhyo
+> vaiṣṇavebhyo namo namaḥ
 
 Only a Vaiṣṇava leader can fulfill all the desires of the people (vāñchā-kalpataru), and he is compassionate because he is the contributor of the greatest benefit to human society. He is patita-pāvana, the deliverer of all fallen souls, because if the king or the head of the government follows in the footsteps of the brāhmaṇas and Vaiṣṇavas, who are naturally leaders in missionary work, similarly the vaiśyas will also follow in the footsteps of the Vaiṣṇavas and brāhmaṇas, and the śūdras will give them service. Thus the entire society becomes a perfect human institution for combined progress to the highest perfection of life.

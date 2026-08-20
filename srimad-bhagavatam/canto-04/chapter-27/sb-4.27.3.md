@@ -14,7 +14,10 @@
 
 The word pramadā in this verse is very significant. A beautiful wife is certainly enlivening to her husband, but at the same time is the cause of degradation. The word pramadā means enlivening as well as maddening. Generally a householder does not take the passing of days and nights very seriously. A person in ignorance takes it as the usual course that days come, and, after the days, the nights come. This is the law of material nature. But a man in ignorance does not know that when the sun rises early in the morning it begins to take away the balance of his life. Thus day after day the span of one's life is reduced, and, forgetting the duty of human life, the foolish man simply remains in the company of his wife and enjoys her in a secluded place. Such a condition is called apakṛṣṭa-cetana, or degraded consciousness. Human consciousness should be used for elevation to Kṛṣṇa consciousness. But when a person is too much attracted to his wife and family affairs, he does not take Kṛṣṇa consciousness very seriously. He thus becomes degraded, not knowing that he cannot buy back even a second of his life in return for millions of dollars. The greatest loss in life is passing time without understanding Kṛṣṇa. Every moment of our lives should be utilized properly, and the proper use of life is to increase devotional service to the Lord. Without devotional service to the Lord, the activities of life become simply a waste of time. Śrama eva hi kevalam. Simply by becoming "dutiful" we do not make any profit in life. As confirmed in Śrīmad-Bhāgavatam:
 
-dharmaḥ svanuṣṭhitaḥ puṁsāṁ viṣvaksena-kathāsu yaḥ notpādayed yadi ratiṁ śrama eva hi kevalam
+> dharmaḥ svanuṣṭhitaḥ puṁsāṁ
+> viṣvaksena-kathāsu yaḥ
+> notpādayed yadi ratiṁ
+> śrama eva hi kevalam
 
 "Duties [dharma] executed by men, regardless of occupation, are only so much useless labor if they do not provoke attraction for the message of the Supreme Lord." (Bhāg. 1.2.8)
 

@@ -14,7 +14,10 @@
 
 The material cosmic manifestation is an exhibition of the external energy of the Supreme Personality of Godhead, but because dull matter cannot work independently, the Lord Himself enters within this material creation in the form of a partial expansion (Paramātmā), and He enters also by His separated parts and parcels (the living entities). In other words, both the living entities and the Supreme Personality of Godhead enter into the material creation just to make it active. As stated in Bhagavad-gītā:
 
-apareyam itas tv anyāṁ prakṛtiṁ viddhi me parām jīva-bhūtāṁ mahā-bāho yayedaṁ dhāryate jagat
+> apareyam itas tv anyāṁ
+> prakṛtiṁ viddhi me parām
+> jīva-bhūtāṁ mahā-bāho
+> yayedaṁ dhāryate jagat
 
 "Besides this inferior nature, O mighty-armed Arjuna, there is a superior energy of Mine, which are all living entities who are struggling with material nature and are sustaining the universe." (Bg. 7.5)
 

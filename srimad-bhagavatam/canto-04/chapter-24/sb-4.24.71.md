@@ -14,7 +14,10 @@
 
 In the haṭha-yoga system one has to practice bodily exercises, dhyāna, dhāraṇā, āsana, meditation, etc. One also has to sit in one place in a particular posture and concentrate his gaze on the tip of the nose. There are so many rules and regulations for the haṭha-yoga system that it is practically impossible to perform it in this age. The alternative system of bhakti-yoga is very easy not only in this age but in others as well, for this yoga system was advocated long ago by Lord Śiva when he advised the princes, the sons of Mahārāja Prācīnabarhiṣat. The bhakti-yoga system is not newly introduced, for even five thousand years ago Lord Kṛṣṇa recommended this bhakti-yoga as the topmost yoga. As Kṛṣṇa tells Arjuna in Bhagavad-gītā:
 
-yoginām api sarveṣāṁ mad-gatenāntarātmanā śraddhāvān bhajate yo māṁ sa me yuktatamo mataḥ
+> yoginām api sarveṣāṁ
+> mad-gatenāntarātmanā
+> śraddhāvān bhajate yo māṁ
+> sa me yuktatamo mataḥ
 
 "Of all yogīs, he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in yoga and is the highest of all." (Bg. 6.47)
 

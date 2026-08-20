@@ -16,7 +16,10 @@ When the living entity is arrested, all his followers—namely the life air, the
 
 It is a foolish person who engages in improving the condition of a city without caring for the citizens or inhabitants. Similarly, a living entity who is not properly enlightened in spiritual knowledge simply takes care of the external body, not knowing that the spirit soul is the principal factor within the body. When one is advanced in spiritual knowledge, the spirit soul is saved from eternal transmigration. The Bhāgavatam considers those who are attached to their bodies to be like cows and asses (sa eva go-kharaḥ). The cow is a very innocent animal, and the ass is a beast of burden. One who labors under the bodily conception simply works like an ass and does not know his self-interest. It is therefore said:
 
-yasyātma-buddhiḥ kuṇape tri-dhātuke sva-dhīḥ kalatrādiṣu bhauma ijya-dhīḥ yat-tīrtha-buddhiḥ salile na karhicij janeṣv abhijñeṣu sa eva go-kharaḥ
+> yasyātma-buddhiḥ kuṇape tri-dhātuke
+> sva-dhīḥ kalatrādiṣu bhauma ijya-dhīḥ
+> yat-tīrtha-buddhiḥ salile na karhicij
+> janeṣv abhijñeṣu sa eva go-kharaḥ
 
 "A human being who identifies this body made of three elements with his self, who considers the by-products of the body to be his kinsmen, who considers the land of birth worshipable, and who goes to a place of pilgrimage simply to take a bath rather than meet men of transcendental knowledge there, is to be considered like an ass or a cow." (Bhāg. 10.84.13)
 

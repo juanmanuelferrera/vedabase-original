@@ -14,7 +14,10 @@
 
 When the Supreme Personality of Godhead appears in this material world, He is not affected by the modes of material nature. Similarly, those who are always connected with the Supreme Personality of Godhead, even though they be within the material body or the material world, are not affected by the material qualities. That is explained very nicely in Bhagavad-gītā :
 
-māṁ ca yo 'vyabhicāreṇa bhakti-yogena sevate sa guṇān samatītyaitān brahma-bhūyāya kalpate
+> māṁ ca yo 'vyabhicāreṇa
+> bhakti-yogena sevate
+> sa guṇān samatītyaitān
+> brahma-bhūyāya kalpate
 
 "One who engages in full devotional service, who does not fall down in any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman." (Bg. 14.26)
 

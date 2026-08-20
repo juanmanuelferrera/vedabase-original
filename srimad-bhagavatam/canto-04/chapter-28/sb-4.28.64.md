@@ -14,7 +14,10 @@
 
 Here it is clearly stated: haṁso haṁsena pratibodhitaḥ. The individual soul and the Supersoul are both compared to swans (haṁsa) because they are white or uncontaminated. One swan, however, is superior and is the instructor of the other. When the inferior swan is separated from the other swan, he is attracted to material enjoyment. This is the cause of his falldown. When he hears the instructions of the other swan, he understands his real position and is again revived to his original consciousness. The Supreme Personality of Godhead, Kṛṣṇa, comes down (avatāra) to deliver His devotees and kill the demons. He also gives His sublime instructions in the form of Bhagavad-gītā. The individual soul has to understand his position by the grace of the Lord and the spiritual master because the text of Bhagavad-gītā cannot be understood simply by academic qualifications. One has to learn Bhagavad-gītā from a realized soul.
 
-tad viddhi praṇipātena paripraśnena sevayā upadekṣyanti te jñānaṁ jñāninas tattva-darśinaḥ
+> tad viddhi praṇipātena
+> paripraśnena sevayā
+> upadekṣyanti te jñānaṁ
+> jñāninas tattva-darśinaḥ
 
 "Just try to learn the truth by approaching a spiritual master. Inquire from him submissively and render service unto him. The self-realized soul can impart knowledge unto you because he has seen the truth." (Bg. 4.34)
 

@@ -18,7 +18,10 @@ When Lord Viṣṇu appeared in the great arena of sacrifice at the time when Ki
 
 Regarding His devotees, Lord Kṛṣṇa told Arjuna, kaunteya pratijānīhi na me bhaktaḥ praṇaśyati: "O son of Kuntī, declare it boldly that My devotee will never perish." (Bg. 9.31) The point is that the Lord Himself could declare such things, but it was His desire to make the declaration through Arjuna and thus doubly assure that His promise would never be broken. The Lord Himself promises, and His confidential devotees execute the promise. The Lord makes so many promises for the benefit of suffering humanity. Although the Lord is very compassionate upon suffering humanity, human beings are generally not very anxious to serve Him. The relationship is something like that between the father and the son; the father is always anxious for the welfare of the son, even though the son forgets or neglects the father. The word anukampinā is significant; the Lord is so compassionate upon the living entities that He comes Himself into this world in order to benefit fallen souls.
 
-yadā yadā hi dharmasya glānir bhavati bhārata abhyutthānam adharmasya tadātmānaṁ sṛjāmy aham
+> yadā yadā hi dharmasya
+> glānir bhavati bhārata
+> abhyutthānam adharmasya
+> tadātmānaṁ sṛjāmy aham
 
 "Whenever and wherever there is a decline in religious practice, O descendant of Bharata, and a predominant rise of irreligion—at that time I descend Myself." (Bg. 4.7)
 

@@ -14,10 +14,10 @@
 
 The statement *dharmaḥ kvacit tatra na bhūta-sauhṛdam* is very important in this verse. We actually see that there are many Hindus, Muslims, Christians, Buddhists and religionists of other cults who adhere to their religious principles very nicely but are not equal to all living entities. Indeed, although they profess to be very religious, they kill poor animals. Such religion has no meaning. *Śrīmad-Bhāgavatam* (1.2.8) says:
 
-The Churning of the Milk Ocean dharmaḥ svanuṣṭhitaḥ puṁsāṁ
-The Churning of the Milk Ocean viṣvaksena-kathāsu yaḥ
-The Churning of the Milk Ocean notpādayed yadi ratiṁ
-The Churning of the Milk Ocean śrama eva hi kevalam
+> dharmaḥ svanuṣṭhitaḥ puṁsāṁ
+> viṣvaksena-kathāsu yaḥ
+> notpādayed yadi ratiṁ
+> śrama eva hi kevalam
 
 One may be very expert in following the religious principles of his own sect, but if he has no tendency to love the Supreme Personality of Godhead, his observance of religious principles is simply a waste of time. One must develop a sense of loving Vāsudeva (*vāsudevaḥ sarvam iti sa mahātmā sudurlabhaḥ* [[bg/7/19|[Bg. 7.19] ]]). The sign of a devotee is that he is a friend to everyone (*suhṛdaṁ sarva-bhūtānām* [[bg/5/29|[Bg. 5.29] ]]). A devotee will never allow a poor animal to be killed in the name of religion. This is the difference between a superficially religious person and a devotee of the Supreme Personality of Godhead.
 

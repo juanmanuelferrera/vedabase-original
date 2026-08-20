@@ -16,7 +16,10 @@ Every living entity is purañjana. The word puram means within this body, within
 
 The word bṛhac-chravāḥ is also significant. The word śravaḥ means fame. The living entity is famous from ancient times, for as stated in Bhagavad-gītā, na jāyate mriyate vā (Bg. 2.20). "The living entity is never born and never dies." Because he is eternal, his activities are eternal, although they are performed in different types of bodies. Na hanyate hanyamāne śarīre (Bg. 2.20). "He does not die, even after the annihilation of the body." Thus the living entity transmigrates from one body to another and performs various activities. In each body the living entity performs so many acts. Sometimes he becomes a great hero—just like Hiraṇyakaśipu and Kaṁsa, or in the modern age Napoleon or Hitler. The activities of such men are certainly very great, but as soon as their bodies are finished, everything else is finished. Then they remain in name only. Therefore a living entity may be called bṛhac-chravāḥ; he may have a great reputation for various types of activities. Nonetheless, he has a friend whom he does not know. Materialistic persons do not understand that God is present as the Supersoul and situated within the heart of every living entity. Although the Paramātmā sits beside the jīvātmā as a friend, the jīvātmā, or living entity, does not know it. Consequently he is described as avijñāta-sakhā, meaning "one who has an unknown friend." The word avijñāta-ceṣṭitaḥ is also significant because a living entity works hard under the direction of the Paramātmā and is carried away by the laws of nature. Nonetheless, he thinks himself independent of God and independent of the stringent laws of material nature. It is stated in Bhagavad-gītā:
 
-acchedyo 'yam adāhyo 'yam akledyo 'śoṣya eva ca nityaḥ sarva-gataḥ sthāṇur acalo 'yaṁ sanātanaḥ
+> acchedyo 'yam adāhyo 'yam
+> akledyo 'śoṣya eva ca
+> nityaḥ sarva-gataḥ sthāṇur
+> acalo 'yaṁ sanātanaḥ
 
 "This individual soul is unbreakable and insoluble and can be neither burned nor dried. He is everlasting, all-pervading, unchangeable, immovable and eternally the same." (Bg. 2.24)
 

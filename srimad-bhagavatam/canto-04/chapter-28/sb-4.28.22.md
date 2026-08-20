@@ -16,7 +16,10 @@ Foolish people do not know that every individual soul is responsible for his own
 
 In any case, everyone is afraid of death, and therefore death is called bhaya, or fear. Although King Purañjana was engaged in thinking of his wife and children, death did not wait for him. Death does not wait for any man; it will immediately carry out its duty. Since death must take away the living entity without hesitation, it is the ultimate God realization of the atheists, who spoil their lives thinking of country, society and relatives, to the neglect of God consciousness. In this verse the word atad-arhaṇam is very significant, for it means that one should not be overly engaged in welfare activities for one's family members, countrymen, society and community. None of these will help a person to advance spiritually. Unfortunately, in present day society so-called educated men have no idea what spiritual progress is. Although they have the opportunity in the human form of life to make spiritual progress, they remain misers. They use their lives improperly and simply waste them thinking about the material welfare of their relatives, countrymen, society and so on. One's actual duty is to learn how to conquer death. Lord Kṛṣṇa states the process of conquering death in Bhagavad-gītā:
 
-janma karma ca me divyam evaṁ yo vetti tattvataḥ tyaktvā dehaṁ punar janma naiti mām eti so 'rjuna
+> janma karma ca me divyam
+> evaṁ yo vetti tattvataḥ
+> tyaktvā dehaṁ punar janma
+> naiti mām eti so 'rjuna
 
 "One who knows the transcendental nature of My appearance and activities does not, upon leaving the body, take his birth again in this material world, but attains My eternal abode, O Arjuna." (Bg. 4.9)
 

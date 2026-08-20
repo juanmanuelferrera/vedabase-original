@@ -24,7 +24,10 @@ By practicing bhagavad-bhakti-yoga, one becomes fearless and joyful. Unless one 
 
 It is also stated:
 
-oṁ ajñāna-timirāndhasya jñānāñjana-śalākayā cakṣur unmīlitaṁ yena tasmai śrī-gurave namaḥ
+> oṁ ajñāna-timirāndhasya
+> jñānāñjana-śalākayā
+> cakṣur unmīlitaṁ yena
+> tasmai śrī-gurave namaḥ
 
 The Lord is the supreme spiritual master, and the bona fide representative of the Supreme Lord is also a spiritual master. The Lord from within enlightens the devotees by the effulgence of the nails of His lotus feet, and His representative, the spiritual master, enlightens from without. Only by thinking of the lotus feet of the Lord and always taking the spiritual master's advice can one advance in spiritual life and understand Vedic knowledge.
 

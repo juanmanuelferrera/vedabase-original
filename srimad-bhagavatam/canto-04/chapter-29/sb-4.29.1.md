@@ -16,7 +16,10 @@
 
 In Bhagavad-gītā Lord Kṛṣṇa says:
 
-tribhir guṇamayair bhāvair ebhiḥ sarvam idaṁ jagat mohitaṁ nābhijānāti mām ebhyaḥ param avyayam
+> tribhir guṇamayair bhāvair
+> ebhiḥ sarvam idaṁ jagat
+> mohitaṁ nābhijānāti
+> mām ebhyaḥ param avyayam
 
 "Deluded by the three modes [goodness, passion and ignorance], the whole world does not know Me, who am above the modes and inexhaustible." (Bg. 7.13)
 

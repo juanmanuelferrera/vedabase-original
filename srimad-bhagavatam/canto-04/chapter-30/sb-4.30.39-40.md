@@ -21,7 +21,11 @@
 
 As stated in Śrīmad-Bhāgavatam, saṁsiddhir hari-toṣaṇam: the real perfection of life is pleasing the Supreme Personality of Godhead. Vedaiś ca sarvair aham eva vedyaḥ: In understanding the Vedas, one has to understand the Supreme Personality of Godhead. One who has actually understood Him surrenders unto Him after many, many births. We find all these qualifications in the Pracetās. They underwent severe austerities and penances within the water, and they did not take any food for a very long time. They practiced these austerities not for material benediction but for the satisfaction of the Supreme Lord. One may engage in any business—material or spiritual—but the purpose should be the satisfaction of the Supreme Personality of Godhead. This verse presents a perfect picture of Vedic civilization. People training to become devotees should be respectful not only to the Supreme Personality of Godhead but also to those who are elderly in knowledge, who are Āryans and actual devotees of the Lord. An Āryan is one who does not boast but is an actual devotee of the Lord. Āryan means advanced. Formerly, those who claimed to be Āryans had to be devotees of the Lord. For instance, in Bhagavad-gītā Kṛṣṇa chastised Arjuna by saying that he was speaking like a non-Āryan.
 
-śrī-bhagavān uvāca kutas tvā kaśmalam idaṁ viṣame samupasthitam anārya-juṣṭam asvargyam akīrti-karam arjuna
+> śrī-bhagavān uvāca
+> kutas tvā kaśmalam idaṁ
+> viṣame samupasthitam
+> anārya-juṣṭam asvargyam
+> akīrti-karam arjuna
 
 "The Supreme Person [Bhagavān] said: My dear Arjuna, how have these impurities come upon you? They are not at all befitting a man who knows the progressive values of life. They do not lead to higher planets, but to infamy." (Bg. 2.2)
 
@@ -29,7 +33,10 @@ Arjuna, the kṣatriya, was refusing to fight despite being directly ordered by 
 
 The word nirandhasām means without food. Eating voraciously and unnecessarily is not the business of an Āryan. Rather, the eating process should be restricted as far as possible. When Āryans eat, they eat only prescribed eatables. Regarding this, the Lord says in Bhagavad-gītā:
 
-patraṁ puṣpaṁ phalaṁ toyaṁ yo me bhaktyā prayacchati tad ahaṁ bhakty-upahṛtam aśnāmi prayatātmanaḥ
+> patraṁ puṣpaṁ phalaṁ toyaṁ
+> yo me bhaktyā prayacchati
+> tad ahaṁ bhakty-upahṛtam
+> aśnāmi prayatātmanaḥ
 
 "If one offers Me with love and devotion a leaf, a flower, fruit or water, I will accept it." (Bg. 9.26) Thus there are restrictions for the advanced Āryans. Although the Lord Himself can eat anything and everything, He nonetheless restricts Himself to vegetables, fruits, milk and so on. This verse thus describes the activities of those who claim to be Āryans.
 

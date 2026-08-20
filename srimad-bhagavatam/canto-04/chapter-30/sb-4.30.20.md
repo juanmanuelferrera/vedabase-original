@@ -14,7 +14,10 @@
 
 A devotee is inspired by the Supersoul within the heart to advance in devotional service in a variety of ways. The devotee does not feel hackneyed nor stereotyped, nor does he feel that he is in a stagnant position. In the material world, if one engages in chanting a material name, he will feel tired after chanting a few times. However, one can chant the Hare Kṛṣṇa mahā-mantra all day and night and never feel tired. As chanting is increased, it will come out new and fresh. Śrīla Rūpa Gosvāmī said that if he could somehow get millions of ears and tongues, then he could relish spiritual bliss by chanting the Hare Kṛṣṇa mahā-mantra. There is really nothing uninspiring for a highly advanced devotee. In Bhagavad-gītā the Lord says that He is situated in everyone's heart and that He helps the living entity forget and remember. By the grace of the Lord, the devotee gets inspiration.
 
-teṣāṁ satata-yuktānāṁ bhajatāṁ prīti-pūrvakam dadāmi buddhi-yogaṁ taṁ yena mām upayānti te
+> teṣāṁ satata-yuktānāṁ
+> bhajatāṁ prīti-pūrvakam
+> dadāmi buddhi-yogaṁ taṁ
+> yena mām upayānti te
 
 "To those who are constantly devoted and worship Me with love, I give the understanding by which they can come to Me." (Bg. 10.10)
 

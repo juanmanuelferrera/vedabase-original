@@ -26,11 +26,20 @@ jñātvā māṁ śāntim ṛcchati
 
 The real proprietor of all wealth is the Supreme Personality of Godhead. He is the actual enjoyer. So-called earners of money are those who simply know tricks by which they can take away God's money under the guise of business and industry. After accumulating this money, they enjoy seeing it plundered by their sons and grandsons. This is the materialistic way of life. In materialistic life one is encaged within the body and deluded by false egoism. Thus one thinks, "I am this body, I am a human being, I am an American, I am an Indian." This bodily conception is due to false ego. Being deluded by false ego, one identifies himself with a certain family, nation or community. In this way one's attachment for the material world grows deeper and deeper. Thus it becomes very difficult for the living entity to extricate himself from his entanglement. Such people are graphically described in the Sixteenth Chapter of Bhagavad-gītā in this way:
 
-idam adya mayā labdham imaṁ prāpsye manoratham idam astīdam api me bhaviṣyati punar dhanam
+> idam adya mayā labdham
+> imaṁ prāpsye manoratham
+> idam astīdam api me
+> bhaviṣyati punar dhanam
 
-asau mayā hataḥ śatrur haniṣye cāparān api īśvaro 'ham ahaṁ bhogī siddho 'haṁ balavān sukhī
+> asau mayā hataḥ śatrur
+> haniṣye cāparān api
+> īśvaro 'ham ahaṁ bhogī
+> siddho 'haṁ balavān sukhī
 
-āḍhyo 'bhijanavān asmi ko 'nyo 'sti sadṛśo mayā yakṣye dāsyāmi modiṣya ity ajñāna-vimohitāḥ
+> āḍhyo 'bhijanavān asmi
+> ko 'nyo 'sti sadṛśo mayā
+> yakṣye dāsyāmi modiṣya
+> ity ajñāna-vimohitāḥ
 
 "The demoniac person thinks: 'So much wealth do I have today, and I will gain more according to my schemes. So much is mine now, and it will increase in the future, more and more. He is my enemy, and I have killed him; and my other enemy will also be killed. I am the lord of everything, I am the enjoyer, I am perfect, powerful and happy. I am the richest man, surrounded by aristocratic relatives. There is none so powerful and happy as I am. I shall perform sacrifices, I shall give some charity, and thus I shall rejoice.' In this way, such persons are deluded by ignorance." (Bg. 16.13-15)
 

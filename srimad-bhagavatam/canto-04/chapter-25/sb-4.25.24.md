@@ -14,13 +14,19 @@
 
 The two breasts represent attachment and envy. The symptoms of rāga and dveṣa (attachment and envy) are described in Bhagavad-gītā :
 
-indriyasyendriyasyārthe rāga-dveṣau vyavasthitau tayor na vaśam āgacchet tau hy asya paripanthinau
+> indriyasyendriyasyārthe
+> rāga-dveṣau vyavasthitau
+> tayor na vaśam āgacchet
+> tau hy asya paripanthinau
 
 "Attraction and repulsion for sense objects are felt by embodied beings, but one should not fall under the control of senses and sense objects because they are stumbling blocks on the path of self-realization." (Bg. 3.34)
 
 These representatives of attachment and envy are very much unfavorable for advancement in spiritual life. One should not be attracted by the breasts of young women. The great saint Śaṅkarācārya has described the breasts of women, especially young women, as nothing but a combination of muscles and blood, so one should not be attracted by the illusory energy of raised breasts with nipples. They are agents of māyā meant to victimize the opposite sex. Because the breasts are equally attractive, they are described as sama-vṛttau. The sex impulse remains in an old man's heart also, even up to the point of death. To be rid of such agitation, one must be very much advanced in spiritual consciousness, like Yāmunācārya, who said:
 
-yadavadhi mama cetaḥ kṛṣṇa-pādāravinde nava-nava-rasa-dhāmany udyataṁ rantum āsīt tadavadhi bata nārī-saṅgame smaryamāṇe bhavati mukha-vikāraḥ suṣṭhu niṣṭhīvanaṁ ca
+> yadavadhi mama cetaḥ kṛṣṇa-pādāravinde
+> nava-nava-rasa-dhāmany udyataṁ rantum āsīt
+> tadavadhi bata nārī-saṅgame smaryamāṇe
+> bhavati mukha-vikāraḥ suṣṭhu niṣṭhīvanaṁ ca
 
 "Since I have been engaged in the transcendental loving service of Kṛṣṇa, realizing ever-new pleasure in Him, whenever I think of sex pleasure, I spit at the thought, and my lips curl with distaste."
 

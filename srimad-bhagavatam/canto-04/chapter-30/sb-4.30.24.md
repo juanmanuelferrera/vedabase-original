@@ -14,11 +14,17 @@
 
 In the previous verse it has been said (gṛhīta-māyā-guṇa-vigrahāya) that the Lord accepts three kinds of bodies (Viṣṇu, Brahmā and Śiva) for the purposes of creating, maintaining and annihilating the cosmic manifestation. The three predominating deities of the material universe (Brahmā, Viṣṇu and Śiva) are called guṇa-avatāras. There are many kinds of incarnations of the Supreme Personality of Godhead, and the first incarnations within this material world are Brahmā, Viṣṇu and Maheśvara (Śiva). Out of these three, Lord Brahmā and Lord Śiva accept material bodies, but Lord Viṣṇu does not accept a material body. Lord Viṣṇu is therefore known as viśuddha-sattva. His existence is completely free from the contamination of the material modes of nature. One should therefore not think that Lord Viṣṇu is in the same category with Lord Brahmā and Śiva. The śāstras forbid us to think in this way.
 
-yas tu nārāyaṇaṁ devaṁ brahma-rudrādi-daivataiḥ samatvenaiva vīkṣeta sa pāṣaṇḍī bhaved dhruvam
+> yas tu nārāyaṇaṁ devaṁ
+> brahma-rudrādi-daivataiḥ
+> samatvenaiva vīkṣeta sa
+> pāṣaṇḍī bhaved dhruvam
 
 One who considers Lord Viṣṇu to be in the same category with devas like Lord Brahmā or Lord Śiva or who thinks Lord Brahmā and Śiva to be equal to Lord Viṣṇu is to be considered as pāṣaṇḍī (a faithless nonbeliever). Therefore in this verse Lord Viṣṇu is distinguished in the words namo viśuddha-sattvāya. Although a living entity like us, Lord Brahmā is exalted due to his pious activities; therefore he is given the high post of Brahmā. Lord Śiva is not actually like a living entity, but he is not the Supreme Personality of Godhead. His position is somewhere between Viṣṇu, the Supreme Personality of Godhead, and Brahmā, the living entity. Lord Śiva is therefore explained in Brahma-saṁhitā (Bg. 5.45) in this way:
 
-kṣīraṁ yathā dadhi vikāra-viśeṣa-yogāt sañjāyate na hi tataḥ pṛthag asti hetoḥ yaḥ śambhutām api tathā samupaiti kāryād govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+> kṣīraṁ yathā dadhi vikāra-viśeṣa-yogāt
+> sañjāyate na hi tataḥ pṛthag asti hetoḥ
+> yaḥ śambhutām api tathā samupaiti kāryād
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
 
 Lord Śiva is considered to be like yogurt (dadhi). Yogurt is nothing but transformed milk; nonetheless yogurt cannot be accepted as milk. Similarly, Lord Śiva holds almost all the powers of Lord Viṣṇu, and he is also above the qualities of the living entity, but he is not exactly like Viṣṇu, just as yogurt, although transformed milk, is not exactly like milk.
 
@@ -28,7 +34,10 @@ Again and again the Lord is very much interested in increasing the influence of 
 
 The word hari means "one who takes away all miserable conditions," and hari-medhase means that the Lord is always planning ways to deliver the conditioned soul from the clutches of māyā. The Lord is so kind that He personally incarnates to deliver the conditioned souls, and whenever He comes, He makes His plans.
 
-paritrāṇāya sādhūnāṁ vināśāya ca duṣkṛtām dharma-saṁsthāpanārthāya sambhavāmi yuge yuge
+> paritrāṇāya sādhūnāṁ
+> vināśāya ca duṣkṛtām
+> dharma-saṁsthāpanārthāya
+> sambhavāmi yuge yuge
 
 "To deliver the pious and to annihilate the miscreants, as well as to reestablish the principles of religion, I advent Myself millennium after millennium." (Bg. 4.8)
 

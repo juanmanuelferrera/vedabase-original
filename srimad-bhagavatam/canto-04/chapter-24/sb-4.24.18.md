@@ -24,7 +24,10 @@ na māṁ duṣkṛtino mūḍhāḥ prapadyante narādhamāḥ māyayāpahṛta
 
 Lord Śiva's duty is very dangerous because he has to employ the energy of Goddess Kālī (or Durgā). In another popular picture the Goddess Kālī is sometimes seen standing on the prostrate body of Lord Śiva, which indicates that sometimes Lord Śiva has to fall down flat in order to stop Goddess Kālī from killing the asuras. Since Lord Śiva controls the great material energy (Goddess Durgā), worshipers of Lord Śiva attain very opulent positions within this material world. Under Lord Śiva's direction, a worshiper of Lord Śiva gets all kinds of material facilities. In contrast, a Vaiṣṇava, or worshiper of Lord Viṣṇu, gradually becomes poorer in material possessions because Lord Viṣṇu does not trick His devotees into becoming materially entangled by possessions. Lord Viṣṇu gives His devotees intelligence from within, as stated in Bhagavad-gītā:
 
-teṣāṁ satata-yuktānāṁ bhajatāṁ prīti-pūrvakam dadāmi buddhi-yogaṁ taṁ yena mām upayānti te
+> teṣāṁ satata-yuktānāṁ
+> bhajatāṁ prīti-pūrvakam
+> dadāmi buddhi-yogaṁ taṁ
+> yena mām upayānti te
 
 "To those who are constantly devoted and worship Me with love, I give the understanding by which they can come to Me." (Bg. 10.10)
 

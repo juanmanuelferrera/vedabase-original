@@ -18,6 +18,9 @@ tyaktvā sva-dharmaṁ caraṇāmbujaṁ harer bhajann apakvo 'tha patet tato ya
 
 This indicates that although a neophyte devotee may fall down from the path of Kṛṣṇa consciousness due to his immaturity, his service to Kṛṣṇa never goes in vain. However, a person who remains steadfast in his family duty or so-called social or family obligation but does not take to Kṛṣṇa consciousness receives no profit. One who comes to Kṛṣṇa consciousness must be very cautious and refrain from prohibited activities, as defined by Rūpa Gosvāmī in his Upadeśāmṛta:
 
-atyāhāraḥ prayāsaś ca prajalpo niyamāgrahaḥ jana-saṅgaś ca laulyaṁ ca ṣaḍbhir bhaktir vinaśyati
+> atyāhāraḥ prayāsaś ca
+> prajalpo niyamāgrahaḥ
+> jana-saṅgaś ca laulyaṁ ca
+> ṣaḍbhir bhaktir vinaśyati
 
 A neophyte devotee should neither eat too much nor collect more money than necessary. Eating too much or collecting too much is called atyāhāra. For such atyāhāra one must endeavor very much. This is called prayāsa. Superficially one may show himself to be very much faithful to the rules and regulations but at the same time not be fixed in the regulative principles. This is called niyamāgraha. By mixing with undesirable persons, or jana-saṅga, one becomes tainted with lust and greed and falls down from the path of devotional service.

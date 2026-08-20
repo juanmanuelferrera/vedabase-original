@@ -28,7 +28,10 @@ kaścin māṁ vetti tattvataḥ
 
 Out of many, many millions of people, one may be interested in learning how to attain success in spiritual matters. The supreme success is mentioned also in Bhagavad-gītā:
 
-mām upetya punar janma duḥkhālayam aśāśvatam nāpnuvanti mahātmānaḥ saṁsiddhiṁ paramāṁ gatāḥ
+> mām upetya punar janma
+> duḥkhālayam aśāśvatam
+> nāpnuvanti mahātmānaḥ
+> saṁsiddhiṁ paramāṁ gatāḥ
 
 "After attaining Me, the great souls, who are yogīs in devotion, never return to this temporary world, which is full of miseries, because they have attained the highest perfection." (Bg. 8.15)
 

@@ -16,7 +16,10 @@ Actually everyone is suffering within this material world due to ignorance. Ever
 
 Opposed to such ignorance, full knowledge is the greatest achievement within this material world. We can practically see that one who has sufficient knowledge is saved from many dangerous pitfalls in life. As stated in Bhagavad-gītā:
 
-bahūnāṁ janmanām ante jñānavān māṁ prapadyate vāsudevaḥ sarvam iti sa mahātmā sudurlabhaḥ
+> bahūnāṁ janmanām ante
+> jñānavān māṁ prapadyate
+> vāsudevaḥ sarvam iti
+> sa mahātmā sudurlabhaḥ
 
 "After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare." (Bg. 7.19)
 

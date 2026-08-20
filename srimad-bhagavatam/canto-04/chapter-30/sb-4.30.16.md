@@ -14,7 +14,10 @@
 
 According to Vedic principles, a woman cannot have many husbands, although a husband can have many wives. In special instances, however, it is found that a woman has more than one husband. Draupadī, for instance, was married to all of the five Pāṇḍava brothers. Similarly, the Supreme Personality of Godhead ordered all the sons of Prācīnabarhiṣat to marry the one girl born of the great sage Kaṇḍu and Pramlocā. In special cases, a girl is allowed to marry more than one man, provided she is able to treat her husbands equally. This is not possible for an ordinary woman. Only one who is especially qualified can be allowed to marry more than one husband. In this age of Kali, to find such an equipoised woman is very difficult. Thus according to scripture, kalau pañca vivarjayet. In this age a woman is forbidden to marry her husband's brother. This system is still practiced in some of the hilly tracts of India. The Lord says: apṛthag-dharma-śīleyaṁ bhūyāt patny arpitāśayā. With the blessings of the Lord, all things are possible. The Lord especially benedicted the girl to surrender equally to all brothers. Apṛthag-dharma, meaning occupational duty without difference of purpose, is taught in Bhagavad-gītā. Bhagavad-gītā is divided into three primary divisions-karma-yoga, jñāna-yoga and bhakti-yoga. The word yoga means acting on behalf of the Supreme Personality of Godhead. As confirmed by Bhagavad-gītā:
 
-yajñārthāt karmaṇo 'nyatra loko 'yaṁ karma-bandhanaḥ tad-arthaṁ karma kaunteya mukta-saṅgaḥ samācara
+> yajñārthāt karmaṇo 'nyatra
+> loko 'yaṁ karma-bandhanaḥ
+> tad-arthaṁ karma kaunteya
+> mukta-saṅgaḥ samācara
 
 "Work done as a sacrifice for Viṣṇu has to be performed, otherwise work binds one to this material world. Therefore, O son of Kuntī, perform your prescribed duties for His satisfaction, and in that way you will always remain unattached and free from bondage." (Bg. 3.9)
 

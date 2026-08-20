@@ -14,9 +14,15 @@
 
 In Bhagavad-gītā it is said:
 
-yām imāṁ puṣpitāṁ vācaṁ pravadanty avipaścitaḥ veda-vāda-ratāḥ pārtha nānyad astīti vādinaḥ
+> yām imāṁ puṣpitāṁ vācaṁ
+> pravadanty avipaścitaḥ
+> veda-vāda-ratāḥ pārtha
+> nānyad astīti vādinaḥ
 
-kāmātmānaḥ svarga-parā janma-karma-phala-pradām kriyā-viśeṣa-bahulāṁ bhogaiśvarya-gatiṁ prati
+> kāmātmānaḥ svarga-parā
+> janma-karma-phala-pradām
+> kriyā-viśeṣa-bahulāṁ
+> bhogaiśvarya-gatiṁ prati
 
 "Men of small knowledge are very much attached to the flowery words of the Vedas, which recommend various fruitive activities for elevation to heavenly planets, resultant good birth, power, and so forth. Being desirous of sense gratification and opulent life, they say that there is nothing more than this." (Bg. 2.42-43)
 

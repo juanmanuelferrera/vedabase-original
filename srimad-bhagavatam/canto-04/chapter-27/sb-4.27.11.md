@@ -24,15 +24,24 @@ There are two ways of animal killing. One way is in the name of religious sacrif
 
 Thus the great sage Nārada, while instructing Śrīmad-Bhāgavatam to Vyāsa Muni, condemned the karma-kāṇḍa (fruitive) activities mentioned in the Vedas. Nārada told Vyāsa:
 
-jugupsitaṁ dharma-kṛte 'nuśāsataḥ sva-bhāva-raktasya mahān vyatikramaḥ yad vākyato dharma itītaraḥ sthito na manyate tasya nivāraṇaṁ janaḥ
+> jugupsitaṁ dharma-kṛte 'nuśāsataḥ
+> sva-bhāva-raktasya mahān vyatikramaḥ
+> yad vākyato dharma itītaraḥ sthito
+> na manyate tasya nivāraṇaṁ janaḥ
 
 "The people in general are naturally inclined to enjoy, and you have encouraged them in that way in the name of religion. This is verily condemned and is quite unreasonable. Because they are guided under your instructions, they will accept such activities in the name of religion and will hardly care for prohibitions." (Bhāg. 1.5.15)
 
 Śrīla Nārada Muni chastised Vyāsadeva for compiling so many Vedic supplementary scriptures, which are all intended for guiding the people in general. Nārada Muni condemned these scriptures because they do not mention direct devotional service. Under Nārada's instructions, direct worship of the Supreme Personality of Godhead, as described in the Śrīmad-Bhāgavatam, was set forth by Vyāsadeva. The conclusion is that neither the Supreme Personality of Godhead Viṣṇu nor His devotee ever sanctions animal killing in the name of religion. Indeed, Kṛṣṇa incarnated Himself as Lord Buddha to put an end to animal killing in the name of religion. Animal sacrifice under the name of religion is conducted by the influence of tamo-guṇa (the mode of ignorance), as indicated in the Eighteenth Chapter of Bhagavad-gītā:
 
-yayā dharmam adharmaṁ ca kāryaṁ cākāryam eva ca ayathāvat prajānāti buddhiḥ sā pārtha rājasī
+> yayā dharmam adharmaṁ ca
+> kāryaṁ cākāryam eva ca
+> ayathāvat prajānāti
+> buddhiḥ sā pārtha rājasī
 
-adharmaṁ dharmam iti yā manyate tamasāvṛtā sarvārthān viparītāṁś ca buddhiḥ sā pārtha tāmasī
+> adharmaṁ dharmam iti yā
+> manyate tamasāvṛtā
+> sarvārthān viparītāṁś ca
+> buddhiḥ sā pārtha tāmasī
 
 "That understanding which cannot distinguish between the religious way of life and the irreligious, between action that should be done and action that should not be done—that imperfect understanding, O son of Pṛthā, is in the mode of passion. That understanding which considers irreligion to be religion and religion to be irreligion, under the spell of illusion and darkness, and strives always in the wrong direction, O Pārtha, is in the mode of ignorance." (Bg. 18.31-32)
 

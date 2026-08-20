@@ -18,7 +18,8 @@ Before us there are varieties of living entities, and everyone is entangled in t
 
 Pṛthu Mahārāja therefore tells the Lord that as the Supreme Father He may elect to bestow whatever He considers beneficial for Pṛthu Mahārāja. That is the perfect position of the living entity. Therefore Śrī Caitanya Mahāprabhu teaches us in His Śikṣāṣṭaka:
 
-na dhanaṁ na janaṁ na sundarīṁ kavitāṁ vā jagad-īśa kāmaye mama janmani janmanīśvare bhavatād bhaktir ahaitukī tvayi
+> na dhanaṁ na janaṁ na sundarīṁ kavitāṁ vā jagad-īśa kāmaye
+> mama janmani janmanīśvare bhavatād bhaktir ahaitukī tvayi
 
 "O Almighty Lord! I have no desire to accumulate wealth, nor have I any desire to enjoy beautiful women, nor do I want any number of followers. I only want Your causeless devotional service in my life, birth after birth."
 

@@ -14,7 +14,11 @@
 
 There are fourteen Manus in one day of Brahmā. A manvantara, the life span of one Manu, is given as 71 multiplied by 4,320,000 years. After one such Manu passes on, another Manu begins his life-span. In this way the life cycle of the universe is going on. As one Manu follows another, the cult of Kṛṣṇa consciousness is being imparted, as confirmed in Bhagavad-gītā:
 
-śrī-bhagavān uvāca imaṁ vivasvate yogaṁ proktavān aham avyayam vivasvān manave prāha manur ikṣvākave 'bravīt
+> śrī-bhagavān uvāca
+> imaṁ vivasvate yogaṁ
+> proktavān aham avyayam
+> vivasvān manave prāha
+> manur ikṣvākave 'bravīt
 
 "The Blessed Lord said: I instructed this imperishable science of yoga to the sun-god, Vivasvān, and Vivasvān instructed it to Manu, the father of mankind, and Manu in turn instructed it to Ikṣvāku." (Bg. 4.1)
 

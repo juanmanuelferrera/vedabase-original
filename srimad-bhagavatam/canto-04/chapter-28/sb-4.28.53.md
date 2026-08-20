@@ -14,7 +14,10 @@
 
 As stated in Bhagavad-gītā:
 
-icchā-dveṣa-samutthena dvandva-mohena bhārata sarva-bhūtāni sammohaṁ sarge yānti parantapa
+> icchā-dveṣa-samutthena
+> dvandva-mohena bhārata
+> sarva-bhūtāni sammohaṁ
+> sarge yānti parantapa
 
 "O scion of Bharata [Arjuna], O conquerer of the foe, all living entities are born into delusion, overcome by the dualities of desire and hate." (Bg. 7.27)
 
@@ -26,7 +29,10 @@ The natural position of the living entity is to serve the Lord in a transcendent
 
 By misusing his independence, the living entity falls down from the service of the Lord and takes a position in this material world as an enjoyer. That is to say, the living entity takes his position within a material body. Wanting to take a very exalted position, the living entity instead becomes entangled in a repetition of birth and death. He selects his position as a human being, a demigod, a cat, a dog, a tree, etc. In this way the living entity selects a body out of the 8,400,000 forms and tries to satisfy himself by a variety of material enjoyment. The Supersoul, however, does not like him to do this. Consequently the Supersoul instructs him to surrender unto the Supreme Personality of Godhead. The Lord then takes charge of the living entity. But unless the living entity is uncontaminated by material desires, he cannot surrender to the Supreme Lord. In Bhagavad-gītā the Lord says:
 
-bhoktāraṁ yajña-tapasāṁ sarva-loka-maheśvaram suhṛdaṁ sarva-bhūtānāṁ jñātvā māṁ śāntim ṛcchati
+> bhoktāraṁ yajña-tapasāṁ
+> sarva-loka-maheśvaram
+> suhṛdaṁ sarva-bhūtānāṁ
+> jñātvā māṁ śāntim ṛcchati
 
 "The sages, knowing Me as the ultimate purpose of all sacrifices and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries." (Bg. 5.29)
 

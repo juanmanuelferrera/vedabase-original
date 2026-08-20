@@ -26,7 +26,8 @@ viśate tad-anantaram
 
 One can understand in truth the Supreme Personality of Godhead only when one is engaged in devotional service. Ordinary persons engaged in pious and impious activities cannot understand the form, name and activities of the Lord. The devotee, however, can know the Personality of Godhead in many respects. He can understand that Kṛṣṇa is the Supreme Personality of Godhead, that His address is Goloka Vṛndāvana and that His activities are all spiritual. Because the Lord's form and activities cannot be understood by materialistic people, He is described by the śāstras as nirākāra, that is, one whose form cannot be ascertained by a materialistic person. This does not mean that the Supreme Personality of Godhead has no form; it means that it is not understood by the karmīs or fruitive actors. His form is described in Brahma-saṁhitā as sac-cid-ānanda-vigraha. As confirmed by the Padma Purāṇa:
 
-ataḥ śrī-kṛṣṇa-nāmādi na bhaved grāhyam indriyaiḥ sevonmukhe hi jihvādau svayam eva sphuraty adaḥ
+> ataḥ śrī-kṛṣṇa-nāmādi na bhaved grāhyam indriyaiḥ
+> sevonmukhe hi jihvādau svayam eva sphuraty adaḥ
 
 "No one can understand Kṛṣṇa as He is by utilizing the blunt material senses. However, the Lord reveals Himself to His devotees, being pleased with them because of their transcendental loving service rendered unto Him."
 
