@@ -21,7 +21,8 @@
 
 These two verses explain the verse in the Bhagavad-gītā: brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati/ samaḥ sarveṣu bhūteṣu mad-bhaktiṁ labhate parām: "One who is transcendentally situated at once realizes the Supreme Brahman. He never laments or desires to have anything. He is equally disposed towards every living entity. In that state he achieves pure devotional service unto Me." (Bg. 18.54) This is also explained by Lord Caitanya in His Śikṣāṣṭaka in the beginning of the first verse:
 
-ceto-darpaṇa-mārjanaṁ bhava-mahā-dāvāgni-nirvāpaṇaṁ śreyaḥ-kairava-candrikā-vitaraṇaṁ vidyā-vadhū-jīvanam
+> ceto-darpaṇa-mārjanaṁ bhava-mahā-dāvāgni-nirvāpaṇaṁ
+> śreyaḥ-kairava-candrikā-vitaraṇaṁ vidyā-vadhū-jīvanam
 
 The bhakti-yoga system is the topmost yoga system, and in this system the chanting of the holy name of the Lord is the foremost performance of devotional service. By chanting the holy name one can attain the perfection of nirvāṇa, or liberation from material existence, and so increase one's blissful life of spiritual existence as described by Lord Caitanya (ānandāmbudhi-vardhanam). When one is situated in that position, he no longer has any interest in material opulence or even a royal throne and sovereignty over the whole planet. This situation is called viraktir anyatra syāt. It is the result of devotional service.
 

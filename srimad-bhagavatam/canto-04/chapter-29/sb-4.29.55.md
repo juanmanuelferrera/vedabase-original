@@ -16,7 +16,10 @@
 
 In one of his songs, Śrīla Narottama dāsa Ṭhākura writes:
 
-karma-kāṇḍa, jñāna-kāṇḍa, kevala viṣera bhāṇḍa, amṛta baliyā yebā khāya nānā yoni sadā phire, kadarya bhakṣaṇa kare, tāra janma adhaḥ-pāte yāya
+> karma-kāṇḍa, jñāna-kāṇḍa, kevala viṣera bhāṇḍa,
+> amṛta baliyā yebā khāya
+> nānā yoni sadā phire, kadarya bhakṣaṇa kare,
+> tāra janma adhaḥ-pāte yāya
 
 "Fruitive activities and mental speculation are simply cups of poison. Whoever drinks of them, thinking them to be nectar, must struggle very hard, life after life, in different types of bodies. Such a person eats all kinds of nonsense and becomes condemned by his activities of so-called sense enjoyment."
 

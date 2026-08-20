@@ -21,7 +21,10 @@ It is clear from the previous verse that the Supreme Personality of Godhead, Jan
 
 "My dear Lord, I am Your eternal servant, but somehow or other I have fallen into the ocean of this material world. Kindly pick me up and fix me as a speck of dust at Your lotus feet." Similarly, Śrīla Narottama dāsa Ṭhākura prays:
 
-hā hā prabhu nanda-suta, vṛṣabhānu-sutā-yuta, karuṇā karaha ei-bāra narottama-dāsa kaya, nā ṭheliha rāṅgā-pāya, tomā vine ke āche āmāra
+> hā hā prabhu nanda-suta, vṛṣabhānu-sutā-yuta,
+> karuṇā karaha ei-bāra
+> narottama-dāsa kaya, nā ṭheliha rāṅgā-pāya,
+> tomā vine ke āche āmāra
 
 "My dear Lord, You are now present with the daughter of King Vṛṣabhānu, Śrīmatī Rādhārāṇī. Now both of You please be merciful upon me. Don't kick me away, because I have no shelter other than You."
 

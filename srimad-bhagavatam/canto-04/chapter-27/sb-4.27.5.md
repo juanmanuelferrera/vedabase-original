@@ -14,7 +14,10 @@
 
 Śrīla Govinda dāsa Ṭhākura has sung:
 
-ei-dhana, yauvana, putra, parijana, ithe ki āche paratīti re kamala-dala-jala, jīvana ṭalamala, bhaja huṅ hari-pada nīti re
+> ei-dhana, yauvana, putra, parijana,
+> ithe ki āche paratīti re
+> kamala-dala-jala, jīvana ṭalamala,
+> bhaja huṅ hari-pada nīti re
 
 In this verse Śrīla Govinda dāsa actually says that there is no bliss in the enjoyment of youthful life. In youth a person becomes very lusty to enjoy all kinds of sense objects. The sense objects are form, taste, smell, touch and sound. The modern scientific method, or advancement of scientific civilization, encourages the enjoyment of these five senses. The younger generation is very pleased to see a beautiful form, to hear radio messages of material news and sense gratificatory songs, to smell nice scents, nice flowers, and to touch the soft body or breasts of a young woman and gradually touch the sex organs. All of this is also very pleasing to the animals; therefore in human society there are restrictions in the enjoyment of the five sense objects. If one does not follow, he becomes exactly like an animal.
 

@@ -12,19 +12,19 @@
 
 In *Bhagavad-gītā* (8.13) the glories of *oṁkāra* are described as follows:
 
-oṁ ity ekākṣaraṁ brahmā
-vyāharan mām anusmaran
-yaḥ prayāti tyajan dehaṁ
-sa yāti paramaṁ gatim
+> oṁ ity ekākṣaraṁ brahmā
+> vyāharan mām anusmaran
+> yaḥ prayāti tyajan dehaṁ
+> sa yāti paramaṁ gatim
 
 This verse indicates that *oṁkāra,* or *praṇava,* is a direct representation of the Supreme Personality of Godhead. Therefore if at the time of death one simply remembers *oṁkāra,* he remembers the Supreme Personality of Godhead and is therefore immediately transferred to the spiritual world. *Oṁkāra* is the basic principle of all Vedic *mantras,* for it is a representation of Lord Kṛṣṇa, understanding of whom is the ultimate goal of the *Vedas,* as stated in *Bhagavad-gītā* (*vedaiś ca sarvair aham eva vedyaḥ*). Māyāvādī philosophers cannot understand these simple facts explained in *Bhagavad-gītā,* and yet they are very proud of being Vedāntīs. Sometimes, therefore, we refer to the Vedāntī philosophers as Vidantīs, those who have no teeth (*vi* means "without," and *dantī* means "possessing teeth"). The statements of the Śaṅkara philosophy, which are the teeth of the Māyāvādī philosopher, are always broken by the strong arguments of Vaiṣṇava philosophers such as the great *ācāryas,* especially Rāmānujācārya. Śrīpāda Rāmānujācārya and Madhvācārya break the teeth of the Māyāvādī philosophers, who can therefore be called Vidantīs, "toothless."
 
 The transcendental vibration *oṁkāra* is explained in *Bhagavad-gītā,* Chapter Eight, verse thirteen:
 
-oṁ ity ekākṣaraṁ brahmā
-vyāharan mām anusmaran
-yaḥ prayāti tyajan dehaṁ
-sa yāti paramaṁ gatim
+> oṁ ity ekākṣaraṁ brahmā
+> vyāharan mām anusmaran
+> yaḥ prayāti tyajan dehaṁ
+> sa yāti paramaṁ gatim
 
 "After being situated in the *yoga* practice and vibrating the sacred syllable *oṁ,* the supreme combination of letters, if one thinks of the Supreme Personality of Godhead and quits his body, he will certainly reach the spiritual planets."
 
@@ -32,26 +32,26 @@ If one actually understands that *oṁkāra* is the sound representation of the 
 
 The transcendental vibration of *oṁkāra* is further explained in *Bhagavad-gītā,* Chapter Nine, verse seventeen:
 
-pitāham asya jagato
-mātā dhātā pitāmahaḥ
-vedyaṁ pavitram oṁkāra
-ṛk śama yajur eva ca
+> pitāham asya jagato
+> mātā dhātā pitāmahaḥ
+> vedyaṁ pavitram oṁkāra
+> ṛk śama yajur eva ca
 
 "I am the father of this universe, the mother, the support, and the grandsire. I am the object of knowledge, the purifier and the syllable *oṁ.* I am also the *Ṛg-veda, Sāma-veda* and *Yajur-veda.*"
 
 Similarly, the transcendental sound *oṁ* is further explained in *Bhagavad-gītā,* Chapter Seventeen, verse twenty-three:
 
-oṁ tat sad iti nirdeśo
-brāhmaṇas tri-vidhaḥ smṛtaḥ
-brāhmaṇas tena vedas ca
-yajñas ca vihitāḥ purā
+> oṁ tat sad iti nirdeśo
+> brāhmaṇas tri-vidhaḥ smṛtaḥ
+> brāhmaṇas tena vedas ca
+> yajñas ca vihitāḥ purā
 
 "From the beginning of creation, the three syllables *oṁ tat sat* have been used to indicate the Supreme Absolute Truth [Brahman]. They were uttered by *brāhmaṇas* while chanting Vedic hymns and during sacrifices for the satisfaction of the Supreme."
 
 Throughout all the Vedic literatures the glories of *oṁkāra* are specifically mentioned. Śrīla Jīva Gosvāmī, in his thesis *Bhagavat-sandarbha,* says that in the Vedic literature *oṁkāra* is considered to be the sound vibration of the holy name of the Supreme Personality of Godhead. Only this vibration of transcendental sound can deliver a conditioned soul from the clutches of *māyā.* Sometimes *oṁkāra* is also called the deliverer (*tāra*). *Śrīmad-Bhāgavatam* begins with the *oṁkāra* vibration: *oṁ namo bhagavate vāsudevāya.* Therefore *oṁkāra* has been described by the great commentator Śrīdhara Svāmī as *tārāṅkura,* the seed of deliverance from the material world. Since the Supreme Godhead is absolute, His holy name and His sound vibration *oṁkāra* are as good as He Himself. Caitanya Mahāprabhu says that the holy name, or *oṁkāra,* the transcendental representation of the Supreme Personality of Godhead, has all the potencies of the Personality of Godhead.
 
-nāmnāṁ akāri bahudhā nija-sarva-śaktis
-tatrārpitā niyamitaḥ smaraṇe na kālaḥ
+> nāmnāṁ akāri bahudhā nija-sarva-śaktis
+> tatrārpitā niyamitaḥ smaraṇe na kālaḥ
 
 All potencies are invested in the holy vibration of the holy name of the Lord. There is no doubt that the holy name of the Lord, or *oṁkāra,* is the Supreme Personality of Godhead Himself. In other words, anyone who chants *oṁkāra* and the holy name of the Lord, Hare Kṛṣṇa, immediately meets the Supreme Lord directly in His sound form. In the *Nārada-pañcarātra* it is clearly said that the Supreme Personality of Godhead Nārāyaṇa personally appears before the chanter who engages in chanting the *aṣṭākṣara,* or eight-syllable *mantra, oṁ namo nārāyaṇāya.* A similar statement in the *Māṇḍūkya Upaniṣad* declares that whatever one sees in the spiritual world is all an expansion of the spiritual potency of *oṁkāra.*
 
@@ -61,8 +61,8 @@ One should not, however, foolishly conclude that because the Supreme Personality
 
 a-kāreṇocyate kṛṣṇaḥ
 sarva-lokaika-nāyakaḥ
-u-kāreṇocyate rādhā
-ma-kāro jīva-vācakaḥ
+> u-kāreṇocyate rādhā
+> ma-kāro jīva-vācakaḥ
 Oṁkāra is a combination of the letters *a, u* and *m. A-kāreṇocyate kṛṣṇaḥ:* the letter *a* (*a-kāra*) refers to Kṛṣṇa, who is *sarva-lokaika-nāyakaḥ,* the master of all living entities and planets, material and spiritual. *Nāyaka* means "leader." He is the supreme leader (*nityo nityānāṁ cetanaś cetanānām*). The letter *u* (*u-kāra*) indicates Śrīmatī Rādhārāṇī, the pleasure potency of Kṛṣṇa, and *m* (*ma-kāra*) indicates the living entities (*jīvas*). Thus *oṁ* is the complete combination of Kṛṣṇa, His potency and His eternal servitors. In other words, *oṁkāra* represents Kṛṣṇa, His name, fame, pastimes, entourage, expansions, devotees, potencies and everything else pertaining to Him. As Caitanya Mahāprabhu states in the present verse of *Śrī Caitanya-caritāmṛta, sarva-viśva-dhāma: oṁkāra* is the resting place of everything, just as Kṛṣṇa is the resting place of everything (*brahmaṇo hi pratiṣṭhāham*)*.*
 
 The Māyāvādī philosophers consider many Vedic *mantras* to be the *mahā-vākya,* or principal Vedic *mantra,* such as *tat tvāṁ asi* (*Chāndogya Upaniṣad* 6.8.7), *idaṁ sarvaṁ yad ayaṁ ātmā* and *brahmedaṁ sarvaṁ* (*Bṛhad-āraṇyaka Upaniṣad* 2.5.1), *ātmaivedaṁ sarvaṁ* (*Chāndogya Upaniṣad* 7.25.2) and *neha nānāsti kiñcana* (*Kaṭha Upaniṣad* 2.1.11). That is a great mistake. Only *oṁkāra* is the *mahā-vākya.* All these other *mantras* which the Māyāvādīs accept as the *mahā-vākya* are only incidental. They cannot be taken as the *mahā-vākya,* or *mahā-mantra.* The *mantra tat tvāṁ asi* indicates only a partial understanding of the *Vedas,* unlike *oṁkāra,* which represents the full understanding of the *Vedas.* Therefore the transcendental sound that includes all Vedic knowledge is *oṁkāra* (*praṇava*).

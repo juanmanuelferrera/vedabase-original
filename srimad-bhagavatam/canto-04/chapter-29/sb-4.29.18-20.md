@@ -55,6 +55,9 @@ Even if one is promoted to Brahmaloka, the highest planet in the universe, he ha
 
 Just as a king is seated on a chariot, the living entity is seated in the body. The sitting place is the heart, and the living entity sits there and engages in the struggle for existence, which goes on without progress perpetually. In the words of Narottama dāsa Ṭhākura:
 
-karma-kāṇḍa, jñāna-kāṇḍa, kevala viṣera bhāṇḍa, amṛta baliyā yebā khāya nānā yoni sadā phire, kadarya bhakṣaṇa kare, tāra janma adhaḥ-pāte yāya
+> karma-kāṇḍa, jñāna-kāṇḍa, kevala viṣera bhāṇḍa,
+> amṛta baliyā yebā khāya
+> nānā yoni sadā phire, kadarya bhakṣaṇa kare,
+> tāra janma adhaḥ-pāte yāya
 
 The living entity struggles very hard due to the influence of fruitive activity and mental speculation and simply gets a different type of body life after life. He eats all kinds of nonsense and is condemned by his activities of sense enjoyment. If one really wants to progress in life, he must give up the ways of karma-kāṇḍa and jñāna-kāṇḍa, fruitive activities and mental speculation. Being fixed in Kṛṣṇa consciousness, one can become free from the entanglement of birth and death and the vain struggle for existence. In these verses the words mṛga-tṛṣṇāṁ pradhāvati are very significant because the living entity is influenced by a thirst for sense enjoyment. He is like a deer that goes to the desert to search out water. In a desert an animal simply searches in vain for water. Of course there is no water in the desert, and the animal simply sacrifices his life in an attempt to find it. Everyone is planning for future happiness, thinking that somehow or other, if he can reach a certain point, he will be happy. In actuality, however, when he comes to that point, he sees that there is no happiness. He then plans to go further and further to another point. This is called mṛga-tṛṣṇā, and its basis is sense enjoyment in this material world.

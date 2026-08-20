@@ -14,7 +14,10 @@
 
 We must remember that Purañjana is the living entity, and the city Pañcāla is the body. The body is the field of activity for the living entity, as stated in Bhagavad-gītā: kṣetra-kṣetrajña (Bg. 13.27). There are two constituents: one is the living entity (kṣetra jña), and the other is the body of the living entity (kṣetra). Any living entity can know that he is covered by the body if he only contemplates the body a little bit. Just with a little contemplation he can come to understand that the body is his possession. One can understand this by practical experience and by the authority of the śāstras. In Bhagavad-gītā it is said: dehino'smin yathā dehe (Bg. 2.13). The proprietor of the body, the soul, is within the body. The body is taken as the pañcāla-deśa, or the field of activities wherein the living entity can enjoy the senses in their relationship to the five sense objects—namely, gandha, rasa, rūpa, sparśa and śabda—that is, sense objects made out of earth, water, fire, air and sky. Within this material world covered by the material body of subtle and gross matter, every living entity creates actions and reactions, which are herein known allegorically as sons and grandsons. There are two kinds of actions and reactions—namely, pious and impious. In this way our material existence becomes coated by different actions and reactions. In this regard, Śrīla Narottama dāsa Ṭhākura states:
 
-karma-kāṇḍa, jñāna-kāṇḍa, kevala viṣera bhāṇḍa, amṛta baliyā yebā khāya nānā yoni sadā phire, kadarya bhakṣaṇa kare, tāra janma adhaḥ-pāte yāya
+> karma-kāṇḍa, jñāna-kāṇḍa, kevala viṣera bhāṇḍa,
+> amṛta baliyā yebā khāya
+> nānā yoni sadā phire, kadarya bhakṣaṇa kare,
+> tāra janma adhaḥ-pāte yāya
 
 "Fruitive activities and mental speculation are simply cups of poison. Whoever drinks of them, thinking them to be nectar, must struggle very hard life after life, in different types of bodies. Such a person eats all kinds of nonsense and becomes condemned by his activities of so-called sense enjoyment."
 
