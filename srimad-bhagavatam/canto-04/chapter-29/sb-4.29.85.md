@@ -14,7 +14,10 @@
 
 The word striyā, meaning "along with the wife," is significant. The male and female living together constitute the sum and substance of material existence. The attraction between male and female in this material world is very strong. In all species of life the attraction between male and female is the basic principle of existence. The same principle of intermingling is also in human society, but is in a regulative form. Material existence means living together as male and female and being attracted by one another. However, when one fully understands spiritual life, his attraction for the opposite sex is completely vanquished. By such attraction, one becomes overly attached to this material world. It is a hard knot within the heart.
 
-puṁsaḥ striyā mithunī-bhāvam etaṁ tayor mitho hṛdaya-granthim āhuḥ ato gṛha-kṣetra-sutāpta-vittair janasya moho 'yam ahaṁ mameti (Bhāg. 5.5.8)
+> puṁsaḥ striyā mithunī-bhāvam etaṁ\
+> tayor mitho hṛdaya-granthim āhuḥ\
+> ato gṛha-kṣetra-sutāpta-vittair\
+> janasya moho 'yam ahaṁ mameti (Bhāg. 5.5.8)
 
 Everyone comes to this material world attracted to sense gratification, and the hard knot of sense gratification is the attraction between male and female. By this attraction, one becomes overly attached to the material world in terms of gṛha-kṣetra-suta-āpta-vitta—that is, home, land, children, friends, money and so forth. Thus one becomes entangled in the bodily conception of "I and mine." However, if one understands the story of King Purañjana and understands how, by sexual attraction, Purañjana became a female in his next life, one will also understand the process of transmigration.
 
