@@ -20,7 +20,7 @@ BOOKS = [
     "bhagavad-gita-as-it-is",
     "srimad-bhagavatam",
     "sri-caitanya-caritamrta",
-    "krsna-book",
+    "krsna-the-supreme-personality-of-godhead",
     "nectar-of-devotion",
     "nectar-of-instruction",
     "isopanisad",
