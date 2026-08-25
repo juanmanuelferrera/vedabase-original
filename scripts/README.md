@@ -6,7 +6,7 @@ This folder contains scripts used in the Vedabase Original Edition verification 
 
 | Script | Purpose |
 |--------|---------|
-| `sync_from_source.py` | Downloads and updates texts from vedabase.bhaktiyoga.es |
+| `sync_from_source.py` | Downloads and updates texts from vedabase.cc |
 | `compare.py` | Text comparison engine with noise filtering |
 | `strip_diacritics.py` | IAST diacritic processing utilities |
 
@@ -14,7 +14,7 @@ This folder contains scripts used in the Vedabase Original Edition verification 
 
 ## sync_from_source.py
 
-**Purpose:** Synchronize this repository with the gold standard texts from vedabase.bhaktiyoga.es.
+**Purpose:** Synchronize this repository with the gold standard texts from vedabase.cc.
 
 **Usage:**
 ```bash
@@ -136,4 +136,4 @@ These scripts implement the hybrid verification process:
 
 ## Source
 
-Scripts based on methodology from [vedabase.bhaktiyoga.es](https://vedabase.bhaktiyoga.es).
+Scripts based on methodology from [vedabase.cc](https://vedabase.cc).

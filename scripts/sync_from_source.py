@@ -1,7 +1,7 @@
 #!/usr/bin/env python3
 """
 Script para actualizar el repositorio srila_prabhupada_vedabase_original
-con los textos gold standard de vedabase.bhaktiyoga.es
+con los textos gold standard de vedabase.cc
 
 Estrategia: Borrar todos los .txt y descargar todos los .md frescos
 """
@@ -15,7 +15,7 @@ from pathlib import Path
 # URL base para los ZIPs
 BASE_URL = "https://pub-9ebe02965a9f4aeb9c5d3d9741790d2d.r2.dev/books"
 
-# Todos los libros disponibles en vedabase.bhaktiyoga.es
+# Todos los libros disponibles en vedabase.cc
 BOOKS = [
     "bhagavad-gita-as-it-is",
     "srimad-bhagavatam",
@@ -101,7 +101,7 @@ def main():
         print(f"Repositorio encontrado en {repo_dir}")
 
     print("\n" + "=" * 60)
-    print("PASO 1: Descargando archivos .md de vedabase.bhaktiyoga.es")
+    print("PASO 1: Descargando archivos .md de vedabase.cc")
     print("=" * 60 + "\n")
 
     success = []
@@ -164,7 +164,7 @@ def main():
   git status
   git diff --stat
   git add -A
-  git commit -m "Replace .txt with gold standard .md from vedabase.bhaktiyoga.es"
+  git commit -m "Replace .txt with gold standard .md from vedabase.cc"
   git push
 """)
 
