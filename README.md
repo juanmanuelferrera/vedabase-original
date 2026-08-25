@@ -4,6 +4,10 @@ The complete works of His Divine Grace A.C. Bhaktivedanta Swami Prabhupāda, in 
 they were originally published during his lifetime — verified word-by-word against scanned
 photographs of the first-edition books, free from posthumous revisions.
 
+**How that verification was done** — two independent OCR engines read every page, and every
+place they disagreed with the text was adjudicated against the scan: see
+[How the originals were verified](#how-the-originals-were-verified).
+
 ## Purpose
 
 To preserve Śrīla Prabhupāda's teachings exactly as he published them, before later editors
