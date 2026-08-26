@@ -1,39 +1,39 @@
 #!/usr/bin/env python3
-"""Manifiesto de hashes del corpus, para anclarlo fuera de nuestro control.
+"""Hash manifest of the corpus, so it can be anchored beyond our control.
 
-Para que sirve
+What it is for
 --------------
-Todo el proyecto se sostiene en una afirmacion: este texto es el de las
-primeras ediciones y no lo hemos tocado. Hoy esa afirmacion descansa en la
-palabra de quien lo publica y en un repositorio que esa misma persona controla
-y podria reescribir.
+The whole project rests on one claim: this text is that of the first editions
+and we have not touched it. Today that claim rests on the word of whoever
+publishes it and on a repository that same person controls and could rewrite.
 
-Este manifiesto convierte la afirmacion en algo comprobable. Calcula el SHA-256
-de cada fichero del corpus, los ordena de forma determinista y produce un
-`root` que resume el conjunto entero. Publicado ese `root` en un sitio que
-nadie puede reescribir —Arweave— cualquiera puede repetir el calculo sobre su
-propia copia y ver si coincide, sin preguntarnos y sin fiarse de nosotros.
+This manifest turns the claim into something checkable. It computes the SHA-256
+of every file in the corpus, orders them deterministically, and produces a
+`root` that stands for the whole set. Publish that `root` somewhere nobody can
+rewrite — Arweave — and anyone can repeat the computation over their own copy
+and see whether it matches, without asking us and without trusting us.
 
-Es el mismo principio que PRINT_ERRATA.md: no pedimos que nos crean, enseñamos
-como comprobarlo. Aqui aplicado a nosotros mismos y a lo largo del tiempo.
+It is the same principle as PRINT_ERRATA.md: we do not ask to be believed, we
+show how to check. Applied here to ourselves, and over time.
 
-Lo que NO prueba
-----------------
-Que el texto sea fiel al impreso. Eso lo demuestra el cotejo contra los
-escaneos, no un hash. El manifiesto solo congela el resultado con fecha, para
-que despues no se pueda discutir que el corpus haya cambiado sin decirlo.
+What it does NOT prove
+----------------------
+That the text is faithful to the printed page. That is what the collation
+against the scans demonstrates, not a hash. The manifest only freezes the
+result with a date, so that it cannot later be disputed whether the corpus
+changed without saying so.
 
-Determinismo
-------------
-Mismo corpus = mismo `root`, en cualquier maquina. Por eso: rutas relativas con
-`/` siempre, orden por bytes de la ruta, y el `root` se calcula sobre las lineas
-del manifiesto, no sobre metadatos que cambian (fechas, nombres de maquina).
+Determinism
+-----------
+Same corpus = same `root`, on any machine. Hence: relative paths always with
+`/`, ordering by the bytes of the path, and the `root` computed over the lines
+of the manifest, not over metadata that varies (dates, machine names).
 
-Uso
----
-    python3 scripts/hash_manifest.py                 # escribe MANIFEST.sha256
-    python3 scripts/hash_manifest.py --check         # verifica el existente
-    python3 scripts/hash_manifest.py --incluir-escaneos  # añade los PDF de scan_vedabase
+Usage
+-----
+    python3 scripts/hash_manifest.py                # writes MANIFEST.sha256
+    python3 scripts/hash_manifest.py --check        # verifies the existing one
+    python3 scripts/hash_manifest.py --with-scans   # adds the PDFs from scan_vedabase
 """
 import argparse
 import hashlib
@@ -45,7 +45,7 @@ from datetime import datetime, timezone
 AQUI = os.path.dirname(os.path.abspath(__file__))
 RAIZ = os.path.dirname(AQUI)
 SALIDA = os.path.join(RAIZ, "MANIFEST.sha256")
-ESCANEOS = os.path.expanduser("~/git_projects/scan_vedabase")
+SCANS = os.path.expanduser("~/git_projects/scan_vedabase")
 
 # Lo que entra en el manifiesto. El .git queda fuera a proposito: es historia
 # mutable (un rebase la cambia) y no es el objeto que se certifica.
@@ -87,7 +87,7 @@ def commit_actual():
         return "(sin git)"
 
 
-def construir(incluir_escaneos=False):
+def build(with_scans=False):
     lineas = []
     total_bytes = 0
 
@@ -95,9 +95,9 @@ def construir(incluir_escaneos=False):
         lineas.append(f"{sha256(completa)}  corpus/{rel}")
         total_bytes += os.path.getsize(completa)
 
-    if incluir_escaneos and os.path.isdir(ESCANEOS):
+    if with_scans and os.path.isdir(SCANS):
         for sub in ("originals", "improved"):
-            base = os.path.join(ESCANEOS, sub)
+            base = os.path.join(SCANS, sub)
             if not os.path.isdir(base):
                 continue
             for rel, completa in recorrer(base, (".pdf",)):
@@ -146,39 +146,39 @@ def leer_root_guardado():
 
 
 def main():
-    ap = argparse.ArgumentParser(description="Manifiesto de hashes del corpus.")
+    ap = argparse.ArgumentParser(description="Hash manifest of the corpus.")
     ap.add_argument("--check", action="store_true",
-                    help="recalcular y comparar con el manifiesto guardado")
-    ap.add_argument("--incluir-escaneos", action="store_true",
-                    help="añadir los PDF de scan_vedabase (originals + improved)")
+                    help="recompute and compare against the stored manifest")
+    ap.add_argument("--with-scans", action="store_true",
+                    help="add the PDFs from scan_vedabase (originals + improved)")
     args = ap.parse_args()
 
-    lineas, cuerpo, root, total = construir(args.incluir_escaneos)
+    lineas, cuerpo, root, total = build(args.with_scans)
 
     if args.check:
         guardado, cuerpo_guardado = leer_root_guardado()
         if guardado is None:
-            print("No hay MANIFEST.sha256 que comprobar.")
+            print("There is no MANIFEST.sha256 to check.")
             return 1
         recomputado = hashlib.sha256(cuerpo_guardado.encode("utf-8")).hexdigest()
-        print(f"root guardado en la cabecera : {guardado}")
-        print(f"root recalculado del cuerpo  : {recomputado}")
-        print(f"root del corpus en disco     : {root}")
+        print(f"root stored in the header    : {guardado}")
+        print(f"root recomputed from body    : {recomputado}")
+        print(f"root of the corpus on disk   : {root}")
         if guardado != recomputado:
-            print("\nFALLO: la cabecera no cuadra con el cuerpo del manifiesto.")
+            print("\nFAIL: the header does not match the body of the manifest.")
             return 1
         if root != guardado:
-            print(f"\nEl corpus ha cambiado desde el ultimo manifiesto "
-                  f"({len(lineas)} ficheros ahora).")
-            print("Si el cambio es intencionado, regenera el manifiesto y ancla el root nuevo.")
+            print(f"\nThe corpus has changed since the last manifest "
+                  f"({len(lineas)} files now).")
+            print("If the change is intended, regenerate the manifest and anchor the new root.")
             return 1
-        print(f"\nOK: {len(lineas)} ficheros, sin cambios respecto al manifiesto.")
+        print(f"\nOK: {len(lineas)} files, unchanged against the manifest.")
         return 0
 
     escribir(lineas, cuerpo, root, total)
-    print(f"MANIFEST.sha256 escrito: {len(lineas)} ficheros, {total/1e6:.1f} MB")
+    print(f"MANIFEST.sha256 written: {len(lineas)} files, {total/1e6:.1f} MB")
     print(f"root: {root}")
-    print("\nAncla ese root en Arweave y apunta el txid en ANCLAS.md.")
+    print("\nAnchor that root on Arweave and record the txid in PROVENANCE.md.")
     return 0
 
 

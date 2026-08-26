@@ -1,34 +1,34 @@
 #!/usr/bin/env python3
-"""Reune el archivo permanente: texto, escaneos, pruebas y herramientas.
+"""Assemble the permanent archive: text, scans, evidence and tools.
 
-Por que existe
---------------
-El trabajo vive repartido en tres sitios: el texto en este repo, los escaneos y
-el OCR en `scan_vedabase`, y el registro de la auditoria en
-`astro_vedabase/scripts/scan_audit`. Separados estan bien para trabajar, porque
-cada uno cambia a su ritmo y los binarios no tienen sitio en git.
+Why this exists
+---------------
+The work lives in three places: the text in this repository, the scans and the
+OCR in `scan_vedabase`, and the audit ledger in
+`astro_vedabase/scripts/scan_audit`. Keeping them apart is right for working:
+each changes at its own pace, and binaries have no place in git.
 
-Pero el archivo permanente si tiene que ir junto. De poco sirve conservar el
-texto si se pierde la prueba de contra que se coteja, o conservar los escaneos
-sin el registro de que se decidio en cada discrepancia. Este script monta ese
-arbol unico, calcula un manifiesto sobre el conjunto entero y deja el paquete
-listo para subir.
+The permanent archive is the opposite case — it has to travel together. Keeping
+the text without the evidence it was checked against is worth little, and so is
+keeping the scans without the record of what was decided at each discrepancy.
+This script builds that single tree, computes a manifest over the whole set and
+leaves the package ready to upload.
 
-Que NO entra, y por que
+What stays out, and why
 -----------------------
-- entornos virtuales, `__pycache__`, `node_modules`: se reinstalan
-- `improved/`: se regenera de `originals/` con reocr_all.py
-- `reports/` y los lotes `out_surya*` intermedios: superados por el resultado final
-- cualquier cosa que se pueda reconstruir de lo que si entra
+- virtualenvs, `__pycache__`, `node_modules`: they get reinstalled
+- `improved/`: regenerated from `originals/` by reocr_all.py
+- `reports/` and the intermediate `out_surya*` batches: superseded by the final result
+- anything reconstructible from what does go in
 
-Se usan enlaces duros, asi que montar el paquete no duplica los 3 GB en disco.
-Si el destino esta en otro volumen, se copia.
+Hard links are used, so assembling the package does not duplicate the 3 GB on
+disk. If the destination is on another volume, files are copied instead.
 
-Uso
----
-    python3 scripts/build_archive.py --dry-run        # que entraria, sin tocar nada
-    python3 scripts/build_archive.py                  # montarlo
-    python3 scripts/build_archive.py --con-tesseract  # añadir ocr/ (179 MB)
+Usage
+-----
+    python3 scripts/build_archive.py --dry-run         # what would go in, touching nothing
+    python3 scripts/build_archive.py                   # assemble it
+    python3 scripts/build_archive.py --with-tesseract  # add ocr/ (80 MB)
 """
 import argparse
 import hashlib
@@ -39,139 +39,138 @@ import sys
 CORPUS = os.path.dirname(os.path.dirname(os.path.abspath(__file__)))
 SCAN = os.path.expanduser("~/git_projects/scan_vedabase")
 AUDIT = os.path.expanduser("~/git_projects/astro_vedabase/scripts/scan_audit")
-DESTINO = os.path.expanduser("~/vedabase-archivo")
+DEST = os.path.expanduser("~/vedabase-archive")
 
-EXCLUIR_DIRS = {".git", "__pycache__", "node_modules", "surya-venv", ".venv", "venv"}
+EXCLUDE_DIRS = {".git", "__pycache__", "node_modules", "surya-venv", ".venv", "venv"}
 
-# (destino_en_el_paquete, origen, filtro)
-#   filtro: None = todo; tupla = solo esas extensiones; callable = predicado
-SECCIONES = [
-    ("corpus",            CORPUS,                          (".md", ".jsonl")),
-    ("escaneos",          os.path.join(SCAN, "originals"),  (".pdf",)),
-    ("ocr-surya",         os.path.join(SCAN, "surya_ocr"),  (".txt",)),
-    ("auditoria/registro", AUDIT,                           (".json",)),
-    ("auditoria/notas",   AUDIT,                            (".md",)),
-    ("auditoria/candidatos", os.path.join(AUDIT, "out_fine"), (".jsonl",)),
-    ("auditoria/capa-texto", os.path.join(AUDIT, "capa_texto"), (".json",)),
-    ("informes",          AUDIT,                            (".html",)),
-    ("herramientas/comparacion", SCAN,                      (".py",)),
-    ("herramientas/auditoria",   AUDIT,                     (".py", ".sh")),
-    ("patrones",          os.path.join(SCAN, "gold_standards"), None),
+# (path in the package, source, extension filter)
+# Section names match the table in PROVENANCE.md — keep them in step.
+SECTIONS = [
+    ("corpus",              CORPUS,                             (".md", ".jsonl")),
+    ("scans",               os.path.join(SCAN, "originals"),    (".pdf",)),
+    ("ocr-surya",           os.path.join(SCAN, "surya_ocr"),    (".txt",)),
+    ("audit/ledger",        AUDIT,                              (".json",)),
+    ("audit/notes",         AUDIT,                              (".md",)),
+    ("audit/candidates",    os.path.join(AUDIT, "out_fine"),    (".jsonl",)),
+    ("audit/text-layer",    os.path.join(AUDIT, "capa_texto"),  (".json",)),
+    ("reports",             AUDIT,                              (".html",)),
+    ("tools/comparison",    SCAN,                               (".py",)),
+    ("tools/audit",         AUDIT,                              (".py", ".sh")),
+    ("reference-standards", os.path.join(SCAN, "gold_standards"), None),
 ]
 
-OPCIONAL_TESSERACT = ("ocr-tesseract", os.path.join(AUDIT, "ocr"), (".txt",))
+OPTIONAL_TESSERACT = ("ocr-tesseract", os.path.join(AUDIT, "ocr"), (".txt",))
 
 
-def recorrer(base, extensiones, recursivo=True):
+def walk(base, extensions, recursive=True):
     if not os.path.isdir(base):
         return []
-    salida = []
+    found = []
     for dirpath, dirnames, filenames in os.walk(base):
-        dirnames[:] = [d for d in dirnames if d not in EXCLUIR_DIRS]
-        if not recursivo and dirpath != base:
+        dirnames[:] = [d for d in dirnames if d not in EXCLUDE_DIRS]
+        if not recursive and dirpath != base:
             dirnames[:] = []
             continue
         for n in filenames:
             if n.startswith("."):
                 continue
-            if extensiones and not n.endswith(extensiones):
+            if extensions and not n.endswith(extensions):
                 continue
-            completa = os.path.join(dirpath, n)
-            rel = os.path.relpath(completa, base).replace(os.sep, "/")
-            salida.append((rel, completa))
-    salida.sort(key=lambda p: p[0].encode("utf-8"))
-    return salida
+            full = os.path.join(dirpath, n)
+            rel = os.path.relpath(full, base).replace(os.sep, "/")
+            found.append((rel, full))
+    found.sort(key=lambda p: p[0].encode("utf-8"))
+    return found
 
 
-def enlazar(origen, destino):
-    os.makedirs(os.path.dirname(destino), exist_ok=True)
-    if os.path.exists(destino):
-        os.remove(destino)
+def link(source, target):
+    os.makedirs(os.path.dirname(target), exist_ok=True)
+    if os.path.exists(target):
+        os.remove(target)
     try:
-        os.link(origen, destino)          # sin duplicar en disco
+        os.link(source, target)           # no extra disk used
     except OSError:
-        shutil.copy2(origen, destino)     # otro volumen: copiar
+        shutil.copy2(source, target)      # different volume: copy
 
 
-def sha256(ruta, bloque=1 << 20):
+def sha256(path, block=1 << 20):
     h = hashlib.sha256()
-    with open(ruta, "rb") as f:
-        for t in iter(lambda: f.read(bloque), b""):
-            h.update(t)
+    with open(path, "rb") as f:
+        for chunk in iter(lambda: f.read(block), b""):
+            h.update(chunk)
     return h.hexdigest()
 
 
 def main():
-    ap = argparse.ArgumentParser(description="Monta el paquete de archivo permanente.")
-    ap.add_argument("--destino", default=DESTINO)
-    ap.add_argument("--dry-run", action="store_true", help="solo listar, no montar")
-    ap.add_argument("--con-tesseract", action="store_true",
-                    help="incluir ocr/ de tesseract (179 MB): la otra mitad del cotejo")
+    ap = argparse.ArgumentParser(description="Assemble the permanent archive package.")
+    ap.add_argument("--dest", default=DEST)
+    ap.add_argument("--dry-run", action="store_true", help="list only, assemble nothing")
+    ap.add_argument("--with-tesseract", action="store_true",
+                    help="include ocr/ from Tesseract (80 MB): the other half of the collation")
     args = ap.parse_args()
 
-    secciones = list(SECCIONES)
-    if args.con_tesseract:
-        secciones.insert(3, OPCIONAL_TESSERACT)
+    sections = list(SECTIONS)
+    if args.with_tesseract:
+        sections.insert(3, OPTIONAL_TESSERACT)
 
-    # Las secciones que apuntan a la raiz de AUDIT no deben recursar: ahi dentro
-    # hay 45.000 .txt y lotes intermedios que no queremos arrastrar por accidente.
-    no_recursivas = {AUDIT, SCAN, CORPUS}
+    # Sections pointing at the root of AUDIT or SCAN must not recurse: below them
+    # sit 45,000 .txt files and superseded batches we do not want dragged in.
+    non_recursive = {AUDIT, SCAN, CORPUS}
 
-    total_bytes, total_ficheros = 0, 0
-    resumen = []
+    total_bytes, total_files = 0, 0
+    summary = []
 
-    for nombre, base, filtro in secciones:
-        recursivo = base not in no_recursivas or base == CORPUS
-        ficheros = recorrer(base, filtro, recursivo=recursivo)
-        if not ficheros:
-            resumen.append((nombre, 0, 0, "(vacio o no existe)"))
+    for name, base, filt in sections:
+        recursive = base not in non_recursive or base == CORPUS
+        files = walk(base, filt, recursive=recursive)
+        if not files:
+            summary.append((name, 0, 0, "(empty or missing)"))
             continue
-        bytes_seccion = sum(os.path.getsize(o) for _, o in ficheros)
-        total_bytes += bytes_seccion
-        total_ficheros += len(ficheros)
-        resumen.append((nombre, len(ficheros), bytes_seccion, ""))
+        section_bytes = sum(os.path.getsize(s) for _, s in files)
+        total_bytes += section_bytes
+        total_files += len(files)
+        summary.append((name, len(files), section_bytes, ""))
         if args.dry_run:
             continue
-        for rel, origen in ficheros:
-            enlazar(origen, os.path.join(args.destino, nombre, rel))
+        for rel, source in files:
+            link(source, os.path.join(args.dest, name, rel))
 
-    print(f"{'seccion':<26} {'ficheros':>9} {'tamaño':>11}")
+    print(f"{'section':<26} {'files':>9} {'size':>11}")
     print("-" * 49)
-    for nombre, n, b, nota in resumen:
-        print(f"{nombre:<26} {n:>9} {b/1e6:>9.1f} MB  {nota}")
+    for name, n, b, note in summary:
+        print(f"{name:<26} {n:>9} {b/1e6:>9.1f} MB  {note}")
     print("-" * 49)
-    print(f"{'TOTAL':<26} {total_ficheros:>9} {total_bytes/1e6:>9.1f} MB")
+    print(f"{'TOTAL':<26} {total_files:>9} {total_bytes/1e6:>9.1f} MB")
 
     gib = total_bytes / (1 << 30)
-    print(f"\nArweave: ~{gib*21.06:.0f} $ por protocolo · ~{gib*32.56:.0f} $ con tarjeta (pago unico)")
+    print(f"\nArweave: ~${gib*21.06:.0f} at protocol rate · ~${gib*32.56:.0f} by card (one-time)")
 
     if args.dry_run:
-        print("\n(--dry-run: no se ha montado nada)")
+        print("\n(--dry-run: nothing was assembled)")
         return 0
 
-    # manifiesto sobre el paquete completo
-    print("\ncalculando el manifiesto del paquete...")
-    lineas = []
-    for dirpath, dirnames, filenames in os.walk(args.destino):
-        dirnames[:] = [d for d in dirnames if d not in EXCLUIR_DIRS]
+    print("\ncomputing the manifest for the whole package...")
+    entries = []
+    for dirpath, dirnames, filenames in os.walk(args.dest):
+        dirnames[:] = [d for d in dirnames if d not in EXCLUDE_DIRS]
         for n in sorted(filenames):
-            if n in ("MANIFEST.sha256",):
+            if n == "MANIFEST.sha256":
                 continue
-            completa = os.path.join(dirpath, n)
-            rel = os.path.relpath(completa, args.destino).replace(os.sep, "/")
-            lineas.append((rel, completa))
-    lineas.sort(key=lambda p: p[0].encode("utf-8"))
-    cuerpo = "".join(f"{sha256(c)}  {r}\n" for r, c in lineas)
-    root = hashlib.sha256(cuerpo.encode()).hexdigest()
+            full = os.path.join(dirpath, n)
+            rel = os.path.relpath(full, args.dest).replace(os.sep, "/")
+            entries.append((rel, full))
+    entries.sort(key=lambda p: p[0].encode("utf-8"))
+    body = "".join(f"{sha256(f)}  {r}\n" for r, f in entries)
+    root = hashlib.sha256(body.encode("utf-8")).hexdigest()
 
-    with open(os.path.join(args.destino, "MANIFEST.sha256"), "w", encoding="utf-8") as f:
-        f.write(f"# Manifiesto del archivo permanente — {len(lineas)} ficheros\n")
+    with open(os.path.join(args.dest, "MANIFEST.sha256"), "w", encoding="utf-8") as f:
+        f.write(f"# Manifest of the permanent archive — {len(entries)} files\n")
         f.write(f"# root: {root}\n#\n")
-        f.write(cuerpo)
+        f.write(body)
 
-    print(f"paquete en {args.destino}")
-    print(f"root del paquete: {root}")
-    print("\nSiguiente paso: subirlo, y apuntar los identificadores en PROCEDENCIA.md")
+    print(f"package at {args.dest}")
+    print(f"package root: {root}")
+    print("\nNext: upload it, and record the transaction ids in PROVENANCE.md")
     return 0
 
 
