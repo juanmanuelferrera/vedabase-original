@@ -43,6 +43,12 @@ DEST = os.path.expanduser("~/vedabase-archive")
 
 EXCLUDE_DIRS = {".git", "__pycache__", "node_modules", "surya-venv", ".venv", "venv"}
 
+# ANCHORS.md carries the root of the manifest that would otherwise hash it, so
+# it stays out of the package and out of the manifest, and is uploaded on its
+# own once the transaction ids are known. See hash_manifest.py for the full
+# reasoning; in short, a file cannot state the hash of a set it belongs to.
+EXCLUDE_FILES = {"ANCHORS.md"}
+
 # (path in the package, source, extension filter)
 # Section names match the table in PROVENANCE.md — keep them in step.
 SECTIONS = [
@@ -93,7 +99,7 @@ def walk(base, extensions, recursive=True):
             dirnames[:] = []
             continue
         for n in filenames:
-            if n.startswith("."):
+            if n.startswith(".") or n in EXCLUDE_FILES:
                 continue
             if extensions and not n.endswith(extensions):
                 continue
@@ -130,7 +136,7 @@ def escribe_manifiesto(dest):
     what is being certified.
     """
     print("\ncomputing the manifest for the whole package...")
-    volatiles = {"MANIFEST.sha256", "UPLOAD-STATE.json", "upload.log"}
+    volatiles = {"MANIFEST.sha256", "UPLOAD-STATE.json", "upload.log"} | EXCLUDE_FILES
     entries = []
     for dirpath, dirnames, filenames in os.walk(dest):
         dirnames[:] = [d for d in dirnames if d not in EXCLUDE_DIRS]

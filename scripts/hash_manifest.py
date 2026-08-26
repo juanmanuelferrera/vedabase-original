@@ -52,6 +52,16 @@ SCANS = os.path.expanduser("~/git_projects/scan_vedabase")
 EXTENSIONES = (".md", ".jsonl")
 EXCLUIR_DIRS = {".git", "__pycache__", "node_modules", ".deploy-state"}
 
+# ANCHORS.md no puede entrar: contiene el `root` de este mismo manifiesto, asi
+# que hashearlo haria que escribir el resultado cambiase el resultado. La
+# circularidad no es teorica — el 26-ago-2026 anotar el root del paquete dentro
+# de PROVENANCE.md dejo el manifiesto caducado en el momento de guardarlo.
+#
+# De ahi la regla: los valores que dependen del manifiesto viven en ANCHORS.md
+# y solo ahi. PROVENANCE.md explica el metodo y no lleva ninguna cifra que
+# cambie, de modo que si puede formar parte de lo que se certifica.
+EXCLUIR_ARCHIVOS = {"ANCHORS.md"}
+
 
 def sha256(ruta, bloque=1 << 20):
     h = hashlib.sha256()
@@ -67,7 +77,7 @@ def recorrer(base, extensiones=None):
     for dirpath, dirnames, filenames in os.walk(base):
         dirnames[:] = [d for d in dirnames if d not in EXCLUIR_DIRS]
         for n in filenames:
-            if n.startswith("."):
+            if n.startswith(".") or n in EXCLUIR_ARCHIVOS:
                 continue
             if extensiones and not n.endswith(extensiones):
                 continue
@@ -115,7 +125,9 @@ def escribir(lineas, cuerpo, root, total_bytes):
         "#",
         "# El `root` de abajo es el SHA-256 de las lineas de este manifiesto,",
         "# excluida esta cabecera. Se publica en Arweave; su identificador de",
-        "# transaccion queda en ANCLAS.md.",
+        "# transaccion queda en ANCHORS.md, que queda fuera de este\n"
+        "# manifiesto a proposito: no puede declarar el hash de un conjunto\n"
+        "# al que pertenece.",
         "#",
         "# Comprobarlo por tu cuenta:",
         "#     python3 scripts/hash_manifest.py --check",
@@ -178,7 +190,7 @@ def main():
     escribir(lineas, cuerpo, root, total)
     print(f"MANIFEST.sha256 written: {len(lineas)} files, {total/1e6:.1f} MB")
     print(f"root: {root}")
-    print("\nAnchor that root on Arweave and record the txid in PROVENANCE.md.")
+    print("\nAnchor that root on Arweave and record the txid in ANCHORS.md.")
     return 0
 
 

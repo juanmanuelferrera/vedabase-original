@@ -2,19 +2,21 @@
 #
 # El `root` de abajo es el SHA-256 de las lineas de este manifiesto,
 # excluida esta cabecera. Se publica en Arweave; su identificador de
-# transaccion queda en ANCLAS.md.
+# transaccion queda en ANCHORS.md, que queda fuera de este
+# manifiesto a proposito: no puede declarar el hash de un conjunto
+# al que pertenece.
 #
 # Comprobarlo por tu cuenta:
 #     python3 scripts/hash_manifest.py --check
 #
-# fecha:    2026-08-26 03:08 UTC
-# commit:   03ad8f08da064794d72894634fde6bc9773a203b
+# fecha:    2026-08-26 08:42 UTC
+# commit:   568f284d3e74c725506f2bb1708399c05624e993
 # ficheros: 102836
-# bytes:    766938312
-# root:     bdfa2d124b1a2cb411dbefd97fbce23d3120ad659d5d6b951b0f8763f58873f5
+# bytes:    766943190
+# root:     2ec622af2c5933cb8ea12856ce0ca6476931107456bab338d974d2e94cd497f7
 #
 efbb9c92ced5131364d184269769070002b90c8128ca19e649df418752c33ea0  corpus/PRINT_ERRATA.md
-529ce87a192cd2afc5c3c5d3b960351d3a8f7ecf09e95e054db82f13fe404f42  corpus/PROVENANCE.md
+08c00943b89b6e30c4f5ab5e7ba0620815b445227409db297be054efc4bcfa46  corpus/PROVENANCE.md
 142a0ffe876befe14731a8801da2ba96cf998443c5af955a034636352c6791d6  corpus/README.md
 de26046dba55941f310bd45e1d08b8e3a63c785a4350b2646d0fcfd19c2ca2d2  corpus/beyond-birth-and-death/chapter-1.md
 165d9e5f073336b05175e1b00808c8331f59f572d6b7c206b55a6c8a5c376a25  corpus/beyond-birth-and-death/chapter-2.md
@@ -4806,7 +4808,7 @@ a191ef9370c05498be7f04a785fc1dff8387c4a1bf763fe3c183d5dc772b7ff6  corpus/science
 80f054479930b76540c8d15a575ed61cdf4d648bf10f4671b11c33f6f0859580  corpus/science-of-self-realization/foreword.md
 8e77776593c50695e44db559894377a31bcb9693547db72c00fda1cf927035cc  corpus/science-of-self-realization/introduction.md
 c2de7650dd5f4a2e77aece3b73ac60dacf273bbf6f1219f41110d74f15257528  corpus/science-of-self-realization/title.md
-fdc5e4dcf185f4d223401c357fb6224b55cc21a89f63295a6286285bd074080a  corpus/scripts/README.md
+49d3afbe38e181a922e35247d3ac481e9a08debe527383892ca56ebc6108f14d  corpus/scripts/README.md
 8bfb86d4145650be9a368365424f0e7dd182652d317337ba838b34dbff0f302b  corpus/scripts/pb_diffs/EDITION_MAP.md
 e3954680578bc12b0416cdae6f72b8cf4d893744a05fba6b590b9fe0a9c20e02  corpus/scripts/rtf_diffs/FOLIO_ADDED_REFS.md
 0dc1f9737ce7744fc295ed0d13bcb75a7efc3cd5f604ae26a0c76a0e93923f08  corpus/scripts/rtf_diffs/SB_DEVIATIONS.md

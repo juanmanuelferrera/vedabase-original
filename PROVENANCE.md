@@ -13,17 +13,17 @@ withdrawn; the transaction ids go in the table below as they are published.
 
 | Piece | What it is | Where it lives today | Size | Arweave |
 |---|---|---|---|---|
-| **corpus** | The text of the first editions, 102,729 files | this repository | 495 MB | `ar://<pending>` |
-| **corrections** | The ledger of corrections applied to the text | this repository, `*.jsonl` | 272 MB | `ar://<pending>` |
-| **scans** | 70 PDFs of the printed books, including the complete Śrīmad-Bhāgavatam | `scan_vedabase/originals/` | 2,078 MB | `ar://<pending>` |
-| **ocr-packed** | Every page as read by both engines, one `.tar` per book | `surya_ocr/`, `.../scan_audit/ocr/` | 193 MB | `ar://<pending>` |
-| **audit** | The ledger of discrepancies: open, arbitrated, applied | `astro_vedabase/scripts/scan_audit/*.json` | 68 MB | `ar://<pending>` |
-| **reports** | Each difference beside the image of the scanned page | `.../scan_audit/*.html` | 126 MB | `ar://<pending>` |
-| **tools** | The code that did the comparison and applied the fixes | both repos, `*.py` | 1.1 MB | `ar://<pending>` |
-| **manifest** | SHA-256 of all 103,305 files plus a root over the whole set | `MANIFEST.sha256` | 15 MB | `ar://<pending>` |
+| **corpus** | The text of the first editions, 102,729 files | this repository | 495 MB | see [ANCHORS.md](ANCHORS.md) |
+| **corrections** | The ledger of corrections applied to the text | this repository, `*.jsonl` | 272 MB | see [ANCHORS.md](ANCHORS.md) |
+| **scans** | 70 PDFs of the printed books, including the complete Śrīmad-Bhāgavatam | `scan_vedabase/originals/` | 2,078 MB | see [ANCHORS.md](ANCHORS.md) |
+| **ocr-packed** | Every page as read by both engines, one `.tar` per book | `surya_ocr/`, `.../scan_audit/ocr/` | 193 MB | see [ANCHORS.md](ANCHORS.md) |
+| **audit** | The ledger of discrepancies: open, arbitrated, applied | `astro_vedabase/scripts/scan_audit/*.json` | 68 MB | see [ANCHORS.md](ANCHORS.md) |
+| **reports** | Each difference beside the image of the scanned page | `.../scan_audit/*.html` | 126 MB | see [ANCHORS.md](ANCHORS.md) |
+| **tools** | The code that did the comparison and applied the fixes | both repos, `*.py` | 1.1 MB | see [ANCHORS.md](ANCHORS.md) |
+| **manifest** | SHA-256 of every file in the package plus a root over the whole set | `MANIFEST.sha256` | 15 MB | see [ANCHORS.md](ANCHORS.md) |
 
-Package root, 26 Aug 2026: `9aeb1cb5d6d3afbc5802601d3fced469a9c7eef6b299f077ff741b1fad76d718`
-Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
+Reproduce the package root with `python3 scripts/build_archive.py --manifest-only`
+and compare it against ANCHORS.md.
 
 To assemble the complete package:
 
@@ -53,14 +53,19 @@ An anchor on a single date says nothing about what came after. What counts is
 the succession. Every time the corpus changes, the manifest is regenerated and
 the new `root` is anchored.
 
-| Date | Corpus root | Transaction |
-|---|---|---|
-| *(pending)* | `1d26996b1d851271290c6640496d1ea7547b4172450093f7d69635c2b4816f29` | `ar://<pending>` |
+**The roots and transaction ids live in [ANCHORS.md](ANCHORS.md), not here.**
 
-*Test upload, 26 Aug 2026: an earlier draft of this file, used to verify the
-pipeline end to end — `U9uIEx_mc2e1zVFPXduR6whbtdqIexzk73HMV6JVV8k`. Retrieved
-from a public gateway and confirmed byte-identical to the local original. Not an
-anchor; kept here as the record of the first successful upload.*
+That separation is not tidiness, it is arithmetic. This file is part of the
+corpus the manifest covers, so if it stated the manifest's own `root`, writing
+the root down would change the root — the document would be false the instant
+it was saved. It happened: on 26 Aug 2026 the package root was noted here, and
+the manifest was stale before the file was closed.
+
+So the rule is: every number that depends on the manifest lives in ANCHORS.md,
+and ANCHORS.md is excluded from both manifests and from the package. It is
+uploaded on its own, last, once the transaction ids are known. This file carries
+no figure that changes, which is precisely what lets it be certified along with
+the text it describes.
 
 ## Provenance of the scans
 
