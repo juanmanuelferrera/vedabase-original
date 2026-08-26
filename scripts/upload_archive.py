@@ -132,7 +132,20 @@ def ensure_folder(st, rel, name, parent_id, dry):
     return fid
 
 
-def upload_batch(st, paths, folder_id, ctype, dry):
+def ocupacion(st, rel):
+    """How many files the state says are already in this drive folder.
+
+    The CLI enumerates the destination folder on every upload to resolve name
+    conflicts — every one of --replace, --skip, --upsert and --ask does it, so
+    there is no flag that avoids the cost. It grows with what the folder already
+    holds, and it is the reason a folder must go up in a single invocation.
+    """
+    p = rel + "/"
+    return sum(1 for k in st["uploaded"]
+               if k.startswith(p) and "/" not in k[len(p):])
+
+
+def upload_batch(st, paths, folder_id, ctype, dry, timeout=600):
     if dry:
         for p in paths:
             st["uploaded"][relkey(p)] = {"tx": "<dry>", "at": now()}
@@ -154,7 +167,7 @@ def upload_batch(st, paths, folder_id, ctype, dry):
     # a good trade for not losing a day of work.
     espera = 30
     for intento in range(1, 5):
-        data, err = ardrive(args)
+        data, err = ardrive(args, timeout=timeout)
         if not err:
             break
         if intento == 4:
@@ -219,12 +232,22 @@ def lotes(paths, max_files, max_bytes):
 
 def sube_carpeta(st, sec, pendientes, parent, rel, args, hechos, t0):
     """Upload one folder's pending files. Returns an error string, or None."""
+    # A fixed deadline does not fit a cost that depends on the destination.
+    # Measured 26 Aug 2026: one file into an empty folder takes 4.4 s; one file
+    # into a folder already holding 200 takes over five minutes, because the CLI
+    # enumerates the destination to resolve name conflicts. A flat 600 s killed
+    # the run twice on the five most populated folders of the corpus — the
+    # lectures, at 409 to 703 files each — while leaving small folders with a
+    # deadline far longer than they need.
+    dentro = ocupacion(st, rel)
     for ctype, grupo in por_tipo(sec, pendientes).items():
         for lote in lotes(grupo, args.batch, args.max_bytes):
+            tmo = min(3600, 300 + 4 * (dentro + len(lote)))
             try:
-                upload_batch(st, lote, parent, ctype, args.dry_run)
+                upload_batch(st, lote, parent, ctype, args.dry_run, timeout=tmo)
             except RuntimeError as e:
                 return str(e)
+            dentro += len(lote)
             n = len(st["uploaded"])
             trans = time.time() - t0
             vel = (n - hechos) / trans if trans else 0
@@ -253,8 +276,9 @@ def main():
     ap = argparse.ArgumentParser(description="Resumable upload of the archive.")
     ap.add_argument("--dry-run", action="store_true")
     ap.add_argument("--only", help="upload just this section")
-    ap.add_argument("--batch", type=int, default=100,
-                    help="max files per CLI invocation (default 100)")
+    ap.add_argument("--batch", type=int, default=1000,
+                    help="max files per CLI invocation (default 1000, above the "
+                         "largest folder in the package so each goes up in one call)")
     ap.add_argument("--max-bytes", type=int, default=200_000_000,
                     help="max bytes per CLI invocation (default 200 MB). Caps the "
                          "work lost to a failure and keeps batches inside the timeout")
