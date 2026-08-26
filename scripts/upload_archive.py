@@ -165,15 +165,20 @@ def upload_batch(st, paths, folder_id, ctype, dry, timeout=600):
     # A timed-out upload may in fact have landed, so a retry can pay for the
     # same batch twice. At roughly 0.001 credits per hundred small files that is
     # a good trade for not losing a day of work.
+    # A dropped connection is worth retrying; an exhausted deadline is not. The
+    # deadline already scales with the destination, so if it ran out, repeating
+    # the same call runs it out again — four attempts at a 43-minute deadline
+    # would be nearly three hours of an overnight run spent achieving nothing.
     espera = 30
     for intento in range(1, 5):
         data, err = ardrive(args, timeout=timeout)
         if not err:
             break
-        if intento == 4:
-            raise RuntimeError(f"upload: {err} (tras 4 intentos)")
-        print(f"    reintento {intento}/3 tras '{err}', esperando {espera}s",
-              flush=True)
+        limite = 2 if err == "timeout" else 4
+        if intento >= limite:
+            raise RuntimeError(f"upload: {err} (tras {intento} intentos)")
+        print(f"    reintento {intento}/{limite - 1} tras '{err}', "
+              f"esperando {espera}s", flush=True)
         time.sleep(espera)
         espera *= 2
     txs = [c.get("dataTxId") for c in data.get("created", []) if c.get("dataTxId")]
