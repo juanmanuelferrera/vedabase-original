@@ -65,8 +65,12 @@ CONTENT_TYPES = {
 # pads every member to a 512 byte boundary and the median page is 1,874 bytes —
 # so this buys time, not money. OCR-CONTENTS.sha256 travels with them so a
 # single page can be checked without trusting the container.
+# Order matters when a run gets interrupted. Everything cheap in time goes
+# first, so an overnight failure leaves as much finished as possible: the 43
+# containers of ocr-packed carry 193 MB and take seconds, while corpus is
+# 102,729 files and sixteen hours. Corpus goes last for that reason alone.
 SECTION_ORDER = ["scans", "reports", "corrections", "audit", "tools",
-                 "reference-standards", "corpus", "ocr-packed"]
+                 "reference-standards", "ocr-packed", "corpus"]
 
 # Files at the root of the package, uploaded to the root of the drive. Easy to
 # forget, because the walk below only ever descends into sections — MANIFEST
