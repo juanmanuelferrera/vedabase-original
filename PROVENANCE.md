@@ -107,3 +107,23 @@ separately with its own:
 This is why `corpus` and `corrections` are separate sections even though both
 come from this repository: they are different kinds of thing and they cannot
 share a content type.
+
+Note the syntax: `text/markdown;charset=utf-8`, with **no space** after the
+semicolon. With a space the shell splits the argument and the CLI keeps only the
+first half, so the charset never reaches the transaction and the file is served
+without it. Verified on 26 Aug 2026 — the first attempt, written with a space,
+recorded a bare `text/markdown` and rendered the Sanskrit as mojibake.
+
+## A note on the markup
+
+Ślokas in Devanāgarī and their IAST transliteration are `>` blockquotes, and
+each line of the verse ends with a **backslash**. That backslash is Markdown's
+hard line break: without it the pādas would be joined into one running line.
+
+It is markup, not text. Anyone extracting plain text from these files should
+strip a trailing `\` from each line — it is not part of the verse.
+
+The backslash was chosen over Markdown's other hard-break form, two trailing
+spaces, because trailing whitespace is invisible and almost every editor strips
+it on save. A verse break is information, not formatting, so it is written in a
+way that is visible and hard to destroy by accident.
