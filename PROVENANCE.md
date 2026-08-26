@@ -16,12 +16,14 @@ withdrawn; the transaction ids go in the table below as they are published.
 | **corpus** | The text of the first editions, 102,729 files | this repository | 495 MB | `ar://<pending>` |
 | **corrections** | The ledger of corrections applied to the text | this repository, `*.jsonl` | 272 MB | `ar://<pending>` |
 | **scans** | 70 PDFs of the printed books, including the complete Śrīmad-Bhāgavatam | `scan_vedabase/originals/` | 2,078 MB | `ar://<pending>` |
-| **ocr-surya** | Every page as read by the Surya engine | `scan_vedabase/surya_ocr/` | 72 MB | `ar://<pending>` |
-| **ocr-tesseract** | Every page as read by Tesseract — the other half of the collation | `.../scan_audit/ocr/` | 80 MB | `ar://<pending>` |
+| **ocr-packed** | Every page as read by both engines, one `.tar` per book | `surya_ocr/`, `.../scan_audit/ocr/` | 193 MB | `ar://<pending>` |
 | **audit** | The ledger of discrepancies: open, arbitrated, applied | `astro_vedabase/scripts/scan_audit/*.json` | 68 MB | `ar://<pending>` |
 | **reports** | Each difference beside the image of the scanned page | `.../scan_audit/*.html` | 126 MB | `ar://<pending>` |
 | **tools** | The code that did the comparison and applied the fixes | both repos, `*.py` | 1.1 MB | `ar://<pending>` |
-| **manifest** | SHA-256 of every file plus a root hash for the whole set | `MANIFEST.sha256` | 15 MB | `ar://<pending>` |
+| **manifest** | SHA-256 of all 103,305 files plus a root over the whole set | `MANIFEST.sha256` | 15 MB | `ar://<pending>` |
+
+Package root, 26 Aug 2026: `9aeb1cb5d6d3afbc5802601d3fced469a9c7eef6b299f077ff741b1fad76d718`
+Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
 
 To assemble the complete package:
 
@@ -99,7 +101,8 @@ separately with its own:
 | corpus, audit/notes | `text/markdown; charset=utf-8` |
 | corrections, audit/candidates | `application/x-ndjson; charset=utf-8` |
 | audit/ledger, audit/text-layer | `application/json; charset=utf-8` |
-| ocr-surya, ocr-tesseract | `text/plain; charset=utf-8` |
+| ocr-packed, `*.tar` | `application/x-tar` |
+| ocr-packed, `OCR-CONTENTS.sha256` | `text/plain; charset=utf-8` |
 | reports | `text/html; charset=utf-8` |
 | tools | `text/x-python; charset=utf-8` |
 | scans | `application/pdf` |
@@ -113,6 +116,58 @@ semicolon. With a space the shell splits the argument and the CLI keeps only the
 first half, so the charset never reaches the transaction and the file is served
 without it. Verified on 26 Aug 2026 — the first attempt, written with a space,
 recorded a bare `text/markdown` and rendered the Sanskrit as mojibake.
+
+## A note on the OCR containers
+
+Everything in this archive is uploaded one file at a time, addressable on its
+own from any gateway — except the OCR, which travels as 42 `.tar` containers,
+one per book per engine.
+
+The reason is arithmetic. The OCR output is 69,799 text files, one per page per
+engine, with a median size of 1,874 bytes. Measured against the Turbo price API
+on 26 Aug 2026, an upload costs **9,174,313 winc per file plus 11,184.90 winc
+per byte** — a formula that reproduces the API's own quotes to 0.000% across
+sizes from 500 bytes to 1 MB. The per-file part is small in money, but the CLI
+spends 0.58 s on each file, so those pages alone were thirteen hours of upload.
+
+Packing them costs slightly *more* in credits, not less: tar pads every member
+to a 512-byte boundary, so 129 MB of pages become 193 MB of containers, and the
+0.64 credits saved on per-file overhead are given back in padding and then some.
+What it buys is time — thirteen hours become seconds. Nothing else in the
+archive is packed, because being readable one file at a time is most of what the
+corpus, the scans and the reports are for.
+
+`tar` was chosen over `zip` or `gzip` deliberately. It is uncompressed and its
+format is specified in POSIX, so a flipped bit damages one member and the rest
+still extract; compression would couple every byte to every other and bet on a
+decompressor still existing in fifty years. The variant is `ustar`, the most
+conservative one that fits these paths — the longest is 112 characters, split
+across the 155-byte prefix and the 100-byte name field.
+
+The containers are deterministic: members sorted by path, uid and gid zeroed,
+owner names emptied. The same input produces the same bytes on any machine.
+
+**A container is only worth using if you need not trust it.** So
+`OCR-CONTENTS.sha256` travels beside the tars and lists the SHA-256 of each
+container followed by the SHA-256 of all 69,799 members, as `container!path`.
+To check one page without extracting the rest:
+
+    P=isopanisad/Sri-Isopanisad-scans-of-original-1969-edition/p0001.surya.txt
+    tar -xOf ocr-surya-isopanisad.tar "$P" | shasum -a 256
+    grep "ocr-surya-isopanisad.tar!$P" OCR-CONTENTS.sha256
+
+Inside a container the path keeps the edition directory the scan came from, so
+the page carries the printing it was read from, not just a page number.
+
+### One duplicate, removed
+
+The Surya run left the Bhāgavatam laid out twice: as loose volume directories
+`SB1.1 … SB10.3` at the top of `surya_ocr/`, and again inside
+`srimad-bhagavatam/`, which holds those same thirty. Verified on 26 Aug 2026:
+the 11,474 relative paths match exactly and all 11,474 SHA-256 match. Only the
+merged copy is archived — it is how every other book in the section is named.
+The loose copies were dropped before packing, which is why `ocr-surya` holds
+24,035 files here and 35,509 in the working directory it came from.
 
 ## A note on the markup
 

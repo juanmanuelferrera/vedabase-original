@@ -45,21 +45,34 @@ WALLET = os.path.expanduser("~/.arweave/wallet.json")
 ROOT_FOLDER = "a01bc670-61a5-46a4-87b8-5b4439b45750"
 
 # From the table in PROVENANCE.md. A section not listed here falls back to the
-# CLI's own guess from the file extension.
+# CLI's own guess from the file extension. A dict value maps extension to type,
+# for a section that holds more than one kind of thing.
 CONTENT_TYPES = {
     "corpus":            "text/markdown;charset=utf-8",
     "corrections":       "application/x-ndjson;charset=utf-8",
     "scans":             "application/pdf",
-    "ocr-surya":         "text/plain;charset=utf-8",
-    "ocr-tesseract":     "text/plain;charset=utf-8",
+    "ocr-packed":        {".tar":    "application/x-tar",
+                          ".sha256": "text/plain;charset=utf-8"},
     "audit":             "application/json;charset=utf-8",
     "reports":           "text/html;charset=utf-8",
     "tools":             "text/x-python;charset=utf-8",
     "reference-standards": None,
 }
 
+# The OCR sections are uploaded as ocr-packed: one tar per book, built and
+# verified by pack_ocr.py. 69,799 page files became 42 containers, which is
+# thirteen hours of CLI time saved. It costs 0.08 credits more, not less — tar
+# pads every member to a 512 byte boundary and the median page is 1,874 bytes —
+# so this buys time, not money. OCR-CONTENTS.sha256 travels with them so a
+# single page can be checked without trusting the container.
 SECTION_ORDER = ["scans", "reports", "corrections", "audit", "tools",
-                 "reference-standards", "corpus", "ocr-surya", "ocr-tesseract"]
+                 "reference-standards", "corpus", "ocr-packed"]
+
+# Files at the root of the package, uploaded to the root of the drive. Easy to
+# forget, because the walk below only ever descends into sections — MANIFEST
+# was left out of the first run for exactly that reason, and it is the one file
+# that makes every other file checkable.
+ROOT_FILES = {"MANIFEST.sha256": "text/plain;charset=utf-8"}
 
 
 def load_state():
@@ -137,6 +150,27 @@ def relkey(path):
     return os.path.relpath(path, ARCHIVE).replace(os.sep, "/")
 
 
+def tipo(seccion, ruta):
+    """Content type for one file: per section, or per extension within it."""
+    c = CONTENT_TYPES.get(seccion)
+    if isinstance(c, dict):
+        return c.get(os.path.splitext(ruta)[1])
+    return c
+
+
+def por_tipo(seccion, paths):
+    """Group a folder's files by content type, preserving order.
+
+    A batch goes to the CLI with a single --content-type, so files that need
+    different ones cannot travel together. On Arweave a wrong content type
+    cannot be corrected afterwards, only re-uploaded and paid for again.
+    """
+    grupos = {}
+    for p in paths:
+        grupos.setdefault(tipo(seccion, p), []).append(p)
+    return grupos
+
+
 def lotes(paths, max_files, max_bytes):
     """Batches capped by BOTH file count and total bytes.
 
@@ -160,6 +194,38 @@ def lotes(paths, max_files, max_bytes):
         yield lote
 
 
+def sube_carpeta(st, sec, pendientes, parent, rel, args, hechos, t0):
+    """Upload one folder's pending files. Returns an error string, or None."""
+    for ctype, grupo in por_tipo(sec, pendientes).items():
+        for lote in lotes(grupo, args.batch, args.max_bytes):
+            try:
+                upload_batch(st, lote, parent, ctype, args.dry_run)
+            except RuntimeError as e:
+                return str(e)
+            n = len(st["uploaded"])
+            trans = time.time() - t0
+            vel = (n - hechos) / trans if trans else 0
+            print(f"  {rel[:44]:44} {n:>7} hechos  {vel:5.1f} fich/s", flush=True)
+    return None
+
+
+def sube_raiz(st, args):
+    """Upload the package's root-level files. Returns (files, bytes) pending."""
+    n = b = 0
+    for nombre, ctype in sorted(ROOT_FILES.items()):
+        ruta = os.path.join(ARCHIVE, nombre)
+        if not os.path.isfile(ruta) or nombre in st["uploaded"]:
+            continue
+        print(f"\n=== raiz: {nombre}  ({ctype})")
+        n += 1
+        b += os.path.getsize(ruta)
+        if args.dry_run:
+            continue
+        upload_batch(st, [ruta], ROOT_FOLDER, ctype, args.dry_run)
+        print(f"  subido  tx {st['uploaded'][nombre]['tx']}")
+    return n, b
+
+
 def main():
     ap = argparse.ArgumentParser(description="Resumable upload of the archive.")
     ap.add_argument("--dry-run", action="store_true")
@@ -177,13 +243,17 @@ def main():
     t0 = time.time()
 
     secciones = [args.only] if args.only else SECTION_ORDER
+    if not args.only:
+        pend_files, pend_bytes = sube_raiz(st, args)
 
     for sec in secciones:
         base = os.path.join(ARCHIVE, sec)
         if not os.path.isdir(base):
             continue
-        ctype = CONTENT_TYPES.get(sec)
-        print(f"\n=== {sec}  ({ctype or 'tipo deducido por extension'})")
+        c = CONTENT_TYPES.get(sec)
+        etiqueta = ("por extension: " + ", ".join(sorted(c))) if isinstance(c, dict) \
+            else (c or "tipo deducido por extension")
+        print(f"\n=== {sec}  ({etiqueta})")
 
         for dirpath, dirnames, filenames in os.walk(base):
             dirnames.sort()
@@ -206,25 +276,24 @@ def main():
                 acumulado = f"{acumulado}/{parte}" if acumulado else parte
                 parent = ensure_folder(st, acumulado, parte, parent, args.dry_run)
 
-            for lote in lotes(pendientes, args.batch, args.max_bytes):
-                try:
-                    upload_batch(st, lote, parent, ctype, args.dry_run)
-                except RuntimeError as e:
-                    st["failed"][rel] = {"error": str(e), "at": now()}
-                    save_state(st)
-                    print(f"\nPARADO en {rel}: {e}")
-                    print(f"Subidos {len(st['uploaded']) - hechos} ficheros en esta sesion.")
-                    print("Vuelve a lanzar el script y continuara donde lo dejo.")
-                    return 1
-                n = len(st["uploaded"])
-                trans = time.time() - t0
-                vel = (n - hechos) / trans if trans else 0
-                print(f"  {rel[:44]:44} {n:>7} hechos  {vel:5.1f} fich/s", flush=True)
+            err = sube_carpeta(st, sec, pendientes, parent, rel, args, hechos, t0)
+            if err:
+                st["failed"][rel] = {"error": err, "at": now()}
+                save_state(st)
+                print(f"\nPARADO en {rel}: {err}")
+                print(f"Subidos {len(st['uploaded']) - hechos} ficheros en esta sesion.")
+                print("Vuelve a lanzar el script y continuara donde lo dejo.")
+                return 1
 
     if args.dry_run:
-        horas = pend_files * 0.35 / 3600
+        # 0.58 s/file, not the 0.35 first estimated: that figure came from one
+        # folder-level invocation and ignored the CLI start-up paid per batch.
+        # Cost from the Turbo price API, measured 2026-08-26, exact to 0.000%.
+        horas = pend_files * 0.58 / 3600
+        creditos = (pend_files * 9_174_313 + pend_bytes * 11_184.90) / 1e12
         print(f"\nPENDIENTE: {pend_files} ficheros, {pend_bytes/1e9:.3f} GB")
-        print(f"  a 0,35 s/fichero medidos: ~{horas:.1f} horas")
+        print(f"  a 0,58 s/fichero medidos: ~{horas:.1f} horas")
+        print(f"  coste: ~{creditos:.3f} creditos  (~{creditos*3.4:.2f} USD)")
         print(f"  ya registrados como subidos: {hechos}")
         return 0
 

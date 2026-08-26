@@ -52,7 +52,7 @@ SECTIONS = [
     ("corpus",              CORPUS,                             (".md",)),
     ("corrections",         CORPUS,                             (".jsonl",)),
     ("scans",               os.path.join(SCAN, "originals"),    (".pdf",)),
-    ("ocr-surya",           os.path.join(SCAN, "surya_ocr"),    (".txt",)),
+    ("ocr-surya",           os.path.join(SCAN, "surya_ocr"),    (".txt",)),  # see SURYA below
     ("audit/ledger",        AUDIT,                              (".json",)),
     ("audit/notes",         AUDIT,                              (".md",)),
     ("audit/candidates",    os.path.join(AUDIT, "out_fine"),    (".jsonl",)),
@@ -65,6 +65,21 @@ SECTIONS = [
 
 OPTIONAL_TESSERACT = ("ocr-tesseract", os.path.join(AUDIT, "ocr"), (".txt",))
 
+# The Surya run left the Bhagavatam laid out twice: once as loose volume
+# directories at the top of surya_ocr (SB1.1 … SB10.3) and again inside
+# srimad-bhagavatam/, which holds those same thirty. Verified 2026-08-26: the
+# 11,474 relative paths match and all 11,474 SHA-256 match. Without this the
+# package carried every Bhagavatam page twice — 23 MB and 11,474 files of pure
+# duplication, which is also 11,474 files paid for twice on upload.
+#
+# The merged copy is kept: it is how every other book in the section is named.
+SURYA = os.path.join(SCAN, "surya_ocr")
+
+
+def duplicated_top(base, name):
+    """Top-level directory to prune, because it appears again further down."""
+    return base == SURYA and name.startswith("SB") and "." in name
+
 
 def walk(base, extensions, recursive=True):
     if not os.path.isdir(base):
@@ -72,6 +87,8 @@ def walk(base, extensions, recursive=True):
     found = []
     for dirpath, dirnames, filenames in os.walk(base):
         dirnames[:] = [d for d in dirnames if d not in EXCLUDE_DIRS]
+        if dirpath == base:
+            dirnames[:] = [d for d in dirnames if not duplicated_top(base, d)]
         if not recursive and dirpath != base:
             dirnames[:] = []
             continue
@@ -105,13 +122,51 @@ def sha256(path, block=1 << 20):
     return h.hexdigest()
 
 
+def escribe_manifiesto(dest):
+    """SHA-256 of every file in the package, plus a root over the whole set.
+
+    UPLOAD-STATE.json is skipped along with the manifest itself: it is the
+    uploader's bookkeeping, it changes on every batch, and it is not part of
+    what is being certified.
+    """
+    print("\ncomputing the manifest for the whole package...")
+    volatiles = {"MANIFEST.sha256", "UPLOAD-STATE.json", "upload.log"}
+    entries = []
+    for dirpath, dirnames, filenames in os.walk(dest):
+        dirnames[:] = [d for d in dirnames if d not in EXCLUDE_DIRS]
+        for n in sorted(filenames):
+            if n in volatiles or n.startswith("."):
+                continue
+            full = os.path.join(dirpath, n)
+            rel = os.path.relpath(full, dest).replace(os.sep, "/")
+            entries.append((rel, full))
+    entries.sort(key=lambda p: p[0].encode("utf-8"))
+    body = "".join(f"{sha256(f)}  {r}\n" for r, f in entries)
+    root = hashlib.sha256(body.encode("utf-8")).hexdigest()
+
+    with open(os.path.join(dest, "MANIFEST.sha256"), "w", encoding="utf-8") as f:
+        f.write(f"# Manifest of the permanent archive — {len(entries)} files\n")
+        f.write(f"# root: {root}\n#\n")
+        f.write(body)
+
+    print(f"package root: {root}")
+    return 0
+
+
 def main():
     ap = argparse.ArgumentParser(description="Assemble the permanent archive package.")
     ap.add_argument("--dest", default=DEST)
     ap.add_argument("--dry-run", action="store_true", help="list only, assemble nothing")
     ap.add_argument("--with-tesseract", action="store_true",
                     help="include ocr/ from Tesseract (80 MB): the other half of the collation")
+    ap.add_argument("--manifest-only", action="store_true",
+                    help="recompute the manifest over the package as it stands, assembling "
+                         "nothing. Needed because pack_ocr.py runs after assembly and changes "
+                         "what the package contains")
     args = ap.parse_args()
+
+    if args.manifest_only:
+        return escribe_manifiesto(args.dest)
 
     sections = list(SECTIONS)
     if args.with_tesseract:
@@ -153,27 +208,8 @@ def main():
         print("\n(--dry-run: nothing was assembled)")
         return 0
 
-    print("\ncomputing the manifest for the whole package...")
-    entries = []
-    for dirpath, dirnames, filenames in os.walk(args.dest):
-        dirnames[:] = [d for d in dirnames if d not in EXCLUDE_DIRS]
-        for n in sorted(filenames):
-            if n == "MANIFEST.sha256":
-                continue
-            full = os.path.join(dirpath, n)
-            rel = os.path.relpath(full, args.dest).replace(os.sep, "/")
-            entries.append((rel, full))
-    entries.sort(key=lambda p: p[0].encode("utf-8"))
-    body = "".join(f"{sha256(f)}  {r}\n" for r, f in entries)
-    root = hashlib.sha256(body.encode("utf-8")).hexdigest()
-
-    with open(os.path.join(args.dest, "MANIFEST.sha256"), "w", encoding="utf-8") as f:
-        f.write(f"# Manifest of the permanent archive — {len(entries)} files\n")
-        f.write(f"# root: {root}\n#\n")
-        f.write(body)
-
+    escribe_manifiesto(args.dest)
     print(f"package at {args.dest}")
-    print(f"package root: {root}")
     print("\nNext: upload it, and record the transaction ids in PROVENANCE.md")
     return 0
 
