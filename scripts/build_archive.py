@@ -46,7 +46,11 @@ EXCLUDE_DIRS = {".git", "__pycache__", "node_modules", "surya-venv", ".venv", "v
 # (path in the package, source, extension filter)
 # Section names match the table in PROVENANCE.md — keep them in step.
 SECTIONS = [
-    ("corpus",              CORPUS,                             (".md", ".jsonl")),
+    # .md and .jsonl are split on purpose. They are different things — the verses
+    # and the ledger of corrections — and they need different content types on
+    # upload. On Arweave a wrong content type cannot be corrected afterwards.
+    ("corpus",              CORPUS,                             (".md",)),
+    ("corrections",         CORPUS,                             (".jsonl",)),
     ("scans",               os.path.join(SCAN, "originals"),    (".pdf",)),
     ("ocr-surya",           os.path.join(SCAN, "surya_ocr"),    (".txt",)),
     ("audit/ledger",        AUDIT,                              (".json",)),

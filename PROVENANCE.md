@@ -13,7 +13,8 @@ withdrawn; the transaction ids go in the table below as they are published.
 
 | Piece | What it is | Where it lives today | Size | Arweave |
 |---|---|---|---|---|
-| **corpus** | The text of the first editions, 102,835 files | this repository | 767 MB | `ar://<pending>` |
+| **corpus** | The text of the first editions, 102,729 files | this repository | 495 MB | `ar://<pending>` |
+| **corrections** | The ledger of corrections applied to the text | this repository, `*.jsonl` | 272 MB | `ar://<pending>` |
 | **scans** | 70 PDFs of the printed books, including the complete Śrīmad-Bhāgavatam | `scan_vedabase/originals/` | 2,078 MB | `ar://<pending>` |
 | **ocr-surya** | Every page as read by the Surya engine | `scan_vedabase/surya_ocr/` | 72 MB | `ar://<pending>` |
 | **ocr-tesseract** | Every page as read by Tesseract — the other half of the collation | `.../scan_audit/ocr/` | 80 MB | `ar://<pending>` |
@@ -89,3 +90,20 @@ translations. When uploading, the content type must carry the charset —
 to Latin-1 and the diacritics come out as mojibake. This cannot be corrected
 after the fact: a file already on Arweave can only be replaced by uploading it
 again and paying again.
+
+Because the content type applies to a whole upload, each section is uploaded
+separately with its own:
+
+| Section | `--content-type` |
+|---|---|
+| corpus, audit/notes | `text/markdown; charset=utf-8` |
+| corrections, audit/candidates | `application/x-ndjson; charset=utf-8` |
+| audit/ledger, audit/text-layer | `application/json; charset=utf-8` |
+| ocr-surya, ocr-tesseract | `text/plain; charset=utf-8` |
+| reports | `text/html; charset=utf-8` |
+| tools | `text/x-python; charset=utf-8` |
+| scans | `application/pdf` |
+
+This is why `corpus` and `corrections` are separate sections even though both
+come from this repository: they are different kinds of thing and they cannot
+share a content type.
