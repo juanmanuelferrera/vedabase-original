@@ -137,12 +137,38 @@ def relkey(path):
     return os.path.relpath(path, ARCHIVE).replace(os.sep, "/")
 
 
+def lotes(paths, max_files, max_bytes):
+    """Batches capped by BOTH file count and total bytes.
+
+    Counting files alone is not enough. The scans are 70 PDFs averaging 30 MB,
+    so a batch of 100 files is over a gigabyte in a single CLI invocation:
+    nothing is recorded until the whole gigabyte finishes, a failure at the last
+    file throws away the whole batch, and the subprocess timeout can fire
+    mid-upload. Observed on the first run, 2026-08-26.
+
+    A file larger than the cap goes on its own — never skipped.
+    """
+    lote, acc = [], 0
+    for p in paths:
+        n = os.path.getsize(p)
+        if lote and (len(lote) >= max_files or acc + n > max_bytes):
+            yield lote
+            lote, acc = [], 0
+        lote.append(p)
+        acc += n
+    if lote:
+        yield lote
+
+
 def main():
     ap = argparse.ArgumentParser(description="Resumable upload of the archive.")
     ap.add_argument("--dry-run", action="store_true")
     ap.add_argument("--only", help="upload just this section")
     ap.add_argument("--batch", type=int, default=100,
-                    help="files per CLI invocation (default 100)")
+                    help="max files per CLI invocation (default 100)")
+    ap.add_argument("--max-bytes", type=int, default=200_000_000,
+                    help="max bytes per CLI invocation (default 200 MB). Caps the "
+                         "work lost to a failure and keeps batches inside the timeout")
     args = ap.parse_args()
 
     st = load_state()
@@ -180,8 +206,7 @@ def main():
                 acumulado = f"{acumulado}/{parte}" if acumulado else parte
                 parent = ensure_folder(st, acumulado, parte, parent, args.dry_run)
 
-            for i in range(0, len(pendientes), args.batch):
-                lote = pendientes[i:i + args.batch]
+            for lote in lotes(pendientes, args.batch, args.max_bytes):
                 try:
                     upload_batch(st, lote, parent, ctype, args.dry_run)
                 except RuntimeError as e:
