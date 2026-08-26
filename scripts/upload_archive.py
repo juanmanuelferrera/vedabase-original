@@ -97,7 +97,7 @@ def now():
     return datetime.now(timezone.utc).strftime("%Y-%m-%d %H:%M:%SZ")
 
 
-def ardrive(args, timeout=1800):
+def ardrive(args, timeout=600):
     """Run the CLI and return parsed JSON, or None with the error text."""
     try:
         r = subprocess.run(["ardrive"] + args, capture_output=True, text=True,
@@ -141,9 +141,28 @@ def upload_batch(st, paths, folder_id, ctype, dry):
            ["--parent-folder-id", folder_id, "-w", WALLET, "--turbo", "--replace"]
     if ctype:
         args += ["--content-type", ctype]
-    data, err = ardrive(args)
-    if err:
-        raise RuntimeError(f"upload: {err}")
+
+    # Retry before giving up. A single hung invocation used to kill the whole
+    # run: on 26 Aug 2026 a batch of 100 files totalling 2.3 MB — the largest
+    # 40 KB — sat for over thirty minutes without returning and ended a job with
+    # twenty-six hours still to go. The network was fine minutes later, so it
+    # was transient. Over a run this long, transient failures are certainties,
+    # not risks, and the uploader has to survive them unattended.
+    #
+    # A timed-out upload may in fact have landed, so a retry can pay for the
+    # same batch twice. At roughly 0.001 credits per hundred small files that is
+    # a good trade for not losing a day of work.
+    espera = 30
+    for intento in range(1, 5):
+        data, err = ardrive(args)
+        if not err:
+            break
+        if intento == 4:
+            raise RuntimeError(f"upload: {err} (tras 4 intentos)")
+        print(f"    reintento {intento}/3 tras '{err}', esperando {espera}s",
+              flush=True)
+        time.sleep(espera)
+        espera *= 2
     txs = [c.get("dataTxId") for c in data.get("created", []) if c.get("dataTxId")]
     for p, tx in zip(paths, txs + [None] * len(paths)):
         st["uploaded"][relkey(p)] = {"tx": tx, "at": now()}
