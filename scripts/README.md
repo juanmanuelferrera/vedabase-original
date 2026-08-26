@@ -6,26 +6,8 @@ This folder contains scripts used in the Vedabase Original Edition verification 
 
 | Script | Purpose |
 |--------|---------|
-| `sync_from_source.py` | Downloads and updates texts from vedabase.cc |
 | `compare.py` | Text comparison engine with noise filtering |
 | `strip_diacritics.py` | IAST diacritic processing utilities |
-
----
-
-## sync_from_source.py
-
-**Purpose:** Synchronize this repository with the gold standard texts from vedabase.cc.
-
-**Usage:**
-```bash
-python scripts/sync_from_source.py
-```
-
-**What it does:**
-1. Downloads ZIP files for each book from the source
-2. Extracts the `.md` files
-3. Replaces all content in the repository
-4. Reports success/failure for each download
 
 ---
 
