@@ -130,10 +130,24 @@ def ensure_folder(st, rel, name, parent_id, dry):
         return st["folders"][rel]
     if dry:
         return f"<nuevo:{rel}>"
-    data, err = ardrive(["create-folder", "--parent-folder-id", parent_id,
-                         "--folder-name", name, "-w", WALLET, "--turbo"])
-    if err:
-        raise RuntimeError(f"create-folder {rel}: {err}")
+    # Same retry as an upload, and for the same reason. Creating a folder is a
+    # network call like any other, and on 27 Aug 2026 one of them came back
+    # "TypeError: fetch failed" and ended a run with 20,000 files still to go —
+    # a run that had already survived two days precisely because uploads retry.
+    # Guarding the upload and leaving the folder call bare was an oversight.
+    espera = 30
+    for intento in range(1, 5):
+        data, err = ardrive(["create-folder", "--parent-folder-id", parent_id,
+                             "--folder-name", name, "-w", WALLET, "--turbo"])
+        if not err:
+            break
+        limite = 2 if err == "timeout" else 4
+        if intento >= limite:
+            raise RuntimeError(f"create-folder {rel}: {err} (tras {intento} intentos)")
+        print(f"    reintento {intento}/{limite - 1} creando {rel} tras '{err}', "
+              f"esperando {espera}s", flush=True)
+        time.sleep(espera)
+        espera *= 2
     fid = next((c.get("entityId") for c in data.get("created", [])
                 if c.get("type") == "folder"), None)
     if not fid:
@@ -339,11 +353,21 @@ def main():
                 continue
 
             # asegurar la carpeta y todas sus ascendientes
+            # A failure here used to escape as a traceback, losing the tidy exit
+            # that tells you where it stopped and that a relaunch resumes.
             parent = ROOT_FOLDER
             acumulado = ""
-            for parte in rel.split("/"):
-                acumulado = f"{acumulado}/{parte}" if acumulado else parte
-                parent = ensure_folder(st, acumulado, parte, parent, args.dry_run)
+            try:
+                for parte in rel.split("/"):
+                    acumulado = f"{acumulado}/{parte}" if acumulado else parte
+                    parent = ensure_folder(st, acumulado, parte, parent, args.dry_run)
+            except RuntimeError as e:
+                st["failed"][rel] = {"error": str(e), "at": now()}
+                save_state(st)
+                print(f"\nPARADO creando carpeta para {rel}: {e}")
+                print(f"Subidos {len(st['uploaded']) - hechos} ficheros en esta sesion.")
+                print("Vuelve a lanzar el script y continuara donde lo dejo.")
+                return 1
 
             err = sube_carpeta(st, sec, pendientes, parent, rel, args, hechos, t0)
             if err:
