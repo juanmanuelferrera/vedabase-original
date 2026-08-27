@@ -72,6 +72,17 @@ CONTENT_TYPES = {
 SECTION_ORDER = ["scans", "reports", "corrections", "audit", "tools",
                  "reference-standards", "ocr-packed", "corpus"]
 
+# Paths not to publish, as prefixes relative to the package root. The files stay
+# on disk and in the package: this excludes them from the upload only.
+#
+# russian is held back because the translation is not finished. Publishing an
+# incomplete text under the same roof as the collated corpus would misrepresent
+# it, and Arweave does not allow taking it back — an unfinished chapter put up
+# today stays up. Lift the exclusion when the translation is complete; the
+# uploader will pick the files up on the next run, which is what the state file
+# is for.
+EXCLUIR_RUTAS = ("corpus/translations/russian/",)
+
 # Files at the root of the package, uploaded to the root of the drive. Easy to
 # forget, because the walk below only ever descends into sections — MANIFEST
 # was left out of the first run for exactly that reason, and it is the one file
@@ -189,6 +200,11 @@ def upload_batch(st, paths, folder_id, ctype, dry, timeout=600):
 
 def relkey(path):
     return os.path.relpath(path, ARCHIVE).replace(os.sep, "/")
+
+
+def excluida(rel):
+    """Held back from publication. On disk, but not uploaded."""
+    return rel.startswith(EXCLUIR_RUTAS)
 
 
 def tipo(seccion, ruta):
@@ -311,7 +327,8 @@ def main():
             dirnames.sort()
             files = sorted(f for f in filenames if not f.startswith("."))
             pendientes = [os.path.join(dirpath, f) for f in files
-                          if relkey(os.path.join(dirpath, f)) not in st["uploaded"]]
+                          if relkey(os.path.join(dirpath, f)) not in st["uploaded"]
+                          and not excluida(relkey(os.path.join(dirpath, f)))]
             if not pendientes:
                 continue
 
