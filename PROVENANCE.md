@@ -15,7 +15,7 @@ withdrawn; the transaction ids go in the table below as they are published.
 |---|---|---|---|---|
 | **corpus** | The text of the first editions, 102,729 files, of which 86,418 are published — see *What is deliberately absent* | this repository | 495 MB | see [ANCHORS.md](ANCHORS.md) |
 | **corrections** | The ledger of corrections applied to the text | this repository, `*.jsonl` | 272 MB | see [ANCHORS.md](ANCHORS.md) |
-| **scans** | 70 PDFs of the printed books, including the complete Śrīmad-Bhāgavatam | `scan_vedabase/originals/` | 2,078 MB | see [ANCHORS.md](ANCHORS.md) |
+| **scans** | 71 PDFs of the printed books, including the complete Śrīmad-Bhāgavatam | `scan_vedabase/originals/` | 2,078 MB | see [ANCHORS.md](ANCHORS.md) |
 | **ocr-packed** | Every page as read by both engines, one `.tar` per book | `surya_ocr/`, `.../scan_audit/ocr/` | 193 MB | see [ANCHORS.md](ANCHORS.md) |
 | **audit** | The ledger of discrepancies: open, arbitrated, applied | `astro_vedabase/scripts/scan_audit/*.json` | 68 MB | see [ANCHORS.md](ANCHORS.md) |
 | **reports** | Each difference beside the image of the scanned page | `.../scan_audit/*.html` | 126 MB | see [ANCHORS.md](ANCHORS.md) |
@@ -158,12 +158,14 @@ told from that page.
   retyping, and cannot serve as evidence of any printed page. That is also why
   its OCR shows no copyright page: there is none to read.
 
-**Two gaps found while checking, and left standing rather than quietly closed.**
-`Life_Comes_from_Life` and `Teachings_of_Lord_Chaitanya-1968_first_edition-SCAN`
-have their OCR published in the containers but their PDFs are **not in this
-archive**: both sit outside the `originals/` directory the package is built
-from. The Teachings of Lord Caitanya file is a genuine scan — 351 pages at
-200 ppi — and belongs here; it was missed, not excluded.
+**A gap found while checking, and closed.** Two books had their OCR published in
+the containers while their PDFs were absent from the archive; both sat outside
+the `originals/` directory the package is built from, so the build never saw
+them. `Teachings_of_Lord_Chaitanya-1968_first_edition-SCAN` is a genuine scan —
+351 pages at 200 ppi — and has since been added, which is why the archive holds
+seventy-one scans rather than seventy. `Life_Comes_from_Life` was left out on
+purpose: as noted above it is a Word document, not a scan, and putting it among
+the page images would misrepresent what it is.
 
 **A second version exists for eight books.** `improved/` holds reprocessed
 copies of eight of the published scans, differing in bytes and file size but not
@@ -172,7 +174,7 @@ publishes the `originals/` version in each case.
 
 **What is still missing, and only the person who holds the books can supply it.**
 For each scan: which physical copy it was made from and whose it was, and when
-it was scanned. Seventeen of the seventy declare `krishnapath.org` in their PDF
+it was scanned. Seventeen of them declare `krishnapath.org` in their PDF
 metadata and so came from that public collection rather than from a copy in
 hand; eight name the scanner that produced them (a CanoScan LiDE 210, and one
 Canon SC1801). For the rest, the PDF says nothing about its origin.
