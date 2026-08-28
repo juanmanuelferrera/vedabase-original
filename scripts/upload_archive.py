@@ -206,9 +206,33 @@ def upload_batch(st, paths, folder_id, ctype, dry, timeout=600):
               f"esperando {espera}s", flush=True)
         time.sleep(espera)
         espera *= 2
-    txs = [c.get("dataTxId") for c in data.get("created", []) if c.get("dataTxId")]
-    for p, tx in zip(paths, txs + [None] * len(paths)):
+    # Match each transaction to its file by the sourceUri the CLI reports, never
+    # by position. The order of `created` does not follow the order of the paths
+    # given, and pairing them by index silently files each transaction under the
+    # wrong name. Measured 28 Aug 2026: about three in a thousand were crossed —
+    # sb-4.22.48 was recorded against the transaction holding sb-4.22.49 — and a
+    # short `created` list left six files with no transaction at all.
+    #
+    # Nothing was lost by it: every file reached the chain and the manifest, which
+    # maps hash to path, was never touched by this. What was wrong was only this
+    # bookkeeping, and only until now.
+    por_uri = {}
+    for c in data.get("created", []):
+        if not c.get("dataTxId"):
+            continue
+        uri = c.get("sourceUri", "")
+        if uri.startswith("file://"):
+            por_uri[os.path.realpath(uri[7:])] = c["dataTxId"]
+
+    sin_pareja = []
+    for p in paths:
+        tx = por_uri.get(os.path.realpath(p))
+        if tx is None:
+            sin_pareja.append(p)
         st["uploaded"][relkey(p)] = {"tx": tx, "at": now()}
+    if sin_pareja:
+        print(f"    AVISO: {len(sin_pareja)} sin transaccion emparejable "
+              f"(p.ej. {relkey(sin_pareja[0])})", flush=True)
     save_state(st)
 
 

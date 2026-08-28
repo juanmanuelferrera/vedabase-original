@@ -32,6 +32,44 @@ python3 scripts/build_archive.py --dry-run       # see what goes in
 python3 scripts/build_archive.py --with-tesseract
 ```
 
+## A warning to whoever checks this
+
+A gateway saying *404* does not mean the file is gone. Verify against more than
+one, and try again before concluding anything.
+
+This was learned the hard way here. A stratified sample of 630 of the published
+files was pulled from `arweave.net` and fifteen came back as *404 – Page cannot
+be found*. At two point four per cent, that would have meant some two thousand
+files lost. Every one of them was then retrieved, byte for byte identical, from
+`ar-io.dev`. The data was on chain the whole time; what was missing was one
+gateway's index of it.
+
+The same gateway contradicted itself within a minute on one file: a GET returned
+the nine bytes `Not found` while a HEAD immediately after returned HTTP 200 with
+`content-length: 795` — the file's exact size. Treat a single negative answer
+from a single gateway as noise, not as evidence.
+
+The reverse error is easier still. A `200` in a redirect chain proves nothing
+either: `arweave.net` answers a request for an unpropagated file with a 302 to a
+sandbox subdomain and then a page of HTML. Only comparing the bytes you received
+against the hash in the manifest settles it. That is what the manifest is for.
+
+**And do not trust the upload log's transaction column.** The record kept while
+uploading, `UPLOAD-STATE.json`, pairs each file with the transaction that carries
+it, and roughly three pairings in a thousand are crossed: the entry for
+`sb-4.22.48.md` names the transaction that in fact holds `sb-4.22.49.md`. The
+uploader had matched the transactions the command-line tool returned to the paths
+it had been given **by position**, and that order is not guaranteed. Six files
+were left with no transaction at all by the same fault. It is fixed — the pairing
+is now made on the source path each transaction reports — but the entries written
+before 28 August 2026 carry the error.
+
+Nothing was lost by it and nothing published is wrong. Every file reached the
+chain; the drive's own file names were written by the tool, not by that code; and
+the manifest pairs hash with path and never touched a transaction id. If you want
+to know which transaction carries a given file, ask the drive or search by the
+hash — not that log.
+
 ## How to check that the text has not changed
 
 ```
