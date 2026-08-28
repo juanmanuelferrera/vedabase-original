@@ -13,7 +13,7 @@ withdrawn; the transaction ids go in the table below as they are published.
 
 | Piece | What it is | Where it lives today | Size | Arweave |
 |---|---|---|---|---|
-| **corpus** | The text of the first editions, 102,729 files | this repository | 495 MB | see [ANCHORS.md](ANCHORS.md) |
+| **corpus** | The text of the first editions, 102,729 files, of which 86,418 are published — see *What is deliberately absent* | this repository | 495 MB | see [ANCHORS.md](ANCHORS.md) |
 | **corrections** | The ledger of corrections applied to the text | this repository, `*.jsonl` | 272 MB | see [ANCHORS.md](ANCHORS.md) |
 | **scans** | 70 PDFs of the printed books, including the complete Śrīmad-Bhāgavatam | `scan_vedabase/originals/` | 2,078 MB | see [ANCHORS.md](ANCHORS.md) |
 | **ocr-packed** | Every page as read by both engines, one `.tar` per book | `surya_ocr/`, `.../scan_audit/ocr/` | 193 MB | see [ANCHORS.md](ANCHORS.md) |
@@ -87,6 +87,22 @@ What is known so far:
   uploaded on 2021-10-24. Ādi-līlā volumes 1 and 2 are the **second printing of
   1983**, not the first run (1974 and 1973 respectively); volume 3 is a 1974
   first printing. Documented in the README.
+
+## What is deliberately absent
+
+Count the files in the archive against the table above and 16,311 are missing.
+They are not lost, and their absence is not an accident.
+
+**The Russian translation is not published.** It is unfinished, and Arweave has
+no way back: a half-translated chapter put up today stays up, and standing
+beside a corpus collated page by page against the printed editions it would
+borrow a credibility it has not earned. The files are held in the repository
+until the translation is complete, and will be published then as a later
+addition. The English, Spanish, Portuguese and Hindi translations are all here.
+
+This is worth stating plainly rather than leaving to inference, because an
+archive of this kind is read by people who cannot ask us anything. A silent gap
+looks like data loss, or like something hidden. It is neither.
 
 ## A note on character encoding
 
