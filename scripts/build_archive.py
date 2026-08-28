@@ -128,20 +128,32 @@ def sha256(path, block=1 << 20):
     return h.hexdigest()
 
 
+# Held back from publication — keep in step with EXCLUIR_RUTAS in
+# upload_archive.py. The manifest must describe exactly what was published: a
+# manifest listing 16,311 files that are not in the archive would fail every
+# verification it exists to make possible, and would read as data loss rather
+# than as a deliberate omission.
+NO_PUBLICADO = ("corpus/translations/russian/",)
+
+
 def escribe_manifiesto(dest):
-    """SHA-256 of every file in the package, plus a root over the whole set.
+    """SHA-256 of every published file, plus a root over the whole set.
 
     UPLOAD-STATE.json is skipped along with the manifest itself: it is the
     uploader's bookkeeping, it changes on every batch, and it is not part of
-    what is being certified.
+    what is being certified. What is held back from publication is skipped too,
+    for the reason given at NO_PUBLICADO.
     """
     print("\ncomputing the manifest for the whole package...")
-    volatiles = {"MANIFEST.sha256", "UPLOAD-STATE.json", "upload.log"} | EXCLUDE_FILES
+    volatiles = {"MANIFEST.sha256", "upload.log"} | EXCLUDE_FILES
     entries = []
     for dirpath, dirnames, filenames in os.walk(dest):
         dirnames[:] = [d for d in dirnames if d not in EXCLUDE_DIRS]
         for n in sorted(filenames):
-            if n in volatiles or n.startswith("."):
+            if n in volatiles or n.startswith(".") or n.startswith("UPLOAD-STATE"):
+                continue
+            rel_ = os.path.relpath(os.path.join(dirpath, n), dest).replace(os.sep, "/")
+            if rel_.startswith(NO_PUBLICADO):
                 continue
             full = os.path.join(dirpath, n)
             rel = os.path.relpath(full, dest).replace(os.sep, "/")
@@ -153,6 +165,10 @@ def escribe_manifiesto(dest):
     with open(os.path.join(dest, "MANIFEST.sha256"), "w", encoding="utf-8") as f:
         f.write(f"# Manifest of the permanent archive — {len(entries)} files\n")
         f.write(f"# root: {root}\n#\n")
+        f.write("# This lists what was published, and only that. Held back:\n")
+        for p in NO_PUBLICADO:
+            f.write(f"#   {p}  (see 'What is deliberately absent' in PROVENANCE.md)\n")
+        f.write("#\n")
         f.write(body)
 
     print(f"package root: {root}")

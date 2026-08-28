@@ -100,6 +100,12 @@ borrow a credibility it has not earned. The files are held in the repository
 until the translation is complete, and will be published then as a later
 addition. The English, Spanish, Portuguese and Hindi translations are all here.
 
+One Russian thing is here: the twenty `.jsonl` correction ledgers under
+`corrections/translations/russian/`. They went up before the text was held back,
+and on Arweave that cannot be undone. They record what was corrected, not what
+the translation says, so they are listed rather than hidden — but they are not
+the text, and the text is not here.
+
 This is worth stating plainly rather than leaving to inference, because an
 archive of this kind is read by people who cannot ask us anything. A silent gap
 looks like data loss, or like something hidden. It is neither.
