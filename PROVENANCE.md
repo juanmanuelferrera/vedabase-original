@@ -79,6 +79,24 @@ memory. The technical columns come from the PDF metadata (`pdfinfo`,
 as read by the Surya OCR engine and quoted verbatim, misprints and all. Anyone
 can repeat both readings against the published scans.
 
+**Checked against the second engine.** The same method used on the text itself
+was used here: every copyright page was read again by Tesseract and the two
+readings compared on printing number and year. Of the sixty-nine scans, sixty-four
+have both readings and **all sixty-four agree**; the remaining five have no
+Tesseract pass. Three volumes appeared to differ and did not — Tesseract also
+caught the phrase *"the first edition widely available to the English-reading
+public"* from a jacket blurb in Bhāgavatam 10.1-10.3, which is publicity, not a
+printing statement.
+
+Two of the five without a second reading matter, and were confirmed differently.
+The Bhagavad-gītā copyright page was read in full rather than in fragments, and
+says plainly that the Collier paperback and the Macmillan hardcover are separate
+editions. The Śrī Īśopaniṣad page carries all three lines together:
+
+    Copyright © 1969 by ISKCON Books
+    First edition published by ISKCON Books in 1969
+    Fifth Printing 1972
+
 **Read the names with suspicion.** Several files are named for an edition their
 copyright page does not support, and the discrepancy is always in the same
 direction — the name claims an earlier, more authoritative printing than the
@@ -86,13 +104,16 @@ book actually is:
 
 - `Bhagavad-gita_As_It_Is-Original_1972_Macmillan_edition-SCAN` is not the 1972
   Macmillan first printing. Its copyright page reads *First Collier Books
-  Edition 1972 · Third Printing 1973*. That matters more here than anywhere
-  else: the 1972 Macmillan is the edition this project treats as the source.
+  Edition 1972 · Third Printing 1973*, and adds that the book *"is also published
+  in a hardcover edition by the Macmillan Company"* — naming the Macmillan as a
+  separate edition, not as this one. What was scanned is the Collier paperback,
+  third printing. That matters more here than anywhere else: the 1972 Macmillan
+  is the edition this project treats as its source.
 - `Beyond_Birth_and_Death-Original_1974_edition_scan` is the **third** printing.
   The page lists 1972, 1973 and 1974; 1974 is the last of the three.
 - `Sri-Isopanisad-scans-of-original-1969-edition` carries the 1969 first edition
-  notice, but the copy scanned is a later printing — an earlier reading of the
-  same pages gave *Fifth Printing 1972*.
+  notice, but the copy scanned is the **fifth printing, 1972**. Both engines read
+  the three lines identically on page 7.
 - `The_Nectar_of_Instruction-Original_1976_SCAN` has a 1975 copyright and a
   first printing of 1975.
 - `sri-caitanya-caritamrta` Ādi-līlā volumes 1 and 2 read *Second printing,

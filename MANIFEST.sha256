@@ -9,14 +9,14 @@
 # Comprobarlo por tu cuenta:
 #     python3 scripts/hash_manifest.py --check
 #
-# fecha:    2026-08-28 11:31 UTC
-# commit:   f4b7f44af069e69dbdc0ca49ce203ab2c5390a6e
+# fecha:    2026-08-28 11:50 UTC
+# commit:   e647f14bea8e54c539dce6d43adddcf2400d7951
 # ficheros: 102836
-# bytes:    766944459
-# root:     697768383467728d7c1de00772f35df31976b4e8965fcfc3973c5bcb056d73fe
+# bytes:    766958074
+# root:     43ff9f754eb1df403bafa4e1ec2abe174f295710f7954b16bdc14b272fcdfa0c
 #
 efbb9c92ced5131364d184269769070002b90c8128ca19e649df418752c33ea0  corpus/PRINT_ERRATA.md
-71fc0bc9b165d08d68297e06701e256f5e6ab21cafd98e7648f11aae5bd9b38b  corpus/PROVENANCE.md
+4bd74846bcc304770f769ac2fd8b2b507b2f70b51992295a897db12a3bd59ccf  corpus/PROVENANCE.md
 142a0ffe876befe14731a8801da2ba96cf998443c5af955a034636352c6791d6  corpus/README.md
 de26046dba55941f310bd45e1d08b8e3a63c785a4350b2646d0fcfd19c2ca2d2  corpus/beyond-birth-and-death/chapter-1.md
 165d9e5f073336b05175e1b00808c8331f59f572d6b7c206b55a6c8a5c376a25  corpus/beyond-birth-and-death/chapter-2.md
