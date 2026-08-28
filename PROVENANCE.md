@@ -123,11 +123,52 @@ None of this makes the scans less useful. It makes them *honest*, which is the
 point: a collation is only as good as the knowledge of which printing it was
 made against.
 
-**Two readings need a human eye.** `KRSNA-the-Reservoir-of-Pleasure-1970` gives
-*First Printing 1966 - 1,000* beside a 1970 copyright, and
-`1972_Perfection_of_Yoga_2008_Original` lists two printings with no years at
-all. Both are OCR readings of a printed page; check them against the image
-before relying on either.
+**The two doubtful readings, resolved.** Neither was an OCR failure.
+
+`KRSNA-the-Reservoir-of-Pleasure-1970` carries a full printing history, and the
+earlier extract had simply truncated it after the first line:
+
+    Copyright ©1970 by ISKCON PRESS
+    Printing History
+    First Printing 1966 - 1,000      Second Printing 1967 - 5,000
+    Third Printing 1968 - 5,000      Fourth Printing 1969 - 20,000
+    Fifth Printing 1970 - 30,000
+
+The 1966 is real — the text circulated as an essay from then. What was scanned
+is the **fifth printing, 1970**, which is what the copyright year records.
+
+`1972_Perfection_of_Yoga_2008_Original` lists two printings and no years because
+**the printed page itself omits them**. Both OCR engines read the page
+identically. Copyright 1972; which of the two printings this copy is cannot be
+told from that page.
+
+**Three more scans, read directly.**
+
+- `Easy-Journey-to-Other-Planets-1972-krishnaorg-SCAN` is the *First Collier
+  Paperbacks Edition 1972* — the same Collier/Macmillan arrangement as the
+  Bhagavad-gītā.
+- `Easy_Journey_to_Other_Planets-Original_India_Edition_SCAN` is what its name
+  says, and is the one case where the name is exactly right: published by
+  Prabhupāda himself through The League of Devotees, 1/859 Keshi Ghat,
+  Vrindaban, printed by Surendra Printer's of Delhi, priced at one rupee, with
+  *Copy Right: Author* and no year. It is a different book from the Collier
+  edition, not another printing of it.
+- `Life_Comes_from_Life-1979_first_edition-SCAN` **is not a scan**. Its PDF was
+  produced by Microsoft Word — 68 pages, 535 KB, not one image in it. It is a
+  retyping, and cannot serve as evidence of any printed page. That is also why
+  its OCR shows no copyright page: there is none to read.
+
+**Two gaps found while checking, and left standing rather than quietly closed.**
+`Life_Comes_from_Life` and `Teachings_of_Lord_Chaitanya-1968_first_edition-SCAN`
+have their OCR published in the containers but their PDFs are **not in this
+archive**: both sit outside the `originals/` directory the package is built
+from. The Teachings of Lord Caitanya file is a genuine scan — 351 pages at
+200 ppi — and belongs here; it was missed, not excluded.
+
+**A second version exists for eight books.** `improved/` holds reprocessed
+copies of eight of the published scans, differing in bytes and file size but not
+in pagination — same book, same pages, different image processing. The archive
+publishes the `originals/` version in each case.
 
 **What is still missing, and only the person who holds the books can supply it.**
 For each scan: which physical copy it was made from and whose it was, and when
