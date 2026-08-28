@@ -98,9 +98,10 @@ editions. The Śrī Īśopaniṣad page carries all three lines together:
     Fifth Printing 1972
 
 **Read the names with suspicion.** Several files are named for an edition their
-copyright page does not support, and the discrepancy is always in the same
-direction — the name claims an earlier, more authoritative printing than the
-book actually is:
+copyright page does not support, and the discrepancy runs in one direction — the
+name claims an earlier, more authoritative printing than the book actually is.
+Each entry below was confirmed by reading the copyright page image itself, not
+only its OCR:
 
 - `Bhagavad-gita_As_It_Is-Original_1972_Macmillan_edition-SCAN` is not the 1972
   Macmillan first printing. Its copyright page reads *First Collier Books
@@ -114,8 +115,10 @@ book actually is:
 - `Sri-Isopanisad-scans-of-original-1969-edition` carries the 1969 first edition
   notice, but the copy scanned is the **fifth printing, 1972**. Both engines read
   the three lines identically on page 7.
-- `The_Nectar_of_Instruction-Original_1976_SCAN` has a 1975 copyright and a
-  first printing of 1975.
+- `The_Nectar_of_Instruction-Original_1976_SCAN` is the one near-miss that turns
+  out to be right. Its copyright is 1975 and its first printing was 1975, but
+  the same page lists *Second printing, 1976: 100,000 copies* — and that is the
+  copy scanned. The year in the name is correct.
 - `sri-caitanya-caritamrta` Ādi-līlā volumes 1 and 2 read *Second printing,
   1983*, which the README already records.
 
@@ -167,10 +170,15 @@ seventy-one scans rather than seventy. `Life_Comes_from_Life` was left out on
 purpose: as noted above it is a Word document, not a scan, and putting it among
 the page images would misrepresent what it is.
 
-**A second version exists for eight books.** `improved/` holds reprocessed
-copies of eight of the published scans, differing in bytes and file size but not
-in pagination — same book, same pages, different image processing. The archive
-publishes the `originals/` version in each case.
+**A second version exists for eight books, and the published one is the right
+one.** `improved/` holds reprocessed copies of eight of the published scans,
+differing in bytes and in file size. Identical pagination is not by itself proof
+that the collation refers to the published file rather than to the other, so it
+was tested: for each of them, the OCR text was compared against the text layer of
+both PDFs, page by page. In every case the published `originals/` file matches
+the OCR at least as closely as the `improved/` one, and in no case does
+`improved/` match better. The two share a text layer and differ only in image
+processing.
 
 **Where these files come from.** Not from scanning done for this project. The
 evidence is in the files themselves and it is consistent.
