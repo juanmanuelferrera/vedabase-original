@@ -69,24 +69,128 @@ the text it describes.
 
 ## Provenance of the scans
 
-*(To be completed. A PDF of a 1972 book does not establish on its own where it
-came from; this is what turns a file into evidence.)*
+A PDF of a 1972 book does not establish on its own where it came from. This is
+what turns a file into evidence, and it is why the table below records what each
+scan *says about itself* rather than what its filename claims.
 
-For each scan the record should state:
+**How this was obtained.** Two independent sources, neither of them anyone's
+memory. The technical columns come from the PDF metadata (`pdfinfo`,
+`pdfimages`). The copyright column is the text of the book's own copyright page,
+as read by the Surya OCR engine and quoted verbatim, misprints and all. Anyone
+can repeat both readings against the published scans.
 
-- edition and **printing** — the copyright year is not enough: two volumes of
-  the Caitanya-caritāmṛta that looked like first editions turned out to be the
-  1983 reprint, and it showed only on the copyright page
-- which physical copy it came from, and whose it was
-- when and how it was scanned, and at what resolution
-- if it came from a public copy, which one and on what date
+**Read the names with suspicion.** Several files are named for an edition their
+copyright page does not support, and the discrepancy is always in the same
+direction — the name claims an earlier, more authoritative printing than the
+book actually is:
 
-What is known so far:
+- `Bhagavad-gita_As_It_Is-Original_1972_Macmillan_edition-SCAN` is not the 1972
+  Macmillan first printing. Its copyright page reads *First Collier Books
+  Edition 1972 · Third Printing 1973*. That matters more here than anywhere
+  else: the 1972 Macmillan is the edition this project treats as the source.
+- `Beyond_Birth_and_Death-Original_1974_edition_scan` is the **third** printing.
+  The page lists 1972, 1973 and 1974; 1974 is the last of the three.
+- `Sri-Isopanisad-scans-of-original-1969-edition` carries the 1969 first edition
+  notice, but the copy scanned is a later printing — an earlier reading of the
+  same pages gave *Fifth Printing 1972*.
+- `The_Nectar_of_Instruction-Original_1976_SCAN` has a 1975 copyright and a
+  first printing of 1975.
+- `sri-caitanya-caritamrta` Ādi-līlā volumes 1 and 2 read *Second printing,
+  1983*, which the README already records.
 
-- **Caitanya-caritāmṛta, 17 volumes** — byte-identical to the archive.org item
-  uploaded on 2021-10-24. Ādi-līlā volumes 1 and 2 are the **second printing of
-  1983**, not the first run (1974 and 1973 respectively); volume 3 is a 1974
-  first printing. Documented in the README.
+None of this makes the scans less useful. It makes them *honest*, which is the
+point: a collation is only as good as the knowledge of which printing it was
+made against.
+
+**Two readings need a human eye.** `KRSNA-the-Reservoir-of-Pleasure-1970` gives
+*First Printing 1966 - 1,000* beside a 1970 copyright, and
+`1972_Perfection_of_Yoga_2008_Original` lists two printings with no years at
+all. Both are OCR readings of a printed page; check them against the image
+before relying on either.
+
+**What is still missing, and only the person who holds the books can supply it.**
+For each scan: which physical copy it was made from and whose it was, and when
+it was scanned. Seventeen of the seventy declare `krishnapath.org` in their PDF
+metadata and so came from that public collection rather than from a copy in
+hand; eight name the scanner that produced them (a CanoScan LiDE 210, and one
+Canon SC1801). For the rest, the PDF says nothing about its origin.
+
+Note too that forty-three of the seventy were processed with Adobe Acrobat's
+Paper Capture *ClearScan*, which substitutes synthesised fonts for the scanned
+glyphs. The page images survive at the resolutions listed, but anyone treating
+these as photographic evidence of letterforms should know that.
+
+| Scan | Book | What its copyright page says | ppi | Source |
+|---|---|---|---:|---|
+| `Beyond_Birth_and_Death-Original_1974_edition_scan` | beyond-birth-and-death | © 1972 by the Bhaktivedanta Book Trust (B.B.T.) · First Printing, 1972: 25,000 copies Second Printing, 1973: 100,000 copies Third Printing, 1974: 200,000 copies | 600 | krishnapath.org |
+| `Bhagavad-gita_As_It_Is-Original_1972_Macmillan_edition-SCAN` | bhagavad-gita-as-it-is | Copyright © 1972 by His Divine Grace A.C. Bhaktivedanta Swami Prabhupāda · First Collier Books Edition 1972 Third Printing 1973 | 600 | krishnapath.org |
+| `Easy-Journey-to-Other-Planets-1972-krishnaorg-SCAN` | easy-journey-to-other-planets | Copyright © 1970, 1972 by ISKCON Press | 300 | CanoScan LiDE 210 |
+| `Easy_Journey_to_Other_Planets-Original_India_Edition_SCAN` | easy-journey-to-other-planets | *(not found in the first 30 pages)* | 600 | krishnapath.org |
+| `1973_Elevation_to_Krsna_Consciousness` | elevation-to-krsna-consciousness | © 1973 the Bhaktivedanta Book Trust. · First Printing, 1973: | 300 | krishnapath.org |
+| `Sri-Isopanisad-scans-of-original-1969-edition` | isopanisad | Copyright © 1969 by ISKCON Books · First edition published by ISKCON Books in 1969 | 600 | krishnapath.org |
+| `KRSNA_Book_Vol.1_1970_ISKCON_Press_edition_SCAN` | krsna-the-supreme-personality-of-godhead | Copyright © 1970 A. C. Bhaktivedanta Swami | 598 | krishnapath.org |
+| `KRSNA_Book_Vol.2_1970_ISKCON_Press_edition_SCAN` | krsna-the-supreme-personality-of-godhead | *(not found in the first 30 pages)* | 300 | krishnapath.org |
+| `Life_Comes_from_Life-1979_first_edition-SCAN` | life-comes-from-life | *(not found in the first 30 pages)* |  | — |
+| `Light_of_the_Bhagavata-1984_first_edition_SCAN` | light-of-the-bhagavata | First Printing, 1984: 40,000 copies. | 300 | CanoScan LiDE 210 |
+| `The_Nectar_of_Devotion-1970_ISKCON_Press_edition-Hardcover-SCAN` | nectar-of-devotion | Copyright © 1970 by ISKCON PRESS | 300 | krishnapath.org |
+| `The_Nectar_of_Instruction-Original_1976_SCAN` | nectar-of-instruction | ©1975 Bhaktivedanta Book Trust. · First printing, 1975: 10,000 copies | 600 | krishnapath.org |
+| `On_the_Way_to_Krsna-1973_book_SCAN` | on-the-way-to-krsna | © 1973 by the Bhaktivedanta Book Trust. All rights reserved · First Printing, 1973: 100,000 Printed in the United States of America by ISKCON Press | 600 | krishnapath.org |
+| `The-Path-of-Perfection-SCAN` | path-of-perfection | First Printing, 1979: 175,000 copies · © 1979 Bhaktivedanta Book Trust All Rights Reserved Printed in the United States of America | 300 | CanoScan LiDE 210 |
+| `Perfect_Questions_Perfect_Answers-Original_1977_Edition-SCAN` | perfect-questions-perfect-answers | © 1977 Bhaktivedanta Book Trust · First printing, 1977: 220,000 copies | 300 | krishnapath.org |
+| `1972_Perfection_of_Yoga_2008_Original` | perfection-of-yoga | © 1972 by ISKCON PRESS. All rights reserved · First Printing: 30,000 copies Second Printing: 100,000 copies Printed in the United States of America | 600 | krishnapath.org |
+| `1973_Raja-Vidya_The_King_of_Knowledge` | raja-vidya | © 1973 by the Bhaktivedanta Book Trust (B.B.T.). · First Printing, 1973: 100,000 copies | 600 | krishnapath.org |
+| `KRSNA-the-Reservoir-of-Pleasure-1970` | reservoir-of-pleasure | Copyright ©1970 by ISKCON PRESS · First Printing 1966 - 1,000 | 150 | krishnapath.org |
+| `Science-of-Self-Realization-1977` | science-of-self-realization | First Printing, 1977: 50,000 copies | 300 | CanoScan LiDE 210 |
+| `adi1` | sri-caitanya-caritamrta | © 1974 the Bhaktivedanta Book Trust · First printing, 1974 Second printing, 1983 | 300 | Adobe Acrobat 10.1.4 |
+| `adi2` | sri-caitanya-caritamrta | © 1973 the Bhaktivedanta Book Trust · First printing, 1973 Second printing, 1983 | 300 | Adobe Acrobat 10.1.4 |
+| `adi3` | sri-caitanya-caritamrta | © 1974 the Bhaktivedanta Book Trust | 300 | Adobe Acrobat 10.0 |
+| `ant1` | sri-caitanya-caritamrta | ©1975 Bhaktivedanta Book Trust | 300 | Adobe Acrobat 10.1.4 |
+| `ant2` | sri-caitanya-caritamrta | © 1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 300 | Adobe Acrobat 10.1.4 |
+| `ant3` | sri-caitanya-caritamrta | © 1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 300 | Adobe Acrobat 10.1.4 |
+| `ant4` | sri-caitanya-caritamrta | © 1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 300 | Adobe Acrobat 10.1.4 |
+| `ant5` | sri-caitanya-caritamrta | © 1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 300 | Adobe Acrobat 10.1.4 |
+| `mad1` | sri-caitanya-caritamrta | ©1975 Bhaktivedanta Book Trust | 300 | Adobe Acrobat 10.1.4 |
+| `mad2` | sri-caitanya-caritamrta | ©1975 Bhaktivedanta Book Trust | 300 | Adobe Acrobat 10.1.4 |
+| `mad3` | sri-caitanya-caritamrta | ©1975 Bhaktivedanta Book Trust. | 300 | Adobe Acrobat 10.1.4 |
+| `mad4` | sri-caitanya-caritamrta | © 1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 300 | Adobe Acrobat Pro 10.1.4 |
+| `mad5` | sri-caitanya-caritamrta | © 1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 300 | Adobe Acrobat 10.1.4 |
+| `mad6` | sri-caitanya-caritamrta | © 1975 Bhaktivedanta Book Trust. · First printing, 1975: 20,000 copies | 300 | Adobe Acrobat 10.1.4 |
+| `mad7` | sri-caitanya-caritamrta | © 1975 Bhaktivedanta Book Trust. · First printing, 1975: 20,000 copies | 300 | Adobe Acrobat 10.1.4 |
+| `mad8` | sri-caitanya-caritamrta | ©1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 300 | Adobe Acrobat 10.1.4 |
+| `mad9` | sri-caitanya-caritamrta | ©1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 300 | Adobe Acrobat 10.1.4 |
+| `SB1.1` | srimad-bhagavatam | Copyright © 1972 by the Bhaktivedanta Book Trust |  | Adobe Acrobat 10.0 |
+| `SB1.2` | srimad-bhagavatam | © 1972 the Bhaktivedanta Book Trust | 300 | Adobe Acrobat 10.0 |
+| `SB1.3` | srimad-bhagavatam | Copyright © 1972 by the Bhaktivedanta Book Trust | 300 | Adobe Acrobat 10.0 |
+| `SB10.1` | srimad-bhagavatam | First Printing, 1977: 20,000 copies · © 1977 Bhaktivedanta Book Trust All Rights Reserved Printed in the United States of America | 600 | CanoScan LiDE 210 |
+| `SB10.2` | srimad-bhagavatam | First Printing, 1977: 50,000 copies · © 1977 Bhaktivedanta Book Trust All Rights Reserved Printed in the United States of America | 600 | CanoScan LiDE 210 |
+| `SB10.3` | srimad-bhagavatam | First Printing, 1980: 20,000 copies · © 1980 Bhaktivedanta Book Trust All Rights Reserved Printed in the United States of America | 600 | CanoScan LiDE 210 |
+| `SB2.1` | srimad-bhagavatam | *(not found in the first 30 pages)* | 300 | Adobe Acrobat 10.0 |
+| `SB2.2` | srimad-bhagavatam | © 1972 the Bhaktivedanta Book Trust | 300 | Adobe Acrobat 10.1.4 |
+| `SB3.1` | srimad-bhagavatam | © 1972 the Bhaktivedanta Book Trust | 150 | Adobe Acrobat 10.0 |
+| `SB3.2` | srimad-bhagavatam | © 1974 the Bhaktivedanta Book Trust | 150 | Adobe Acrobat 10.0 |
+| `SB3.3` | srimad-bhagavatam | © 1974 the Bhaktivedanta Book Trust | 150 | Adobe Acrobat 10.0 |
+| `SB3.4` | srimad-bhagavatam | © 1974 the Bhaktivedanta Book Trust | 150 | Adobe Acrobat 10.0 |
+| `SB4.1` | srimad-bhagavatam | Copyright © 1972 by the Bhaktivedanta Book Trust |  | — |
+| `SB4.2` | srimad-bhagavatam | © 1974 the Bhaktivedanta Book Trust | 150 | Adobe Acrobat 10.0 |
+| `SB4.3` | srimad-bhagavatam | © 1974 the Bhaktivedanta Book Trust | 300 | Adobe Acrobat 10.0 |
+| `SB4.4` | srimad-bhagavatam | © 1974 the Bhaktivedanta Book Trust | 300 | Adobe Acrobat 10.0 |
+| `SB5.1` | srimad-bhagavatam | © 1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 299 | Adobe Acrobat 10.0 |
+| `SB5.2` | srimad-bhagavatam | © 1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 299 | Adobe Acrobat 10.0 |
+| `SB6.1` | srimad-bhagavatam | © 1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 299 | Adobe Acrobat 10.0 |
+| `SB6.2` | srimad-bhagavatam | © 1975 Bhaktivedanta Book Trust · First printing, 1975: 20,000 copies | 299 | Adobe Acrobat 10.0 |
+| `SB6.3` | srimad-bhagavatam | © 1976 Bhaktivedanta Book Trust · First printing, 1976: 20,000 copies | 300 | Adobe Acrobat 10.0 |
+| `SB7.1` | srimad-bhagavatam | ©1976 Bhaktivedanta Book Trust · First printing, 1976: 50,000 copies | 300 | Adobe Acrobat 10.0 |
+| `SB7.2` | srimad-bhagavatam | ©1976 Bhaktivedanta Book Trust · First printing, 1976: 20,000 copies | 300 | Adobe Acrobat 10.0 |
+| `SB7.3` | srimad-bhagavatam | ©1976 Bhaktivedanta Book Trust · First printing, 1976: 20,000 copies | 300 | Adobe Acrobat 10.0 |
+| `SB8.1` | srimad-bhagavatam | © 1976 Bhaktivedanta Book Trust · First printing, 1976: 20,000 copies |  | — |
+| `SB8.2` | srimad-bhagavatam | ©1976 Bhaktivedanta Book Trust · First printing, 1976: 20,000 copies | 300 | Adobe Acrobat 10.0 |
+| `SB8.3` | srimad-bhagavatam | © 1976 Bhaktivedanta Book Trust · First printing, 1976: 20,000 copies | 299 | Adobe Acrobat 10.0 |
+| `SB9.1` | srimad-bhagavatam | First Printing, 1977: 20,000 copies · © 1977 Bhaktivedanta Book Trust All Rights Reserved Printed in the United States of America | 299 | Adobe Acrobat 10.0 |
+| `SB9.2` | srimad-bhagavatam | First Printing, 1977: 20,000 copies · © 1977 Bhaktivedanta Book Trust All Rights Reserved Printed in the United States of America | 300 | Adobe Acrobat 10.0 |
+| `SB9.3` | srimad-bhagavatam | First Printing, 1977: 20,000 copies · © 1977 Bhaktivedanta Book Trust All Rights Reserved Printed in the United States of America | 299 | Adobe Acrobat 10.0 |
+| `Teachings_of_Lord_Chaitanya-1968_first_edition-SCAN` | teachings-of-lord-caitanya | Copyright © 1968 International Society for Krishna Consciousness Inc. (ISKCON) · Library of Congress Catalogue Card Number: 68-29320 ALL RIGHTS RESERVED FIRST EDITION |  | — |
+| `Teachings_of_Queen_Kunti-SCAN` | teachings-of-queen-kunti | First Printing, 1978: 57,300 copies · © 1978 Bhaktivedanta Book Trust All Rights Reserved Printed in the United States of America | 600 | krishnapath.org |
+| `KRSNA Consciousness - The Topmost Yoga System - Original 1970 edition Scan` | topmost-yoga-system | Copyright © 1970 ISKCON PRESS | 600 | PDFium |
 
 ## What is deliberately absent
 
