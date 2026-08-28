@@ -172,12 +172,39 @@ copies of eight of the published scans, differing in bytes and file size but not
 in pagination — same book, same pages, different image processing. The archive
 publishes the `originals/` version in each case.
 
-**What is still missing, and only the person who holds the books can supply it.**
-For each scan: which physical copy it was made from and whose it was, and when
-it was scanned. Seventeen of them declare `krishnapath.org` in their PDF
-metadata and so came from that public collection rather than from a copy in
-hand; eight name the scanner that produced them (a CanoScan LiDE 210, and one
-Canon SC1801). For the rest, the PDF says nothing about its origin.
+**Where these files come from.** Not from scanning done for this project. The
+evidence is in the files themselves and it is consistent.
+
+The PDFs carry their own creation dates, and they fall into a campaign rather
+than a trickle: twenty-seven were made between 13 and 16 September 2012 — the
+Bhāgavatam and Caitanya-caritāmṛta volumes, several a day — twenty-two more
+between 27 September and 9 October, then individual books through 2013 and 2014
+at roughly weekly intervals, and two stragglers in 2016 and 2020. Seven carry no
+date. Seventeen name `krishnapath.org` in their metadata. Eight name the machine
+that produced them: a CanoScan LiDE 210, and one Canon SC1801.
+
+That matches what the source says of itself. KrishnaPath.org describes a
+volunteer effort to scan and **digitally remaster** the authorised editions —
+removing background marks and sharpening the text so it can be searched and
+copied. Forty-three of the seventy-one bear the fingerprint of that work: Adobe
+Acrobat's Paper Capture *ClearScan*, which replaces the scanned glyphs with
+synthesised fonts. **These are therefore remastered images, not raw captures.**
+The page images survive at the resolutions listed, and the collation against
+them stands, but anyone treating a letterform in these files as photographic
+evidence of the printed page should know what was done to it first.
+
+For the Bhāgavatam the trail is recorded elsewhere by the same hands that
+assembled this archive: *"The Śrīmad-Bhāgavatam scans (original 1972 edition,
+© BBT) come from prabhupadabooks.com / krishna.org; the rest from devotee
+archives."*
+
+**What remains unknown.** Which physical copy each volunteer worked from, and
+whose it was. That is not recorded in any file and cannot be recovered from
+them; it would have to come from the people who did the scanning. Given that
+KrishnaPath itself warns that altered copies of these free scans circulate, the
+practical check is not provenance by testimony but byte-identity against a known
+public copy — which is what was done for the seventeen Caitanya-caritāmṛta
+volumes, and what the hashes in this archive make possible for the rest.
 
 Note too that forty-three of the seventy were processed with Adobe Acrobat's
 Paper Capture *ClearScan*, which substitutes synthesised fonts for the scanned
