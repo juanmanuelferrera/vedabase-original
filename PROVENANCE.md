@@ -176,17 +176,19 @@ publishes the `originals/` version in each case.
 evidence is in the files themselves and it is consistent.
 
 The PDFs carry their own creation dates, and they fall into a campaign rather
-than a trickle: twenty-seven were made between 13 and 16 September 2012 — the
-Bhāgavatam and Caitanya-caritāmṛta volumes, several a day — twenty-two more
-between 27 September and 9 October, then individual books through 2013 and 2014
-at roughly weekly intervals, and two stragglers in 2016 and 2020. Seven carry no
-date. Seventeen name `krishnapath.org` in their metadata. Eight name the machine
-that produced them: a CanoScan LiDE 210, and one Canon SC1801.
+than a trickle. Twenty-seven were made between 13 and 16 September 2012 — the
+Bhāgavatam and Caitanya-caritāmṛta volumes, several a day. Twenty more followed
+between 27 September and 9 October, two in December, eight through 2013 and five
+through 2014 at roughly weekly intervals, and two stragglers in 2016 and 2020.
+Seven carry no internal date at all; the seven groups account for all seventy-one
+files. Seventeen name `krishnapath.org` in their metadata. Ten name the machine
+that produced them: eight a CanoScan LiDE 210, one a Canon SC1801, one a Canon
+MG5300.
 
 That matches what the source says of itself. KrishnaPath.org describes a
 volunteer effort to scan and **digitally remaster** the authorised editions —
 removing background marks and sharpening the text so it can be searched and
-copied. Forty-three of the seventy-one bear the fingerprint of that work: Adobe
+copied. Fifty-three of the seventy-one bear the fingerprint of that work: Adobe
 Acrobat's Paper Capture *ClearScan*, which replaces the scanned glyphs with
 synthesised fonts. **These are therefore remastered images, not raw captures.**
 The page images survive at the resolutions listed, and the collation against
@@ -206,10 +208,7 @@ practical check is not provenance by testimony but byte-identity against a known
 public copy — which is what was done for the seventeen Caitanya-caritāmṛta
 volumes, and what the hashes in this archive make possible for the rest.
 
-Note too that forty-three of the seventy were processed with Adobe Acrobat's
-Paper Capture *ClearScan*, which substitutes synthesised fonts for the scanned
-glyphs. The page images survive at the resolutions listed, but anyone treating
-these as photographic evidence of letterforms should know that.
+
 
 | Scan | Book | What its copyright page says | ppi | Source |
 |---|---|---|---:|---|
@@ -221,7 +220,7 @@ these as photographic evidence of letterforms should know that.
 | `Sri-Isopanisad-scans-of-original-1969-edition` | isopanisad | Copyright © 1969 by ISKCON Books · First edition published by ISKCON Books in 1969 | 600 | krishnapath.org |
 | `KRSNA_Book_Vol.1_1970_ISKCON_Press_edition_SCAN` | krsna-the-supreme-personality-of-godhead | Copyright © 1970 A. C. Bhaktivedanta Swami | 598 | krishnapath.org |
 | `KRSNA_Book_Vol.2_1970_ISKCON_Press_edition_SCAN` | krsna-the-supreme-personality-of-godhead | *(not found in the first 30 pages)* | 300 | krishnapath.org |
-| `Life_Comes_from_Life-1979_first_edition-SCAN` | life-comes-from-life | *(not found in the first 30 pages)* |  | — |
+| `Life_Comes_from_Life-1979_first_edition-SCAN` | life-comes-from-life | **NOT A SCAN and not in this archive** — a Word export with no page images; its OCR is published, the file is not | — | — |
 | `Light_of_the_Bhagavata-1984_first_edition_SCAN` | light-of-the-bhagavata | First Printing, 1984: 40,000 copies. | 300 | CanoScan LiDE 210 |
 | `The_Nectar_of_Devotion-1970_ISKCON_Press_edition-Hardcover-SCAN` | nectar-of-devotion | Copyright © 1970 by ISKCON PRESS | 300 | krishnapath.org |
 | `The_Nectar_of_Instruction-Original_1976_SCAN` | nectar-of-instruction | ©1975 Bhaktivedanta Book Trust. · First printing, 1975: 10,000 copies | 600 | krishnapath.org |
@@ -282,6 +281,14 @@ these as photographic evidence of letterforms should know that.
 | `Teachings_of_Lord_Chaitanya-1968_first_edition-SCAN` | teachings-of-lord-caitanya | Copyright © 1968 International Society for Krishna Consciousness Inc. (ISKCON) · Library of Congress Catalogue Card Number: 68-29320 ALL RIGHTS RESERVED FIRST EDITION |  | — |
 | `Teachings_of_Queen_Kunti-SCAN` | teachings-of-queen-kunti | First Printing, 1978: 57,300 copies · © 1978 Bhaktivedanta Book Trust All Rights Reserved Printed in the United States of America | 600 | krishnapath.org |
 | `KRSNA Consciousness - The Topmost Yoga System - Original 1970 edition Scan` | topmost-yoga-system | Copyright © 1970 ISKCON PRESS | 600 | PDFium |
+| `Teachings_of_Lord_Kapila-SCAN` | *(not in the collated corpus)* | *(no OCR pass — see note below the table)* | 592 | krishnapath.org |
+| `Transcendental_Teachings_of_Caitanya_Mahaprabhu` | *(not in the collated corpus)* | *(no OCR pass — see note below the table)* | 300 | krishnapath.org |
+| `Transcendental_Teachings_of_Prahlad_Maharaj-Original_book-SCAN` | *(not in the collated corpus)* | *(no OCR pass — see note below the table)* | 600 | Canon MG5300 series |
+
+Three of the seventy-one have no OCR column because they were never collated:
+they are books outside the corpus this project reproduces. They are archived as
+scans all the same — a printed page is worth keeping whether or not we set text
+against it.
 
 ## What is deliberately absent
 
