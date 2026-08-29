@@ -73,9 +73,36 @@ deliberately absent* in `PROVENANCE.md`.
 
 `PROVENANCE.md` as published: `ar://NO7ILnkpN3nUgZ1dsCxIBvWWKs3EI9EV1YuCjJSWxTA`
 
-This file as published: `ar://e3lr7zPyBTdmhdiay1XaZ2mLFq5PLCDi68AN8JH9i3o`
+This file as published: `ar://620vnKvmZGfrE4ft2vAu4ovjAe2FmAcQVh5CFKChj9o`
 Recording its own address here is not circular: nothing hashes this file, so
 adding a line changes nothing but the line.
+
+## Browsing the archive
+
+The transaction ids above address single files. To walk the archive as folders:
+
+**https://app.ardrive.io/#/drives/f1be3a02-a7cd-4251-aa65-5e3652b690a1**
+
+| | |
+|---|---|
+| drive id | `f1be3a02-a7cd-4251-aa65-5e3652b690a1` |
+| root folder id | `a01bc670-61a5-46a4-87b8-5b4439b45750` |
+| privacy | public — no account, no key |
+
+Those two identifiers are written here because they exist nowhere else. The link
+depends on ArDrive continuing to run its viewer; the identifiers do not, and from
+them any ArFS-aware tool can rebuild the tree. The transaction ids above depend
+on neither.
+
+The root holds one folder per section, the manifest, this file, and
+`PROVENANCE.md`. It also holds **`_early-tests/`**, which is what it says: the
+trial uploads made on 26 August while working out how the pipeline behaved — a
+thousand throwaway files, two books uploaded loose before the structure was
+settled, a stray scan, and `PROCEDENCIA.md`, the Spanish draft that `PROVENANCE.md`
+replaced. Nothing on Arweave can be deleted, so they were moved out of the way
+rather than removed, and are named for what they are. Do not read them as part of
+the archive; `PROCEDENCIA.md` in particular is superseded and should not be
+mistaken for the provenance record.
 
 ## Superseded uploads
 
