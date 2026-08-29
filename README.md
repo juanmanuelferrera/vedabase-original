@@ -434,6 +434,72 @@ The original scanned PDFs are available so anyone can check the text against the
 - [Krishna.org scans](https://krishna.org)
 - Devotee Google Drive archives (linked from the source sites)
 
+### The manifest
+
+`MANIFEST.sha256` turns "trust us" into "check it yourself". It holds one line per
+file — the SHA-256 of its contents and its path — and, in the header, a `root`:
+the hash of all those lines together, sixty-four characters standing for the
+whole set. Change a comma anywhere and the `root` changes completely. There is no
+way to alter the text and keep the same number.
+
+That `root` is published on Arweave, where nobody can edit or withdraw it — not
+even us. The values and their transaction ids are in [ANCHORS.md](ANCHORS.md),
+which is deliberately kept out of every manifest: a file cannot state the hash of
+a set it belongs to without changing the very number it is stating.
+
+**Check that this copy is unaltered.** The one you will use most:
+
+    python3 scripts/hash_manifest.py --check
+
+`OK: 102836 files, unchanged against the manifest` means the text is identical to
+what was anchored. Anything else tells you what moved.
+
+**Check one file.** Paths in the manifest carry a `corpus/` prefix, so that the
+same names work in the permanent archive where the text sits beside the scans and
+the OCR. Strip it to check against this repository:
+
+    grep 'isopanisad/iso-1.md$' MANIFEST.sha256 | sed 's|  corpus/|  |' | shasum -a 256 -c -
+    -> isopanisad/iso-1.md: OK
+       translations/espanol/isopanisad/iso-1.md: OK
+       ... and the same file in every language that has it
+
+**Check a whole section** — any path prefix works:
+
+    grep '  corpus/bhagavad-gita-as-it-is/' MANIFEST.sha256 | sed 's|  corpus/|  |' \
+      | shasum -a 256 -c -
+
+**Check something fetched from Arweave.** This is the case that matters, because
+it requires trusting neither us nor the gateway that served it:
+
+    curl -sL https://arweave.net/<transaction> -o fetched.md
+    shasum -a 256 fetched.md
+    grep 'the/path/of/the/file$' MANIFEST.sha256
+
+(For files fetched from the archive, use the archive's own `MANIFEST.sha256`,
+whose paths need no stripping.)
+
+Two matching hashes mean what you hold is exactly what was archived.
+
+**Recompute the `root` yourself**, without running any of our code:
+
+    grep -v '^#' MANIFEST.sha256 | shasum -a 256
+
+It must equal the one in the header and in ANCHORS.md. If it does, the manifest
+has not been tampered with either.
+
+**A gateway's 404 does not mean the file is gone.** Ask another and try again —
+one index lagging behind is not absence. A `200` proves nothing either; a request
+for a file a gateway has not indexed is answered with a redirect and a page of
+HTML. Only the hash settles it, which is what the manifest is for. The full
+account is in [PROVENANCE.md](PROVENANCE.md).
+
+### What the manifest does not prove
+
+That the text is faithful to the printed page. That is what the collation against
+the scans demonstrates, described above, and no hash can stand in for it. The
+manifest freezes the result with a date, so that afterwards nobody — ourselves
+included — can change anything without it showing.
+
 ---
 
 ## License
