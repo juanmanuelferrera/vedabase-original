@@ -73,7 +73,7 @@ deliberately absent* in `PROVENANCE.md`.
 
 `PROVENANCE.md` as published: `ar://NO7ILnkpN3nUgZ1dsCxIBvWWKs3EI9EV1YuCjJSWxTA`
 
-This file as published: `ar://cdzR8SqY5IGYPvh-inBYE6h2PZNaWKdrri5USKEx9a8`
+This file as published: `ar://e3lr7zPyBTdmhdiay1XaZ2mLFq5PLCDi68AN8JH9i3o`
 Recording its own address here is not circular: nothing hashes this file, so
 adding a line changes nothing but the line.
 
