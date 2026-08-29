@@ -145,12 +145,17 @@ def escribe_manifiesto(dest):
     for the reason given at NO_PUBLICADO.
     """
     print("\ncomputing the manifest for the whole package...")
-    volatiles = {"MANIFEST.sha256", "upload.log"} | EXCLUDE_FILES
+    # The tools' own working files live inside the package for convenience and
+    # are not part of what is archived: the uploader's state and log, and the
+    # chain verifier's report. They changed under the manifest's feet and were
+    # briefly certified as archive contents.
+    volatiles = {"MANIFEST.sha256", "upload.log", "verify.log"} | EXCLUDE_FILES
+    prefijos_volatiles = ("UPLOAD-STATE", "VERIFY-CHAIN")
     entries = []
     for dirpath, dirnames, filenames in os.walk(dest):
         dirnames[:] = [d for d in dirnames if d not in EXCLUDE_DIRS]
         for n in sorted(filenames):
-            if n in volatiles or n.startswith(".") or n.startswith("UPLOAD-STATE"):
+            if n in volatiles or n.startswith(".") or n.startswith(prefijos_volatiles):
                 continue
             rel_ = os.path.relpath(os.path.join(dirpath, n), dest).replace(os.sep, "/")
             if rel_.startswith(NO_PUBLICADO):

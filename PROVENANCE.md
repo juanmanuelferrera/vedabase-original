@@ -54,6 +54,21 @@ either: `arweave.net` answers a request for an unpropagated file with a 302 to a
 sandbox subdomain and then a page of HTML. Only comparing the bytes you received
 against the hash in the manifest settles it. That is what the manifest is for.
 
+**Six files were missing, and finding them is why every one was checked.** The
+fault described below had a third consequence that neither sampling nor
+reasoning had suggested: in each affected batch one file was never created at
+all. Not mis-recorded — absent. A verse of the Bhāgavatam in Hindi, three in
+Portuguese, and two fragments of *The Science of Self-Realization* were listed
+in the manifest as present and were not on the chain. They were uploaded on
+29 Aug 2026 and verified byte for byte.
+
+Reading all 86,996 files against the chain took twelve hours and found them.
+Three separate samples, one of 630 files and two of a few hundred, had all come
+back clean of this. A sample can only tell you about the proportion it happens
+to catch, and six files in eighty-seven thousand is not a proportion any sample
+of that size will reliably catch. If an archive claims to be complete, the claim
+has to be tested file by file at least once.
+
 **And do not trust the upload log's transaction column.** The record kept while
 uploading, `UPLOAD-STATE.json`, pairs each file with the transaction that carries
 it, and roughly three pairings in a thousand are crossed: the entry for

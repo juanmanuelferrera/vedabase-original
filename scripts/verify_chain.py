@@ -89,11 +89,18 @@ def hash_a_ruta():
     return d
 
 
-def baja(tx, rondas=2, desde=0):
+def baja(tx, rondas=2, desde=0, esperado=None):
     """Bytes from the first gateway that answers with something real.
 
     `desde` rotates which gateway is tried first, so parallel workers spread
     their load instead of all leaning on the same one and being throttled.
+
+    `esperado` is the hash we hope to see. If a response matches it, it is the
+    file and no filter is applied — which matters, because the filters below are
+    heuristics about *size* and *content*, and a real file can look like either.
+    Two verses of the Bhāgavatam are exactly 2,035 bytes, the size of one
+    gateway's 404 page, and were discarded as network failures until this
+    check went first.
     """
     for _ in range(rondas):
         for j in range(len(PASARELAS)):
@@ -104,7 +111,11 @@ def baja(tx, rondas=2, desde=0):
             except subprocess.TimeoutExpired:
                 continue
             d = r.stdout
-            if d and len(d) != TAM_404 and d not in BASURA:
+            if not d:
+                continue
+            if esperado and sha(d) == esperado:
+                return d
+            if len(d) != TAM_404 and d not in BASURA:
                 return d
         time.sleep(3)
     return None
@@ -200,11 +211,11 @@ def main():
             # not belong. So the rule is not "recognise the rubbish" but "one
             # gateway returning the file is enough, and no single gateway's
             # refusal counts."
-            datos = baja(tx, desde=idx)
+            datos = baja(tx, desde=idx, esperado=local)
             h = sha(datos) if datos else None
             if h != local:
                 for j in range(len(PASARELAS)):
-                    d2 = baja(tx, rondas=1, desde=idx + 1 + j)
+                    d2 = baja(tx, rondas=1, desde=idx + 1 + j, esperado=local)
                     if d2 and sha(d2) == local:
                         datos, h = d2, local
                         break
