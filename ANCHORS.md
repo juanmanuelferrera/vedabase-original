@@ -81,18 +81,39 @@ adding a line changes nothing but the line.
 
 The transaction ids above address single files. To walk the archive as folders:
 
-**https://app.ardrive.io/#/drives/f1be3a02-a7cd-4251-aa65-5e3652b690a1**
+The drive is public in the ArFS sense — nothing is encrypted, and every file can
+be fetched by its transaction id by anyone. But **`app.ardrive.io` is not a way in
+for a stranger**: it asks for a password even in a private window, because it is
+an application for managing your own drives, not a viewer for someone else's.
+Tested 29 Aug 2026. An earlier version of this file said otherwise; it was wrong.
 
 | | |
 |---|---|
 | drive id | `f1be3a02-a7cd-4251-aa65-5e3652b690a1` |
 | root folder id | `a01bc670-61a5-46a4-87b8-5b4439b45750` |
-| privacy | public — no account, no key |
+| privacy | public (unencrypted) |
 
-Those two identifiers are written here because they exist nowhere else. The link
-depends on ArDrive continuing to run its viewer; the identifiers do not, and from
-them any ArFS-aware tool can rebuild the tree. The transaction ids above depend
-on neither.
+Those two identifiers are written here because they exist nowhere else, and from
+them any ArFS-aware tool can rebuild the tree without ArDrive's involvement.
+
+### The way in
+
+**https://arweave.net/S_KxoVfwKsJqKbHTVbcFdRdYhrb_G2TX_hSD1UBvwFo**
+
+An Arweave path manifest over the whole archive: 88,709 paths, served by any
+gateway, needing no account and no application. The address above returns a front
+page; append a path and you get the file:
+
+    .../S_KxoVfwKsJqKbHTVbcFdRdYhrb_G2TX_hSD1UBvwFo/corpus/isopanisad/iso-1.md
+    .../S_KxoVfwKsJqKbHTVbcFdRdYhrb_G2TX_hSD1UBvwFo/scans/adi1.pdf
+    .../S_KxoVfwKsJqKbHTVbcFdRdYhrb_G2TX_hSD1UBvwFo/MANIFEST.sha256
+
+**A path must name a file.** Arweave manifests resolve files, not folders, so
+`/corpus/` returns nothing. `MANIFEST.sha256` lists every path there is.
+
+Verified 29 Aug 2026 across four gateways: the front page, `PROVENANCE.md` at both
+its paths, the manifest, a verse, a 37 MB scan and an OCR container all returned
+byte-identical to the local originals.
 
 The root holds one folder per section, the manifest, this file, and
 `PROVENANCE.md`. It also holds **`_early-tests/`**, which is what it says: the
@@ -115,6 +136,8 @@ still on chain would be the one thing this archive exists to prevent.
 | 26 Aug 2026 | `U9uIEx_mc2e1zVFPXduR6whbtdqIexzk73HMV6JVV8k` | An early draft of `PROVENANCE.md` | A test that proved the pipeline worked end to end. Retrieved from a public gateway and confirmed byte-identical to the local original. Never an anchor. |
 | 26 Aug 2026 | `TxIXCmb4h3kyAVuIyaNwbBpMmabAEb6ts24bsnhhGLs` | `MANIFEST.sha256`, package root `9aeb1cb5…d718` | Uploaded before the package was final: its copy of `PROVENANCE.md` predated the OCR containers, and it still listed the 11,474 duplicated Bhāgavatam pages. |
 | 26 Aug 2026 | `y7AgXnAdRsvd7tuFeKTRVEB1SuB9u2eOmSpgOMk9mCg` | `PROVENANCE.md` | Did not yet say that the Russian translation is held back, so it described an archive with 16,311 files silently missing. |
+| 29 Aug 2026 | `ar://m4Botm_JlN-DIsZT43PsxJenKwmo6EJi3KtRJ7oZbk4` | The first path manifest | Its root served a stray test file, and `/PROVENANCE.md` resolved to a superseded 6 KB draft rather than the document. |
+| 29 Aug 2026 | `ar://vL2sv5dNLsIoNl1pXCO7awOzaByCZnmdhFA-enHr_UM` | The second path manifest | Its front page linked to folders, and Arweave manifests do not resolve folders, so every one of those links returned 404. `/PROVENANCE.md` still resolved to the old draft. |
 | 26 Aug 2026 | corpus root `2ec622af…d497f7` | The corpus root anchored that day | Superseded: `PROVENANCE.md` gained the section on what is absent, and every `.md` is inside the corpus manifest. |
 | 28 Aug 2026 | `ar://Wf8LWB6xrovGKM4xZHYRcz6F4G1L74MKdsUjUFsb9rg` | `MANIFEST.sha256`, package root `274c2af2…a09b17` | Written before six files were found to be missing from the chain and uploaded, and before the verifier's own working files were kept out of it. |
 | 28 Aug 2026 | `ar://UL6GCZ4-o51WCJHfQb9ZLrv0NAJAVSiQNB9NiupFql8` | `PROVENANCE.md` | Did not yet record the six missing files, nor the warning about single-gateway checks. |

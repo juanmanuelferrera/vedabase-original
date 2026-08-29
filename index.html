@@ -1,0 +1,82 @@
+<!doctype html>
+<meta charset="utf-8">
+<title>Vedabase Original — permanent archive</title>
+<meta name="viewport" content="width=device-width,initial-scale=1">
+<style>
+  :root { color-scheme: light dark; }
+  body { max-width: 46rem; margin: 0 auto; padding: 2.5rem 1.25rem 5rem;
+         font: 16px/1.65 Georgia, "Times New Roman", serif;
+         background: #fbfaf7; color: #22201c; }
+  @media (prefers-color-scheme: dark) { body { background:#171614; color:#e6e2da; } }
+  h1 { font-size: 1.9rem; margin: 0 0 .3rem; }
+  .sub { opacity:.65; margin:0 0 2rem; font-size:1.05rem; }
+  h2 { font-size: 1.15rem; margin: 2.2rem 0 .6rem; }
+  table { border-collapse: collapse; width: 100%; font-size: .95rem; }
+  td { padding: .45rem .5rem .45rem 0; vertical-align: baseline;
+       border-bottom: 1px solid rgba(128,128,128,.22); }
+  td:first-child { white-space: nowrap; padding-right: 1.2rem; }
+  a { color: #1a6f63; }
+  @media (prefers-color-scheme: dark) { a { color:#63c3b4; } }
+  code { font: 13px/1.5 ui-monospace, Menlo, monospace; word-break: break-all; }
+  .note { font-size:.9rem; opacity:.75; }
+</style>
+
+<h1>Vedabase Original</h1>
+<p class="sub">The first editions of Śrīla Prabhupāda’s books, the scans they were
+checked against, and the record of every correction — archived permanently.</p>
+
+<p>Every file here is addressable by path: append its path to this page’s address
+and the gateway serves you the file. No account, no application, nothing to
+install. <strong>There are no directory listings</strong> — a path must name a
+file, not a folder. The full list of paths is in the manifest below.</p>
+
+<h2>Read these first</h2>
+<table>
+<tr><td><a href="./corpus/PROVENANCE.md">corpus/PROVENANCE.md</a></td>
+    <td>Where all of this came from, what is deliberately absent, and how to check it.</td></tr>
+<tr><td><a href="./MANIFEST.sha256">MANIFEST.sha256</a></td>
+    <td>The SHA-256 of every published file and a root hash over the whole set — and,
+        because it lists them, the index of every path in this archive.</td></tr>
+</table>
+
+<h2>What is here</h2>
+<table>
+<tr><td><code>corpus/</code></td>
+    <td>The text — 86,418 files, in English, Spanish, Portuguese and Hindi.<br>
+        <a href="./corpus/isopanisad/iso-1.md">corpus/isopanisad/iso-1.md</a></td></tr>
+<tr><td><code>scans/</code></td>
+    <td>71 PDFs of the printed books, including the complete Śrīmad-Bhāgavatam.<br>
+        <a href="./scans/adi1.pdf">scans/adi1.pdf</a></td></tr>
+<tr><td><code>ocr-packed/</code></td>
+    <td>Every page as read by two independent OCR engines, one <code>.tar</code> per book.<br>
+        <a href="./ocr-packed/OCR-CONTENTS.sha256">ocr-packed/OCR-CONTENTS.sha256</a></td></tr>
+<tr><td><code>corrections/</code></td>
+    <td>The ledger of corrections applied to the text.</td></tr>
+<tr><td><code>audit/</code></td>
+    <td>Every discrepancy found: open, arbitrated, applied.</td></tr>
+<tr><td><code>reports/</code></td>
+    <td>Each difference shown beside the image of the scanned page.</td></tr>
+<tr><td><code>tools/</code></td>
+    <td>The code that did the collation and applied the fixes.</td></tr>
+<tr><td><code>reference-standards/</code></td>
+    <td>The reference texts used as a standard.</td></tr>
+</table>
+
+<h2>Checking a file</h2>
+<p>Fetch it, hash it, and look the hash up in the manifest. If the two agree, what
+you hold is what was archived — you need not trust whoever served it to you:</p>
+<p><code>curl -sL &lt;this-address&gt;/corpus/isopanisad/iso-1.md | shasum -a 256</code><br>
+<code>grep 'corpus/isopanisad/iso-1.md$' MANIFEST.sha256</code></p>
+
+<h2>Two things worth knowing</h2>
+<p class="note"><strong>A gateway answering <em>404</em> does not mean a file is
+gone.</strong> Gateways index the network separately and some lag behind. Ask
+another — <code>ar-io.dev</code>, <code>ardrive.net</code> and
+<code>permagate.io</code> all serve the same data — and try again. Only the hash
+settles anything.</p>
+<p class="note"><strong><code>_early-tests/</code> is not part of the archive.</strong>
+It holds the trial uploads made while working out how to publish this. Nothing on
+Arweave can be deleted, so they were moved aside and named for what they are. Do
+not read them as archive content. The same goes for two names that may still
+resolve at the top level: <code>PROCEDENCIA.md</code>, a Spanish draft that
+<code>PROVENANCE.md</code> replaced, and <code>prueba-c.md</code>, a test file.</p>
