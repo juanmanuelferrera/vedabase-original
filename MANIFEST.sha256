@@ -9,8 +9,8 @@
 # Comprobarlo por tu cuenta:
 #     python3 scripts/hash_manifest.py --check
 #
-# fecha:    2026-08-29 06:02 UTC
-# commit:   ea62a1c98cad76ae9456b3077f3c0b1f3782c9ef
+# fecha:    2026-08-29 07:26 UTC
+# commit:   e711c81adedd5677a289286c4ea4caa187e3c171
 # ficheros: 102836
 # bytes:    766969514
 # root:     0c8523c221b02001d918ca9bb17d81f4d138e10580ec2820992281d89a38235d
