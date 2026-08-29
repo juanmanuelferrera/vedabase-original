@@ -21,7 +21,7 @@ corrections applied to it, 102,836 files.
 
 | Date | Corpus root | Anchored in |
 |---|---|---|
-| 28 Aug 2026 | `697768383467728d7c1de00772f35df31976b4e8965fcfc3973c5bcb056d73fe` | this file |
+| 29 Aug 2026 | `8bcaa67ed8498e09c6e956f45807d5f7cb67ae394ee37e51532a080af77a221d` | this file |
 
 Check any copy against it:
 
@@ -35,11 +35,11 @@ the new root is anchored, and the old rows stay so the sequence stays legible.
 
 The SHA-256 over the manifest of the permanent archive — corpus, scans, OCR
 containers, correction ledgers, audit ledger, reports and tools together. It
-covers the 86,994 files that were published, and only those.
+covers the 86,995 files that were published, and only those.
 
 | Date | Package root | Manifest transaction |
 |---|---|---|
-| 28 Aug 2026 | `274c2af2b87e9ac982f7eca1220477716068219e47aed6b9cdad23fbf3a09b17` | `ar://Wf8LWB6xrovGKM4xZHYRcz6F4G1L74MKdsUjUFsb9rg` |
+| 29 Aug 2026 | `51c0318a5eb1857bc4dac99c9e3a1118ab57e9241ffd18bab826409056fae988` | `ar://81Fo6FX9AR4RcleArZt0VwFBujN_JyfAALcvsMQ7uoA` |
 
 Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
 
@@ -48,7 +48,7 @@ Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
 | Piece | Files |
 |---|---:|
 | corpus — English, Spanish, Portuguese, Hindi | 86,418 |
-| scans, 70 PDFs of the printed books | 70 |
+| scans, 71 PDFs of the printed books | 71 |
 | OCR containers, one `.tar` per book per engine | 43 |
 | correction ledgers | 107 |
 | audit ledger | 208 |
@@ -61,9 +61,9 @@ Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
 The Russian translation, 16,311 files, is not published. See *What is
 deliberately absent* in `PROVENANCE.md`.
 
-`PROVENANCE.md` as published: `ar://UL6GCZ4-o51WCJHfQb9ZLrv0NAJAVSiQNB9NiupFql8`
+`PROVENANCE.md` as published: `ar://NO7ILnkpN3nUgZ1dsCxIBvWWKs3EI9EV1YuCjJSWxTA`
 
-This file as published: `ar://P2XxCf4KH4LEuS9QNpu09H6vF3Gwi78rHK9QVqjVJu8`
+This file as published: `ar://cdzR8SqY5IGYPvh-inBYE6h2PZNaWKdrri5USKEx9a8`
 Recording its own address here is not circular: nothing hashes this file, so
 adding a line changes nothing but the line.
 
@@ -78,4 +78,6 @@ still on chain would be the one thing this archive exists to prevent.
 | 26 Aug 2026 | `U9uIEx_mc2e1zVFPXduR6whbtdqIexzk73HMV6JVV8k` | An early draft of `PROVENANCE.md` | A test that proved the pipeline worked end to end. Retrieved from a public gateway and confirmed byte-identical to the local original. Never an anchor. |
 | 26 Aug 2026 | `TxIXCmb4h3kyAVuIyaNwbBpMmabAEb6ts24bsnhhGLs` | `MANIFEST.sha256`, package root `9aeb1cb5…d718` | Uploaded before the package was final: its copy of `PROVENANCE.md` predated the OCR containers, and it still listed the 11,474 duplicated Bhāgavatam pages. |
 | 26 Aug 2026 | `y7AgXnAdRsvd7tuFeKTRVEB1SuB9u2eOmSpgOMk9mCg` | `PROVENANCE.md` | Did not yet say that the Russian translation is held back, so it described an archive with 16,311 files silently missing. |
-| 26 Aug 2026 | corpus root `2ec622af…d497f7` | The corpus root anchored that day | Superseded by the root above: `PROVENANCE.md` gained the section on what is absent, and every `.md` is inside the corpus manifest. |
+| 26 Aug 2026 | corpus root `2ec622af…d497f7` | The corpus root anchored that day | Superseded: `PROVENANCE.md` gained the section on what is absent, and every `.md` is inside the corpus manifest. |
+| 28 Aug 2026 | `ar://Wf8LWB6xrovGKM4xZHYRcz6F4G1L74MKdsUjUFsb9rg` | `MANIFEST.sha256`, package root `274c2af2…a09b17` | Written before six files were found to be missing from the chain and uploaded, and before the verifier's own working files were kept out of it. |
+| 28 Aug 2026 | `ar://UL6GCZ4-o51WCJHfQb9ZLrv0NAJAVSiQNB9NiupFql8` | `PROVENANCE.md` | Did not yet record the six missing files, nor the warning about single-gateway checks. |
