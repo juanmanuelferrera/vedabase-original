@@ -19,9 +19,16 @@ The SHA-256 over the lines of `MANIFEST.sha256` in this repository, which lists
 every `.md` and `.jsonl` here — the text of the first editions and the ledger of
 corrections applied to it, 102,836 files.
 
-| Date | Corpus root | Anchored in |
-|---|---|---|
-| 29 Aug 2026 | `8bcaa67ed8498e09c6e956f45807d5f7cb67ae394ee37e51532a080af77a221d` | this file |
+| Date | Corpus root | Commit | Anchored in |
+|---|---|---|---|
+| 29 Aug 2026 | `0c8523c221b02001d918ca9bb17d81f4d138e10580ec2820992281d89a38235d` | `0b1142633040cc5c2effeac0b25e1e38e8ea13dd` | this file |
+
+An anchor names a date, and a date is not something anyone can return to. It also
+names the **commit**, which is: `git checkout <commit>` puts the repository in
+exactly the state the root was computed over, and `--check` will agree. Without
+that, editing so much as this README after anchoring leaves a published root that
+matches nothing anyone can reproduce — which reads like tampering. It happened on
+the first attempt at this table.
 
 Check any copy against it:
 
@@ -40,6 +47,9 @@ covers the 86,995 files that were published, and only those.
 | Date | Package root | Manifest transaction |
 |---|---|---|
 | 29 Aug 2026 | `51c0318a5eb1857bc4dac99c9e3a1118ab57e9241ffd18bab826409056fae988` | `ar://81Fo6FX9AR4RcleArZt0VwFBujN_JyfAALcvsMQ7uoA` |
+
+The package root covers the archive as uploaded and does not move when this
+repository's documentation is edited.
 
 Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
 
@@ -81,3 +91,4 @@ still on chain would be the one thing this archive exists to prevent.
 | 26 Aug 2026 | corpus root `2ec622af…d497f7` | The corpus root anchored that day | Superseded: `PROVENANCE.md` gained the section on what is absent, and every `.md` is inside the corpus manifest. |
 | 28 Aug 2026 | `ar://Wf8LWB6xrovGKM4xZHYRcz6F4G1L74MKdsUjUFsb9rg` | `MANIFEST.sha256`, package root `274c2af2…a09b17` | Written before six files were found to be missing from the chain and uploaded, and before the verifier's own working files were kept out of it. |
 | 28 Aug 2026 | `ar://UL6GCZ4-o51WCJHfQb9ZLrv0NAJAVSiQNB9NiupFql8` | `PROVENANCE.md` | Did not yet record the six missing files, nor the warning about single-gateway checks. |
+| 29 Aug 2026 | corpus root `8bcaa67e…f77a221d` | The corpus root anchored earlier that day | Superseded within hours: the README gained the section on how to use the manifest, and the README is inside the manifest. That is exactly the drift the commit column now prevents. |
