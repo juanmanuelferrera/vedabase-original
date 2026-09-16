@@ -9,11 +9,11 @@
 # Comprobarlo por tu cuenta:
 #     python3 scripts/hash_manifest.py --check
 #
-# fecha:    2026-08-29 07:26 UTC
-# commit:   6cc37978ad26e4aa2e3452260a24089894c77ad0
-# ficheros: 102836
-# bytes:    766969514
-# root:     0c8523c221b02001d918ca9bb17d81f4d138e10580ec2820992281d89a38235d
+# fecha:    2026-09-16 10:03 UTC
+# commit:   6a50ee015796f74545b2d265c2688c4dbf1fef57
+# ficheros: 102866
+# bytes:    783223325
+# root:     42e78565f7e05bc5d0da6ded9a399669b421b9bd7a44b6bf44141601d7f26b37
 #
 efbb9c92ced5131364d184269769070002b90c8128ca19e649df418752c33ea0  corpus/PRINT_ERRATA.md
 b5d14a92431b6b2a88936bee36d07e2c2c573c6f06ad2ec439a308b297392040  corpus/PROVENANCE.md
@@ -130,7 +130,7 @@ df91edcb466c2ae9a2f223f9c19adce2a483ab4ae58ae97595ba006780e89596  corpus/bhagava
 1a169304874a01b2149fd8679e03c0e49f536e040d9e4f1b57af614d435983ab  corpus/bhagavad-gita-as-it-is/chapter-02/bg-2.67.md
 4828b0d30696233b4a197d348c9049ece850bac784843acc719c345dd212337c  corpus/bhagavad-gita-as-it-is/chapter-02/bg-2.68.md
 1a008819d2ab3c68e53ac675a6acf93e99adff9e932e2600f5e2b89c6369985b  corpus/bhagavad-gita-as-it-is/chapter-02/bg-2.69.md
-81b74639bc7495db18d26b0ddddde578bad05b3cb5164cb90b879e8cde5a89c5  corpus/bhagavad-gita-as-it-is/chapter-02/bg-2.7.md
+ab5b85f4db251009911ff72aac1ea624e851b3aa6fc1d9ef4c93f007f36d9b68  corpus/bhagavad-gita-as-it-is/chapter-02/bg-2.7.md
 4525bc04b41463967af500ce00268860057fafb093ce9daeef9bab7fc8995993  corpus/bhagavad-gita-as-it-is/chapter-02/bg-2.70.md
 741ef09b738ce5fb804a25abd92e8b26856fd0ee1928170b93b98f595a59cc1c  corpus/bhagavad-gita-as-it-is/chapter-02/bg-2.71.md
 485de0818e6208d43dd186a92cbba2e73c6d0fc75dfaddd8b1b957394514c060  corpus/bhagavad-gita-as-it-is/chapter-02/bg-2.72.md
@@ -529,7 +529,7 @@ ace30638d78a5e53b87354ac48d1f5642b488f0e95281498ef2678a867f117e0  corpus/bhagava
 61305e6714ab15983782741c1e734bd8f9e2fa87e7fe5503700ca1177a155738  corpus/bhagavad-gita-as-it-is/chapter-13/bg-13.4.md
 17333350b3e096cedf0bbf137888aadd702faa9269d0c4b6121e76c32eaf47ab  corpus/bhagavad-gita-as-it-is/chapter-13/bg-13.5.md
 0390ca0ef53648424cb593e4c54ec11914b46e19e2fc74f1c7f09622a58a8629  corpus/bhagavad-gita-as-it-is/chapter-13/bg-13.6-7.md
-ccc0802b0bdab6dd75c90043c422674a47a0192221b343a780b01d23288da23c  corpus/bhagavad-gita-as-it-is/chapter-13/bg-13.8-12.md
+447b79a942f015f78582c347dd128b4403b81aa2bb2f60dae3af4eea54383533  corpus/bhagavad-gita-as-it-is/chapter-13/bg-13.8-12.md
 ae17034a83626f08f357db683805250c9749b014b2e839ca63bd3869fef013dd  corpus/bhagavad-gita-as-it-is/chapter-14/bg-14-colophon.md
 3b399c54ebb399fb6be8db2c624db208c13b19576c99e6f779cb2ed8903baad3  corpus/bhagavad-gita-as-it-is/chapter-14/bg-14.1.md
 319729490d698cd7c8c8eee6f065dc73789f2f6f19a41fe672a7e73c358a196f  corpus/bhagavad-gita-as-it-is/chapter-14/bg-14.10.md
@@ -701,7 +701,7 @@ dc13055a09b2de175682f89ca7319ba053bd15918f95f71aa6fc25d121be969b  corpus/bhagava
 b10fdd2016cc97838fd310a43a611c307e37e5a0f56c8a39f2e427bff43941be  corpus/bhagavad-gita-as-it-is/introduction.md
 741254c44730631b86dba96177985c179ac791c71e2c359998538aada0cf5ead  corpus/bhagavad-gita-as-it-is/preface.md
 adab77f7da68f2c3441a06ddea027aa24db9b90e15f8058b581e47dc787ffcc6  corpus/bhagavad-gita-as-it-is/title.md
-9992018e00b089e0a2564ac5e608140dca9d4c616649e6bf37aa5202d25b2bcf  corpus/corrections.jsonl
+30eb253d1bcc6570f973c06f684e197bc10f8ae51b0c607e0916fed3cea130b3  corpus/corrections.jsonl
 46c67311cd2848daf2e8f3f8ed1bc6ad1918ca7db7594759283f5bb7dbc0dc01  corpus/easy-journey-to-other-planets/chapter-1.md
 94c5b294c8aca7d80aa78ad91414c899942067c0471ff22db815a874e084dc4e  corpus/easy-journey-to-other-planets/chapter-2.md
 b656879538f240b801a941b7b5980a9b7dd7f6e2092be4bcebcbffc8c875547f  corpus/easy-journey-to-other-planets/preface.md
@@ -86520,12 +86520,12 @@ f09553d7e90719b964c2f9b6638cddf5fc13d780629ed9a3a5fb66344e738475  corpus/transla
 d448b64120a8a1a95661e5995e5433ca2081759eedbc855c7c45b04af3a0eaf3  corpus/translations/portugues/topmost-yoga-system/chapter-8.md
 af645a502ffd78695487d698accd32b3c0a3db897ee48f8c62e97c464534c9f0  corpus/translations/portugues/topmost-yoga-system/chapter-9.md
 f88e61a279a7253e57283a13baeb046a2477e037b58eba0c5f943ee359528a36  corpus/translations/portugues/topmost-yoga-system/ttp_pt.jsonl
-573bc051c6264d290eb65c99e0304d87db7cb61533639328afdb189af9ab5c67  corpus/translations/russian/beyond-birth-and-death/bbd_ru.jsonl
-d0ed331c2404326fdf52682e57d80aaf69dbe9cc5b2bccc69412364acf1b474d  corpus/translations/russian/beyond-birth-and-death/chapter-1.md
-6f4a74fb8aa86db313d59b6cd18387b7f44c60157ecedc86246548cdd8794738  corpus/translations/russian/beyond-birth-and-death/chapter-2.md
-cb57562a349c010eb350aabd8c4205ac25bf328e554a546e373ce41f647370c3  corpus/translations/russian/beyond-birth-and-death/chapter-3.md
-a585d864ffcca19cdb378c3c536cfa3219e958efcc73a8b9b4964fa5fd56ddd6  corpus/translations/russian/beyond-birth-and-death/chapter-4.md
-380341f30afda6ee689f382015819d016ab746896cb29826aee80c46117aaa1c  corpus/translations/russian/beyond-birth-and-death/chapter-5.md
+83420f3e353334568f531ef0a7bb36c5a9b6e4b710746ad3bcd168bef74bfd45  corpus/translations/russian/beyond-birth-and-death/bbd_ru.jsonl
+9bfcea97661f8c6e4cf01065868385fceab12b9157fe5ea6451bf3d246cd7068  corpus/translations/russian/beyond-birth-and-death/chapter-1.md
+69183debfee7c138699f1dc18fb1a5a1f1888648b3d953abb7fff02d52b356b8  corpus/translations/russian/beyond-birth-and-death/chapter-2.md
+135d37e4cbf423ae31221622023cb9e7a815c4c0bd579fba77b8a6785b577ec7  corpus/translations/russian/beyond-birth-and-death/chapter-3.md
+6e56c03a587da933386b8985878ac4a364a7f04c7c8f1e9bba0fadc32ddd9aa4  corpus/translations/russian/beyond-birth-and-death/chapter-4.md
+006650b426b1a94ab6585c2989b1f00fb7356de71eda33cf5f257422ec22496a  corpus/translations/russian/beyond-birth-and-death/chapter-5.md
 3f702ef4a3ceeaab42b9a602dc34400724ca77d9fc96eefea09cf5caa1eb1c58  corpus/translations/russian/bhagavad-gita-as-it-is/bg_ru.jsonl
 392a4e30566669b572b68afeeea221c1f064a074cc0d723f9a0e0d53a8e02d5e  corpus/translations/russian/bhagavad-gita-as-it-is/chapter-01/bg-1.1.md
 cfa51c55e6c3b3d0dc98d12b177e983e47fb59e37a3ab9faaa94928cb22f8b78  corpus/translations/russian/bhagavad-gita-as-it-is/chapter-01/bg-1.10.md
@@ -87187,17 +87187,17 @@ eabc72f351db2df965044842772674b130e50e7d6a52b8864b5e38d99f5a2eaa  corpus/transla
 bc7b177f799a2cfd07152f51cf216b5da2452abfc75d298d5246118df08405b0  corpus/translations/russian/bhagavad-gita-as-it-is/foreword.md
 5cc449d78e7e09757bc14d13b30b15279fc18f33b7a2d0fd289b9509ba7cd600  corpus/translations/russian/bhagavad-gita-as-it-is/introduction.md
 8f55113161ad0bf8f5282e92f6a99b7a68c7b8bd36aba52ae27270145880e694  corpus/translations/russian/bhagavad-gita-as-it-is/preface.md
-9d9c5ae204fd9d8a7386338c6c6513e63cc76434ba816883ea4f10b458c8fdc1  corpus/translations/russian/easy-journey-to-other-planets/chapter-1.md
-2b4baa616839ef0b6bcabe594df3a3b2ca0092d20d266395485eb593f0ee2464  corpus/translations/russian/easy-journey-to-other-planets/chapter-2.md
-44903fb95941e86dc56da703d78b841384d185ffbf37ee5191a0b7628a64d417  corpus/translations/russian/easy-journey-to-other-planets/ej_ru.jsonl
-43d9519918d964f9f9b558dbde559d43e8e4bfebe9e9f5e589db49ea2a7c0985  corpus/translations/russian/easy-journey-to-other-planets/preface.md
-de55e8cf1b7553842de791a033d89af3e65822b6b243c034f2c590a35d5ffdf6  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-1.md
-5ca426d906409bcdb5e14a58e91ae0d125747be12671e7ba1fa9ae7090174fe9  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-2.md
-6b7238c0d4bec05abeaaffa0b694bb7f40b42bf94dd9a63f6b77afbdbc4b816e  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-3.md
-dfc5c74986bb326d4545a15999b1489d8ab2870da8241e96797cf8751d872c8a  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-4.md
-627c57d2f8dd5892fd151e86cc8d0430233ea9e1ae68ff8ad786a4516d305668  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-5.md
-c1648b6389a46b8247754c5fc06784e727735b66f88c92fb55f133b84de15e10  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-6.md
-0401d41d014169502094df7c6a9c60b5eed3587bdc9622888eb632f1928319ea  corpus/translations/russian/elevation-to-krsna-consciousness/ekc_ru.jsonl
+bee1238ee34c4ca12141640899f13e3938e3d20803a3c7a15e4d4f95953f5c52  corpus/translations/russian/easy-journey-to-other-planets/chapter-1.md
+083ddd3f38dc48d708221eeabca5b9e5b48bc0fa5d070a1c4cc9c967e54c4f63  corpus/translations/russian/easy-journey-to-other-planets/chapter-2.md
+2a6c6708460dd5535385e78f1723ee4ec401b1933611b498858487121c84578b  corpus/translations/russian/easy-journey-to-other-planets/ej_ru.jsonl
+e95b02433b41ab33411abd37b9ff94a4095e88468b7c6fd144f342403466454f  corpus/translations/russian/easy-journey-to-other-planets/preface.md
+be92c9d25be39bdf3f6c58b74d9a7c64b26cb28a9546d9a4be8e6c94440dad63  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-1.md
+9b4901e0976457d22bb7ccbbb75bac7f41090a187c2f749b81ae9682d480e3bb  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-2.md
+d6d9512e9c3f29fe6369c9a15e0b158079472c093337514124a4fcc06378bebc  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-3.md
+266763de345172916a31f1c82b36b139369d8823ce3c6b1638d252393f4953d1  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-4.md
+3a9b78bc171aef9a18ed32fed722d533bb01702dc9559defa30a0bf8266930f1  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-5.md
+2141fd80d10727ab8fa450eb738c04ef418c8a7a2fa4dc6911e5a17c9fda38a8  corpus/translations/russian/elevation-to-krsna-consciousness/chapter-6.md
+562c18b0b4104e5da9f0b7e13cf6830c2fcb6eacd3c786713d51997face55d06  corpus/translations/russian/elevation-to-krsna-consciousness/ekc_ru.jsonl
 dceeb108c1587667adaaac96983572b894d08029ed69a3c63b554b0cd54d53cf  corpus/translations/russian/isopanisad/iso-1.md
 26eab98ea71a2823918e7637dcb1835cdd72ee16a6af81ba8fdea32c908c396d  corpus/translations/russian/isopanisad/iso-10.md
 50b0913c661c5244df314a9560f62defb58e87596bf773ad6fd369bb33a16a4f  corpus/translations/russian/isopanisad/iso-11.md
@@ -87331,7 +87331,7 @@ d13a180710ac81f1b7b95963db95665b7398ac158f68dd548f8ac2636d6a28db  corpus/transla
 ffcc89d3dc40310c4ad9a4b66ce39f54fc843d8b68c16c8346370ca6b82a2306  corpus/translations/russian/life-comes-from-life/chapter-8.md
 14f484e1e0b84b6629243131de69a6b0fd8cc5a98dfd9a2b8ddb62c1aa7eae6b  corpus/translations/russian/life-comes-from-life/chapter-9.md
 c0f6c68e1de40326c1dfeb34a425801eb07233637fd0b6fe81aae483eddc8ba5  corpus/translations/russian/life-comes-from-life/foreword.md
-704f6cde10d507350085e7c9c9cb034a63a0f98630e1022ef4ce162582e1d54d  corpus/translations/russian/life-comes-from-life/lcfl_ru.jsonl
+ddd43d882530b586c19f970bc05c2ec2fb232b06896e38f5aca162de367951b1  corpus/translations/russian/life-comes-from-life/lcfl_ru.jsonl
 530b1248640a62ee6dae4a39b5d3f64564de2a89c57c6e9b5c7bcaf3d730f457  corpus/translations/russian/life-comes-from-life/science-truth-and-fiction.md
 95c21666bec9a1d506008929d3f478210eef1044fcb22f6fdb48258b64e3903d  corpus/translations/russian/light-of-the-bhagavata/lob_ru.jsonl
 cfe1ed0119cefaac845e63a6befa982d7115473c8dcf8d6acd2e963dfdfbb24d  corpus/translations/russian/light-of-the-bhagavata/preface.md
@@ -87437,7 +87437,7 @@ ef1ac8849e022d489d00033bfae32fa67af522b8a00085ab98e9879c9910a9fd  corpus/transla
 948e11984334f080f0e63c15abc5340cf9542fa324713eb638e8740abd18bdac  corpus/translations/russian/nectar-of-devotion/introduction.md
 4758e4aefe08d8728383f5eb56346e33a98712bbb0f6b4538232f72507c090d9  corpus/translations/russian/nectar-of-devotion/nod_ru.jsonl
 6ea9695e9d49ecf63fcb5b5e5b0d5e9e9b24219d5ca6086ae6616af5c905b6c8  corpus/translations/russian/nectar-of-devotion/preface.md
-19f053d269aba7f2b62589ee31a5781939e41c11a4ec1b34dd33659a5512f6c0  corpus/translations/russian/nectar-of-instruction/noi_ru.jsonl
+23bfeb2a42fd53b90c44295dd0ef87b73094614e79f1122b34840e8af8cc3a9c  corpus/translations/russian/nectar-of-instruction/noi_ru.jsonl
 d95fe3d3d5a204b0dbb6a5e9931c4e2b3eed99e12e1b05fcf5d5b31b44387a04  corpus/translations/russian/nectar-of-instruction/preface.md
 a59b3f2604fb972a8eddb796fa2aec647b10172319ed0a453a63dab966e7b9bb  corpus/translations/russian/nectar-of-instruction/verse-1.md
 1ed2d6d078f9d069718fa0579a0f2544e4a01dc35ad13a0da690a5f046d68fbd  corpus/translations/russian/nectar-of-instruction/verse-10.md
@@ -87450,12 +87450,12 @@ c2bc135cf0ef2dda1aa8e15844388d8021eeba9276d3478ad3f6f54da18456f0  corpus/transla
 76d3505267b7630b38b9b59c29e23316052fd7e5ca8aa6f9a1c7776c90e6ba72  corpus/translations/russian/nectar-of-instruction/verse-7.md
 71b6ed7de0e2c68d29be0e0bccea079eaf7b58ea5ab6f4d30b18cf59a476cb21  corpus/translations/russian/nectar-of-instruction/verse-8.md
 b9606a4b895bdfb79ee2704ae0b9f1e3451375ec14c365139ec5ccbfeea489f4  corpus/translations/russian/nectar-of-instruction/verse-9.md
-98ef902abcbe1121729d15f3fd82fed4f7adfc32960c98135e32ccbaab88d312  corpus/translations/russian/on-the-way-to-krsna/chapter-1.md
-2056cfe150480cc3a585e67fb00cf77281619090750866b1d59f9e8093633949  corpus/translations/russian/on-the-way-to-krsna/chapter-2.md
-983e11f47672dfc356733d4e92e49cb2ca5ec2f5fb3535ae7b3e8fdab0faed02  corpus/translations/russian/on-the-way-to-krsna/chapter-3.md
-114deeae0a68252cf79ef43aafab4674b39f6e433e75ba24a7de2d717fe3a3c1  corpus/translations/russian/on-the-way-to-krsna/chapter-4.md
-3c3c379e0ba7f65b4ab31d3e2ba0d2978027c5401d996a805dcc4ff74a722d16  corpus/translations/russian/on-the-way-to-krsna/chapter-5.md
-1bdc90681a948dd11d824c08ed77a25ede14f925daa2e30a27f260550638f6d0  corpus/translations/russian/on-the-way-to-krsna/owk_ru.jsonl
+f77662e75fd164bea4723def0136e3d5d7ce3d5c38961d0c57824ea7a3a432e1  corpus/translations/russian/on-the-way-to-krsna/chapter-1.md
+7b5a25eed72267bec87c276c4a0dda44476e11fafb0e24d397d2e1f386013c31  corpus/translations/russian/on-the-way-to-krsna/chapter-2.md
+5735440ca1ae50df6f72af1c3b618bfb5a71cdb338bb79b5c648d0e6099f89e8  corpus/translations/russian/on-the-way-to-krsna/chapter-3.md
+a3b95c72736e02bf96703963adbd7d2e14e1eafdbd019e8e761c40f9a6d7b385  corpus/translations/russian/on-the-way-to-krsna/chapter-4.md
+9f9ef599f340ab7e90e995481ef0f237c0a465597ec9ab237bc85b06c5d0dae4  corpus/translations/russian/on-the-way-to-krsna/chapter-5.md
+13b6fbcc15c714e26990089d84b2b7b13a5d4bb5e0305706071aba381e44fce1  corpus/translations/russian/on-the-way-to-krsna/owk_ru.jsonl
 aca511766fb37f2c1eed385f39f6a3df2ded3756b36bd1681c922cbc7e7079c0  corpus/translations/russian/path-of-perfection/chapter-1.md
 bd06585bf360e9fffe80c6e106cbfb47bf2f36ecf2ebab1268dccf90fb3ff45c  corpus/translations/russian/path-of-perfection/chapter-10.md
 4bb3b4e8b84cc5c84e73f266aba0469a4ca3b8d344e45d9610fff777d98ba8e4  corpus/translations/russian/path-of-perfection/chapter-2.md
@@ -87498,6 +87498,8 @@ cfa4ce697973b9882a8182ec8b2925e8637396e9cedf195a68830f2e3ebc8498  corpus/transla
 53346720f5345ff5cfb7a4210febd885a1c747b5eb18afb4ad85a639e2ac2613  corpus/translations/russian/raja-vidya/chapter-7.md
 d8752d11cbeb77f7381951926ab7a3dbb700f04393e7e3ca071d07a658ac3b91  corpus/translations/russian/raja-vidya/chapter-8.md
 86678a8ccbddeeb4c8dec9ffc8e22ca1f2ace8fdf8b70de9868f45b2b742f201  corpus/translations/russian/raja-vidya/rv_ru.jsonl
+ab5822f0ae18104cd8945110520e0ddd1f9c772dcbcb1c79cac64d74686e22d6  corpus/translations/russian/reservoir-of-pleasure/chapter-1.md
+fc7cab6725b3e89efe83a01e2ad83b36bb0f438c67ea981a1d0d36db48250c92  corpus/translations/russian/reservoir-of-pleasure/krp_ru.jsonl
 3701162b50c3d63364db31eaa4a0a9a91eaaf28c1f759793e65b833bb4aa89b9  corpus/translations/russian/science-of-self-realization/chapter-1.md
 fff261d67b62758ac4f9faa334f34ecf537616a68090a707db2cce90ccf6ec49  corpus/translations/russian/science-of-self-realization/chapter-2.md
 73b86c96404bb183d609db6f86f1553918dcc9b07e38cf8c9db172818d8391f9  corpus/translations/russian/science-of-self-realization/chapter-3.md
@@ -92942,7 +92944,7 @@ a23d6e84f913e9e6e9582d6644ff6725ac4ea1ce344cc2da1e1cd333e281646f  corpus/transla
 e4fc485cd5bc64e806fd4affaa4e76c18ea538e3488b778bcef39181a974135c  corpus/translations/russian/sri-caitanya-caritamrta/antya-lila/chapter-20/cc-antya-20.95.md
 a15a90370d9404e6bf8dde53a4af187364913a4b8acdb69fc1efd108d2513c76  corpus/translations/russian/sri-caitanya-caritamrta/antya-lila/chapter-20/cc-antya-20.96-98.md
 b1e5dafde79cb5870aeb90261907bd8707cab3f44f536c7b5064f543af99869e  corpus/translations/russian/sri-caitanya-caritamrta/antya-lila/chapter-20/cc-antya-20.99.md
-6cfdb8afbe1531be0bfc7776e6ba4f5c94dc144f7c2476b95e38d9e7cb7d8921  corpus/translations/russian/sri-caitanya-caritamrta/cc_ru.jsonl
+0cda5c694e143dd9cd66a338e37c49d7423a83c479f7148933ef981029fd799a  corpus/translations/russian/sri-caitanya-caritamrta/cc_ru.jsonl
 b75bbf6ff7fcd24a2f543109cda8a8ef929310e293c57cb690e1231ad112089a  corpus/translations/russian/sri-caitanya-caritamrta/madhya-lila/chapter-01/cc-madhya-1.1.md
 1ad670f9525a5d717208fd217abcccb4dab4e3835e145a070c9b38d55cd0fd9e  corpus/translations/russian/sri-caitanya-caritamrta/madhya-lila/chapter-01/cc-madhya-1.10.md
 8e7afd4355ef77c2e959af66b5ca9ac505322e66529465f31a32ec508ead1770  corpus/translations/russian/sri-caitanya-caritamrta/madhya-lila/chapter-01/cc-madhya-1.100.md
@@ -102803,7 +102805,7 @@ cc6a0708e6b841e459a80a0387e7f9bbb66cd83cac85264b795dc72ab03d526a  corpus/transla
 22920fce448f1dd64c35a486cc079ccf75711d65d99b7a00f1f3b0d800de243e  corpus/translations/russian/srimad-bhagavatam/canto-04/chapter-31/sb-4.31.9.md
 956f040e69b638edfde3fc5323f32af4786892a224d7054532919c9b488f3a20  corpus/translations/russian/srimad-bhagavatam/introduction.md
 2ebbcb62875df610f8636c89c773efbaddff0b43227a731600623c2f5b3382a3  corpus/translations/russian/srimad-bhagavatam/preface.md
-6e52d6b3d9b146e93f267f2b8522587bc3fb61fab0ea3c28aa485533c7bf398e  corpus/translations/russian/srimad-bhagavatam/sb_ru.jsonl
+3bcba43a564134a4b0d33bc4ff30c51c071edf8fd402f84464fb6e030d3c58cc  corpus/translations/russian/srimad-bhagavatam/sb_ru.jsonl
 c5771e528e1e936b8573b8bd9d83efd58f02154da0bdffc99b77ef870a38ef57  corpus/translations/russian/teachings-of-lord-caitanya/chapter-1.md
 46f2fe1c531d29ad71f4aea26d9ea2c6f55aafc5fcae4ef899f88e081d934638  corpus/translations/russian/teachings-of-lord-caitanya/chapter-10.md
 0ff3bab2872eb64d71b45ff8232f136e26de0b0597dcdc30cabc69757ff97129  corpus/translations/russian/teachings-of-lord-caitanya/chapter-11.md
@@ -102840,14 +102842,42 @@ a1cc4f84b5b2293aacdd458f0b988b278b8c6bfae18ae4de50bd044bf67ead6b  corpus/transla
 68b84b65d244d3335855efe133780e7bae544f27004f1a31de7b3e80bf8ca895  corpus/translations/russian/teachings-of-lord-caitanya/lord-chaitanya-s-mission.md
 30d71a56afeb2d419a1f39a9bad9bc1059693e3715101e41be626f9df4f92dbf  corpus/translations/russian/teachings-of-lord-caitanya/preface.md
 d741808b6d4e557e7b94854db9b0d8fc0e89004d80289edefeb5b719722a2067  corpus/translations/russian/teachings-of-lord-caitanya/prologue.md
-fead3c446ab5e8c2c6ee28ef895897d5844cff9e62a2e734dfd90dd6d85add06  corpus/translations/russian/teachings-of-lord-caitanya/tlc_ru.jsonl
-6f1b57396525e27d342b339007f093663dadbe6f0888ab950c91e5d8bd5874f5  corpus/translations/russian/topmost-yoga-system/chapter-1.md
-d900f7b2bbb15db6cd4c2fbdb9024a13a4345c94550a3fc36723f5eac98a4702  corpus/translations/russian/topmost-yoga-system/chapter-2.md
-c80548f28ea0fbecdfde9036f60912af1767f34d9092b8360e9d3ff0f991c7f0  corpus/translations/russian/topmost-yoga-system/chapter-3.md
-f8712976cc2bb54d058d6a4b645bb3036aedfe129e408f603b7f173389fa0bd7  corpus/translations/russian/topmost-yoga-system/chapter-4.md
-72a137ca846d665c71559bfff7aeb023f68b3f88c5649ba0c7b27904a6b23163  corpus/translations/russian/topmost-yoga-system/chapter-5.md
-f13fb0b6ffb2c1cd81f1526f2f36c76a7baf0602e2f60d191ac2d350a388a67d  corpus/translations/russian/topmost-yoga-system/chapter-6.md
-4c34a0831886577816a846fdeaa5e08747727c5a95f344a988624b2ed58698b5  corpus/translations/russian/topmost-yoga-system/chapter-7.md
-2973d8b762948928c458404720e1625b32a5eaa624359a256d3fb8d6b839c473  corpus/translations/russian/topmost-yoga-system/chapter-8.md
-e42896a7d997c7830f560c1f01197ce66a9a3a610562812e6c50776fb085e840  corpus/translations/russian/topmost-yoga-system/chapter-9.md
-048862354d4db8520278ed8da4278f8b4fc87bdf1f3e24630c819f43ae4be903  corpus/translations/russian/topmost-yoga-system/ttp_ru.jsonl
+516a2fc506c27a7a3b0247ebf9e86e26011a1696ac928a30d3b7541497e5a079  corpus/translations/russian/teachings-of-lord-caitanya/tlc_ru.jsonl
+3deeb76841e9950625301667f2631a6a90829d4255b35b34c6452f463059133a  corpus/translations/russian/teachings-of-queen-kunti/chapter-1.md
+8a32553ddb7738b7d0fb6012835fa0d23d43204bc28599712f8024f36986cb9c  corpus/translations/russian/teachings-of-queen-kunti/chapter-10.md
+9c20c8943ac5ce35b1d7bdf6ccfa412abae7666c5da799dcd52d91eeaf3a1295  corpus/translations/russian/teachings-of-queen-kunti/chapter-11.md
+2fc4541f808555f9be1f33217d5a2664f40efac5ec10b2ae679e2709819c2f2d  corpus/translations/russian/teachings-of-queen-kunti/chapter-12.md
+f692b9bba31ec0d54cbd9ea99bf01dbb162fa314676cb542e400e04221b27437  corpus/translations/russian/teachings-of-queen-kunti/chapter-13.md
+984092c7ec2719b156febc18103c2c09619e5666452c68072535573fa07d6e44  corpus/translations/russian/teachings-of-queen-kunti/chapter-14.md
+853e7f3d85704500962b2e0044e60ff10e08c4f0eec21cc9ae348c5840ff048a  corpus/translations/russian/teachings-of-queen-kunti/chapter-15.md
+e41295d1550b110ecca86c10b810cb1622763473e362c6fbeda2eb13b611400f  corpus/translations/russian/teachings-of-queen-kunti/chapter-16.md
+f0151835eb5fefcfb737c6a4935337f4c7a7a407bdb85a457e5e3bebb7e65739  corpus/translations/russian/teachings-of-queen-kunti/chapter-17.md
+c515a836964da49abc003aa470c3060796dce8686d6ab47c25c903e2db933416  corpus/translations/russian/teachings-of-queen-kunti/chapter-18.md
+31be70201aa19ebe0a2ee1713778c89113a4788af5028c06eb9d275089f2ce7c  corpus/translations/russian/teachings-of-queen-kunti/chapter-19.md
+7634269915a87416bac1f0e6d5530ce2e3bbc8d5ef2ff23ea44401c58772bbbb  corpus/translations/russian/teachings-of-queen-kunti/chapter-2.md
+3390709f20f04d21f81258d92cdb0ab05608f809ff44fbd53306fa4be0eb495d  corpus/translations/russian/teachings-of-queen-kunti/chapter-20.md
+56297497169417f5d43bbdf480a4920d43a178b3dd903fec294f92e7ff6511ee  corpus/translations/russian/teachings-of-queen-kunti/chapter-21.md
+a69aaa3f628e1cd7e37c2109c6aa09a8a86277c32ccd2bbdc4537340f7299290  corpus/translations/russian/teachings-of-queen-kunti/chapter-22.md
+19d6fa0b66831371e1984405b0ef9da16097da1c5c446e5f8ace359569adaae0  corpus/translations/russian/teachings-of-queen-kunti/chapter-23.md
+8c129ec8d5ca74732631eb8098b349e25b6c87d9718856a29f9361c8d79706e5  corpus/translations/russian/teachings-of-queen-kunti/chapter-24.md
+74b15d3f0ef246c9fb6d8b3d01371053c90b074b38e9f0dc89b31a2c7feccc72  corpus/translations/russian/teachings-of-queen-kunti/chapter-25.md
+e026d2ea4b9b92223907c282ec1180e5f4ede3e7dff85a81162da0a5d80fa3a5  corpus/translations/russian/teachings-of-queen-kunti/chapter-26.md
+5f68b26d437bb3001f534e9d0b2c91dc266ee2c4ce75515847c0d0edfa75a000  corpus/translations/russian/teachings-of-queen-kunti/chapter-3.md
+effc40ba4f3a9229dee86c912b5f93ea31eae80b49a9b50e40a306a891819acf  corpus/translations/russian/teachings-of-queen-kunti/chapter-4.md
+72e88cdda6413b72d8827ee0f2add566751a94ba33ea6f2c6f758f96f88dca38  corpus/translations/russian/teachings-of-queen-kunti/chapter-5.md
+a268a5db0663e7ed04e0dbf06163f45ac9eccd1d76b022f46b3e7126e14e6b93  corpus/translations/russian/teachings-of-queen-kunti/chapter-6.md
+c42a79e41064da921ef02b17211f13292b03cae839483ab10d8e156a76bf5802  corpus/translations/russian/teachings-of-queen-kunti/chapter-7.md
+6dc147a3398f17e5ac3dbc64b91ddd296ba5e09ba7ec828133fda6c932d53bd9  corpus/translations/russian/teachings-of-queen-kunti/chapter-8.md
+e01d0a1a8588f820a18378db9a199ce275d80eda910028e4889855f535f6b857  corpus/translations/russian/teachings-of-queen-kunti/chapter-9.md
+ba7b06f12a2f15b1a5883f6de512468ad1c1df94661248caabb7a317db9714de  corpus/translations/russian/teachings-of-queen-kunti/introduction.md
+9901cd8f2f1f3aa63f1f7f427e78cd5621cdc5d39d645aa2fccc9120d298a1ed  corpus/translations/russian/teachings-of-queen-kunti/tqk_ru.jsonl
+11d944ed53139269899b5ce83ba60598414e971bbfcbd67f4368a4a15ffd7d7a  corpus/translations/russian/topmost-yoga-system/chapter-1.md
+978502c0ceec9bbe846becdee5fe169bd78b8886cad63c52f5ff1bd9b9b30b5d  corpus/translations/russian/topmost-yoga-system/chapter-2.md
+728e0b77efb8cded0f2714b7b79ca1e85f7f40c0b445a67318576d3a34ea0038  corpus/translations/russian/topmost-yoga-system/chapter-3.md
+19568e85c3801ddc0f0981dfbdb3c1a41d5f2dd1fb784ec6ed573b870efb7497  corpus/translations/russian/topmost-yoga-system/chapter-4.md
+1bae49f52331e9d1664d5bd87f8bdde8b59bc22e0347b673a54d2d774cb6f4da  corpus/translations/russian/topmost-yoga-system/chapter-5.md
+a338572c3ad71f07ec346fc4eca99d1c3ab7cb762debe6f1f19d895e066bfb39  corpus/translations/russian/topmost-yoga-system/chapter-6.md
+b4e2cb35182a62279296676911e502f1346163f38c3db77051bb97eb038d984b  corpus/translations/russian/topmost-yoga-system/chapter-7.md
+e3383ccbb633923d700cce709fef0a37609101c5824f544c7574233d649ef314  corpus/translations/russian/topmost-yoga-system/chapter-8.md
+b83b78024d2e100ffcbb5dddcb0f9a2051e89113636a40c3ef8326d9bb00d785  corpus/translations/russian/topmost-yoga-system/chapter-9.md
+67cbb43a93cadeb6e476b6d9e33aa7c92515cc6ca65aca40d19342f87b57ca79  corpus/translations/russian/topmost-yoga-system/ttp_ru.jsonl
