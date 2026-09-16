@@ -75,13 +75,16 @@ SECTION_ORDER = ["scans", "reports", "corrections", "audit", "tools",
 # Paths not to publish, as prefixes relative to the package root. The files stay
 # on disk and in the package: this excludes them from the upload only.
 #
-# russian is held back because the translation is not finished. Publishing an
-# incomplete text under the same roof as the collated corpus would misrepresent
-# it, and Arweave does not allow taking it back — an unfinished chapter put up
-# today stays up. Lift the exclusion when the translation is complete; the
-# uploader will pick the files up on the next run, which is what the state file
-# is for.
-EXCLUIR_RUTAS = ("corpus/translations/russian/",)
+# Russian was held back from 26 Aug 2026 until 16 Sep 2026 because the
+# translation was unfinished, and Arweave does not allow taking anything back.
+# The condition the exclusion named has been met: the translation is complete —
+# all 22 books of the archive have Russian, 20,673 rows, checked ref by ref
+# against the English. So the exclusion is lifted, exactly as it said it should
+# be, and the uploader picks the files up on the next run.
+#
+# Nothing else changes: the state file records the 86,996 files already
+# published, so a run now proposes the 16,361 Russian ones and nothing more.
+EXCLUIR_RUTAS = ()
 
 # Files at the root of the package, uploaded to the root of the drive. Easy to
 # forget, because the walk below only ever descends into sections — MANIFEST
