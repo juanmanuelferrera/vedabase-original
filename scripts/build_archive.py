@@ -130,10 +130,17 @@ def sha256(path, block=1 << 20):
 
 # Held back from publication — keep in step with EXCLUIR_RUTAS in
 # upload_archive.py. The manifest must describe exactly what was published: a
-# manifest listing 16,311 files that are not in the archive would fail every
+# manifest listing files that are not in the archive would fail every
 # verification it exists to make possible, and would read as data loss rather
 # than as a deliberate omission.
-NO_PUBLICADO = ("corpus/translations/russian/",)
+#
+# Emptied 17 Sep 2026, when the 16,361 Russian files were uploaded. The rule
+# above is why this had to be emptied too, and the same rule is what made the
+# omission visible: the package root did not move when the Russian files on disk
+# were replaced, because they were never being hashed. Two scripts guarded this
+# boundary, not one — lifting the exclusion in the uploader alone would have
+# published the text under a root that did not describe it.
+NO_PUBLICADO = ()
 
 
 def escribe_manifiesto(dest):
