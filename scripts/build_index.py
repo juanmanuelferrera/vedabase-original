@@ -19,12 +19,14 @@ archive would be eight megabytes and open on nothing.
 
 What is left out
 ----------------
-`_early-tests/`, which is not archive content; the front page itself; and the
-Russian translation, which is held back from publication. Indexing the Russian
-would have produced 16,311 links to files that are not on the chain — every one
-of them a 404, and every one of them looking like data loss rather than like the
-deliberate omission it is. Keep this list in step with EXCLUIR_RUTAS in
-upload_archive.py.
+`_early-tests/`, which is not archive content, and the front page itself.
+
+The Russian translation used to be left out too, because indexing files that
+were not on the chain would have produced 16,311 links that all returned 404.
+It was published on 17 Sep 2026, so it is indexed from now on. This was the
+third of three lists that had to be kept in step — EXCLUIR_RUTAS in
+upload_archive.py and NO_PUBLICADO in build_archive.py were the others, and each
+one names the rest for exactly this reason.
 
 Usage
 -----
@@ -37,7 +39,7 @@ from collections import defaultdict
 
 ARCHIVE = os.path.expanduser("~/vedabase-archive")
 DESTINO = os.path.join(ARCHIVE, "_index")
-FUERA = ("_early-tests/", "_index/", "corpus/translations/russian/")
+FUERA = ("_early-tests/", "_index/")
 
 CSS = """body{max-width:60rem;margin:0 auto;padding:2rem 1.25rem 4rem;
 font:15px/1.6 Georgia,"Times New Roman",serif;background:#fbfaf7;color:#22201c}
