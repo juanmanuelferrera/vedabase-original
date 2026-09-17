@@ -22,6 +22,23 @@ corrections applied to it, 102,836 files.
 | Date | Corpus root | Commit | Anchored in |
 |---|---|---|---|
 | 29 Aug 2026 | `0c8523c221b02001d918ca9bb17d81f4d138e10580ec2820992281d89a38235d` | `0b1142633040cc5c2effeac0b25e1e38e8ea13dd` | this file |
+| 17 Sep 2026 | `42e78565f7e05bc5d0da6ded9a399669b421b9bd7a44b6bf44141601d7f26b37` | `cab11a0318dff52acb070b99e9d00d530636ab6b` | this file |
+
+The 17 Sep root covers 102,866 files, thirty more than the August one and
+forty-one changed. The additions and thirty-eight of the changes are the Russian
+translation, completed on 16 Sep: all 22 books of the archive now have Russian.
+The other three changes are older than that work — `corpus/corrections.jsonl` and
+two Bhagavad-gītā files touched by `d3159060f2`, a commit that came after the
+August anchor and for which the manifest was never regenerated. The manifest had
+been stale by those three files since 31 Aug; saying so is the point of this
+table.
+
+**On the commit column.** The manifest's own header names the commit that was
+checked out when it was generated, which is always the one *before* the commit
+that carries it — the file cannot contain a hash of a tree it has not joined yet.
+`--check` therefore fails at the header's commit and passes at the next one. The
+August row already worked around this by naming `0b114263` rather than the
+`6cc37978` in its header, and this row names `cab11a03` for the same reason.
 
 An anchor names a date, and a date is not something anyone can return to. It also
 names the **commit**, which is: `git checkout <commit>` puts the repository in
@@ -47,6 +64,22 @@ covers the 86,995 files that were published, and only those.
 | Date | Package root | Manifest transaction |
 |---|---|---|
 | 29 Aug 2026 | `51c0318a5eb1857bc4dac99c9e3a1118ab57e9241ffd18bab826409056fae988` | `ar://81Fo6FX9AR4RcleArZt0VwFBujN_JyfAALcvsMQ7uoA` |
+| 17 Sep 2026 | `37faf5b420ec6717d081f95852b6b12a192f7ad46ecfd823dff962298f49c464` | `ar://llpmiWxk1pGKskJ5HcOlP5kVevSy44qUCo6sGTIGIsM` |
+
+The 17 Sep package root covers 103,481 files: the 86,995 of August, the 16,361
+Russian files uploaded that day, the 124 index pages regenerated to include them,
+and the root-level `index.html`.
+
+**Three lists had to be emptied for this, not one**, and the archive only works
+because each of them names the others. `EXCLUIR_RUTAS` in `upload_archive.py`
+kept the text off the chain; `NO_PUBLICADO` in `build_archive.py` kept it out of
+the manifest; `FUERA` in `build_index.py` kept it out of the browsable index.
+Lifting the first alone would have published 16,361 files under a root that did
+not describe them — a manifest that fails the verification it exists to make
+possible reads as tampering, not as an oversight. The second was caught because
+the package root did not move when the Russian files on disk were replaced: they
+were never being hashed. The third, because the index still counted 102 pages
+when it should have counted 124.
 
 The package root covers the archive as uploaded and does not move when this
 repository's documentation is edited.
