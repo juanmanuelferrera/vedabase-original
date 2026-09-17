@@ -351,27 +351,84 @@ they are books outside the corpus this project reproduces. They are archived as
 scans all the same — a printed page is worth keeping whether or not we set text
 against it.
 
-## What is deliberately absent
+## The Russian translation, and what it is worth
 
-Count the files in the archive against the table above and 16,311 are missing.
-They are not lost, and their absence is not an accident.
+From 26 August to 17 September 2026 the Russian text was deliberately held out
+of this archive. The reason was stated here at the time: it was unfinished,
+Arweave has no way back, and standing beside a corpus collated page by page
+against the printed editions, a half-translated book would borrow a credibility
+it had not earned. That note also said what would lift the exclusion —
+completion — and on **17 September 2026** the 16,361 Russian files were
+uploaded.
 
-**The Russian translation is not published.** It is unfinished, and Arweave has
-no way back: a half-translated chapter put up today stays up, and standing
-beside a corpus collated page by page against the printed editions it would
-borrow a credibility it has not earned. The files are held in the repository
-until the translation is complete, and will be published then as a later
-addition. The English, Spanish, Portuguese and Hindi translations are all here.
+All 22 books of the archive now have Russian: 20,673 entries, every English ref
+answered.
 
-One Russian thing is here: the twenty `.jsonl` correction ledgers under
-`corrections/translations/russian/`. They went up before the text was held back,
-and on Arweave that cannot be undone. They record what was corrected, not what
-the translation says, so they are listed rather than hidden — but they are not
-the text, and the text is not here.
+**It does not carry the same warrant as the text it sits beside, and the
+distinction matters more than the completeness.** The first-edition corpus in
+this archive was read by two OCR engines and adjudicated against photographs of
+the printed page, and `PRINT_ERRATA.md` records where the print itself was
+wrong. **None of that applies to the Russian.** It has not been collated against
+any printed Russian edition, because for most of it no printed Russian edition
+was consulted. A reader who trusts the English because of the scans should not
+extend that trust to the Russian: it rests on something else, and this section
+exists to say what.
 
-This is worth stating plainly rather than leaving to inference, because an
-archive of this kind is read by people who cannot ask us anything. A silent gap
-looks like data loss, or like something hidden. It is neither.
+What it does rest on:
+
+- **Most of it is not new, and did not come from here.** The Bhagavad-gītā, the
+  Caitanya-caritāmṛta, Śrī Īśopaniṣad, the Nectar of Instruction, cantos 1–4 of
+  the Śrīmad-Bhāgavatam and ten further books came from the same place as
+  everything else in this archive: the export of the vedabase.cc database, taken
+  verbatim. They were not retranslated, and this project makes no claim about who
+  made them or from which printed edition — only about where this copy came from,
+  which is the one thing it can show.
+- **Part of it was produced for this archive**: cantos 5–10 of the
+  Śrīmad-Bhāgavatam, the five short prose books, *Teachings of Queen Kuntī* and
+  *Kṛṣṇa, the Reservoir of Pleasure*. This text was produced with the assistance
+  of a language model, under a written set of binding decisions. Its **form** was
+  checked by program — paragraph parity against the English, no stray Latin, link
+  destinations that exist, citation labels naming the verse they point to. Those
+  checks say nothing about whether the Russian means what the English means: a
+  paragraph can have the right shape and the wrong sense. Where a passage already existed
+  in Russian elsewhere in the corpus, the existing wording was copied rather than
+  translated anew, after checking that the English being rendered was the same;
+  that copying, and not the checkers, is what most of the fidelity rests on.
+- **It was checked against itself, and the check found real faults.** Nineteen
+  places were found where the published translation of a verse had been pasted
+  into a commentary that the rest of the corpus renders differently, and
+  corrected — each decided by counting occurrences, not by preference. This cuts
+  both ways and should be read both ways: it is evidence that the corpus was
+  audited, and evidence that the method that produced those cantos introduces
+  errors it cannot catch on its own. Nineteen were found. Nobody can say that
+  nineteen were all there were.
+
+### What it does not rest on
+
+**No native speaker of Russian has read it.** Not the new text, and not the
+copied text in its new surroundings. For a Russian reader that is probably the
+most important sentence in this section, which is why it is not at the end of
+it.
+
+The programs that checked the form were themselves wrong more than once while
+this was being done — three of their rules were miscalibrated in ways that
+pushed toward changing correct text to silence a false alarm. They were fixed
+when a translator measured the alarm instead of obeying it. A checker is a
+net with holes of a known shape, not a proof.
+
+And none of it is collation against a printed page. It is a translation, offered
+as a translation.
+
+A loose end from August, now tied: the twenty `.jsonl` correction ledgers under
+`corrections/translations/russian/` were uploaded before the text was held back,
+and on Arweave that could not be undone. They were listed here rather than
+hidden then, describing a text that was not in the archive. They now sit
+alongside it.
+
+All of this is set down plainly rather than left to inference, because an
+archive of this kind is read by people who cannot ask us anything. They cannot
+ask what was checked and what was not, so it has to be written down — including,
+and especially, the parts that make the work look smaller.
 
 ## A note on character encoding
 
