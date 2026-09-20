@@ -11,8 +11,7 @@
 
 *vidhitsamāno 'nusasāra śāstra*-kṛt
 
-*Sinônimos
-saḥ*—Ele; *eva*—assim; *bhūyaḥ*—novamente; *nija*—potência pessoal própria; *vīrya*—potência; *coditām*—desempenho de; *sva*—próprio; *jīva*—ser vivo; *māyām*—energia externa; *prakṛtim*—para a natureza material; *sisṛkṣatīm*—enquanto recria; *anāma*—sem designação mundana; *rūpa-ātmani*—formas da alma; *rūpa-nāmanī*—formas e nomes; *vidhitsamānaḥ*—desejando conceder; *anusasāra*—confiado; *śāstra-kṛt*—o compilador da escritura revelada.
+*saḥ*—Ele; *eva*—assim; *bhūyaḥ*—novamente; *nija*—potência pessoal própria; *vīrya*—potência; *coditām*—desempenho de; *sva*—próprio; *jīva*—ser vivo; *māyām*—energia externa; *prakṛtim*—para a natureza material; *sisṛkṣatīm*—enquanto recria; *anāma*—sem designação mundana; *rūpa-ātmani*—formas da alma; *rūpa-nāmanī*—formas e nomes; *vidhitsamānaḥ*—desejando conceder; *anusasāra*—confiado; *śāstra-kṛt*—o compilador da escritura revelada.
 
 **A Personalidade de Deus, desejando novamente dar nomes e formas a Suas partes integrantes, as entidades vivas, colocou-as sob a orientação da natureza material. Por Sua própria potência, a natureza material é capacitada a recriar.**
 

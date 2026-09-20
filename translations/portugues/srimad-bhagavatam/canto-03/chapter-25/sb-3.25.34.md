@@ -11,8 +11,7 @@ ye 'nyonyato bhāgavatāḥ prasajya
 
 sabhājayante mama pauruṣāṇi
 
-*Sinônimos
-na*—nunca; *eka-ātmatām*—fusão em unidade; *me*—Meu; *spṛhayanti*—eles desejam; *kecit*—qualquer; *mat-pāda-sevā*—o serviço de Meus pés de lótus; *abhiratāḥ*—ocupados em; *mat-īhāḥ*—esforçando-se para alcançar-Me; *ye*—aqueles que; *anyonyataḥ*—mutuamente; *bhāgavatāḥ*—devotos puros; *prasajya*—se reunindo; *sabhājayante*—glorificam; *mama*—Meus; *pauruṣāṇi*—atividades gloriosas.
+*na*—nunca; *eka-ātmatām*—fusão em unidade; *me*—Meu; *spṛhayanti*—eles desejam; *kecit*—qualquer; *mat-pāda-sevā*—o serviço de Meus pés de lótus; *abhiratāḥ*—ocupados em; *mat-īhāḥ*—esforçando-se para alcançar-Me; *ye*—aqueles que; *anyonyataḥ*—mutuamente; *bhāgavatāḥ*—devotos puros; *prasajya*—se reunindo; *sabhājayante*—glorificam; *mama*—Meus; *pauruṣāṇi*—atividades gloriosas.
 
 **Um devoto puro, que está apegado às atividades do serviço devocional e que sempre se ocupa no serviço de Meus pés de lótus, nunca deseja se tornar um comigo. Tal devoto, que está inabalavelmente ocupado, sempre glorifica Meus passatempos e atividades.**
 

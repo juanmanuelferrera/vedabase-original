@@ -11,8 +11,7 @@
 
 *ante nārāyaṇa*-smṛtiḥ
 
-*Sinônimos
-etāvān*—tudo isso; *sāṅkhya*—conhecimento completo da matéria e do espírito; *yogābhyām*—conhecimento do poder místico; *sva-dharma*—dever ocupacional particular; *pariniṣṭhayā*—pela plena percepção; *janma*—nascimento; *lābhaḥ*—ganho; *paraḥ*—o supremo; *puṁsām*—de uma pessoa; *ante*—no fim; *nārāyaṇa*—a Personalidade de Deus; *smṛtiḥ*—lembrança.
+*etāvān*—tudo isso; *sāṅkhya*—conhecimento completo da matéria e do espírito; *yogābhyām*—conhecimento do poder místico; *sva-dharma*—dever ocupacional particular; *pariniṣṭhayā*—pela plena percepção; *janma*—nascimento; *lābhaḥ*—ganho; *paraḥ*—o supremo; *puṁsām*—de uma pessoa; *ante*—no fim; *nārāyaṇa*—a Personalidade de Deus; *smṛtiḥ*—lembrança.
 
 **A mais alta perfeição da vida humana, alcançada seja pelo conhecimento completo da matéria e do espírito, pela prática dos poderes místicos ou pelo perfeito cumprimento do dever ocupacional, é lembrar a Personalidade de Deus no final da vida.**
 

@@ -11,8 +11,7 @@ jitānilātmā vijitobhayendriyaḥ
 
 tapas tapīyāṁs tapatāṁ samāhitaḥ
 
-*Sinônimos
-divyam*—pertencente aos semideuses nos planetas superiores; *sahasra*—mil; *abdam*—anos; *amogha*—imaculado, sem a menor impureza; *darśanaḥ*—aquele que tem tal visão de vida; *jita*—controlado; *anila*—vida; *ātmā*—mente; *vijita*—controlado sobre; *ubhaya*—ambos; *indriyaḥ*—aquele que tem tais sentidos; *atapyata*—executou penitência; *sma*—no passado; *akhila*—todos; *loka*—planeta; *tāpanam*—iluminando; *tapaḥ*—penitência; *tapīyān*—penitência extremamente dura; *tapatām*—de todos os executores de penitências; *samāhitaḥ*—assim situado.
+*divyam*—pertencente aos semideuses nos planetas superiores; *sahasra*—mil; *abdam*—anos; *amogha*—imaculado, sem a menor impureza; *darśanaḥ*—aquele que tem tal visão de vida; *jita*—controlado; *anila*—vida; *ātmā*—mente; *vijita*—controlado sobre; *ubhaya*—ambos; *indriyaḥ*—aquele que tem tais sentidos; *atapyata*—executou penitência; *sma*—no passado; *akhila*—todos; *loka*—planeta; *tāpanam*—iluminando; *tapaḥ*—penitência; *tapīyān*—penitência extremamente dura; *tapatām*—de todos os executores de penitências; *samāhitaḥ*—assim situado.
 
 **O Senhor Brahmā submeteu-se a penitências por mil anos, segundo os cálculos dos semideuses. Ele ouviu esta vibração transcendental vinda do céu e aceitou-a como divina. Assim, controlou sua mente e seus sentidos, e as penitências que executou foram uma grande lição para as entidades vivas. Por isso, ele é conhecido como o maior de todos os ascetas.**
 

@@ -11,8 +11,7 @@ damena niyamena ca
 
 śraddhayā ceśvaram bhaja
 
-*Sinônimos
-dhṛta-vratā asi*—você tem assumido votos sagrados; *bhadram te*—que Deus vos abençoe; *damena*—pelo controle dos sentidos; *niyamena*—pelas observâncias religiosas; *ca*—e; *tapaḥ*—austeridades; *draviṇa*—de dinheiro; *dānaiḥ*—por dar em caridade; *ca*—e; *śraddhayā*—com grande fé; *ca*—e; *īśvaram*—o Senhor Supremo; *bhaja*—adore.
+*dhṛta-vratā asi*—você tem assumido votos sagrados; *bhadram te*—que Deus vos abençoe; *damena*—pelo controle dos sentidos; *niyamena*—pelas observâncias religiosas; *ca*—e; *tapaḥ*—austeridades; *draviṇa*—de dinheiro; *dānaiḥ*—por dar em caridade; *ca*—e; *śraddhayā*—com grande fé; *ca*—e; *īśvaram*—o Senhor Supremo; *bhaja*—adore.
 
 **Você assumiu votos sagrados. Deus vos abençoará. Por isso você deve adorar o Senhor com grande fé, por meio do controle sensório, observâncias religiosas, austeridades e dádivas de seu dinheiro em caridade.**
 

@@ -11,8 +11,7 @@ kṣemāya pāda-mūlaṁ me
 
 praviśanty akuto-bhayam
 
-*Sinônimos
-jñāna*—com conhecimento; *vairāgya*—e renúncia; *yuktena*—equipado; *bhakti-yogena*—por serviço devocional; *yoginaḥ*—os yogīs; *kṣemāya*—para benefício eterno; *pāda-mūlam*—pés; *me*—Meus; *praviśanti*—tomam refúgio de; *akutaḥ-bhayam*—sem medo.
+*jñāna*—com conhecimento; *vairāgya*—e renúncia; *yuktena*—equipado; *bhakti-yogena*—por serviço devocional; *yoginaḥ*—os yogīs; *kṣemāya*—para benefício eterno; *pāda-mūlam*—pés; *me*—Meus; *praviśanti*—tomam refúgio de; *akutaḥ-bhayam*—sem medo.
 
 **Os yogīs, equipados com conhecimento transcendental e renúncia e ocupados em serviço devocional para seu benefício eterno, tomam refúgio em Meus pés de lótus, e como sou o Senhor, eles são portanto elegíveis para entrar no reino de Deus sem medo.**
 

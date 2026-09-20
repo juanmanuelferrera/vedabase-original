@@ -14,8 +14,7 @@ sthūle bhagavato rūpe
 
 manaḥ sandhārayed dhiyā
 
-*Sinônimos
-śrī-śukaḥ uvāca*—Śukadeva Gosvāmī disse; *jita-āsanaḥ*—postura sentada controlada; *jita-śvāsaḥ*—processo de respiração controlado; *jita-saṅgaḥ*—associação controlada; *jita-indriyaḥ*—sentidos controlados; *sthūle*—na matéria grosseira; *bhagavataḥ*—à Personalidade de Deus; *rūpe*—na feição de; *manaḥ*—a mente; *sandhārayet*—deve aplicar; *dhiyā*—pela inteligência.
+*śrī-śukaḥ uvāca*—Śukadeva Gosvāmī disse; *jita-āsanaḥ*—postura sentada controlada; *jita-śvāsaḥ*—processo de respiração controlado; *jita-saṅgaḥ*—associação controlada; *jita-indriyaḥ*—sentidos controlados; *sthūle*—na matéria grosseira; *bhagavataḥ*—à Personalidade de Deus; *rūpe*—na feição de; *manaḥ*—a mente; *sandhārayet*—deve aplicar; *dhiyā*—pela inteligência.
 
 **Śukadeva Gosvāmī respondeu: Deve-se controlar a postura sentada e regular o processo respiratório pelo prāṇāyāma yogue, e, assim, controlar a mente e os sentidos e, com inteligência, aplicar a mente às potências grosseiras do Senhor [chamadas o virāṭa rūpa].**
 

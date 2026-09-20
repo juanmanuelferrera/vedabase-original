@@ -11,8 +11,7 @@ agre guṇebhyo jagad-ātmanīśvare
 
 nimīlitātman niśi supta-śaktiṣu
 
-*Sinônimos
-saḥ*—Ele (Kṛṣṇa); *vai*—conforme me lembro; *kila*—definitivamente; *ayam*—este; *puruṣaḥ*—Personalidade de Deus; *purātanaḥ*—o original; *yaḥ*—quem; *ekaḥ*—apenas um; *āsīt*—existia; *aviśeṣaḥ*—materialmente não-manifestado; *ātmani*—em si mesmo; *agre*—antes da criação; *guṇebhyaḥ*—dos modos da natureza; *jagat-ātmani*—para a Superalma; *īśvare*—para o Senhor Supremo; *nimīlita*—fundido; *ātman*—o ser vivente; *niśi supta*—inativo à noite; *śaktiṣu*—das energias.
+*saḥ*—Ele (Kṛṣṇa); *vai*—conforme me lembro; *kila*—definitivamente; *ayam*—este; *puruṣaḥ*—Personalidade de Deus; *purātanaḥ*—o original; *yaḥ*—quem; *ekaḥ*—apenas um; *āsīt*—existia; *aviśeṣaḥ*—materialmente não-manifestado; *ātmani*—em si mesmo; *agre*—antes da criação; *guṇebhyaḥ*—dos modos da natureza; *jagat-ātmani*—para a Superalma; *īśvare*—para o Senhor Supremo; *nimīlita*—fundido; *ātman*—o ser vivente; *niśi supta*—inativo à noite; *śaktiṣu*—das energias.
 
 **Eles disseram: Aqui está Ele, a Personalidade original de Deus conforme o recordamos definitivamente. Ele sozinho existia antes da criação manifestada dos modos da natureza, e nEle apenas, porque Ele é o Senhor Supremo, todos os seres vivos se fundem, como se dormindo à noite, sua energia suspensa.**
 

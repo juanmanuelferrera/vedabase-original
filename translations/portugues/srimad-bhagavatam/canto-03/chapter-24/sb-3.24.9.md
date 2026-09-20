@@ -11,8 +11,7 @@ svayambhūḥ sākam ṛṣibhir
 
 marīcy-ādibhir abhyayāt
 
-*Sinônimos
-tat*—aquilo; *kardama*—de Kardama; *āśrama-padam*—o lugar do eremitério; *sarasvatyā*—pelo Rio Sarasvatī; *pariśritam*—cercado; *svayambhūḥ*—Brahmā (o auto-nascido); *sākam*—junto com; *ṛṣibhiḥ*—os sábios; *marīci*—o grande sábio Marīci; *ādibhiḥ*—e outros; *abhyayāt*—ele veio lá.
+*tat*—aquilo; *kardama*—de Kardama; *āśrama-padam*—o lugar do eremitério; *sarasvatyā*—pelo Rio Sarasvatī; *pariśritam*—cercado; *svayambhūḥ*—Brahmā (o auto-nascido); *sākam*—junto com; *ṛṣibhiḥ*—os sábios; *marīci*—o grande sábio Marīci; *ādibhiḥ*—e outros; *abhyayāt*—ele veio lá.
 
 **Brahmā, o primeiro ser vivo, foi junto com Marīci e outros sábios ao lugar do eremitério de Kardama, que era cercado pelo Rio Sarasvatī.**
 

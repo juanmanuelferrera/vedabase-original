@@ -11,8 +11,7 @@ pakṣmāṇi viṣṇor ahanī ubhe ca
 
 āpo 'sya tālū rasa eva jihvā
 
-*Sinônimos
-dyauḥ*—a esfera do espaço exterior; *akṣiṇī*—os globos oculares; *cakṣuḥ*—de olhos (sentidos); *abhūt*—assim se tornou; *pataṅgaḥ*—o sol; *pakṣmāṇi*—pálpebras; *viṣṇoḥ*—da Personalidade de Deus, Śrī Viṣṇu; *ahanī*—dia e noite; *ubhe*—ambos; *ca*—e; *tat*—Seu; *bhrū*—sobrancelhas; *vijṛmbhaḥ*—movimentos; *parameṣṭhi*—a entidade suprema (Brahmā); *dhiṣṇyam*—posto; *āpaḥ*—Varuṇa, o diretor das águas; *asya*—Seu; *tālū*—palato; *rasaḥ*—suco; *eva*—certamente; *jihvā*—a língua.
+*dyauḥ*—a esfera do espaço exterior; *akṣiṇī*—os globos oculares; *cakṣuḥ*—de olhos (sentidos); *abhūt*—assim se tornou; *pataṅgaḥ*—o sol; *pakṣmāṇi*—pálpebras; *viṣṇoḥ*—da Personalidade de Deus, Śrī Viṣṇu; *ahanī*—dia e noite; *ubhe*—ambos; *ca*—e; *tat*—Seu; *bhrū*—sobrancelhas; *vijṛmbhaḥ*—movimentos; *parameṣṭhi*—a entidade suprema (Brahmā); *dhiṣṇyam*—posto; *āpaḥ*—Varuṇa, o diretor das águas; *asya*—Seu; *tālū*—palato; *rasaḥ*—suco; *eva*—certamente; *jihvā*—a língua.
 
 **A esfera do espaço exterior constitui Seus olhos, e o globo ocular é o sol como o poder de ver. Suas pálpebras são tanto o dia quanto a noite, e nos movimentos de Suas sobrancelhas residem Brahmā e personalidades supremas semelhantes. Seu palato é o diretor das águas, Varuṇa, e o suco ou essência de tudo é Sua língua.**
 

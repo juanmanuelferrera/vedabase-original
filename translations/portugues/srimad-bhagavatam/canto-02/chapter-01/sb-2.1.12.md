@@ -11,8 +11,7 @@ varaṁ muhūrtaṁ viditaṁ
 
 ghaṭate śreyase yataḥ
 
-*Sinônimos
-kim*—qual é; *pramattasya*—do perplexo; *bahubhiḥ*—por muitos; *parokṣaiḥ*—inexperientes; *hāyanaiḥ*—anos; *iha*—neste mundo; *varam*—melhor; *muhūrtam*—um momento; *viditam*—consciente; *ghaṭate*—pode-se tentar; *śreyase*—no que diz respeito ao interesse supremo; *yataḥ*—por isso.
+*kim*—qual é; *pramattasya*—do perplexo; *bahubhiḥ*—por muitos; *parokṣaiḥ*—inexperientes; *hāyanaiḥ*—anos; *iha*—neste mundo; *varam*—melhor; *muhūrtam*—um momento; *viditam*—consciente; *ghaṭate*—pode-se tentar; *śreyase*—no que diz respeito ao interesse supremo; *yataḥ*—por isso.
 
 **Qual é o valor de uma vida prolongada que é desperdiçada, sem experiência pelos anos neste mundo? Melhor um momento de plena consciência, pois isso dá à pessoa um ponto de partida na busca por seu interesse supremo.**
 

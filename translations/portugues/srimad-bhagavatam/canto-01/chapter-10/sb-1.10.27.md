@@ -11,8 +11,7 @@ paśyanti nityaṁ yad anugraheṣitaṁ
 
 *smitāvalokaṁ sva*-patiṁ sma yat-prajāḥ
 
-*Sinônimos
-aho bata*—como maravilhoso isto é; *svaḥ-yaśasaḥ*—as glórias dos planetas celestiais; *tiraskarī*—que derrota; *kuśasthalī*—Dvārakā; *puṇya*—virtude; *yaśaskarī*—famosa; *bhuvaḥ*—o planeta terra; *paśyanti*—veem; *nityam*—constantemente; *yat*—aquele que; *anugraha-iṣitam*—conceder bênção; *smita-avalokam*—olhar com o favor de sorriso doce; *sva-patim*—para a alma de um ser vivente (Kṛṣṇa); *sma*—costumava; *yat-prajāḥ*—os habitantes do lugar.
+*aho bata*—como maravilhoso isto é; *svaḥ-yaśasaḥ*—as glórias dos planetas celestiais; *tiraskarī*—que derrota; *kuśasthalī*—Dvārakā; *puṇya*—virtude; *yaśaskarī*—famosa; *bhuvaḥ*—o planeta terra; *paśyanti*—veem; *nityam*—constantemente; *yat*—aquele que; *anugraha-iṣitam*—conceder bênção; *smita-avalokam*—olhar com o favor de sorriso doce; *sva-patim*—para a alma de um ser vivente (Kṛṣṇa); *sma*—costumava; *yat-prajāḥ*—os habitantes do lugar.
 
 **Indubitavelmente é maravilhoso que Dvārakā derrotu as glórias dos planetas celestiais e tenha aprimorado a celebridade da terra. Os habitantes de Dvārakā estão sempre vendo a alma de todos os seres vivos [Kṛṣṇa] em Seu aspecto amoroso. Ele os olha e os favorece com sorrisos doces.**
 

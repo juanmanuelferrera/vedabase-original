@@ -11,8 +11,7 @@ sa vā ayaṁ yat padam atra sūrayo
 
 nanv eṣa sattvaṁ parimārṣṭum arhati
 
-*Sinônimos
-saḥ*—Ele; *vai*—pela providência; *ayam*—este; *yat*—aquele que; *padam atra*—aqui está a mesma Personalidade de Deus, Śrī Kṛṣṇa; *sūrayaḥ*—grandes devotos; *jita-indriyāḥ*—que conquistaram a influência dos sentidos; *nirjita*—completamente controlado; *mātariśvanaḥ*—vida; *paśyanti*—podem ver; *bhakti*—em devoção; *utkalita*—desenvolvido; *amala-ātmanā*—aqueles cujas mentes são completamente limpas; *nanu eṣaḥ*—certamente por isto apenas; *sattvam*—existência; *parimārṣṭum*—para purificar a mente completamente; *arhati*—merece.
+*saḥ*—Ele; *vai*—pela providência; *ayam*—este; *yat*—aquele que; *padam atra*—aqui está a mesma Personalidade de Deus, Śrī Kṛṣṇa; *sūrayaḥ*—grandes devotos; *jita-indriyāḥ*—que conquistaram a influência dos sentidos; *nirjita*—completamente controlado; *mātariśvanaḥ*—vida; *paśyanti*—podem ver; *bhakti*—em devoção; *utkalita*—desenvolvido; *amala-ātmanā*—aqueles cujas mentes são completamente limpas; *nanu eṣaḥ*—certamente por isto apenas; *sattvam*—existência; *parimārṣṭum*—para purificar a mente completamente; *arhati*—merece.
 
 **Aqui está a mesma Suprema Personalidade de Deus cuja forma transcendental é experimentada pelos grandes devotos que são completamente limpos da consciência material pela devoção rígida e controle pleno de vida e sentidos. E essa é a única forma de purificar a existência.**
 

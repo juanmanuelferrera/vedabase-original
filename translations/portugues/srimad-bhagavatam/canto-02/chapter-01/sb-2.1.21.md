@@ -11,8 +11,7 @@ yasyāṁ sandhāryamāṇāyāṁ
 
 āśrayaṁ bhadram īkṣataḥ
 
-*Sinônimos
-yasyām*—por tal lembrança sistemática; *sandhāryamāṇāyām*—e assim sendo fixada no hábito de; *yoginaḥ*—os místicos; *bhakti-lakṣaṇaḥ*—sendo praticados no sistema devocional; *āśu*—muito em breve; *sampadyate*—alcança o sucesso; *yogaḥ*—conexão pelo serviço devocional; *āśrayam*—sob o abrigo de; *bhadram*—o todo-bom; *īkṣataḥ*—ao ver isso.
+*yasyām*—por tal lembrança sistemática; *sandhāryamāṇāyām*—e assim sendo fixada no hábito de; *yoginaḥ*—os místicos; *bhakti-lakṣaṇaḥ*—sendo praticados no sistema devocional; *āśu*—muito em breve; *sampadyate*—alcança o sucesso; *yogaḥ*—conexão pelo serviço devocional; *āśrayam*—sob o abrigo de; *bhadram*—o todo-bom; *īkṣataḥ*—ao ver isso.
 
 **Ó rei, por meio deste sistema de lembrança e por fixar-se no hábito de ver a todo-auspiciosa concepção pessoal do Senhor, a pessoa pode em muito breve tempo alcançar o serviço devocional ao Senhor sob Seu abrigo direto.**
 

@@ -11,8 +11,7 @@ karmaṇām uddharan jaṭāḥ
 
 *padma*-mudrā-padāmbujaḥ
 
-*Sinônimos
-jñāna*—do conhecimento das escrituras; *vijñāna*—e aplicação; *yogena*—por meio do yoga místico; *karmaṇām*—de ações materiais; *uddharan*—desraizando; *jaṭāḥ*—as raízes; *hiraṇya-keśaḥ*—cabelo dourado; *padma-akṣaḥ*—olhos como pétalas de lótus; *padma-mudrā*—marcado com o sinal de lótus; *pada-ambujaḥ*—tendo pés de lótus.
+*jñāna*—do conhecimento das escrituras; *vijñāna*—e aplicação; *yogena*—por meio do yoga místico; *karmaṇām*—de ações materiais; *uddharan*—desraizando; *jaṭāḥ*—as raízes; *hiraṇya-keśaḥ*—cabelo dourado; *padma-akṣaḥ*—olhos como pétalas de lótus; *padma-mudrā*—marcado com o sinal de lótus; *pada-ambujaḥ*—tendo pés de lótus.
 
 **Por yoga místico e a aplicação prática do conhecimento das escrituras, Kapila Muni, que é caracterizado por Seu cabelo dourado, Seus olhos como pétalas de lótus e Seus pés de lótus, que trazem as marcas de flores de lótus, desenraizará o desejo profundamente enraizado pelo trabalho neste mundo material.**
 

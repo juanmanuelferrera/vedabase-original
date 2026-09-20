@@ -11,8 +11,7 @@ phalanty oṣadhayaḥ sarvāḥ
 
 kāmam anvṛtu tasya vai
 
-*Sinônimos
-nadyaḥ*—rios; *samudrāḥ*—oceanos; *girayaḥ*—colinas e montanhas; *savanaspati*—vegetação; *vīrudhaḥ*—trepadeiras; *phalanti*—ativas; *oṣadhayaḥ*—remédios; *sarvāḥ*—todos; *kāmam*—necessidades; *anvṛtu*—sazonal; *tasya*—para o rei; *vai*—certamente.
+*nadyaḥ*—rios; *samudrāḥ*—oceanos; *girayaḥ*—colinas e montanhas; *savanaspati*—vegetação; *vīrudhaḥ*—trepadeiras; *phalanti*—ativas; *oṣadhayaḥ*—remédios; *sarvāḥ*—todos; *kāmam*—necessidades; *anvṛtu*—sazonal; *tasya*—para o rei; *vai*—certamente.
 
 **Os rios, oceanos, colinas, montanhas, florestas, trepadeiras e remédios ativos, em cada estação, pagavam sua cota de imposto ao rei em profusão.**
 

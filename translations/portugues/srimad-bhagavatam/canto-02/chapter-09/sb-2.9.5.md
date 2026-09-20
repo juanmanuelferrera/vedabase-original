@@ -11,8 +11,7 @@ tāṁ nādhyagacchad dṛśam atra sammatāṁ
 
 *prapañca*-nirmāṇa-vidhir yayā bhavet
 
-*Sinônimos
-saḥ*—ele; *ādi-devaḥ*—o primeiro semideus; *jagatām*—do universo; *paraḥ*—supremo; *guruḥ*—mestre espiritual; *svadhiṣṇyam*—seu assento de lótus; *āsthāya*—para encontrar a fonte deste; *sisṛkṣayā*—para a questão de criar os assuntos universais; *aikṣata*—começou a pensar; *tām*—nessa questão; *na*—não pôde; *adhyagacchat*—compreender; *dṛśam*—a direção; *atra*—nisso; *sammatām*—exatamente da forma correta; *prapañca*—material; *nirmāṇa*—construção; *vidhiḥ*—processo; *yayā*—tanto quanto; *bhavet*—deveria ser.
+*saḥ*—ele; *ādi-devaḥ*—o primeiro semideus; *jagatām*—do universo; *paraḥ*—supremo; *guruḥ*—mestre espiritual; *svadhiṣṇyam*—seu assento de lótus; *āsthāya*—para encontrar a fonte deste; *sisṛkṣayā*—para a questão de criar os assuntos universais; *aikṣata*—começou a pensar; *tām*—nessa questão; *na*—não pôde; *adhyagacchat*—compreender; *dṛśam*—a direção; *atra*—nisso; *sammatām*—exatamente da forma correta; *prapañca*—material; *nirmāṇa*—construção; *vidhiḥ*—processo; *yayā*—tanto quanto; *bhavet*—deveria ser.
 
 **O Senhor Brahmā, o primeiro mestre espiritual, supremo no universo, não conseguiu rastrear a fonte de seu assento de lótus e, enquanto pensava em criar o mundo material, não pôde compreender a direção correta para tal trabalho criativo, nem descobrir o processo para tal criação.**
 

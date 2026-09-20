@@ -11,8 +11,7 @@ chindyād asaṅga-śastreṇa
 
 spṛhāṁ dehe 'nu ye ca tam
 
-*Sinônimos
-anta-kāle*—no estágio final da vida; *tu*—mas; *puruṣaḥ*—uma pessoa; *āgate*—chegando; *gata-sādhvasaḥ*—sem nenhum temor da morte; *chindyāt*—deve cortar; *asaṅga*—desapego; *śastreṇa*—pela arma do; *spṛhām*—todos os desejos; *dehe*—no que diz respeito ao tabernáculo material; *anu*—pertencentes; *ye*—tudo o que; *ca*—também; *tam*—eles.
+*anta-kāle*—no estágio final da vida; *tu*—mas; *puruṣaḥ*—uma pessoa; *āgate*—chegando; *gata-sādhvasaḥ*—sem nenhum temor da morte; *chindyāt*—deve cortar; *asaṅga*—desapego; *śastreṇa*—pela arma do; *spṛhām*—todos os desejos; *dehe*—no que diz respeito ao tabernáculo material; *anu*—pertencentes; *ye*—tudo o que; *ca*—também; *tam*—eles.
 
 **No último estágio da vida, deve-se ser corajoso o bastante para não temer a morte. Mas é preciso cortar todo o apego ao corpo material e a tudo o que a ele se relaciona, bem como todos os desejos dele decorrentes.**
 

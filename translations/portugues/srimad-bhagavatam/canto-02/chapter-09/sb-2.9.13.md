@@ -11,8 +11,7 @@ vidyotamānaḥ pramadottamādyubhiḥ
 
 savidyud abhrāvalibhir yathā nabhaḥ
 
-*Sinônimos
-bhrājiṣṇubhiḥ*—pelo brilho; *yaḥ*—os Vaikuṇṭhalokas; *paritaḥ*—rodeados por; *virājate*—assim situados; *lasat*—brilhantes; *vimāna*—aeronaves; *avalibhiḥ*—grupo; *mahā-ātmanām*—dos grandes devotos do Senhor; *vidyotamānaḥ*—belos como relâmpagos; *pramada*—damas; *uttama*—celestial; *adyubhiḥ*—pela compleição; *sa-vidyut*—com relâmpagos elétricos; *abhrāvalibhiḥ*—com nuvens no céu; *yathā*—como se fosse; *nabhaḥ*—o céu.
+*bhrājiṣṇubhiḥ*—pelo brilho; *yaḥ*—os Vaikuṇṭhalokas; *paritaḥ*—rodeados por; *virājate*—assim situados; *lasat*—brilhantes; *vimāna*—aeronaves; *avalibhiḥ*—grupo; *mahā-ātmanām*—dos grandes devotos do Senhor; *vidyotamānaḥ*—belos como relâmpagos; *pramada*—damas; *uttama*—celestial; *adyubhiḥ*—pela compleição; *sa-vidyut*—com relâmpagos elétricos; *abhrāvalibhiḥ*—com nuvens no céu; *yathā*—como se fosse; *nabhaḥ*—o céu.
 
 **Os planetas Vaikuṇṭha são também rodeados por vários aeroplanos, todos reluzentes e brilhantemente situados, pertencentes aos grandes mahātmās, ou devotos do Senhor. As damas também são tão belas quanto o relâmpago, em razão de suas compleições celestiais, e tudo isso, combinado, parece exatamente como o céu adornado tanto com nuvens quanto com relâmpagos.**
 

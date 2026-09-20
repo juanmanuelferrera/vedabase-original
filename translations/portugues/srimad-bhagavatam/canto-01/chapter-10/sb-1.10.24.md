@@ -11,8 +11,7 @@
 
 sṛjaty avaty atti na tatra sajjate
 
-*Sinônimos
-saḥ*—Ele; *vai*—também; *ayam*—este; *sakhi*—Ó meu amigo; *anugīta*—descrito; *sat-kathaḥ*—os excelentes pasatempos; *vedeṣu*—nas literaturas Védicas; *guhyeṣu*—confidentualmente; *ca*—bem como; *guhya-vādibhiḥ*—pelos devotos confidenciais; *yaḥ*—aquele que; *ekaḥ*—um apenas; *īśaḥ*—o controlador supremo; *jagat*—da criação completa; *ātma*—Superalma; *līlayā*—pela manifestação de pasatempos; *sṛjati*—cria; *avati atti*—também mantém e aniquila; *na*—nunca; *tatra*—ali; *sajjate*—se torna apegado a isto.
+*saḥ*—Ele; *vai*—também; *ayam*—este; *sakhi*—Ó meu amigo; *anugīta*—descrito; *sat-kathaḥ*—os excelentes pasatempos; *vedeṣu*—nas literaturas Védicas; *guhyeṣu*—confidentualmente; *ca*—bem como; *guhya-vādibhiḥ*—pelos devotos confidenciais; *yaḥ*—aquele que; *ekaḥ*—um apenas; *īśaḥ*—o controlador supremo; *jagat*—da criação completa; *ātma*—Superalma; *līlayā*—pela manifestação de pasatempos; *sṛjati*—cria; *avati atti*—também mantém e aniquila; *na*—nunca; *tatra*—ali; *sajjate*—se torna apegado a isto.
 
 **Ó queridos amigos, aqui está aquela mesma Personalidade de Deus cujos pasatempos atraentes e confidenciais são descritos nas partes confidenciais da literatura Védica por Seus grandes devotos. É Ele apenas que cria, mantém e aniquila o mundo material e ainda permanece não-afetado.**
 

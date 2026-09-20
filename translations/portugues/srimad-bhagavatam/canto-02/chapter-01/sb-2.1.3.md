@@ -11,8 +11,7 @@ divā cārthehayā rājan
 
 *kuṭumba*-bharaṇena vā
 
-*Sinônimos
-nidrayā*—pelo sono; *hriyate*—desperdiça; *naktam*—a noite; *vyavāyena*—pelo indulgência sexual; *ca*—também; *vā*—ou; *vayaḥ*—a duração da vida; *divā*—os dias; *ca*—e; *artha*—econômico; *īhayā*—desenvolvimento; *rājan*—ó rei; *kuṭumba*—membros da família; *bharaṇena*—manutenção; *vā*—ou.
+*nidrayā*—pelo sono; *hriyate*—desperdiça; *naktam*—a noite; *vyavāyena*—pelo indulgência sexual; *ca*—também; *vā*—ou; *vayaḥ*—a duração da vida; *divā*—os dias; *ca*—e; *artha*—econômico; *īhayā*—desenvolvimento; *rājan*—ó rei; *kuṭumba*—membros da família; *bharaṇena*—manutenção; *vā*—ou.
 
 **O tempo de vida de tais chefes de família invejosos passa-se à noite, ou dormindo ou no gozo sexual, e durante o dia, ou fazendo dinheiro ou mantendo os membros da família.**
 

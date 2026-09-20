@@ -9,8 +9,7 @@ hṛtātmano hṛta-prāṇāṁś ca bhaktir
 
 anicchato me gatim aṇvīṁ prayuṅkte
 
-*Sinônimos
-taiḥ*—por aquelas formas; *darśanīya*—encantador; *avayavaiḥ*—cujos membros; *udāra*—exaltado; *vilāsa*—passatempos; *hāsa*—sorridente; *īkṣita*—olhares; *vāma*—agradável; *sūktaiḥ*—cujas palavras deliciosas; *hṛta*—cativado; *ātmanaḥ*—suas mentes; *hṛta*—cativado; *prāṇān*—seus sentidos; *ca*—e; *bhaktiḥ*—serviço devocional; *anicchataḥ*—relutante; *me*—Meu; *gatim*—morada; *aṇvīm*—sutil; *prayuṅkte*—assegura.
+*taiḥ*—por aquelas formas; *darśanīya*—encantador; *avayavaiḥ*—cujos membros; *udāra*—exaltado; *vilāsa*—passatempos; *hāsa*—sorridente; *īkṣita*—olhares; *vāma*—agradável; *sūktaiḥ*—cujas palavras deliciosas; *hṛta*—cativado; *ātmanaḥ*—suas mentes; *hṛta*—cativado; *prāṇān*—seus sentidos; *ca*—e; *bhaktiḥ*—serviço devocional; *anicchataḥ*—relutante; *me*—Meu; *gatim*—morada; *aṇvīm*—sutil; *prayuṅkte*—assegura.
 
 **Ao contemplar as encantadoras formas do Senhor, sorridentes e atrativas, e ao ouvir Suas agradabilíssimas palavras, o devoto puro quase perde toda a demais consciência. Seus sentidos libertam-se de todas as demais ocupações, e ele se absorve em serviço devocional. Assim, apesar de sua relutância, ele atinge a liberação sem esforço à parte.**
 

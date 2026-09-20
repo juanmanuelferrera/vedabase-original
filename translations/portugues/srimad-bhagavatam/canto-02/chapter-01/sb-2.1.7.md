@@ -11,8 +11,7 @@ nivṛttā vidhi-ṣedhataḥ
 
 guṇānukathane hareḥ
 
-*Sinônimos
-prāyeṇa*—principalmente; *munayaḥ*—todos os sábios; *rājan*—ó rei; *nivṛttāḥ*—acima; *vidhi*—princípios reguladores; *sedhataḥ*—das restrições; *nairguṇya-sthāḥ*—situados transcendentalmente; *ramante*—deleitam-se; *sma*—nitidamente; *guṇa-anukathane*—em descrever as glórias; *hareḥ*—do Senhor.
+*prāyeṇa*—principalmente; *munayaḥ*—todos os sábios; *rājan*—ó rei; *nivṛttāḥ*—acima; *vidhi*—princípios reguladores; *sedhataḥ*—das restrições; *nairguṇya-sthāḥ*—situados transcendentalmente; *ramante*—deleitam-se; *sma*—nitidamente; *guṇa-anukathane*—em descrever as glórias; *hareḥ*—do Senhor.
 
 **Ó rei Parīkṣit, principalmente os mais elevados transcendentalistas, que estão acima dos princípios reguladores e das restrições, deleitam-se em descrever as glórias do Senhor.**
 

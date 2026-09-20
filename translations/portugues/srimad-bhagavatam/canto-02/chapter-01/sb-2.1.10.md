@@ -11,8 +11,7 @@ yasya śraddadhatām āśu
 
 syān mukunde matiḥ satī
 
-*Sinônimos
-tat*—aquilo; *aham*—eu; *te*—a você; *abhidhāsyāmi*—recitarei; *mahā-pauruṣikaḥ*—o mais sincero devoto do Senhor Kṛṣṇa; *bhavān*—Vossa Bondade; *yasya*—do qual; *śraddadhatām*—daquele que presta plena atenção e respeito; *āśu*—muito em breve; *syāt*—assim se torna; *mukunde*—ao Senhor, que concede a salvação; *matiḥ*—fé; *satī*—inabalável.
+*tat*—aquilo; *aham*—eu; *te*—a você; *abhidhāsyāmi*—recitarei; *mahā-pauruṣikaḥ*—o mais sincero devoto do Senhor Kṛṣṇa; *bhavān*—Vossa Bondade; *yasya*—do qual; *śraddadhatām*—daquele que presta plena atenção e respeito; *āśu*—muito em breve; *syāt*—assim se torna; *mukunde*—ao Senhor, que concede a salvação; *matiḥ*—fé; *satī*—inabalável.
 
 **Aquele mesmo Śrīmad-Bhāgavatam recitarei diante de você, porque você é o mais sincero devoto do Senhor Kṛṣṇa. Aquele que presta plena atenção e respeito à audição do Śrīmad-Bhāgavatam alcança fé inabalável no Senhor Supremo, o doador da salvação.**
 

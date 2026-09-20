@@ -11,8 +11,7 @@ yad eṣa puṁsām ṛṣabhaḥ śriyaḥ patiḥ
 
 *sva*-janmanā caṅkramaṇena cāñcati
 
-*Sinônimos
-aho*—oh; *alam*—verdadeiramente; *ślāghya-tamam*—supremamente glorificado; *yadoḥ*—do rei Yadu; *kulam*—dinastia; *aho*—oh; *alam*—verdadeiramente; *puṇya-tamam*—supremamente virtuoso; *madhorvanam*—a terra de Mathurā; *yat*—porque; *eṣaḥ*—este; *puṁsām*—de todos os seres vivos; *ṛṣabhaḥ*—líder supremo; *śriyaḥ*—da deusa da fortuna; *patiḥ*—marido; *sva-janmanā*—pelo Seu aparecimento; *caṅkramaṇena*—pelo engatinhamento; *ca añcati*—glórias.
+*aho*—oh; *alam*—verdadeiramente; *ślāghya-tamam*—supremamente glorificado; *yadoḥ*—do rei Yadu; *kulam*—dinastia; *aho*—oh; *alam*—verdadeiramente; *puṇya-tamam*—supremamente virtuoso; *madhorvanam*—a terra de Mathurā; *yat*—porque; *eṣaḥ*—este; *puṁsām*—de todos os seres vivos; *ṛṣabhaḥ*—líder supremo; *śriyaḥ*—da deusa da fortuna; *patiḥ*—marido; *sva-janmanā*—pelo Seu aparecimento; *caṅkramaṇena*—pelo engatinhamento; *ca añcati*—glórias.
 
 **Oh, como supremamente glorificada é a dinastia do rei Yadu, e como virtuosa é a terra de Mathurā, onde o líder supremo de todos os seres vivos, o marido da deusa da fortuna, tomou Seu nascimento e vagueou em Sua infância.**
 

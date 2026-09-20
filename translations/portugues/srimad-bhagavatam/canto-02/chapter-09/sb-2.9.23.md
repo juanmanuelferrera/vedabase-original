@@ -11,8 +11,7 @@ tapo me hṛdayaṁ sākṣād
 
 ātmāhaṁ tapaso 'nagha
 
-*Sinônimos
-pratyādiṣṭam*—ordenado; *mayā*—por Mim; *tatra*—por causa disso; *tvayi*—a você; *karma*—dever; *vimohite*—estando perplexo; *tapaḥ*—penitência; *me*—Meu; *hṛdayam*—coração; *sākṣāt*—diretamente; *ātmā*—vida e alma; *aham*—Eu mesmo; *tapasaḥ*—daquele que está empenhado em penitência; *anagha*—ó imaculado.
+*pratyādiṣṭam*—ordenado; *mayā*—por Mim; *tatra*—por causa disso; *tvayi*—a você; *karma*—dever; *vimohite*—estando perplexo; *tapaḥ*—penitência; *me*—Meu; *hṛdayam*—coração; *sākṣāt*—diretamente; *ātmā*—vida e alma; *aham*—Eu mesmo; *tapasaḥ*—daquele que está empenhado em penitência; *anagha*—ó imaculado.
 
 **Ó Brahmā, o impecável, podes ficar sabendo de Mim que fui Eu quem te ordenou submeter-te à penitência logo no início, quando ficaste perplexo em teu dever, porque tal penitência é Meu coração e Minha alma, e por causa disso a penitência e Eu somos não-diferentes.**
 

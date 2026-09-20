@@ -11,8 +11,7 @@ dhatte bhagaṁ satyam ṛtaṁ dayāṁ yaśo
 
 bhavāya rūpāṇi dadhad yuge yuge
 
-*Sinônimos
-yadā*—sempre que; *hi*—certamente; *adharmeṇa*—contra os princípios da vontade de Deus; *tamaḥ-dhiyaḥ*—pessoas nos modos mais baixos materiais; *nṛpāḥ*—reis e administradores; *jīvanti*—vivem como animais; *tatra*—ali; *eṣaḥ*—Ele; *hi*—apenas; *sattvataḥ*—transcendental; *kila*—certamente; *dhatte*—é manifestado; *bhagam*—poder supremo; *satyam*—verdade; *ṛtam*—positividade; *dayām*—misericórdia; *yaśaḥ*—atividades maravilhosas; *bhavāya*—para a manutenção; *rūpāṇi*—em várias formas; *dadhat*—manifestado; *yuge*—períodos diferentes; *yuge*—e idades.
+*yadā*—sempre que; *hi*—certamente; *adharmeṇa*—contra os princípios da vontade de Deus; *tamaḥ-dhiyaḥ*—pessoas nos modos mais baixos materiais; *nṛpāḥ*—reis e administradores; *jīvanti*—vivem como animais; *tatra*—ali; *eṣaḥ*—Ele; *hi*—apenas; *sattvataḥ*—transcendental; *kila*—certamente; *dhatte*—é manifestado; *bhagam*—poder supremo; *satyam*—verdade; *ṛtam*—positividade; *dayām*—misericórdia; *yaśaḥ*—atividades maravilhosas; *bhavāya*—para a manutenção; *rūpāṇi*—em várias formas; *dadhat*—manifestado; *yuge*—períodos diferentes; *yuge*—e idades.
 
 **Sempre que há reis e administradores vivendo como animais nos modos mais baixos de existência, o Senhor em Sua forma transcendental manifesta Seu poder supremo, a Verdade Positiva, mostra misericórdia especial aos fiéis, realiza atividades maravilhosas e manifesta várias formas transcendentais conforme necessário em diferentes períodos e idades.**
 

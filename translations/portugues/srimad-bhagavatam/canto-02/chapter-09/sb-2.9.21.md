@@ -11,8 +11,7 @@ vareśaṁ mābhivāñchitam
 
 *puṁsāṁ mad*-darśanāvadhiḥ
 
-*Sinônimos
-varam*—bênção; *varaya*—simplesmente peça de; *bhadram*—auspicioso; *te*—a você; *vara-īśam*—o doador de todas as bênçãos; *mā (mām)*—de Mim; *abhivāñchitam*—desejando; *brahman*—ó Brahmā; *śreyaḥ*—o êxito último; *pariśrāmaḥ*—por todas as penitências; *puṁsām*—para todos; *mat*—Minha; *darśana*—percepção; *avadhiḥ*—até o limite de.
+*varam*—bênção; *varaya*—simplesmente peça de; *bhadram*—auspicioso; *te*—a você; *vara-īśam*—o doador de todas as bênçãos; *mā (mām)*—de Mim; *abhivāñchitam*—desejando; *brahman*—ó Brahmā; *śreyaḥ*—o êxito último; *pariśrāmaḥ*—por todas as penitências; *puṁsām*—para todos; *mat*—Minha; *darśana*—percepção; *avadhiḥ*—até o limite de.
 
 **Desejo-te boa sorte. Ó Brahmā, podes pedir-Me, o outorgador de toda bênção, tudo o que possas desejar. Fica sabendo que a bênção última, como resultado de todas as penitências, é ver-Me por realização.**
 

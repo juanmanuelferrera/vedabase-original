@@ -11,8 +11,7 @@ sarve te 'nimiṣair akṣais
 
 vicelus tatra tatra ha
 
-*Sinônimos
-sarve*—todos; *te*—eles; *animiṣaiḥ*—sem piscar dos olhos; *akṣaiḥ*—pelos olhos; *tam anu*—após Ele; *druta-cetasaḥ*—coração derretido; *vīkṣantaḥ*—olhando para Ele; *sneha-sambaddhāḥ*—ligados por afeto puro; *viceluḥ*—começaram a se mover; *tatra tatra*—aqui e ali; *ha*—assim fizeram.
+*sarve*—todos; *te*—eles; *animiṣaiḥ*—sem piscar dos olhos; *akṣaiḥ*—pelos olhos; *tam anu*—após Ele; *druta-cetasaḥ*—coração derretido; *vīkṣantaḥ*—olhando para Ele; *sneha-sambaddhāḥ*—ligados por afeto puro; *viceluḥ*—começaram a se mover; *tatra tatra*—aqui e ali; *ha*—assim fizeram.
 
 **Todos os seus corações estavam derretendo por Ele no pote de atração. Eles O olhavam sem piscar seus olhos, e se movimentavam aqui e ali em perplexidade.**
 

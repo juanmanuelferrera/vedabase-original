@@ -11,8 +11,7 @@ vitanvan māmakam yaśaḥ
 
 *audaryō brahma*-bhāvanaḥ
 
-*Sinônimos
-saḥ*—Ele; *tvayā*—por você; *ārādhitaḥ*—sendo adorado; *śuklaḥ*—a Personalidade de Deus; *vitanvan*—espalhando; *māmakam*—minha; *yaśaḥ*—fama; *chettā*—Ele cortará; *te*—seu; *hṛdaya*—do coração; *granthim*—nó; *audaryaḥ*—seu filho; *brahma*—conhecimento de Brahman; *bhāvanaḥ*—ensinando.
+*saḥ*—Ele; *tvayā*—por você; *ārādhitaḥ*—sendo adorado; *śuklaḥ*—a Personalidade de Deus; *vitanvan*—espalhando; *māmakam*—minha; *yaśaḥ*—fama; *chettā*—Ele cortará; *te*—seu; *hṛdaya*—do coração; *granthim*—nó; *audaryaḥ*—seu filho; *brahma*—conhecimento de Brahman; *bhāvanaḥ*—ensinando.
 
 **A Personalidade de Deus, sendo adorada por você, espalhará minha fama e nome. Ele destruirá o nó de seu coração tornando-se seu filho e ensinando o conhecimento de Brahman.**
 

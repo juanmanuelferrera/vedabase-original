@@ -11,8 +11,7 @@ niryāty agārān no 'bhadram
 
 *iti syād bāndhava*-striyaḥ
 
-*Sinônimos
-nyarundhan*—verificando com grande dificuldade; *udgalat*—transbordando; *bāṣpam*—lágrimas; *autkaṇṭhyāt*—por causa de grande ansiedade; *devakī-sute*—para o filho de Devakī; *niryāti*—tendo saído; *agārāt*—do palácio; *naḥ*—não; *abhadram*—inauspiciosidade; *iti*—assim; *syāt*—pode acontecer; *bāndhava*—parente; *striyaḥ*—damas.
+*nyarundhan*—verificando com grande dificuldade; *udgalat*—transbordando; *bāṣpam*—lágrimas; *autkaṇṭhyāt*—por causa de grande ansiedade; *devakī-sute*—para o filho de Devakī; *niryāti*—tendo saído; *agārāt*—do palácio; *naḥ*—não; *abhadram*—inauspiciosidade; *iti*—assim; *syāt*—pode acontecer; *bāndhava*—parente; *striyaḥ*—damas.
 
 **As parentas, cujos olhos se inundaram de lágrimas por ansiedade por Kṛṣṇa, saíram do palácio. Só com grande dificuldade conseguiam conter suas lágrimas. Elas temiam que as lágrimas causassem infortúnio no momento da partida.**
 

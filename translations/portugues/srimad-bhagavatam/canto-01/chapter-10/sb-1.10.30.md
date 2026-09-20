@@ -11,8 +11,7 @@ nirasta-śaucaṁ bata sādhu kurvate
 
 na jātv apaity āhṛtibhir hṛdi spṛśan
 
-*Sinônimos
-etāḥ*—todas estas mulheres; *param*—mais alto; *strītvam*—feminilidade; *apāstapeśalam*—sem individualidade; *nirasta*—sem; *śaucam*—pureza; *bata sādhu*—auspiciosamente glorificado; *kurvate*—elas fazem; *yāsām*—de cuja; *gṛhāt*—lares; *puṣkara-locanaḥ*—o loto-eyed; *patiḥ*—marido; *na jātu*—nunca em qualquer tempo; *apaiti*—vai embora; *āhṛtibhiḥ*—por apresentação; *hṛdi*—no coração; *spṛśan*—querido.
+*etāḥ*—todas estas mulheres; *param*—mais alto; *strītvam*—feminilidade; *apāstapeśalam*—sem individualidade; *nirasta*—sem; *śaucam*—pureza; *bata sādhu*—auspiciosamente glorificado; *kurvate*—elas fazem; *yāsām*—de cuja; *gṛhāt*—lares; *puṣkara-locanaḥ*—o loto-eyed; *patiḥ*—marido; *na jātu*—nunca em qualquer tempo; *apaiti*—vai embora; *āhṛtibhiḥ*—por apresentação; *hṛdi*—no coração; *spṛśan*—querido.
 
 ***Todas estas mulheres auspiciosamente glorificaram suas vidas apesar de serem sem individualidade e sem pureza. Seu marido, a Personalidade loto-eyed de Deus, nunca as deixou sozinhas em casa. Ele sempre agradou seus corações fazendo apresentações valiosas.**
 

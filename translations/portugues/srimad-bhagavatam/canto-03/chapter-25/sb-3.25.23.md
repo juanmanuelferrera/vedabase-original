@@ -11,8 +11,7 @@ tapanti vividhās tāpā
 
 naitān mad-gata-cetasaḥ
 
-*Sinônimos
-mat-āśrayāḥ*—sobre Mim; *kathāḥ*—histórias; *mṛṣṭāḥ*—deliciosas; *śṛṇvanti*—eles ouvem; *kathayanti*—eles cantam; *ca*—e; *tapanti*—infligem sofrimento; *vividhāḥ*—vários; *tāpāḥ*—as misérias materiais; *na*—não; *etān*—para eles; *mat-gata*—fixo em Mim; *cetasaḥ*—seus pensamentos.
+*mat-āśrayāḥ*—sobre Mim; *kathāḥ*—histórias; *mṛṣṭāḥ*—deliciosas; *śṛṇvanti*—eles ouvem; *kathayanti*—eles cantam; *ca*—e; *tapanti*—infligem sofrimento; *vividhāḥ*—vários; *tāpāḥ*—as misérias materiais; *na*—não; *etān*—para eles; *mat-gata*—fixo em Mim; *cetasaḥ*—seus pensamentos.
 
 **Constantemente ocupados em cantar e ouvir sobre Mim, a Suprema Personalidade de Deus, os sādhus não sofrem das misérias materiais porque estão sempre repletos de pensamentos sobre Meus passatempos e atividades.**
 

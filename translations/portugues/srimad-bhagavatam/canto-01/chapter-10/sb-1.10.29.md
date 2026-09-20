@@ -11,8 +11,7 @@ yā vīrya-śulkena hṛtāḥ svayaṁvare
 
 *yāś cāhṛtā bhauma*-vadhe sahasraśaḥ
 
-*Sinônimos
-yā*—a dama; *vīrya*—valor; *śulkena*—pelo pagamento do preço; *hṛtāḥ*—levados embora pela força; *svayaṁvare*—na seleção aberta do noivo; *pramathya*—perturbando; *caidya*—rei Śiśupāla; *pramukhān*—chefiado por; *hi*—positivamente; *śuṣmiṇaḥ*—todos muito poderosos; *pradyumna*—Pradyumna (filho de Kṛṣṇa); *sāmba*—Sāmba; *amba*—Amba; *suta-ādayaḥ*—filhos; *aparāḥ*—outras damas; *yāḥ*—aquelas; *ca*—também; *āhṛtāḥ*—igualmente trazidas; *bhauma-vadhe*—após matar reis; *sahasraśaḥ*—pelos milhares.
+*yā*—a dama; *vīrya*—valor; *śulkena*—pelo pagamento do preço; *hṛtāḥ*—levados embora pela força; *svayaṁvare*—na seleção aberta do noivo; *pramathya*—perturbando; *caidya*—rei Śiśupāla; *pramukhān*—chefiado por; *hi*—positivamente; *śuṣmiṇaḥ*—todos muito poderosos; *pradyumna*—Pradyumna (filho de Kṛṣṇa); *sāmba*—Sāmba; *amba*—Amba; *suta-ādayaḥ*—filhos; *aparāḥ*—outras damas; *yāḥ*—aquelas; *ca*—também; *āhṛtāḥ*—igualmente trazidas; *bhauma-vadhe*—após matar reis; *sahasraśaḥ*—pelos milhares.
 
 **Pradyumna, Sāmba, Ambā, etc., são Seus filhos, e damas como Rukmiṇī, Satyabhāmā, Jāmbavatī, etc., foram levadas à força por Ele quando as selecionou como noivas após derrotar muitos reis poderosos, encabeçados por Śiśupāla. E outras damas também foram levadas à força por Ele depois que Ele matou Bhaumāsura e milhares de seus assistentes. Todas elas são gloriosas.**
 

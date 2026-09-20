@@ -11,8 +11,7 @@ parebhyaḥ śaṅkitaḥ snehāt
 
 *prāyuṅkta catur*-aṅgiṇīm
 
-*Sinônimos
-ajāta-śatruḥ*—o Mahārāja Yudhiṣṭhira, que era inimigo de ninguém; *pṛtanām*—forças defensivas; *gopīthāya*—para dar proteção; *madhu-dviṣaḥ*—do inimigo de Madhu (Śrī Kṛṣṇa); *parebhyaḥ*—dos outros (inimigos); *śaṅkitaḥ*—sendo medo; *snehāt*—de afeto; *prāyuṅkta*—engajou; *catuḥ-aṅgiṇīm*—quatro divisões defensivas.
+*ajāta-śatruḥ*—o Mahārāja Yudhiṣṭhira, que era inimigo de ninguém; *pṛtanām*—forças defensivas; *gopīthāya*—para dar proteção; *madhu-dviṣaḥ*—do inimigo de Madhu (Śrī Kṛṣṇa); *parebhyaḥ*—dos outros (inimigos); *śaṅkitaḥ*—sendo medo; *snehāt*—de afeto; *prāyuṅkta*—engajou; *catuḥ-aṅgiṇīm*—quatro divisões defensivas.
 
 **O Mahārāja Yudhiṣṭhira, embora inimigo de ninguém, engajou quatro divisões de defesa [cavalo, elefante, carro e exército] para acompanhar o Senhor Kṛṣṇa, o inimigo dos asuras [demônios]. O Mahārāja fez isto por causa do inimigo, e também de afeto pelo Senhor.**
 

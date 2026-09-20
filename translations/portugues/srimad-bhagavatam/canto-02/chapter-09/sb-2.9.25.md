@@ -14,8 +14,7 @@ veda hy apratiruddhena
 
 prajñānena cikīrṣitam
 
-*Sinônimos
-brahmā uvāca*—o Senhor Brahmā disse; *bhagavan*—ó meu Senhor; *sarva bhūtānām*—de todas as entidades vivas; *adhyakṣaḥ*—diretor; *avasthitaḥ*—situado; *guhām*—dentro do coração; *veda*—conhece; *hi*—certamente; *apratiruddhena*—sem obstáculo; *prajñānena*—pela superinteligência; *cikīrṣitam*—empenhos.
+*brahmā uvāca*—o Senhor Brahmā disse; *bhagavan*—ó meu Senhor; *sarva bhūtānām*—de todas as entidades vivas; *adhyakṣaḥ*—diretor; *avasthitaḥ*—situado; *guhām*—dentro do coração; *veda*—conhece; *hi*—certamente; *apratiruddhena*—sem obstáculo; *prajñānena*—pela superinteligência; *cikīrṣitam*—empenhos.
 
 **O Senhor Brahmā disse: Ó Personalidade de Deus, o Senhor está situado no coração de cada entidade viva como o diretor supremo e, portanto, está ciente de todos os empenhos por Sua inteligência superior, sem qualquer obstáculo.**
 

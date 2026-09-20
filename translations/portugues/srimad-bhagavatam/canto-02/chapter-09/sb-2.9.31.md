@@ -14,8 +14,7 @@
 
 gṛhāṇa gaditaṁ mayā
 
-*Sinônimos
-śrī-bhagavān uvāca*—a Personalidade de Deus disse; *jñānam*—conhecimento adquirido; *parama*—extremamente; *guhyam*—confidencial; *me*—de Mim; *yat*—que é; *vijñāna*—realização; *samanvitam*—coordenado; *sa-rahasyam*—com serviço devocional; *tat*—disso; *aṅgam ca*—parafernália necessária; *gṛhāṇa*—simplesmente tente aceitar; *gaditam*—explicado; *mayā*—por Mim.
+*śrī-bhagavān uvāca*—a Personalidade de Deus disse; *jñānam*—conhecimento adquirido; *parama*—extremamente; *guhyam*—confidencial; *me*—de Mim; *yat*—que é; *vijñāna*—realização; *samanvitam*—coordenado; *sa-rahasyam*—com serviço devocional; *tat*—disso; *aṅgam ca*—parafernália necessária; *gṛhāṇa*—simplesmente tente aceitar; *gaditam*—explicado; *mayā*—por Mim.
 
 **A Personalidade de Deus disse: O conhecimento sobre Mim como descrito nas escrituras é muito confidencial, e deve ser percebido em conjunção com o serviço devocional. A parafernália necessária para esse processo está sendo explicada por Mim. Você pode aceitá-la cuidadosamente.**
 

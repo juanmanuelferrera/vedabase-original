@@ -11,8 +11,7 @@ adhītavān dvāparādau
 
 pitur dvaipāyanād aham
 
-*Sinônimos
-idam*—este; *bhāgavatam*—Śrīmad-Bhāgavatam; *nāma*—de nome; *purāṇam*—suplemento Védico; *brahma-sammitam*—aprovado como a essência dos Vedas; *adhītavān*—estudei; *dvāpara-ādau*—ao fim do Dvāpara-yuga; *pituḥ*—de meu pai; *dvaipāyanāt*—Dvaipāyana Vyāsadeva; *aham*—eu mesmo.
+*idam*—este; *bhāgavatam*—Śrīmad-Bhāgavatam; *nāma*—de nome; *purāṇam*—suplemento Védico; *brahma-sammitam*—aprovado como a essência dos Vedas; *adhītavān*—estudei; *dvāpara-ādau*—ao fim do Dvāpara-yuga; *pituḥ*—de meu pai; *dvaipāyanāt*—Dvaipāyana Vyāsadeva; *aham*—eu mesmo.
 
 **Ao fim do Dvāpara-yuga, estudei este grande suplemento da literatura Védica de nome Śrīmad-Bhāgavatam, que é igual a todos os Vedas, com meu pai, Śrīla Dvaipāyana Vyāsadeva.**
 

@@ -11,8 +11,7 @@ pariniṣṭhito 'pi nairguṇya
 
 ākhyānaṁ yad adhītavān
 
-*Sinônimos
-pariniṣṭhitaḥ*—plenamente realizado; *api*—apesar de; *nairguṇye*—na transcendência; *uttama*—iluminado; *śloka*—verso; *līlayā*—pelos passatempos; *gṛhīta*—sendo atraído; *cetāḥ*—atenção; *rājarṣe*—ó sábio rei; *ākhyānam*—delineamento; *yat*—o qual; *adhītavān*—estudei.
+*pariniṣṭhitaḥ*—plenamente realizado; *api*—apesar de; *nairguṇye*—na transcendência; *uttama*—iluminado; *śloka*—verso; *līlayā*—pelos passatempos; *gṛhīta*—sendo atraído; *cetāḥ*—atenção; *rājarṣe*—ó sábio rei; *ākhyānam*—delineamento; *yat*—o qual; *adhītavān*—estudei.
 
 **Ó sábio rei, embora eu certamente estivesse situado perfeitamente na transcendência, ainda assim fui atraído pelo delineamento dos passatempos do Senhor, descrito por versos iluminados.**
 

@@ -11,8 +11,7 @@ manur manīṣā manujo nivāsaḥ
 
 *svara*-smṛtīr asurānīka-vīryaḥ
 
-*Sinônimos
-vayāṁsi*—variedades de pássaros; *tat-vyākaraṇam*—vocábulos; *vicitram*—artístico; *manuḥ*—o pai da humanidade; *manīṣā*—pensamentos; *manujaḥ*—a humanidade (os filhos de Manu); *nivāsaḥ*—residência; *gandharva*—os seres humanos chamados Gandharvas; *vidyādhara*—os Vidyādharas; *cāraṇa*—os Cāraṇas; *apsaraḥ*—os anjos; *svara*—ritmo musical; *smṛtīḥ*—lembrança; *asura-anīka*—os soldados demoníacos; *vīryaḥ*—proeza.
+*vayāṁsi*—variedades de pássaros; *tat-vyākaraṇam*—vocábulos; *vicitram*—artístico; *manuḥ*—o pai da humanidade; *manīṣā*—pensamentos; *manujaḥ*—a humanidade (os filhos de Manu); *nivāsaḥ*—residência; *gandharva*—os seres humanos chamados Gandharvas; *vidyādhara*—os Vidyādharas; *cāraṇa*—os Cāraṇas; *apsaraḥ*—os anjos; *svara*—ritmo musical; *smṛtīḥ*—lembrança; *asura-anīka*—os soldados demoníacos; *vīryaḥ*—proeza.
 
 **As variedades de pássaros são indicações de Seu magistral senso artístico. Manu, o pai da humanidade, é o emblema de Sua inteligência padrão, e a humanidade é Sua residência. As espécies celestiais de seres humanos, como os Gandharvas, Vidyādharas, Cāraṇas e anjos, representam todo o Seu ritmo musical, e os soldados demoníacos são representações de Sua maravilhosa proeza.**
 

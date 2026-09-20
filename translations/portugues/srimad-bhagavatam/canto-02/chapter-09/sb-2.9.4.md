@@ -11,8 +11,7 @@ brahmaṇe darśayan rūpam
 
 *avyalīka*-vratādṛtaḥ
 
-*Sinônimos
-ātma-tattva*—a ciência de Deus ou da entidade viva; *viśuddhi*—purificação; *artham*—objetivo; *yat*—o que; *āha*—disse; *bhagavān*—a Personalidade de Deus; *ṛtam*—em realidade; *brahmaṇe*—ao Senhor Brahmā; *darśayan*—mostrando; *rūpam*—forma eterna; *avyalīka*—sem qualquer motivo enganoso; *vrata*—voto; *ādṛtaḥ*—adorado.
+*ātma-tattva*—a ciência de Deus ou da entidade viva; *viśuddhi*—purificação; *artham*—objetivo; *yat*—o que; *āha*—disse; *bhagavān*—a Personalidade de Deus; *ṛtam*—em realidade; *brahmaṇe*—ao Senhor Brahmā; *darśayan*—mostrando; *rūpam*—forma eterna; *avyalīka*—sem qualquer motivo enganoso; *vrata*—voto; *ādṛtaḥ*—adorado.
 
 **Ó Rei, a Personalidade de Deus, muito satisfeita com o Senhor Brahmā por sua penitência não enganosa no *bhakti*-yoga, apresentou Sua forma eterna e transcendental diante de Brahmā. E esse é o objetivo a alcançar para purificar a alma condicionada.**
 

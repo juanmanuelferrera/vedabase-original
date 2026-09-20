@@ -11,8 +11,7 @@ sparśeṣu yat ṣoḍaśam ekaviṁśaṁ
 
 niṣkiñcanānāṁ nṛpa yad dhanaṁ viduḥ
 
-*Sinônimos
-saḥ*—ele; *cintayan*—enquanto assim pensava; *dvi*—duas; *akṣaram*—sílabas; *ekadā*—uma vez; *ambhasi*—na água; *upāśṛṇot*—ouviu nas proximidades; *dviḥ*—duas vezes; *gaditam*—pronunciadas; *vacaḥ*—palavras; *vibhuḥ*—o grande; *sparśeṣu*—nas letras *sparśa*; *yat*—que; *ṣoḍaśam*—a décima sexta; *ekaviṁśam*—e a vigésima primeira; *niṣkiñcanānām*—da ordem de vida renunciada; *nṛpa*—ó rei; *yat*—o que é; *dhanam*—riqueza; *viduḥ*—como é conhecida.
+*saḥ*—ele; *cintayan*—enquanto assim pensava; *dvi*—duas; *akṣaram*—sílabas; *ekadā*—uma vez; *ambhasi*—na água; *upāśṛṇot*—ouviu nas proximidades; *dviḥ*—duas vezes; *gaditam*—pronunciadas; *vacaḥ*—palavras; *vibhuḥ*—o grande; *sparśeṣu*—nas letras *sparśa*; *yat*—que; *ṣoḍaśam*—a décima sexta; *ekaviṁśam*—e a vigésima primeira; *niṣkiñcanānām*—da ordem de vida renunciada; *nṛpa*—ó rei; *yat*—o que é; *dhanam*—riqueza; *viduḥ*—como é conhecida.
 
 **Enquanto assim meditava na água, Brahmājī ouviu nas proximidades, duas vezes, duas sílabas unidas. Uma das sílabas foi tomada da décima sexta e a outra da vigésima primeira das letras *sparśa*, e ambas reunidas tornaram-se a riqueza da ordem de vida renunciada.**
 

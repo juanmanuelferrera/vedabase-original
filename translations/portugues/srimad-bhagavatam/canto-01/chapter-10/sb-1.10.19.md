@@ -11,8 +11,7 @@ nānurūpānurūpāś ca
 
 nirguṇasya guṇātmanaḥ
 
-*Sinônimos
-aśrūyanta*—sendo ouvidas; *āśiṣaḥ*—benção; *satyāḥ*—todas as verdades; *tatra*—aqui; *tatra*—ali; *dvija-īritāḥ*—tocadas por brāhmaṇas eruditos; *na*—não; *anurūpa*—apropriado; *anurūpāḥ*—apropriado; *ca*—também; *nirguṇasya*—do Absoluto; *guṇa-ātmanaḥ*—desempenhando o papel de um ser humano.
+*aśrūyanta*—sendo ouvidas; *āśiṣaḥ*—benção; *satyāḥ*—todas as verdades; *tatra*—aqui; *tatra*—ali; *dvija-īritāḥ*—tocadas por brāhmaṇas eruditos; *na*—não; *anurūpa*—apropriado; *anurūpāḥ*—apropriado; *ca*—também; *nirguṇasya*—do Absoluto; *guṇa-ātmanaḥ*—desempenhando o papel de um ser humano.
 
 **Ouvia-se aqui e ali que as bênçãos prestadas a Kṛṣṇa não eram nem condizentes nem descondizentes, porque eram todas para o Absoluto, que agora desempenhava o papel de um ser humano.**
 

@@ -14,8 +14,7 @@
 
 kathaṁ pravṛttaḥ kim akāraṣīt tataḥ
 
-*Sinônimos
-śaunakaḥ uvāca*—Śaunaka perguntou; *hatvā*—após matar; *svariktha*—a herança legal; *spṛdhaḥ*—desejando usurpar; *ātatāyinaḥ*—o agressor; *yudhiṣṭhiraḥ*—o rei Yudhiṣṭhira; *dharma-bhṛtām*—daqueles que seguem rigorosamente os princípios religiosos; *variṣṭhaḥ*—o maior; *saha-anujaiḥ*—com seus irmãos menores; *pratyavaruddha*—restringido; *bhojanaḥ*—aceitação do necessário; *katham*—como; *pravṛttaḥ*—engajado; *kim*—o que; *akāraṣīt*—executou; *tataḥ*—em seguida.
+*śaunakaḥ uvāca*—Śaunaka perguntou; *hatvā*—após matar; *svariktha*—a herança legal; *spṛdhaḥ*—desejando usurpar; *ātatāyinaḥ*—o agressor; *yudhiṣṭhiraḥ*—o rei Yudhiṣṭhira; *dharma-bhṛtām*—daqueles que seguem rigorosamente os princípios religiosos; *variṣṭhaḥ*—o maior; *saha-anujaiḥ*—com seus irmãos menores; *pratyavaruddha*—restringido; *bhojanaḥ*—aceitação do necessário; *katham*—como; *pravṛttaḥ*—engajado; *kim*—o que; *akāraṣīt*—executou; *tataḥ*—em seguida.
 
 **Śaunaka Muni perguntou: Após matar seus inimigos que desejavam usurpar sua herança legítima, como governou o Mahārāja Yudhiṣṭhira, o maior de todos os homens religiosos, assistido por seus irmãos? Certamente ele não poderia desfrutar livremente de seu reino com consciência sem restrições.**
 

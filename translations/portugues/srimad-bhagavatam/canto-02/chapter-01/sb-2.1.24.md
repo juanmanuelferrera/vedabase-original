@@ -11,8 +11,7 @@ yatredaṁ vyajyate viśvaṁ
 
 bhūtaṁ bhavyaṁ bhavac ca sat
 
-*Sinônimos
-viśeṣaḥ*—pessoal; *tasya*—Seu; *dehaḥ*—corpo; *ayam*—este; *sthaviṣṭhaḥ*—grosseiramente material; *ca*—e; *sthavīyasām*—de toda matéria; *yatra*—onde; *idam*—todos esses fenômenos; *vyajyate*—é experienciado; *viśvam*—universo; *bhūtam*—passado; *bhavyam*—futuro; *bhavat*—presente; *ca*—e; *sat*—resultante.
+*viśeṣaḥ*—pessoal; *tasya*—Seu; *dehaḥ*—corpo; *ayam*—este; *sthaviṣṭhaḥ*—grosseiramente material; *ca*—e; *sthavīyasām*—de toda matéria; *yatra*—onde; *idam*—todos esses fenômenos; *vyajyate*—é experienciado; *viśvam*—universo; *bhūtam*—passado; *bhavyam*—futuro; *bhavat*—presente; *ca*—e; *sat*—resultante.
 
 **Esta gigantesca manifestação do mundo fenomênico material como um todo é o corpo pessoal da Verdade Absoluta, em que o resultante universal passado, presente e futuro do tempo material é experienciado.**
 

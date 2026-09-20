@@ -11,8 +11,7 @@ niśamya bhīṣmoktam athācyutoktaṁ
 
 paridhyupāntām anujānuvartitaḥ
 
-*Sinônimos
-niśamya*—após ouvir; *bhīṣma-uktam*—o que foi dito por Bhīṣmadeva; *atha*—bem como; *acyuta-uktam*—o que foi dito pelo infalível Senhor Kṛṣṇa; *pravṛtta*—engajado em; *vijñāna*—conhecimento perfeito; *vidhūta*—completamente removidas; *vibhramaḥ*—todas as dúvidas; *śaśāsa*—governou; *gām*—a terra; *indra*—o rei do planeta celestial; *iva*—como; *ajita-āśrayaḥ*—protegido pelo invencível Senhor; *paridhi-upāntām*—incluindo os mares; *anuja*—os irmãos menores; *anuvartitaḥ*—sendo seguido por eles.
+*niśamya*—após ouvir; *bhīṣma-uktam*—o que foi dito por Bhīṣmadeva; *atha*—bem como; *acyuta-uktam*—o que foi dito pelo infalível Senhor Kṛṣṇa; *pravṛtta*—engajado em; *vijñāna*—conhecimento perfeito; *vidhūta*—completamente removidas; *vibhramaḥ*—todas as dúvidas; *śaśāsa*—governou; *gām*—a terra; *indra*—o rei do planeta celestial; *iva*—como; *ajita-āśrayaḥ*—protegido pelo invencível Senhor; *paridhi-upāntām*—incluindo os mares; *anuja*—os irmãos menores; *anuvartitaḥ*—sendo seguido por eles.
 
 **Mahārāja Yudhiṣṭhira, após ser iluminado pelo que foi dito por Bhīṣmadeva e pelo Senhor Śrī Kṛṣṇa, o infalível, engajou-se em assuntos de conhecimento perfeito porque todas as suas dúvidas foram erradicadas. Assim ele governou a terra e os mares e foi seguido por seus irmãos menores.**
 

@@ -11,8 +11,7 @@ manaḥ karmabhir ākṣiptaṁ
 
 śubhārthe dhārayed dhiyā
 
-*Sinônimos
-niyacchet*—retirar; *viṣayebhyaḥ*—dos engajamentos dos sentidos; *akṣān*—os sentidos; *manasā*—pelo poder da mente; *buddhi*—inteligência; *sārathiḥ*—condutor; *manaḥ*—a mente; *karmabhiḥ*—pelo trabalho fruitivo; *ākṣiptam*—estando absorta em; *śubha-arthe*—em favor do Senhor; *dhārayet*—firmar; *dhiyā*—em plena consciência.
+*niyacchet*—retirar; *viṣayebhyaḥ*—dos engajamentos dos sentidos; *akṣān*—os sentidos; *manasā*—pelo poder da mente; *buddhi*—inteligência; *sārathiḥ*—condutor; *manaḥ*—a mente; *karmabhiḥ*—pelo trabalho fruitivo; *ākṣiptam*—estando absorta em; *śubha-arthe*—em favor do Senhor; *dhārayet*—firmar; *dhiyā*—em plena consciência.
 
 **Gradualmente, à medida que a mente se torna progressivamente espiritualizada, retira-a das atividades sensoriais, e, pela inteligência, os sentidos serão controlados. A mente, estando demasiadamente absorta em atividades materiais, pode ocupar-se no serviço à Personalidade de Deus e fixar-se em plena consciência transcendental.**
 

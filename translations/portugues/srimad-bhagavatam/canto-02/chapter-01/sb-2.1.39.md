@@ -11,8 +11,7 @@
 
 *nānyatra sajjed yata ātma*-pātaḥ
 
-*Sinônimos
-saḥ*—Ele (a Pessoa Suprema); *sarva-dhī-vṛtti*—o processo de realização por toda espécie de inteligência; *anubhūta*—cognoscente; *sarve*—todos; *ātmā*—a Superalma; *yathā*—assim como; *svapna-jana*—uma pessoa sonhando; *īkṣita*—vista por; *ekaḥ*—uma e a mesma; *tam*—a Ele; *satyam*—a Verdade Suprema; *ānanda-nidhim*—o oceano da bem-aventurança; *bhajeta*—deve-se adorar; *na*—jamais; *anyatra*—qualquer outra coisa; *sajjet*—ficar apegado; *yataḥ*—pelo qual; *ātma-pātaḥ*—degradação de si mesmo.
+*saḥ*—Ele (a Pessoa Suprema); *sarva-dhī-vṛtti*—o processo de realização por toda espécie de inteligência; *anubhūta*—cognoscente; *sarve*—todos; *ātmā*—a Superalma; *yathā*—assim como; *svapna-jana*—uma pessoa sonhando; *īkṣita*—vista por; *ekaḥ*—uma e a mesma; *tam*—a Ele; *satyam*—a Verdade Suprema; *ānanda-nidhim*—o oceano da bem-aventurança; *bhajeta*—deve-se adorar; *na*—jamais; *anyatra*—qualquer outra coisa; *sajjet*—ficar apegado; *yataḥ*—pelo qual; *ātma-pātaḥ*—degradação de si mesmo.
 
 **Deve-se concentrar a mente na Suprema Personalidade de Deus, que sozinho está distribuído em tantas manifestações, assim como as pessoas comuns criam milhares de manifestações no sonho. É preciso concentrar a mente Naquele que é a única toda-bem-aventurada Verdade Absoluta. Do contrário, a pessoa será desorientada e causará sua própria degradação.**
 

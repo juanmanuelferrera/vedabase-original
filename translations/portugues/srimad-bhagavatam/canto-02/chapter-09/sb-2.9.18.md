@@ -11,8 +11,7 @@
 
 yat pāramahaṁsyena pathādhigamyate
 
-*Sinônimos
-tat*—por essa audiência do Senhor; *darśana*—audiência; *āhlāda*—alegria; *paripluta*—dominado; *antaraḥ*—dentro do coração; *hṛṣyat*—pleno de êxtase; *tanuḥ*—corpo; *prema-bhara*—no pleno amor transcendental; *aśru*—lágrimas; *locanaḥ*—nos olhos; *nanāma*—prostrou-se; *pāda-ambujam*—sob os pés de lótus; *asya*—do Senhor; *viśva-sṛk*—o criador do universo; *yat*—o que; *pāramahaṁsyena*—pela grande alma liberada; *pathā*—o caminho; *adhigamyate*—é seguido.
+*tat*—por essa audiência do Senhor; *darśana*—audiência; *āhlāda*—alegria; *paripluta*—dominado; *antaraḥ*—dentro do coração; *hṛṣyat*—pleno de êxtase; *tanuḥ*—corpo; *prema-bhara*—no pleno amor transcendental; *aśru*—lágrimas; *locanaḥ*—nos olhos; *nanāma*—prostrou-se; *pāda-ambujam*—sob os pés de lótus; *asya*—do Senhor; *viśva-sṛk*—o criador do universo; *yat*—o que; *pāramahaṁsyena*—pela grande alma liberada; *pathā*—o caminho; *adhigamyate*—é seguido.
 
 **O Senhor Brahmā, vendo assim a Personalidade de Deus em Sua plenitude, ficou tomado de alegria em seu coração e, dessa forma, em pleno amor e êxtase transcendentais, seus olhos encheram-se de lágrimas de amor. Ele então se prostrou diante do Senhor. Esse é o caminho da mais elevada perfeição para o ser vivo [paramahaṁsa].**
 

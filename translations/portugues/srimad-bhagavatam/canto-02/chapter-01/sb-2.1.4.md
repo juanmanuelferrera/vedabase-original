@@ -11,8 +11,7 @@ teṣāṁ pramatto nidhanaṁ
 
 paśyann api na paśyati
 
-*Sinônimos
-deha*—corpo; *apatya*—filhos; *kalatra*—esposa; *ādiṣu*—e em tudo relacionado a eles; *ātma*—próprios; *sainyeṣu*—soldados que combatem; *asatsu*—falíveis; *api*—apesar de; *teṣām*—de todos eles; *pramattaḥ*—demasiado apegado; *nidhanam*—destruição; *paśyan*—tendo experienciado; *api*—embora; *na*—não; *paśyati*—vê.
+*deha*—corpo; *apatya*—filhos; *kalatra*—esposa; *ādiṣu*—e em tudo relacionado a eles; *ātma*—próprios; *sainyeṣu*—soldados que combatem; *asatsu*—falíveis; *api*—apesar de; *teṣām*—de todos eles; *pramattaḥ*—demasiado apegado; *nidhanam*—destruição; *paśyan*—tendo experienciado; *api*—embora; *na*—não; *paśyati*—vê.
 
 **As pessoas desprovidas de ātma-tattva não indagam acerca dos problemas da vida, estando demasiadamente apegadas aos falíveis soldados, como o corpo, os filhos, a esposa, etc. Embora suficientemente experimentadas, ainda assim não veem sua inevitável destruição.**
 

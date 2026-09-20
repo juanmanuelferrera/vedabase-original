@@ -11,8 +11,7 @@ vavṛṣuḥ kusumaiḥ kṛṣṇaṁ
 
 *prema*-vrīḍā-smitekṣaṇāḥ
 
-*Sinônimos
-prāsāda*—palácio; *śikhara*—o telhado; *ārūḍhāḥ*—subindo; *kuru-nāryaḥ*—as damas da realeza Kuru; *didṛkṣayā*—vendo; *vavṛṣuḥ*—choveu; *kusumaiḥ*—por flores; *kṛṣṇam*—sobre o Senhor Kṛṣṇa; *prema*—de afeto e amor; *vrīḍā-smita-īkṣaṇāḥ*—olhando com sorrisos tímidos.
+*prāsāda*—palácio; *śikhara*—o telhado; *ārūḍhāḥ*—subindo; *kuru-nāryaḥ*—as damas da realeza Kuru; *didṛkṣayā*—vendo; *vavṛṣuḥ*—choveu; *kusumaiḥ*—por flores; *kṛṣṇam*—sobre o Senhor Kṛṣṇa; *prema*—de afeto e amor; *vrīḍā-smita-īkṣaṇāḥ*—olhando com sorrisos tímidos.
 
 **Por desejo amoroso de ver o Senhor, as damas reais dos Kurus subiram ao topo do palácio, e sorrindo com afeto e timidez, choveram flores sobre o Senhor.**
 

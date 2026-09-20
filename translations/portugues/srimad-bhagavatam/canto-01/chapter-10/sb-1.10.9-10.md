@@ -21,8 +21,7 @@ na sehire vimuhyanto
 
 *virahaṁ śārṅga*-dhanvanaḥ
 
-*Sinônimos
-subhadrā*—a irmã de Kṛṣṇa; *draupadī*—a esposa dos Pāṇḍavas; *kuntī*—a mãe dos Pāṇḍavas; *virāṭa-tanayā*—a filha de Virāṭa (Uttarā); *tathā*—também; *gāndhārī*—a mãe de Duryodhana; *dhṛtarāṣṭraḥ*—o pai de Duryodhana; *ca*—e; *yuyutsuḥ*—o filho de Dhṛtarāṣṭra pela sua esposa vaiśya; *gautamaḥ*—Kṛpācārya; *yamau*—os irmãos gêmeos Nakula e Sahadeva; *vṛkodaraḥ*—Bhīma; *ca*—e; *dhaumyaḥ*—Dhaumya; *ca*—e; *striyaḥ*—também outras damas do palácio; *matsya-sutā-ādayaḥ*—a filha de um pescador (Satyavatī, madrasta de Bhīṣma); *na*—não puderam; *sehire*—tolerar; *vimuhyantaḥ*—quase desmaiando; *viraham*—separação; *śārṅga-dhanvanaḥ*—de Śrī Kṛṣṇa, que segura um búzio em Sua mão.
+*subhadrā*—a irmã de Kṛṣṇa; *draupadī*—a esposa dos Pāṇḍavas; *kuntī*—a mãe dos Pāṇḍavas; *virāṭa-tanayā*—a filha de Virāṭa (Uttarā); *tathā*—também; *gāndhārī*—a mãe de Duryodhana; *dhṛtarāṣṭraḥ*—o pai de Duryodhana; *ca*—e; *yuyutsuḥ*—o filho de Dhṛtarāṣṭra pela sua esposa vaiśya; *gautamaḥ*—Kṛpācārya; *yamau*—os irmãos gêmeos Nakula e Sahadeva; *vṛkodaraḥ*—Bhīma; *ca*—e; *dhaumyaḥ*—Dhaumya; *ca*—e; *striyaḥ*—também outras damas do palácio; *matsya-sutā-ādayaḥ*—a filha de um pescador (Satyavatī, madrasta de Bhīṣma); *na*—não puderam; *sehire*—tolerar; *vimuhyantaḥ*—quase desmaiando; *viraham*—separação; *śārṅga-dhanvanaḥ*—de Śrī Kṛṣṇa, que segura um búzio em Sua mão.
 
 **Naquele momento Subhadrā, Draupadī, Kuntī, Uttarā, Gāndhārī, Dhṛtarāṣṭra, Yuyutsu, Kṛpācārya, Nakula, Sahadeva, Bhīmasena, Dhaumya e Satyavatī quase desmaiaram porque era impossível para eles tolerar a separação do Senhor Kṛṣṇa.**
 

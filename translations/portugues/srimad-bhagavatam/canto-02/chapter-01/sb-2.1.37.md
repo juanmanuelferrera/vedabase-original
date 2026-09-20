@@ -11,8 +11,7 @@
 
 *dravyātmakaḥ karma vitāna*-yogaḥ
 
-*Sinônimos
-brahma*—os *brāhmaṇas*; *ānanam*—o rosto; *kṣatra*—os *kṣatriyas*; *bhujaḥ*—os braços; *mahātmā*—o *virāṭ-puruṣa*; *viṭ*—os *vaiśyas*; *ūruḥ*—as coxas; *aṅghri-śrita*—sob a proteção de Seus pés; *kṛṣṇa-varṇaḥ*—os *śūdras*; *nānā*—vários; *abhidhā*—por nomes; *abhījya-gaṇa*—os semideuses; *upapannaḥ*—sendo tomados; *dravya-ātmakaḥ*—com bens viáveis; *karma*—atividades; *vitāna-yogaḥ*—execuções de sacrifício.
+*brahma*—os *brāhmaṇas*; *ānanam*—o rosto; *kṣatra*—os *kṣatriyas*; *bhujaḥ*—os braços; *mahātmā*—o *virāṭ-puruṣa*; *viṭ*—os *vaiśyas*; *ūruḥ*—as coxas; *aṅghri-śrita*—sob a proteção de Seus pés; *kṛṣṇa-varṇaḥ*—os *śūdras*; *nānā*—vários; *abhidhā*—por nomes; *abhījya-gaṇa*—os semideuses; *upapannaḥ*—sendo tomados; *dravya-ātmakaḥ*—com bens viáveis; *karma*—atividades; *vitāna-yogaḥ*—execuções de sacrifício.
 
 **O rosto do virāṭa puruṣa são os brāhmaṇas, Seus braços são os kṣatriyas, Suas coxas são os vaiśyas, e os śūdras estão sob a proteção de Seus pés. Todos os semideuses que são adoráveis também são abrangidos por Ele, e é dever de todos realizar sacrifícios com bens factíveis para apaziguar o Senhor.**
 

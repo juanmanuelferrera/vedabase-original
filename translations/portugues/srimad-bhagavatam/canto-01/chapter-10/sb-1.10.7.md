@@ -11,8 +11,7 @@ suhṛdāṁ ca viśokāya
 
 *svasuś ca priya*-kāmyayā
 
-*Sinônimos
-uṣitvā*—permanecendo; *hāstinapure*—na cidade de Hastināpura; *māsān*—meses; *katipayān*—alguns; *hariḥ*—o Senhor Śrī Kṛṣṇa; *suhṛdām*—parentes; *ca*—também; *viśokāya*—para acalmar; *svasuḥ*—a irmã; *ca*—e; *priya-kāmyayā*—para agradar.
+*uṣitvā*—permanecendo; *hāstinapure*—na cidade de Hastināpura; *māsān*—meses; *katipayān*—alguns; *hariḥ*—o Senhor Śrī Kṛṣṇa; *suhṛdām*—parentes; *ca*—também; *viśokāya*—para acalmar; *svasuḥ*—a irmã; *ca*—e; *priya-kāmyayā*—para agradar.
 
 **Śrī Hari, ou o Senhor Śrī Kṛṣṇa, residiu em Hastināpura durante alguns meses para apaziguar Seus parentes e agradar Sua própria irmã [Subhadrā].**
 

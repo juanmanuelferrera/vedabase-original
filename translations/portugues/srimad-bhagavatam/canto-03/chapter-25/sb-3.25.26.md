@@ -11,8 +11,7 @@ cittasya yatto grahaṇe yoga-yukto
 
 yatiṣyate ṛjubhir yoga-mārgaiḥ
 
-*Sinônimos
-bhaktyā*—por serviço devocional; *pumān*—uma pessoa; *jāta-virāgaḥ*—tendo desenvolvido desapego; *aindriyāt*—da gratificação dos sentidos; *dṛṣṭa*—visto (neste mundo); *śrutāt*—ouvido (no próximo mundo); *mat-racana*—Minhas atividades de criação etc.; *anucintayā*—por constantemente pensar sobre; *cittasya*—da mente; *yattaḥ*—ocupado; *grahaṇe*—no controle de; *yoga-yuktaḥ*—situado no serviço devocional; *yatiṣyate*—se esforçará; *ṛjubhiḥ*—fáceis; *yoga-mārgaiḥ*—pelos processos de poder místico.
+*bhaktyā*—por serviço devocional; *pumān*—uma pessoa; *jāta-virāgaḥ*—tendo desenvolvido desapego; *aindriyāt*—da gratificação dos sentidos; *dṛṣṭa*—visto (neste mundo); *śrutāt*—ouvido (no próximo mundo); *mat-racana*—Minhas atividades de criação etc.; *anucintayā*—por constantemente pensar sobre; *cittasya*—da mente; *yattaḥ*—ocupado; *grahaṇe*—no controle de; *yoga-yuktaḥ*—situado no serviço devocional; *yatiṣyate*—se esforçará; *ṛjubhiḥ*—fáceis; *yoga-mārgaiḥ*—pelos processos de poder místico.
 
 **Assim consciententemente ocupado no serviço devocional na associação de devotos, uma pessoa ganha desapego da gratificação dos sentidos, tanto neste mundo quanto no próximo, constantemente pensando sobre as atividades do Senhor. Este processo de consciência de Kṛṣṇa é o processo mais fácil de poder místico; quando alguém está realmente situado naquele caminho de serviço devocional, ele é capaz de controlar a mente.**
 

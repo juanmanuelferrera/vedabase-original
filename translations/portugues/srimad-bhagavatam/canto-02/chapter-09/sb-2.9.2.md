@@ -11,8 +11,7 @@ ramamāṇo guṇeṣv asyā
 
 mamāham iti manyate
 
-*Sinônimos
-bahu-rūpaḥ*—multiforme; *iva*—como se fosse; *ābhāti*—manifestado; *māyayā*—pela influência da energia exterior; *bahu-rūpayā*—em formas multifárias; *ramamāṇaḥ*—gozando, por assim dizer; *guṇeṣu*—nos modos de diferentes qualidades; *asyāḥ*—da energia externa; *mama*—meu; *aham*—eu; *iti*—assim; *manyate*—pensa.
+*bahu-rūpaḥ*—multiforme; *iva*—como se fosse; *ābhāti*—manifestado; *māyayā*—pela influência da energia exterior; *bahu-rūpayā*—em formas multifárias; *ramamāṇaḥ*—gozando, por assim dizer; *guṇeṣu*—nos modos de diferentes qualidades; *asyāḥ*—da energia externa; *mama*—meu; *aham*—eu; *iti*—assim; *manyate*—pensa.
 
 **A entidade viva iludida aparece em tantas formas que lhe são oferecidas pela energia externa do Senhor e, enquanto desfruta nos modos da natureza material, a entidade viva enjaulada concebe equivocadamente, pensando em termos de "eu" e "meu".**
 

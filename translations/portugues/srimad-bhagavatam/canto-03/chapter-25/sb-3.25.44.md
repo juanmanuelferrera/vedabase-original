@@ -11,8 +11,7 @@ tīvreṇa bhakti-yogena
 
 mano mayy arpitaṁ sthiram
 
-*Sinônimos
-etāvān eva*—apenas tão longe; *loke asmin*—neste mundo; *puṁsām*—de homens; *niḥśreyasa*—perfeição final da vida; *udayaḥ*—a realização de; *tīvreṇa*—intenso; *bhakti-yogena*—pela prática do serviço devocional; *manaḥ*—mente; *mayi*—em Mim; *arpitam*—fixada; *sthiram*—firme.
+*etāvān eva*—apenas tão longe; *loke asmin*—neste mundo; *puṁsām*—de homens; *niḥśreyasa*—perfeição final da vida; *udayaḥ*—a realização de; *tīvreṇa*—intenso; *bhakti-yogena*—pela prática do serviço devocional; *manaḥ*—mente; *mayi*—em Mim; *arpitam*—fixada; *sthiram*—firme.
 
 **Portanto pessoas cujas mentes estão fixadas no Senhor se ocupam na prática intensiva do serviço devocional. Este é o único meio para realização da perfeição final da vida.**
 

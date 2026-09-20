@@ -11,8 +11,7 @@ saṅgas teṣv atha te prārthyaḥ
 
 saṅga-doṣa-harā hi te
 
-*Sinônimos
-te ete*—aqueles mesmos; *sādhavaḥ*—devotos; *sādhvi*—senhora virtuosa; *sarva*—todos; *saṅga*—apegos; *vivarjitāḥ*—livres de; *saṅgaḥ*—apego; *teṣu*—para eles; *atha*—por isso; *te*—por você; *prārthyaḥ*—deve ser buscado; *saṅga-doṣa*—os efeitos perniciosos do apego material; *harāḥ*—contrapartes; *hi*—de fato; *te*—eles.
+*te ete*—aqueles mesmos; *sādhavaḥ*—devotos; *sādhvi*—senhora virtuosa; *sarva*—todos; *saṅga*—apegos; *vivarjitāḥ*—livres de; *saṅgaḥ*—apego; *teṣu*—para eles; *atha*—por isso; *te*—por você; *prārthyaḥ*—deve ser buscado; *saṅga-doṣa*—os efeitos perniciosos do apego material; *harāḥ*—contrapartes; *hi*—de fato; *te*—eles.
 
 **Ó Minha mãe, ó senhora virtuosa, estas são as qualidades dos grandes devotos que estão livres de todo apego. Você deve buscar apego a tais homens santos, pois isso contrabalanceia os efeitos perniciosos do apego material.**
 

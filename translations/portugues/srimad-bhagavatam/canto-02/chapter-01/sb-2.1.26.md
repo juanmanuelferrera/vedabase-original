@@ -11,8 +11,7 @@
 
 talātalaṁ vai puruṣasya jaṅghe
 
-*Sinônimos
-pātālam*—os planetas na parte inferior do universo; *etasya*—d'Ele; *hi*—exatamente; *pāda-mūlam*—solas dos pés; *paṭhanti*—eles estudam; *pārṣṇi*—os calcanhares; *prapade*—os dedos dos pés; *rasātalam*—os planetas chamados Rasātala; *mahātalam*—os planetas chamados Mahātala; *viśva-sṛjaḥ*—do criador do universo; *atha*—assim; *gulphau*—os tornozelos; *talātalam*—os planetas chamados Talātala; *vai*—como são; *puruṣasya*—da pessoa gigantesca; *jaṅghe*—as pernas.
+*pātālam*—os planetas na parte inferior do universo; *etasya*—d'Ele; *hi*—exatamente; *pāda-mūlam*—solas dos pés; *paṭhanti*—eles estudam; *pārṣṇi*—os calcanhares; *prapade*—os dedos dos pés; *rasātalam*—os planetas chamados Rasātala; *mahātalam*—os planetas chamados Mahātala; *viśva-sṛjaḥ*—do criador do universo; *atha*—assim; *gulphau*—os tornozelos; *talātalam*—os planetas chamados Talātala; *vai*—como são; *puruṣasya*—da pessoa gigantesca; *jaṅghe*—as pernas.
 
 **As pessoas que o perceberam estudaram que os planetas conhecidos como Pātāla constituem a sola dos pés do Senhor Universal, e os tornozelos e as plantas são os planetas Rasātala. As panturrilhas são os planetas Mahātala, e Seus joelhos constituem os planetas Tala e Atala.**
 

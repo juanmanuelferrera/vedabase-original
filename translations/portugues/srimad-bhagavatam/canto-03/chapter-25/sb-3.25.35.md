@@ -11,8 +11,7 @@ rūpāṇi divyāni vara-pradāni
 
 sākaṁ vācaṁ spṛhaṇīyāṁ vadanti
 
-*Sinônimos
-paśyanti*—veem; *te*—eles; *me*—Meus; *rucirāṇi*—belos; *amba*—ó mãe; *santaḥ*—devotos; *prasanna*—sorridente; *vaktra*—face; *aruṇa*—como o sol da manhã; *locanāni*—olhos; *rūpāṇi*—formas; *divyāni*—transcendentais; *vara-pradāni*—benignas; *sākam*—comigo; *vācam*—palavras; *spṛhaṇīyām*—favorável; *vadanti*—falam.
+*paśyanti*—veem; *te*—eles; *me*—Meus; *rucirāṇi*—belos; *amba*—ó mãe; *santaḥ*—devotos; *prasanna*—sorridente; *vaktra*—face; *aruṇa*—como o sol da manhã; *locanāni*—olhos; *rūpāṇi*—formas; *divyāni*—transcendentais; *vara-pradāni*—benignas; *sākam*—comigo; *vācam*—palavras; *spṛhaṇīyām*—favorável; *vadanti*—falam.
 
 **Ó Minha mãe, Meus devotos sempre veem a face sorridente de Minha forma, com olhos como o sol nascente da manhã. Eles gostam de ver Minhas várias formas transcendentais, que são todas benignas, e também falam favoravelmente comigo.**
 

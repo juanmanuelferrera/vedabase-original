@@ -14,8 +14,7 @@ parasyānubhavātmanaḥ
 
 *svapna*-draṣṭur ivāñjasā
 
-*Sinônimos
-śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī disse; *ātma*—a Suprema Personalidade de Deus; *māyām*—energia; *ṛte*—sem; *rājan*—ó rei; *parasya*—da alma pura; *anubhava-ātmanaḥ*—do puramente consciente; *na*—jamais; *ghaṭeta*—pode assim acontecer; *artha*—significado; *sambandhaḥ*—relação com o corpo material; *svapna*—sonho; *draṣṭuḥ*—do vidente; *iva*—como; *añjasā*—completamente.
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī disse; *ātma*—a Suprema Personalidade de Deus; *māyām*—energia; *ṛte*—sem; *rājan*—ó rei; *parasya*—da alma pura; *anubhava-ātmanaḥ*—do puramente consciente; *na*—jamais; *ghaṭeta*—pode assim acontecer; *artha*—significado; *sambandhaḥ*—relação com o corpo material; *svapna*—sonho; *draṣṭuḥ*—do vidente; *iva*—como; *añjasā*—completamente.
 
 **Śrī Śukadeva Gosvāmī disse: Ó rei, a menos que se seja influenciado pela energia da Suprema Personalidade de Deus, não há sentido na relação da alma pura, em consciência pura, com o corpo material. É exatamente como aquele que sonha vendo seu próprio corpo trabalhar.**
 

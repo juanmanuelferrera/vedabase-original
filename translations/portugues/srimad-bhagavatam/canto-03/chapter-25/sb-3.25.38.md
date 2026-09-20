@@ -11,8 +11,7 @@ yeṣām ahaṁ priya ātmā sutaś ca
 
 sakhā guruḥ suhṛdo daivam iṣṭam
 
-*Sinônimos
-na*—não; *karhicit*—jamais; *mat-parāḥ*—Meus devotos; *śānta-rūpe*—ó mãe; *naṅkṣyanti*—perderão; *no*—não; *me*—Meu; *animiṣaḥ*—tempo; *leḍhi*—destrói; *hetiḥ*—arma; *yeṣām*—de quem; *aham*—eu; *priyaḥ*—querido; *ātmā*—eu mesmo; *sutaḥ*—filho; *ca*—e; *sakhā*—amigo; *guruḥ*—preceptor; *suhṛdaḥ*—benfeitor; *daivam*—Divindade; *iṣṭam*—escolhida.
+*na*—não; *karhicit*—jamais; *mat-parāḥ*—Meus devotos; *śānta-rūpe*—ó mãe; *naṅkṣyanti*—perderão; *no*—não; *me*—Meu; *animiṣaḥ*—tempo; *leḍhi*—destrói; *hetiḥ*—arma; *yeṣām*—de quem; *aham*—eu; *priyaḥ*—querido; *ātmā*—eu mesmo; *sutaḥ*—filho; *ca*—e; *sakhā*—amigo; *guruḥ*—preceptor; *suhṛdaḥ*—benfeitor; *daivam*—Divindade; *iṣṭam*—escolhida.
 
 **O Senhor prosseguiu: Minha querida mãe, os devotos que recebem tais opulências transcendentais jamais ficam privados delas; nem armas nem a mudança do tempo podem destruir tais opulências. Porque os devotos Me aceitam como seu amigo, seu parente, seu filho, preceptor, benfeitor e Deidade Suprema, eles não podem ser privados de suas posses em tempo algum.**
 

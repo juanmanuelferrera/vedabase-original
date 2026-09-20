@@ -19,8 +19,7 @@ animittā bhāgavatī
 
 bhaktiḥ siddher garīyasī
 
-*Sinônimos
-śrī-bhagavān uvāca*—a Suprema Personalidade de Deus disse; *devānām*—dos sentidos ou das divindades presidindo os sentidos; *guṇa-liṅgānām*—que detectam objetos dos sentidos; *ānuśravika*—de acordo com a escritura; *karmaṇām*—que trabalham; *sattve*—para a mente ou para o Senhor; *eva*—apenas; *eka-manasaḥ*—de um homem de mente indivisa; *vṛttiḥ*—inclinação; *svābhāvikī*—natural; *tu*—de fato; *yā*—que; *animittā*—sem motivo; *bhāgavatī*—para a Personalidade de Deus; *bhaktiḥ*—serviço devocional; *siddheḥ*—que salvação; *garīyasī*—melhor.
+*śrī-bhagavān uvāca*—a Suprema Personalidade de Deus disse; *devānām*—dos sentidos ou das divindades presidindo os sentidos; *guṇa-liṅgānām*—que detectam objetos dos sentidos; *ānuśravika*—de acordo com a escritura; *karmaṇām*—que trabalham; *sattve*—para a mente ou para o Senhor; *eva*—apenas; *eka-manasaḥ*—de um homem de mente indivisa; *vṛttiḥ*—inclinação; *svābhāvikī*—natural; *tu*—de fato; *yā*—que; *animittā*—sem motivo; *bhāgavatī*—para a Personalidade de Deus; *bhaktiḥ*—serviço devocional; *siddheḥ*—que salvação; *garīyasī*—melhor.
 
 **O Senhor Kapila disse: Os sentidos são representações simbólicas dos semideuses, e sua inclinação natural é trabalhar sob a direção dos preceitos Védicos. Assim como os sentidos são representantes dos semideuses, do mesmo modo a mente é a representante da Suprema Personalidade de Deus. O dever natural da mente é servir. Quando esse espírito de serviço se ocupa em serviço devocional à Personalidade de Deus, sem motivo algum, isso é muito superior até mesmo à salvação.**
 

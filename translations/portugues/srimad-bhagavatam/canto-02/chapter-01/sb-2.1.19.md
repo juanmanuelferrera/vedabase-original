@@ -16,8 +16,7 @@ padaṁ tat paramaṁ viṣṇor
 
 mano yatra prasīdati
 
-*Sinônimos
-tatra*—a partir daí; *eka*—um por um; *avayavam*—membros do corpo; *dhyāyet*—deve concentrar-se; *avyucchinnena*—sem se desviar da forma completa; *cetasā*—pela mente; *manaḥ*—mente; *nirviṣayam*—sem ser contaminada por objetos dos sentidos; *yuktvā*—sendo conectada; *tataḥ*—depois disso; *kiñcana*—qualquer coisa; *na*—não; *smaret*—pense em; *padam*—personalidade; *tat*—aquela; *paramam*—Suprema; *viṣṇoḥ*—de Viṣṇu; *manaḥ*—a mente; *yatra*—mediante a qual; *prasīdati*—fica reconciliada.
+*tatra*—a partir daí; *eka*—um por um; *avayavam*—membros do corpo; *dhyāyet*—deve concentrar-se; *avyucchinnena*—sem se desviar da forma completa; *cetasā*—pela mente; *manaḥ*—mente; *nirviṣayam*—sem ser contaminada por objetos dos sentidos; *yuktvā*—sendo conectada; *tataḥ*—depois disso; *kiñcana*—qualquer coisa; *na*—não; *smaret*—pense em; *padam*—personalidade; *tat*—aquela; *paramam*—Suprema; *viṣṇoḥ*—de Viṣṇu; *manaḥ*—a mente; *yatra*—mediante a qual; *prasīdati*—fica reconciliada.
 
 **Depois disso, deves meditar nos membros de Viṣṇu, um após outro, sem te desviares da concepção do corpo completo, e assim a mente torna-se livre de todos os objetos dos sentidos. Não deve haver nenhuma outra coisa em que pensar. Visto que a Suprema Personalidade de Deus, Viṣṇu, é a Verdade Última, a mente reconcilia-se completamente unicamente Nele.**
 

@@ -11,8 +11,7 @@ yogena mayy arpitayā ca bhaktyā
 
 māṁ pratyag-ātmānam ihāvarundhe
 
-*Sinônimos
-asevayā*—por não se ocupar no serviço de; *ayam*—esta pessoa; *prakṛteḥ guṇānām*—dos modos da natureza material; *jñānena*—por conhecimento; *vairāgya*—com renúncia; *vijṛmbhitena*—desenvolvida; *yogena*—por praticar yoga; *mayi*—para Mim; *arpitayā*—fixo; *ca*—e; *bhaktyā*—com devoção; *mām*—para Mim; *pratyak-ātmānam*—a Verdade Absoluta; *iha*—nesta vida; *avarundhe*—alguém alcança.
+*asevayā*—por não se ocupar no serviço de; *ayam*—esta pessoa; *prakṛteḥ guṇānām*—dos modos da natureza material; *jñānena*—por conhecimento; *vairāgya*—com renúncia; *vijṛmbhitena*—desenvolvida; *yogena*—por praticar yoga; *mayi*—para Mim; *arpitayā*—fixo; *ca*—e; *bhaktyā*—com devoção; *mām*—para Mim; *pratyak-ātmānam*—a Verdade Absoluta; *iha*—nesta vida; *avarundhe*—alguém alcança.
 
 **Assim por não se ocupar no serviço dos modos da natureza material mas desenvolvendo consciência de Kṛṣṇa, conhecimento em renúncia, e praticando yoga, no qual a mente está sempre fixa no serviço devocional para a Suprema Personalidade de Deus, alguém alcança Minha associação nesta mesma vida, pois Eu sou a Suprema Personalidade, a Verdade Absoluta.**
 

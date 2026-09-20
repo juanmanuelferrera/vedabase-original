@@ -21,8 +21,7 @@ sauvīrābhīrayoḥ parān
 
 chrāntavāho manāg vibhuḥ
 
-*Sinônimos
-kuru-jāṅgala*—a província de Delhi; *pāñcālān*—parte da província Punjab; *śūrasenān*—parte da província de Uttar Pradesh; *sa*—com; *yāmunān*—os distritos na margem do Yamunā; *brahmāvartam*—parte do norte de Uttar Pradesh; *kurukṣetram*—o lugar onde a batalha foi travada; *matsyān*—a província Matsyā; *sārasvatān*—parte de Punjab; *atha*—e assim por diante; *maru*—Rajasthan, a terra dos desertos; *dhanvam*—Madhya Pradesh, onde a água é muito escassa; *ati-kramya*—após passar; *sauvīra*—Saurastra; *ābhīrayoḥ*—parte de Gujarat; *parān*—lado ocidental; *ānartān*—a província de Dvārakā; *bhārgava*—Ó Śaunaka; *upāgāt*—alcançado; *śrānta*—fadiga; *vāhaḥ*—os cavalos; *manāk vibhuḥ*—ligeiramente, por causa da longa jornada.
+*kuru-jāṅgala*—a província de Delhi; *pāñcālān*—parte da província Punjab; *śūrasenān*—parte da província de Uttar Pradesh; *sa*—com; *yāmunān*—os distritos na margem do Yamunā; *brahmāvartam*—parte do norte de Uttar Pradesh; *kurukṣetram*—o lugar onde a batalha foi travada; *matsyān*—a província Matsyā; *sārasvatān*—parte de Punjab; *atha*—e assim por diante; *maru*—Rajasthan, a terra dos desertos; *dhanvam*—Madhya Pradesh, onde a água é muito escassa; *ati-kramya*—após passar; *sauvīra*—Saurastra; *ābhīrayoḥ*—parte de Gujarat; *parān*—lado ocidental; *ānartān*—a província de Dvārakā; *bhārgava*—Ó Śaunaka; *upāgāt*—alcançado; *śrānta*—fadiga; *vāhaḥ*—os cavalos; *manāk vibhuḥ*—ligeiramente, por causa da longa jornada.
 
 **Ó Śaunaka, o Senhor então procedeu em direção a Kurujāṅgala, Pāñcālā, Śūrasenā, a terra na margem do rio Yamunā, Brahmāvarta, Kurukṣetra, Matsyā, Sārasvatā, a província do deserto e a terra de água escassa. Após cruzar estas províncias Ele gradualmente chegou a Sauvīra e Ābhīra, depois a oeste destas, chegou a Dvārakā por fim.**
 

@@ -14,8 +14,7 @@ yādṛśī vā hared āśu
 
 *puruṣasya mano*-malam
 
-*Sinônimos
-rājā uvāca*—o afortunado rei disse; *yathā*—como é; *sandhāryate*—a concepção é feita; *brahman*—ó *brāhmaṇa*; *dhāraṇā*—concepção; *yatra*—onde e como; *sammatā*—em síntese; *yādṛśī*—a maneira pela qual; *vā*—ou; *haret*—extraída; *āśu*—sem demora; *puruṣasya*—de uma pessoa; *manaḥ*—da mente; *malam*—impurezas.
+*rājā uvāca*—o afortunado rei disse; *yathā*—como é; *sandhāryate*—a concepção é feita; *brahman*—ó *brāhmaṇa*; *dhāraṇā*—concepção; *yatra*—onde e como; *sammatā*—em síntese; *yādṛśī*—a maneira pela qual; *vā*—ou; *haret*—extraída; *āśu*—sem demora; *puruṣasya*—de uma pessoa; *manaḥ*—da mente; *malam*—impurezas.
 
 **O afortunado rei Parīkṣit, perguntando ainda mais, disse: Ó brāhmaṇa, por favor descreve em pleno detalhe o processo de como e onde a mente tem de ser aplicada e como a concepção pode ser fixada, de modo que as coisas impuras na mente de uma pessoa possam ser removidas.**
 

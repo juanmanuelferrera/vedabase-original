@@ -14,8 +14,7 @@ sūta uvāca
 
 *yudhiṣṭhiraṁ prīta*-manā babhūva ha
 
-*Sinônimos
-sūtaḥ uvāca*—Sūta Gosvāmī respondeu; *vaṁśam*—dinastia; *kuroḥ*—do rei Kuru; *vaṁśa-dava-agni*—um fogo florestal provocado pelo bambu; *nirhṛtam*—esgotado; *saṁrohayitvā*—broto da dinastia; *bhava-bhāvanaḥ*—o mantenedor da criação; *hariḥ*—a Personalidade de Deus, Śrī Kṛṣṇa; *niveśayitvā*—tendo restabelecido; *nija-rājye*—em seu próprio reino; *īśvaraḥ*—o Senhor Supremo; *yudhiṣṭhiram*—ao Mahārāja Yudhiṣṭhira; *prīta-manāḥ*—satisfeito em Sua mente; *babhūva ha*—tornou-se.
+*sūtaḥ uvāca*—Sūta Gosvāmī respondeu; *vaṁśam*—dinastia; *kuroḥ*—do rei Kuru; *vaṁśa-dava-agni*—um fogo florestal provocado pelo bambu; *nirhṛtam*—esgotado; *saṁrohayitvā*—broto da dinastia; *bhava-bhāvanaḥ*—o mantenedor da criação; *hariḥ*—a Personalidade de Deus, Śrī Kṛṣṇa; *niveśayitvā*—tendo restabelecido; *nija-rājye*—em seu próprio reino; *īśvaraḥ*—o Senhor Supremo; *yudhiṣṭhiram*—ao Mahārāja Yudhiṣṭhira; *prīta-manāḥ*—satisfeito em Sua mente; *babhūva ha*—tornou-se.
 
 **Sūta Gosvāmī disse: O Senhor Śrī *Kṛṣṇa, a Suprema Personalidade de Deus*, que é o mantenedor do mundo, tornou-Se satisfeito após restabelecer o Mahārāja Yudhiṣṭhira em seu próprio reino e após restaurar a dinastia Kuru, que havia sido esgotada pelo fogo de bambu da ira.**
 

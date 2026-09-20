@@ -11,8 +11,7 @@ pradhāna-puruṣeśvarāt
 
 bhayaṁ tīvraṁ nivartate
 
-*Sinônimos
-na*—não; *anyatra*—de outro modo; *mat*—que Eu; *bhagavataḥ*—a Suprema Personalidade de Deus; *pradhāna-puruṣa-īśvarāt*—o Senhor tanto de prakṛti quanto de puruṣa; *ātmanaḥ*—da alma; *sarva-bhūtānām*—de todos os seres vivos; *bhayam*—medo; *tīvram*—terrível; *nivartate*—é abandonado.
+*na*—não; *anyatra*—de outro modo; *mat*—que Eu; *bhagavataḥ*—a Suprema Personalidade de Deus; *pradhāna-puruṣa-īśvarāt*—o Senhor tanto de prakṛti quanto de puruṣa; *ātmanaḥ*—da alma; *sarva-bhūtānām*—de todos os seres vivos; *bhayam*—medo; *tīvram*—terrível; *nivartate*—é abandonado.
 
 **O terrível temor do nascimento e da morte jamais pode ser abandonado por quem quer que recorra a qualquer abrigo que não seja Eu próprio, pois Eu sou o Senhor todo-poderoso, a Suprema Personalidade de Deus, a fonte original de toda a criação, e também a Alma Suprema de todas as almas.**
 

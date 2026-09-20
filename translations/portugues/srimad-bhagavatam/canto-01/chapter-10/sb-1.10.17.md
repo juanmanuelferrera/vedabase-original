@@ -11,8 +11,7 @@ sitātapatraṁ jagrāha
 
 priyaḥ priyatamasya ha
 
-*Sinônimos
-sita-ātapatram*—guarda-chuva calmante; *jagrāha*—pegou; *muktā-dāma*—decorado com rendas e pérolas; *vibhūṣitam*—bordado; *ratna-daṇḍam*—com uma alça de joias; *guḍākeśaḥ*—Arjuna, o guerreiro experiente, ou aquele que conquistou o sono; *priyaḥ*—muito amado; *priyatamasya*—do mais amado; *ha*—assim ele fez.
+*sita-ātapatram*—guarda-chuva calmante; *jagrāha*—pegou; *muktā-dāma*—decorado com rendas e pérolas; *vibhūṣitam*—bordado; *ratna-daṇḍam*—com uma alça de joias; *guḍākeśaḥ*—Arjuna, o guerreiro experiente, ou aquele que conquistou o sono; *priyaḥ*—muito amado; *priyatamasya*—do mais amado; *ha*—assim ele fez.
 
 **Naquele momento, Arjuna, o grande guerreiro e conquistador do sono, que é o amigo íntimo do mais amado Senhor Supremo, tomou de um guarda-sol cujo cabo era de joias e que era bordado com renda e pérolas.**
 

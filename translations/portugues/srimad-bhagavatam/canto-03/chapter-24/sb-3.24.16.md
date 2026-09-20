@@ -11,8 +11,7 @@ bhūtānām śevadhim deham
 
 bibhrāṇam kapilam mune
 
-*Sinônimos
-veda*—sei; *aham*—eu; *ādyam*—o original; *puruṣam*—desfrutador; *avatīrṇam*—encarnado; *sva-māyayā*—por Sua própria energia interna; *bhūtānām*—de todas as entidades vivas; *śevadhim*—o concedente de tudo desejado, que é como um vasto tesouro; *deham*—o corpo; *bibhrāṇam*—assumindo; *kapilam*—Kapila Muni; *mune*—ó sábio Kardama.
+*veda*—sei; *aham*—eu; *ādyam*—o original; *puruṣam*—desfrutador; *avatīrṇam*—encarnado; *sva-māyayā*—por Sua própria energia interna; *bhūtānām*—de todas as entidades vivas; *śevadhim*—o concedente de tudo desejado, que é como um vasto tesouro; *deham*—o corpo; *bibhrāṇam*—assumindo; *kapilam*—Kapila Muni; *mune*—ó sábio Kardama.
 
 **Ó Kardama, sei que a Suprema Personalidade de Deus original agora apareceu como uma encarnação por Sua energia interna. Ele é o concedente de tudo desejado pelas entidades vivas, e agora assumiu o corpo de Kapila Muni.**
 

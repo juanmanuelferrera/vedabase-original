@@ -11,7 +11,6 @@
 
 nedur dundubhayas tathā
 
-*Sinônimos
-mṛdaṅga*—tambor de som doce; *śaṅkha*—búzio; *bheryaḥ*—banda de latão; *ca*—e; *vīṇā*—banda de corda; *paṇava*—um tipo de flauta; *gomukhāḥ*—outra flauta; *dhundhurī*—outro tambor; *ānaka*—chaleira; *ghaṇṭā*—sino; *ādyāḥ*—outros; *neduḥ*—tocaram; *dundubhayaḥ*—outros tipos diferentes de tambores; *tathā*—naquele tempo.
+*mṛdaṅga*—tambor de som doce; *śaṅkha*—búzio; *bheryaḥ*—banda de latão; *ca*—e; *vīṇā*—banda de corda; *paṇava*—um tipo de flauta; *gomukhāḥ*—outra flauta; *dhundhurī*—outro tambor; *ānaka*—chaleira; *ghaṇṭā*—sino; *ādyāḥ*—outros; *neduḥ*—tocaram; *dundubhayaḥ*—outros tipos diferentes de tambores; *tathā*—naquele tempo.
 
 **Enquanto o Senhor partia do palácio de Hastināpura, diferentes tipos de tambores — como a mṛdaṅga, o dhole, o nagra, o dhundhurī e o dundubhi — e flautas de diferentes tipos, a vīṇā, o gomukha e o bheri, todos soaram juntos para honrá-lO.**

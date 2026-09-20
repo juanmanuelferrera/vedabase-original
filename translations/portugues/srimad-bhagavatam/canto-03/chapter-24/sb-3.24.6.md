@@ -11,8 +11,7 @@ kārdamam vīryam āpanno
 
 jajñe 'gnir iva dāruṇi
 
-*Sinônimos
-tasyām*—em Devahūti; *bahu-tithe kāle*—após muitos anos; *bhagavān*—a Suprema Personalidade de Deus; *madhu-sūdanaḥ*—o assassino do demônio Madhu; *kārdamam*—de Kardama; *vīryam*—o sêmen; *āpannaḥ*—entrou; *jajñe*—Ele apareceu; *agniḥ*—fogo; *iva*—como; *dāruṇi*—em madeira.
+*tasyām*—em Devahūti; *bahu-tithe kāle*—após muitos anos; *bhagavān*—a Suprema Personalidade de Deus; *madhu-sūdanaḥ*—o assassino do demônio Madhu; *kārdamam*—de Kardama; *vīryam*—o sêmen; *āpannaḥ*—entrou; *jajñe*—Ele apareceu; *agniḥ*—fogo; *iva*—como; *dāruṇi*—em madeira.
 
 **Após muitos, muitos anos, a Suprema Personalidade de Deus, Madhusūdana, o assassino do demônio Madhu, tendo entrado no sêmen de Kardama, apareceu em Devahūti assim como o fogo vem da madeira em um sacrifício.**
 

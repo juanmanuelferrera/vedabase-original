@@ -11,8 +11,7 @@ praseduś ca diśaḥ sarvā
 
 ambhāṁsi ca manāṁsi ca
 
-*Sinônimos
-petuḥ*—caíram; *sumanasaḥ*—flores; *divyāḥ*—belíssimas; *khe-caraiḥ*—pelos semideuses que voam no céu; *apavarjitāḥ*—lançadas; *praseduḥ*—ficaram satisfeitas; *ca*—e; *diśaḥ*—direções; *sarvāḥ*—todas; *ambhāṁsi*—águas; *ca*—e; *manāṁsi*—mentes; *ca*—e.
+*petuḥ*—caíram; *sumanasaḥ*—flores; *divyāḥ*—belíssimas; *khe-caraiḥ*—pelos semideuses que voam no céu; *apavarjitāḥ*—lançadas; *praseduḥ*—ficaram satisfeitas; *ca*—e; *diśaḥ*—direções; *sarvāḥ*—todas; *ambhāṁsi*—águas; *ca*—e; *manāṁsi*—mentes; *ca*—e.
 
 **No momento do aparecimento do Senhor, os semideuses voando livremente no céu choveram flores. Todas as direções, todas as águas e a mente de todos ficaram muito satisfeitas.**
 

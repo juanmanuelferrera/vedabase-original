@@ -11,8 +11,7 @@ siṣicuḥ sma vrajān gāvaḥ
 
 payasodhasvatīr mudā
 
-*Sinônimos
-kāmam*—tudo o que era necessário; *vavarṣa*—foi chuvoso; *parjanyaḥ*—as chuvas; *sarva*—tudo; *kāma*—necessidades; *dughā*—produtor; *mahī*—a terra; *siṣicuḥ sma*—umedecer; *vrajān*—pastagens; *gāvaḥ*—a vaca; *payasā udhasvatīḥ*—devido aos úberes inchados de leite; *mudā*—por causa de uma atitude alegre.
+*kāmam*—tudo o que era necessário; *vavarṣa*—foi chuvoso; *parjanyaḥ*—as chuvas; *sarva*—tudo; *kāma*—necessidades; *dughā*—produtor; *mahī*—a terra; *siṣicuḥ sma*—umedecer; *vrajān*—pastagens; *gāvaḥ*—a vaca; *payasā udhasvatīḥ*—devido aos úberes inchados de leite; *mudā*—por causa de uma atitude alegre.
 
 **Durante o reinado do Mahārāja Yudhiṣṭhira, as nuvens chovia toda a água que as pessoas necessitavam, e a terra produzia todas as necessidades do homem em profusão. Devido a seu úbere gorduroso e atitude alegre, a vaca costumava umidificar o pasto com leite.**
 

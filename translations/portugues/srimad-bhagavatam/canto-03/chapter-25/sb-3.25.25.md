@@ -11,8 +11,7 @@ taj-joṣaṇād āśv apavarga-vartmani
 
 śraddhā ratir bhaktir anukramiṣyati
 
-*Sinônimos
-satām*—de devotos puros; *prasaṅgāt*—através da associação; *mama*—Meu; *vīrya*—atividades maravilhosas; *saṁvidaḥ*—por discussão de; *bhavanti*—tornam-se; *hṛt*—para o coração; *karṇa*—para o ouvido; *rasa-ayanāḥ*—agradável; *kathāḥ*—as histórias; *tat*—daquilo; *joṣaṇāt*—por cultivo de; *āśu*—rapidamente; *apavarga*—da liberação; *vartmani*—na senda; *śraddhā*—fé firme; *ratiḥ*—atração; *bhaktiḥ*—devoção; *anukramiṣyati*—seguirá em ordem.
+*satām*—de devotos puros; *prasaṅgāt*—através da associação; *mama*—Meu; *vīrya*—atividades maravilhosas; *saṁvidaḥ*—por discussão de; *bhavanti*—tornam-se; *hṛt*—para o coração; *karṇa*—para o ouvido; *rasa-ayanāḥ*—agradável; *kathāḥ*—as histórias; *tat*—daquilo; *joṣaṇāt*—por cultivo de; *āśu*—rapidamente; *apavarga*—da liberação; *vartmani*—na senda; *śraddhā*—fé firme; *ratiḥ*—atração; *bhaktiḥ*—devoção; *anukramiṣyati*—seguirá em ordem.
 
 **Na associação de devotos puros, a discussão dos passatempos e atividades da Suprema Personalidade de Deus é muito agradável e satisfatória ao ouvido e ao coração. Cultivando tal conhecimento, a pessoa gradualmente avança na senda da liberação, e depois disso fica liberada, e sua atração se fixa. Então começam a verdadeira devoção e o serviço devocional.**
 

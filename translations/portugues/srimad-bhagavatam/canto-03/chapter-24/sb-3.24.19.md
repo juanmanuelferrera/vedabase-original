@@ -11,8 +11,7 @@ loke kapila ity ākhyām
 
 *gantā te kīrti*-vardhanaḥ
 
-*Sinônimos
-ayam*—este Personalidade de Deus; *siddha-gaṇa*—dos sábios perfeitos; *adhīśaḥ*—o chefe; *sāṅkhya-ācāryaiḥ*—pelos ācāryas especialistas na filosofia Sāṅkhya; *su-sammataḥ*—aprovado de acordo com os princípios Védicos; *loke*—no mundo; *kapilaḥ iti*—como Kapila; *ākhyām*—celebrado; *gantā*—Ele caminhará; *te*—sua; *kīrti*—fama; *vardhanaḥ*—aumentando.
+*ayam*—este Personalidade de Deus; *siddha-gaṇa*—dos sábios perfeitos; *adhīśaḥ*—o chefe; *sāṅkhya-ācāryaiḥ*—pelos ācāryas especialistas na filosofia Sāṅkhya; *su-sammataḥ*—aprovado de acordo com os princípios Védicos; *loke*—no mundo; *kapilaḥ iti*—como Kapila; *ākhyām*—celebrado; *gantā*—Ele caminhará; *te*—sua; *kīrti*—fama; *vardhanaḥ*—aumentando.
 
 **Seu filho será o chefe de todas as almas perfeitas. Ele será aprovado pelos ācāryas especialistas na disseminação do conhecimento real, e entre as pessoas Ele será celebrado pelo nome Kapila. Como filho de Devahūti, Ele aumentará sua fama.**
 

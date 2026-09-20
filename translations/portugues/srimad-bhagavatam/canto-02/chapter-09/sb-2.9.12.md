@@ -6,8 +6,7 @@
 
 *parisphurat*-kuṇḍala-mauli-mālinaḥ
 
-*Sinônimos
-pravāla*—coral; *vaidūrya*—um diamante especial; *mṛṇāla*—lótus celeste; *varcasaḥ*—raios; *parisphurat*—florescendo; *kuṇḍala*—brincos; *mauli*—cabeças; *mālinaḥ*—com guirlandas.
+*pravāla*—coral; *vaidūrya*—um diamante especial; *mṛṇāla*—lótus celeste; *varcasaḥ*—raios; *parisphurat*—florescendo; *kuṇḍala*—brincos; *mauli*—cabeças; *mālinaḥ*—com guirlandas.
 
 **Alguns deles são refulgentes como o coral e o diamante na compleição, e têm guirlandas nas cabeças, desabrochando como as flores de lótus, e alguns usam brincos.**
 

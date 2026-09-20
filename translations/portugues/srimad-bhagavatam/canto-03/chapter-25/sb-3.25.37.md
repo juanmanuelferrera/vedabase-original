@@ -11,8 +11,7 @@ aiśvaryam aṣṭāṅgam anupravṛttam
 
 parasya me te 'śnuvate tu loke
 
-*Sinônimos
-atho*—então; *vibhūtim*—opulência; *mama*—de Mim; *māyāvinaḥ*—do Senhor de māyā; *tām*—aquela; *aiśvaryam*—perfeição mística; *aṣṭa-aṅgam*—consistindo de oito partes; *anupravṛttam*—seguindo; *śriyam*—esplendor; *bhāgavatīm*—do reino de Deus; *vā*—ou; *aspṛhayanti*—eles não desejam; *bhadrām*—bem-aventurado; *parasya*—do Senhor Supremo; *me*—de Mim; *te*—aqueles devotos; *aśnuvate*—desfrutam; *tu*—mas; *loke*—nesta vida.
+*atho*—então; *vibhūtim*—opulência; *mama*—de Mim; *māyāvinaḥ*—do Senhor de māyā; *tām*—aquela; *aiśvaryam*—perfeição mística; *aṣṭa-aṅgam*—consistindo de oito partes; *anupravṛttam*—seguindo; *śriyam*—esplendor; *bhāgavatīm*—do reino de Deus; *vā*—ou; *aspṛhayanti*—eles não desejam; *bhadrām*—bem-aventurado; *parasya*—do Senhor Supremo; *me*—de Mim; *te*—aqueles devotos; *aśnuvate*—desfrutam; *tu*—mas; *loke*—nesta vida.
 
 **Assim porque está completamente absorto em pensamento de Mim, o devoto não deseja até mesmo a bênção mais elevada obtível nos sistemas planetários superiores, incluindo Satyaloka. Ele não deseja as oito perfeições materiais obtidas do yoga místico, nem deseja ser elevado ao reino de Deus. Mas mesmo sem desejá-los, o devoto desfruta, até mesmo nesta vida, todas as bênçãos oferecidas.**
 

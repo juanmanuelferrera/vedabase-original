@@ -11,8 +11,7 @@
 
 vistṛṇīhi yaśo bhuvi
 
-*Sinônimos
-ataḥ*—portanto; *tvam*—você; *ṛṣi-mukhyebhyaḥ*—aos principais dos sábios; *yathā-śīlam*—de acordo com temperamento; *yathā-ruci*—de acordo com gosto; *ātma-jāḥ*—suas filhas; *paridehi*—por favor dê; *adya*—hoje; *vistṛṇīhi*—espalhe; *yaśaḥ*—fama; *bhuvi*—sobre o universo.
+*ataḥ*—portanto; *tvam*—você; *ṛṣi-mukhyebhyaḥ*—aos principais dos sábios; *yathā-śīlam*—de acordo com temperamento; *yathā-ruci*—de acordo com gosto; *ātma-jāḥ*—suas filhas; *paridehi*—por favor dê; *adya*—hoje; *vistṛṇīhi*—espalhe; *yaśaḥ*—fama; *bhuvi*—sobre o universo.
 
 **Portanto, hoje por favor dê suas filhas aos principais dos sábios, com o respeito apropriado para o temperamento e preferência das meninas, e dessa forma espalhe sua fama por todo o universo.**
 

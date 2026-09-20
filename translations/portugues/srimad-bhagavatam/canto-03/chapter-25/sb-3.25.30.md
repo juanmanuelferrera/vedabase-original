@@ -11,8 +11,7 @@ sukhaṁ buddhyeya durbodhaṁ
 
 yoṣā bhavad-anugrahāt
 
-*Sinônimos
-tat etat*—aquele mesmo; *me*—a mim; *vijānīhi*—por favor explique; *yathā*—para que; *aham*—eu; *manda*—lenta; *dhīḥ*—cuja inteligência; *hare*—ó meu Senhor; *sukham*—facilmente; *buddhyeya*—possa compreender; *durbodham*—muito difícil de compreender; *yoṣā*—uma mulher; *bhavat-anugrahāt*—pela Sua graça.
+*tat etat*—aquele mesmo; *me*—a mim; *vijānīhi*—por favor explique; *yathā*—para que; *aham*—eu; *manda*—lenta; *dhīḥ*—cuja inteligência; *hare*—ó meu Senhor; *sukham*—facilmente; *buddhyeya*—possa compreender; *durbodham*—muito difícil de compreender; *yoṣā*—uma mulher; *bhavat-anugrahāt*—pela Sua graça.
 
 **Meu querido filho, Kapila, afinal, eu sou uma mulher. É muito difícil para mim compreender a Verdade Absoluta porque minha inteligência não é muito grande. Mas se Você gentilmente me explicar, ainda que eu não seja muito inteligente, posso compreender isso e assim sentir felicidade transcendental.**
 

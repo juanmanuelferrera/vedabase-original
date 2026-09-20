@@ -11,8 +11,7 @@ bhagavantam param brahma
 
 jātam vidvān ajaḥ svarāṭ
 
-*Sinônimos
-bhagavantam*—o Senhor; *param*—supremo; *brahma*—Brahman; *sattvena*—tendo uma existência não contaminada; *aṁśena*—por uma porção plenária; *śatru-han*—ó matador do inimigo, Vidura; *tattva-saṅkhyāna*—a filosofia dos vinte e quatro elementos materiais; *vijñaptyai*—para explicar; *jātam*—apareceu; *vidvān*—sabendo; *ajaḥ*—o não nascido (Senhor Brahmā); *sva-rāṭ*—independente.
+*bhagavantam*—o Senhor; *param*—supremo; *brahma*—Brahman; *sattvena*—tendo uma existência não contaminada; *aṁśena*—por uma porção plenária; *śatru-han*—ó matador do inimigo, Vidura; *tattva-saṅkhyāna*—a filosofia dos vinte e quatro elementos materiais; *vijñaptyai*—para explicar; *jātam*—apareceu; *vidvān*—sabendo; *ajaḥ*—o não nascido (Senhor Brahmā); *sva-rāṭ*—independente.
 
 **Maitreya continuou: Ó matador do inimigo, o não nascido Senhor Brahmā, que é quase independente na aquisição do conhecimento, pôde compreender que uma porção da Suprema Personalidade de Deus, em Sua qualidade de existência pura, havia aparecido no ventre de Devahūti apenas para explicar o estado completo do conhecimento conhecido como sāṅkhya-yoga.**
 

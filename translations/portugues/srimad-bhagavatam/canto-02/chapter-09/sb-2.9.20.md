@@ -14,8 +14,7 @@ ciraṁ bhṛtena tapasā
 
 *dustoṣaḥ kūṭa*-yoginām
 
-*Sinônimos
-śrī-bhagavān uvāca*—a Personalidade de Deus toda bela disse; *tvayā*—por você; *aham*—Eu sou; *toṣitaḥ*—satisfeito; *samyak*—completamente; *veda-garbha*—impregnado com os *Vedas*; *sisṛkṣayā*—para criar; *ciram*—por longo tempo; *bhṛtena*—acumulado; *tapasā*—pela penitência; *dustoṣaḥ*—muito difícil de satisfazer; *kūṭa-yoginām*—para os místicos pseudos.
+*śrī-bhagavān uvāca*—a Personalidade de Deus toda bela disse; *tvayā*—por você; *aham*—Eu sou; *toṣitaḥ*—satisfeito; *samyak*—completamente; *veda-garbha*—impregnado com os *Vedas*; *sisṛkṣayā*—para criar; *ciram*—por longo tempo; *bhṛtena*—acumulado; *tapasā*—pela penitência; *dustoṣaḥ*—muito difícil de satisfazer; *kūṭa-yoginām*—para os místicos pseudos.
 
 **A bela Personalidade de Deus dirigiu-Se ao Senhor Brahmā: Ó Brahmā, impregnado dos *Vedas*, estou muito satisfeito com Sua longa penitência acumulada com o desejo de criação. Raramente fico satisfeito com os místicos pseudos.**
 

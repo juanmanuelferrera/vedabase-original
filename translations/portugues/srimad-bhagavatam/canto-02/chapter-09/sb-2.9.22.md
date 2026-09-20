@@ -11,8 +11,7 @@ yad upaśrutya rahasi
 
 cakartha paramaṁ tapaḥ
 
-*Sinônimos
-manīṣita*—engenho; *anubhāvaḥ*—percepção; *ayam*—este; *mama*—Minha; *loka*—morada; *avalokanam*—vendo por experiência real; *yat*—porque; *upaśrutya*—ouvindo; *rahasi*—em grande penitência; *cakartha*—tendo executado; *paramam*—a mais alta; *tapaḥ*—penitência.
+*manīṣita*—engenho; *anubhāvaḥ*—percepção; *ayam*—este; *mama*—Minha; *loka*—morada; *avalokanam*—vendo por experiência real; *yat*—porque; *upaśrutya*—ouvindo; *rahasi*—em grande penitência; *cakartha*—tendo executado; *paramam*—a mais alta; *tapaḥ*—penitência.
 
 **A mais elevada engenhosidade da perfeição é a percepção pessoal de Minhas moradas, e isso tornou-se possível por causa de tua atitude submissa na execução de severa penitência por Minha ordem.**
 

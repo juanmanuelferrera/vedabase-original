@@ -11,8 +11,7 @@ yuktaṁ bhagaiḥ svair itaratra cādhruvaiḥ
 
 sva eva dhāman ramamāṇam īśvaram
 
-*Sinônimos
-adhyarhaṇīya*—muito adorável; *āsanam*—trono; *āsthitam*—assentado nele; *param*—o Supremo; *vṛtam*—rodeado por; *catuḥ*—quatro, a saber, *prakṛti*, *puruṣa*, *mahat* e ego; *ṣoḍaśa*—os dezesseis; *pañca*—os cinco; *śaktibhiḥ*—pelas energias; *yuktam*—empoderado com; *bhagaiḥ*—Suas opulências; *svaiḥ*—pessoais; *itaratra*—outros poderes menores; *ca*—também; *adhruvaiḥ*—temporários; *sve*—própria; *eva*—certamente; *dhāman*—morada; *ramamāṇam*—desfrutando; *īśvaram*—o Senhor Supremo.
+*adhyarhaṇīya*—muito adorável; *āsanam*—trono; *āsthitam*—assentado nele; *param*—o Supremo; *vṛtam*—rodeado por; *catuḥ*—quatro, a saber, *prakṛti*, *puruṣa*, *mahat* e ego; *ṣoḍaśa*—os dezesseis; *pañca*—os cinco; *śaktibhiḥ*—pelas energias; *yuktam*—empoderado com; *bhagaiḥ*—Suas opulências; *svaiḥ*—pessoais; *itaratra*—outros poderes menores; *ca*—também; *adhruvaiḥ*—temporários; *sve*—própria; *eva*—certamente; *dhāman*—morada; *ramamāṇam*—desfrutando; *īśvaram*—o Senhor Supremo.
 
 **O Senhor estava assentado em Seu trono e estava rodeado por diferentes energias como os quatro, os dezesseis, os cinco e as seis opulências naturais, juntamente com outras energias insignificantes de caráter temporário. Mas Ele era o verdadeiro Senhor Supremo, desfrutando de Sua própria morada.**
 

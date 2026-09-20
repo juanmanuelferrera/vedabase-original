@@ -11,8 +11,7 @@ pibanti yāḥ sakhy adharāmṛtaṁ muhur
 
 *vraja*-striyaḥ sammumuhur yad-āśayāḥ
 
-*Sinônimos
-nūnam*—certamente no nascimento anterior; *vrata*—voto; *snāna*—banho; *huta*—sacrifício no fogo; *ādinā*—por tudo isto; *īśvaraḥ*—a Personalidade de Deus; *samarcitaḥ*—perfeitamente adorado; *hi*—certamente; *asya*—Dele; *gṛhīta-pāṇibhiḥ*—pelas esposas casadas; *pibanti*—saboreiam; *yāḥ*—aquelas que; *sakhi*—Ó amiga; *adhara-amṛtam*—o néctar de Seus lábios; *muhuḥ*—novamente e novamente; *vraja-striyaḥ*—as donzelas de Vrajabhūmi; *sammu-muhuḥ*—frequentemente desmaiavam; *yat-āśayāḥ*—esperando ser favorecidas dessa forma.
+*nūnam*—certamente no nascimento anterior; *vrata*—voto; *snāna*—banho; *huta*—sacrifício no fogo; *ādinā*—por tudo isto; *īśvaraḥ*—a Personalidade de Deus; *samarcitaḥ*—perfeitamente adorado; *hi*—certamente; *asya*—Dele; *gṛhīta-pāṇibhiḥ*—pelas esposas casadas; *pibanti*—saboreiam; *yāḥ*—aquelas que; *sakhi*—Ó amiga; *adhara-amṛtam*—o néctar de Seus lábios; *muhuḥ*—novamente e novamente; *vraja-striyaḥ*—as donzelas de Vrajabhūmi; *sammu-muhuḥ*—frequentemente desmaiavam; *yat-āśayāḥ*—esperando ser favorecidas dessa forma.
 
 **Ó amigas, pensai apenas em Suas esposas, cujas mãos Ele aceitou. Como elas devem ter cumprido votos, banhos, sacrifício de fogo e perfeita adoração ao Senhor do universo para agora saborear constantemente o néctar de Seus lábios [ao beijá-lO]! As donzelas de Vrajabhūmi muitas vezes desmaiavam só de esperar tais favores.**
 

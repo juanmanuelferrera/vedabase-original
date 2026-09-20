@@ -14,8 +14,7 @@ hamso hamsena yānena
 
 *tri*-dhāma-paramam yayau
 
-*Sinônimos
-maitreyaḥ uvāca*—Maitreya disse; *tau*—o casal; *āśvāsya*—tendo tranquilizado; *jagat-sraṣṭā*—o criador do universo; *kumāraiḥ*—junto com os Kumāras; *saha-nāradaḥ*—com Nārada; *haṁsaḥ*—Senhor Brahmā; *haṁsena yānena*—por seu portador cisne; *tri-dhāma-paramam*—para o mais elevado dos três sistemas planetários; *yayau*—foi.
+*maitreyaḥ uvāca*—Maitreya disse; *tau*—o casal; *āśvāsya*—tendo tranquilizado; *jagat-sraṣṭā*—o criador do universo; *kumāraiḥ*—junto com os Kumāras; *saha-nāradaḥ*—com Nārada; *haṁsaḥ*—Senhor Brahmā; *haṁsena yānena*—por seu portador cisne; *tri-dhāma-paramam*—para o mais elevado dos três sistemas planetários; *yayau*—foi.
 
 **Śrī Maitreya disse: Após falar assim a Kardama Muni e a sua esposa Devahūti, o Senhor Brahmā, o criador do universo, que também é conhecido como Haṁsa, retornou ao mais elevado dos três sistemas planetários em seu cisne transportador, com os quatro Kumāras e Nārada.**
 

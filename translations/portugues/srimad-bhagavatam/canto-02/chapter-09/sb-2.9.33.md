@@ -11,8 +11,7 @@ paścād ahaṁ yad etac ca
 
 yo 'vaśiṣyeta so 'smy aham
 
-*Sinônimos
-aham*—Eu, a Personalidade de Deus; *eva*—certamente; *āsam*—existia; *eva*—somente; *agre*—antes da criação; *na*—jamais; *anyat*—qualquer outra coisa; *yat*—tudo isso; *sat*—o efeito; *asat*—a causa; *param*—o supremo; *paścāt*—ao final; *aham*—Eu, a Personalidade de Deus; *yat*—tudo isso; *etat*—criação; *ca*—também; *yaḥ*—tudo; *avaśiṣyeta*—permanece; *saḥ*—isso; *asmi*—Eu sou; *aham*—Eu, a Personalidade de Deus.
+*aham*—Eu, a Personalidade de Deus; *eva*—certamente; *āsam*—existia; *eva*—somente; *agre*—antes da criação; *na*—jamais; *anyat*—qualquer outra coisa; *yat*—tudo isso; *sat*—o efeito; *asat*—a causa; *param*—o supremo; *paścāt*—ao final; *aham*—Eu, a Personalidade de Deus; *yat*—tudo isso; *etat*—criação; *ca*—também; *yaḥ*—tudo; *avaśiṣyeta*—permanece; *saḥ*—isso; *asmi*—Eu sou; *aham*—Eu, a Personalidade de Deus.
 
 **Brahmā, sou Eu, a Personalidade de Deus, quem existia antes da criação, quando não havia nada exceto Eu Mesmo. Tampouco havia a natureza material, a causa desta criação. Aquilo que vês agora também sou Eu, a Personalidade de Deus, e, após a aniquilação, o que restar também serei Eu, a Personalidade de Deus.**
 

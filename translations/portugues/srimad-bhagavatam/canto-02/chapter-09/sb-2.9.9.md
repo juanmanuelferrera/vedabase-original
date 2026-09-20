@@ -11,8 +11,7 @@
 
 *sva*-dṛṣṭavadbhir puruṣair abhiṣṭutam
 
-*Sinônimos
-tasmai*—a ele; *sva-lokam*—Seu próprio planeta ou morada; *bhagavān*—a Personalidade de Deus; *sabhājitaḥ*—satisfeito pela penitência de Brahmā; *sandarśayām āsa*—manifestou; *param*—o supremo; *na*—não; *yat*—do qual; *param*—ainda mais supremo; *vyapeta*—completamente abandonadas; *saṅkleśa*—cinco tipos de aflições materiais; *vimoha*—sem ilusão; *sādhvasam*—medo da existência material; *sva-dṛṣṭa-vadbhiḥ*—por aqueles que realizaram perfeitamente o eu; *puruṣaiḥ*—por pessoas; *abhiṣṭutam*—adorado por.
+*tasmai*—a ele; *sva-lokam*—Seu próprio planeta ou morada; *bhagavān*—a Personalidade de Deus; *sabhājitaḥ*—satisfeito pela penitência de Brahmā; *sandarśayām āsa*—manifestou; *param*—o supremo; *na*—não; *yat*—do qual; *param*—ainda mais supremo; *vyapeta*—completamente abandonadas; *saṅkleśa*—cinco tipos de aflições materiais; *vimoha*—sem ilusão; *sādhvasam*—medo da existência material; *sva-dṛṣṭa-vadbhiḥ*—por aqueles que realizaram perfeitamente o eu; *puruṣaiḥ*—por pessoas; *abhiṣṭutam*—adorado por.
 
 **A Personalidade de Deus, estando assim muito satisfeita com a penitência do Senhor Brahmā, agradou-Se em manifestar Sua morada pessoal, Vaikuṇṭha, o planeta supremo acima de todos os outros. Esta morada transcendental do Senhor é adorada por todas as pessoas autorrealizadas, livres de todo tipo de misérias e do temor da existência ilusória.**
 

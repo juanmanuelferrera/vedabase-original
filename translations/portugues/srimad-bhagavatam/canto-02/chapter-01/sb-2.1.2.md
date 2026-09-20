@@ -11,8 +11,7 @@ nṛṇāṁ santi sahasraśaḥ
 
 *gṛheṣu gṛha*-medhinām
 
-*Sinônimos
-śrotavya-ādīni*—assuntos para ouvir; *rājendra*—ó imperador; *nṛṇām*—da sociedade humana; *santi*—há; *sahasraśaḥ*—centenas e milhares; *apaśyatām*—dos cegos; *ātma-tattvam*—conhecimento do eu, a verdade última; *gṛheṣu*—em casa; *gṛha-medhinām*—das pessoas demasiado absortas na vida material.
+*śrotavya-ādīni*—assuntos para ouvir; *rājendra*—ó imperador; *nṛṇām*—da sociedade humana; *santi*—há; *sahasraśaḥ*—centenas e milhares; *apaśyatām*—dos cegos; *ātma-tattvam*—conhecimento do eu, a verdade última; *gṛheṣu*—em casa; *gṛha-medhinām*—das pessoas demasiado absortas na vida material.
 
 **Aquelas pessoas que estão materialmente absortas, sendo cegas para o conhecimento da verdade última, têm muitas coisas como tema de audição na sociedade humana, ó Imperador.**
 

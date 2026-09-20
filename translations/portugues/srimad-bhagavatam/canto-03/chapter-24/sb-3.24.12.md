@@ -14,8 +14,7 @@ yan me sañjagṛhe vākyam
 
 bhavān mānada mānayan
 
-*Sinônimos
-brahmā*—Senhor Brahmā; *uvāca*—disse; *tvayā*—por você; *me*—meu; *apacitiḥ*—adoração; *tāta*—ó filho; *kalpitā*—está realizada; *nirvyalīkataḥ*—sem duplicidade; *yat*—uma vez que; *me*—meu; *sañjagṛhe*—completamente aceitou; *vākyam*—instruções; *bhavān*—você; *māna-da*—ó Kardama (aquele que oferece honra a outros); *mānayan*—respeitando.
+*brahmā*—Senhor Brahmā; *uvāca*—disse; *tvayā*—por você; *me*—meu; *apacitiḥ*—adoração; *tāta*—ó filho; *kalpitā*—está realizada; *nirvyalīkataḥ*—sem duplicidade; *yat*—uma vez que; *me*—meu; *sañjagṛhe*—completamente aceitou; *vākyam*—instruções; *bhavān*—você; *māna-da*—ó Kardama (aquele que oferece honra a outros); *mānayan*—respeitando.
 
 **Senhor Brahmā disse: Meu querido filho Kardama, uma vez que você completamente aceitou minhas instruções sem duplicidade, mostrando-lhes o respeito apropriado, você me adorou adequadamente. Qualquer instrução que você tenha tomado de mim você executou, e dessa forma você me honrou.**
 

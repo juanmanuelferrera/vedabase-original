@@ -11,8 +11,7 @@ sandhāryate 'smin vapuṣi sthaviṣṭhe
 
 *manaḥ sva*-buddhyā na yato 'sti kiñcit
 
-*Sinônimos
-iyān*—tudo isso; *asau*—aquele; *īśvara*—Senhor Supremo; *vigrahasya*—da forma; *yaḥ*—qualquer que seja; *sanniveśaḥ*—conforme estão localizados; *kathitaḥ*—explicado; *mayā*—por mim; *te*—a você; *sandhāryate*—pode-se concentrar; *asmin*—nesta; *vapuṣi*—forma do *virāṭ*; *sthaviṣṭhe*—no grosseiro; *manaḥ*—mente; *sva-buddhyā*—pela própria inteligência; *na*—não; *yataḥ*—além d'Ele; *asti*—há; *kiñcit*—qualquer outra coisa.
+*iyān*—tudo isso; *asau*—aquele; *īśvara*—Senhor Supremo; *vigrahasya*—da forma; *yaḥ*—qualquer que seja; *sanniveśaḥ*—conforme estão localizados; *kathitaḥ*—explicado; *mayā*—por mim; *te*—a você; *sandhāryate*—pode-se concentrar; *asmin*—nesta; *vapuṣi*—forma do *virāṭ*; *sthaviṣṭhe*—no grosseiro; *manaḥ*—mente; *sva-buddhyā*—pela própria inteligência; *na*—não; *yataḥ*—além d'Ele; *asti*—há; *kiñcit*—qualquer outra coisa.
 
 **Expliquei-te assim a grosseira e gigantesca concepção material da Personalidade de Deus. Quem deseja seriamente a liberação concentra a mente nesta forma do Senhor, pois não há nada além disto no mundo material.**
 

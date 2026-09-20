@@ -11,8 +11,7 @@ bibharmi tapasā viśvaṁ
 
 vīryaṁ me duścaraṁ tapaḥ
 
-*Sinônimos
-sṛjāmi*—Eu crio; *tapasā*—pela mesma energia de penitência; *eva*—certamente; *idam*—este; *grasāmi tapasā*—Eu também retiro pela mesma energia; *punaḥ*—novamente; *bibharmi*—sustento; *tapasā*—pela penitência; *viśvam*—o cosmo; *vīryam*—potência; *me*—Minha; *duścaram*—severa; *tapaḥ*—penitência.
+*sṛjāmi*—Eu crio; *tapasā*—pela mesma energia de penitência; *eva*—certamente; *idam*—este; *grasāmi tapasā*—Eu também retiro pela mesma energia; *punaḥ*—novamente; *bibharmi*—sustento; *tapasā*—pela penitência; *viśvam*—o cosmo; *vīryam*—potência; *me*—Minha; *duścaram*—severa; *tapaḥ*—penitência.
 
 **Crio este cosmo por tal penitência, o sustento pela mesma energia, e o retiro todo pela mesma energia. Portanto, a potência é apenas penitência.**
 

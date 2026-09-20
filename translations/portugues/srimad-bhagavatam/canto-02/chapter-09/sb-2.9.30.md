@@ -11,8 +11,7 @@ aviklavas te parikarmaṇi sthito
 
 *mā me samunnaddha*-mado 'ja māninaḥ
 
-*Sinônimos
-yāvat*—como é; *sakhā*—amigo; *sakhyuḥ*—ao amigo; *iva*—assim; *īśa*—ó Senhor; *te*—o Senhor; *kṛtaḥ*—aceitou; *prajā*—as entidades vivas; *visarge*—na questão da criação; *vibhajāmi*—conforme farei de modo diferente; *bhoḥ*—ó meu Senhor; *janam*—aqueles que nascem; *aviklavaḥ*—sem perturbação; *te*—Seu; *parikarmaṇi*—na questão do serviço; *sthitaḥ*—assim situado; *mā*—que nunca seja; *me*—a mim; *samunnaddha*—resultando em surgimento; *madaḥ*—loucura; *aja*—ó não nascido; *māninaḥ*—sendo assim considerado.
+*yāvat*—como é; *sakhā*—amigo; *sakhyuḥ*—ao amigo; *iva*—assim; *īśa*—ó Senhor; *te*—o Senhor; *kṛtaḥ*—aceitou; *prajā*—as entidades vivas; *visarge*—na questão da criação; *vibhajāmi*—conforme farei de modo diferente; *bhoḥ*—ó meu Senhor; *janam*—aqueles que nascem; *aviklavaḥ*—sem perturbação; *te*—Seu; *parikarmaṇi*—na questão do serviço; *sthitaḥ*—assim situado; *mā*—que nunca seja; *me*—a mim; *samunnaddha*—resultando em surgimento; *madaḥ*—loucura; *aja*—ó não nascido; *māninaḥ*—sendo assim considerado.
 
 **Ó meu Senhor, o não-nascido, Tu apertaste minha mão tal como um amigo o faz com um amigo [como se fôssemos iguais em posição]. Hei de ocupar-me na criação de diferentes tipos de entidades vivas, e hei de estar ocupado em Teu serviço. Não terei perturbação alguma, mas rogo que tudo isto não dê origem ao orgulho, como se eu fosse o Supremo.**
 

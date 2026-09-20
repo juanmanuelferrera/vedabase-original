@@ -11,8 +11,7 @@ chandāṁsy anantasya śiro gṛṇanti
 
 *duranta*-sargo yad-apāṅga-mokṣaḥ
 
-*Sinônimos
-chandāṁsi*—os hinos Védicos; *anantasya*—do Supremo; *śiraḥ*—a passagem cerebral; *gṛṇanti*—dizem; *daṁṣṭrāḥ*—as mandíbulas; *yamaḥ*—Yamarāja, o diretor dos pecadores; *sneha-kalāḥ*—a arte da afeição; *dvijāni*—o conjunto de dentes; *hāsaḥ*—sorriso; *jana-unmāda-karī*—a mais sedutora; *ca*—também; *māyā*—energia ilusória; *duranta*—insuperável; *sargaḥ*—a criação material; *yat-apāṅga*—cujo olhar; *mokṣaḥ*—lançado sobre.
+*chandāṁsi*—os hinos Védicos; *anantasya*—do Supremo; *śiraḥ*—a passagem cerebral; *gṛṇanti*—dizem; *daṁṣṭrāḥ*—as mandíbulas; *yamaḥ*—Yamarāja, o diretor dos pecadores; *sneha-kalāḥ*—a arte da afeição; *dvijāni*—o conjunto de dentes; *hāsaḥ*—sorriso; *jana-unmāda-karī*—a mais sedutora; *ca*—também; *māyā*—energia ilusória; *duranta*—insuperável; *sargaḥ*—a criação material; *yat-apāṅga*—cujo olhar; *mokṣaḥ*—lançado sobre.
 
 **Dizem que os hinos Védicos são a passagem cerebral do Senhor, e as mandíbulas dos dentes são Yama, o deus da morte, que pune os pecadores. A arte da afeição é o conjunto de Seus dentes, e a mais sedutora ilusória energia material é Seu sorriso. Este grande oceano da criação material não passa do lançar de Seu olhar sobre nós.**
 

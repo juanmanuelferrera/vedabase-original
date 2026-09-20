@@ -11,8 +11,7 @@ kīdṛśaḥ kati cāṅgāni
 
 yatas tattvāvabodhanam
 
-*Sinônimos
-yaḥ*—qual; *yogaḥ*—processo de yoga místico; *bhagavat-bāṇaḥ*—apontando para a Suprema Personalidade de Deus; *nirvāṇa-ātman*—ó encarnação de nirvāṇa; *tvayā*—por Você; *uditaḥ*—explicado; *kīdṛśaḥ*—de que natureza; *kati*—quantas; *ca*—e; *aṅgāni*—ramos; *yataḥ*—pelo qual; *tattva*—da verdade; *avabodhanam*—compreensão.
+*yaḥ*—qual; *yogaḥ*—processo de yoga místico; *bhagavat-bāṇaḥ*—apontando para a Suprema Personalidade de Deus; *nirvāṇa-ātman*—ó encarnação de nirvāṇa; *tvayā*—por Você; *uditaḥ*—explicado; *kīdṛśaḥ*—de que natureza; *kati*—quantas; *ca*—e; *aṅgāni*—ramos; *yataḥ*—pelo qual; *tattva*—da verdade; *avabodhanam*—compreensão.
 
 **O sistema de yoga místico, conforme o explicaste, visa à Suprema Personalidade de Deus e destina-se a pôr completo fim à existência material. Por favor, faze-me conhecer a natureza desse sistema de yoga. Quantas maneiras há pelas quais se pode compreender em verdade esse sublime yoga?**
 

@@ -14,8 +14,7 @@ yayā padaṁ te nirvāṇam
 
 añjasānvāśnavā aham
 
-*Sinônimos
-devahūtiḥ uvāca*—Devahūti disse; *kācit*—qual; *tvayi*—para Você; *ucitā*—apropriado; *bhaktiḥ*—serviço devocional; *kīdṛśī*—que tipo de; *mama*—por mim; *go-carā*—apropriado para ser praticado; *yayā*—pelo qual; *padam*—pés; *te*—Seus; *nirvāṇam*—liberação; *añjasā*—imediatamente; *anvāśnavai*—alcançarei; *aham*—eu.
+*devahūtiḥ uvāca*—Devahūti disse; *kācit*—qual; *tvayi*—para Você; *ucitā*—apropriado; *bhaktiḥ*—serviço devocional; *kīdṛśī*—que tipo de; *mama*—por mim; *go-carā*—apropriado para ser praticado; *yayā*—pelo qual; *padam*—pés; *te*—Seus; *nirvāṇam*—liberação; *añjasā*—imediatamente; *anvāśnavai*—alcançarei; *aham*—eu.
 
 **Ouvindo esta declaração do Senhor, Devahūti perguntou: Que tipo de serviço devocional é adequado para desenvolver e praticar para me ajudar facilmente e imediatamente a alcançar o serviço de Seus pés de lótus?**
 

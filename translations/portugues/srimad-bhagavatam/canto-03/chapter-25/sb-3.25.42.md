@@ -11,8 +11,7 @@ varṣatīndro dahaty agnir
 
 mṛtyuś carati mad-bhayāt
 
-*Sinônimos
-mat-bhayāt*—por medo de Mim; *vāti*—sopra; *vātaḥ*—vento; *ayam*—este; *sūryaḥ*—o sol; *tapati*—brilha; *mat-bhayāt*—por medo de Mim; *varṣati*—envia chuva; *indraḥ*—Indra; *dahati*—queima; *agniḥ*—fogo; *mṛtyuḥ*—morte; *carati*—vai; *mat-bhayāt*—por medo de Mim.
+*mat-bhayāt*—por medo de Mim; *vāti*—sopra; *vātaḥ*—vento; *ayam*—este; *sūryaḥ*—o sol; *tapati*—brilha; *mat-bhayāt*—por medo de Mim; *varṣati*—envia chuva; *indraḥ*—Indra; *dahati*—queima; *agniḥ*—fogo; *mṛtyuḥ*—morte; *carati*—vai; *mat-bhayāt*—por medo de Mim.
 
 **É porque da Minha supremacia que o vento sopra, por medo de Mim; o sol brilha por medo de Mim, e o senhor das nuvens, Indra, envia chuva por medo de Mim. O fogo queima por medo de Mim, e a morte vai sobre derrubando sua colheita por medo de Mim.**
 

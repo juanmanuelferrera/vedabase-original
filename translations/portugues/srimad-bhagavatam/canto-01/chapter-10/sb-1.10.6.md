@@ -11,8 +11,7 @@ ajāta-śatrāv abhavan
 
 jantūnāṁ rājñi karhicit
 
-*Sinônimos
-na*—nunca; *ādhayaḥ*—ansiedades; *vyādhayaḥ*—doenças; *kleśāḥ*—problemas devido a calor e frio excessivos; *daiva-bhūta-ātma*—tudo devido ao corpo, poder sobrenatural e outros seres vivos; *hetavaḥ*—devido às causas de; *ajāta-śatrau*—para aquele que não tem inimigo; *abhavan*—aconteceu; *jantūnām*—dos seres vivos; *rājñi*—para o rei; *karhicit*—em qualquer tempo.
+*na*—nunca; *ādhayaḥ*—ansiedades; *vyādhayaḥ*—doenças; *kleśāḥ*—problemas devido a calor e frio excessivos; *daiva-bhūta-ātma*—tudo devido ao corpo, poder sobrenatural e outros seres vivos; *hetavaḥ*—devido às causas de; *ajāta-śatrau*—para aquele que não tem inimigo; *abhavan*—aconteceu; *jantūnām*—dos seres vivos; *rājñi*—para o rei; *karhicit*—em qualquer tempo.
 
 **Por não ter o rei nenhum inimigo, os seres vivos não eram, em momento algum, perturbados por agonias mentais, doenças, ou calor ou frio excessivos.**
 

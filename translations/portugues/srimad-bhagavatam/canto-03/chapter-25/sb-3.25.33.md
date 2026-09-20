@@ -6,8 +6,7 @@ jarayaty āśu yā kośaṁ
 
 nigīrṇam analo yathā
 
-*Sinônimos
-jarayati*—dissolve; *āśu*—rapidamente; *yā*—qual; *kośam*—o corpo sutil; *nigīrṇam*—coisas comidas; *analaḥ*—fogo; *yathā*—como.
+*jarayati*—dissolve; *āśu*—rapidamente; *yā*—qual; *kośam*—o corpo sutil; *nigīrṇam*—coisas comidas; *analaḥ*—fogo; *yathā*—como.
 
 **O bhakti, o serviço devocional, dissolve o corpo sutil da entidade viva sem esforço à parte, assim como o fogo no estômago digere tudo o que comemos.**
 

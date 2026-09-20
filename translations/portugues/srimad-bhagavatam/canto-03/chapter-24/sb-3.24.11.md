@@ -11,8 +11,7 @@ prahṛṣyamāṇair asubhiḥ
 
 kardamam cedam abhyadhāt
 
-*Sinônimos
-sabhājayan*—adorando; *viśuddhena*—puro; *cetasā*—com um coração; *tat*—da Suprema Personalidade de Deus; *cikīrṣitam*—as atividades intencionadas; *prahṛṣyamāṇaiḥ*—alegrados; *asubhiḥ*—com sentidos; *kardamam*—a Kardama Muni; *ca*—e Devahūti; *idam*—isto; *abhyadhāt*—falou.
+*sabhājayan*—adorando; *viśuddhena*—puro; *cetasā*—com um coração; *tat*—da Suprema Personalidade de Deus; *cikīrṣitam*—as atividades intencionadas; *prahṛṣyamāṇaiḥ*—alegrados; *asubhiḥ*—com sentidos; *kardamam*—a Kardama Muni; *ca*—e Devahūti; *idam*—isto; *abhyadhāt*—falou.
 
 **Depois de adorar o Senhor Supremo com sentidos alegrados e um coração puro por Suas atividades intencionadas como uma encarnação, Brahmā falou da seguinte forma a Kardama e Devahūti.**
 

@@ -11,8 +11,7 @@ yogināṁ nṛpa nirṇītaṁ
 
 harer nāmānukīrtanam
 
-*Sinônimos
-etat*—é; *nirvidyamānānām*—daqueles que estão completamente livres de todos os desejos materiais; *icchatām*—daqueles que desejam todo tipo de desfrute material; *akutaḥ-bhayam*—livre de todas as dúvidas e temores; *yoginām*—de todos os que se satisfazem em si mesmos; *nṛpa*—ó rei; *nirṇītam*—verdade estabelecida; *hareḥ*—do Senhor, Śrī Kṛṣṇa; *nāma*—santo nome; *anu*—após alguém, sempre; *kīrtanam*—canto.
+*etat*—é; *nirvidyamānānām*—daqueles que estão completamente livres de todos os desejos materiais; *icchatām*—daqueles que desejam todo tipo de desfrute material; *akutaḥ-bhayam*—livre de todas as dúvidas e temores; *yoginām*—de todos os que se satisfazem em si mesmos; *nṛpa*—ó rei; *nirṇītam*—verdade estabelecida; *hareḥ*—do Senhor, Śrī Kṛṣṇa; *nāma*—santo nome; *anu*—após alguém, sempre; *kīrtanam*—canto.
 
 **Ó rei, o cantar constante do santo nome do Senhor, segundo os métodos das grandes autoridades, é o caminho indubitável e destemido de êxito para todos, incluindo aqueles que estão livres de todos os desejos materiais, bem como aqueles que desejam todo o gozo material, e também aqueles que estão satisfeitos em si mesmos em virtude do conhecimento transcendental.**
 

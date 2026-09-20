@@ -16,8 +16,7 @@ bhajanty ananyayā bhaktyā
 
 tān mṛtyor atipāraye
 
-*Sinônimos
-imam*—este; *lokam*—mundo; *tathā*—correspondentemente; *eva*—certamente; *amum*—aquele mundo; *ātmānam*—o corpo sutil; *ubhaya*—em ambos; *ayinam*—viajando; *ātmānam*—o corpo; *anu*—em relacionamento com; *ye*—aqueles que; *ca*—também; *iha*—neste mundo; *ye*—aquele que; *rāyaḥ*—riqueza; *paśavaḥ*—gado; *gṛhāḥ*—casas; *visṛjya*—tendo desistido; *sarvān*—tudo; *anyān*—outro; *ca*—e; *mām*—Mim; *evam*—assim; *viśvataḥ-mukham*—o Senhor onipresente do universo; *bhajanti*—eles adoram; *ananyayā*—inabalável; *bhaktyā*—por serviço devocional; *tān*—eles; *mṛtyoḥ*—da morte; *atipāraye*—eu levo para o outro lado.
+*imam*—este; *lokam*—mundo; *tathā*—correspondentemente; *eva*—certamente; *amum*—aquele mundo; *ātmānam*—o corpo sutil; *ubhaya*—em ambos; *ayinam*—viajando; *ātmānam*—o corpo; *anu*—em relacionamento com; *ye*—aqueles que; *ca*—também; *iha*—neste mundo; *ye*—aquele que; *rāyaḥ*—riqueza; *paśavaḥ*—gado; *gṛhāḥ*—casas; *visṛjya*—tendo desistido; *sarvān*—tudo; *anyān*—outro; *ca*—e; *mām*—Mim; *evam*—assim; *viśvataḥ-mukham*—o Senhor onipresente do universo; *bhajanti*—eles adoram; *ananyayā*—inabalável; *bhaktyā*—por serviço devocional; *tān*—eles; *mṛtyoḥ*—da morte; *atipāraye*—eu levo para o outro lado.
 
 **Assim o devoto que Me adora, o Senhor onipresente do universo, em serviço devocional inabalável, desiste de todas as aspirações de ser promovido para planetas celestiais ou de ficar feliz neste mundo com riqueza, filhos, gado, casa ou qualquer coisa em relacionamento com o corpo. Eu o levo para o outro lado do nascimento e morte.**
 

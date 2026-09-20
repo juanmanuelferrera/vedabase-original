@@ -11,8 +11,7 @@ muhūrtāt sarvam utsṛjya
 
 gatavān abhayaṁ harim
 
-*Sinônimos
-khaṭvāṅgaḥ*—o rei Khaṭvāṅga; *nāma*—de nome; *rāja-ṛṣiḥ*—sábio rei; *jñātvā*—ao saber; *iyattām*—duração; *iha*—neste mundo; *āyuṣaḥ*—da própria vida; *muhūrtāt*—em apenas um momento; *sarvam*—tudo; *utsṛjya*—abandonando; *gatavān*—refugiou-se; *abhayam*—plenamente seguro; *harim*—a Personalidade de Deus.
+*khaṭvāṅgaḥ*—o rei Khaṭvāṅga; *nāma*—de nome; *rāja-ṛṣiḥ*—sábio rei; *jñātvā*—ao saber; *iyattām*—duração; *iha*—neste mundo; *āyuṣaḥ*—da própria vida; *muhūrtāt*—em apenas um momento; *sarvam*—tudo; *utsṛjya*—abandonando; *gatavān*—refugiou-se; *abhayam*—plenamente seguro; *harim*—a Personalidade de Deus.
 
 **O santo rei, Mahārāja Khaṭvāṅga, após ser informado de que a duração de sua vida seria apenas de um instante mais, imediatamente livrou-se de todas as atividades materiais e abrigou-se na suprema segurança, a Personalidade de Deus.**
 

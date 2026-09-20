@@ -14,8 +14,7 @@ samyak śraddhāya puruṣam
 
 *kūṭa*-stham abhajad gurum
 
-*Sinônimos
-maitreyaḥ uvāca*—Maitreya disse; *devahūtī*—Devahūti; *api*—também; *sandeśam*—a direção; *gauraveṇa*—com grande respeito; *prajāpateḥ*—de Kardama; *samyak*—completa; *śraddhāya*—tendo fé em; *puruṣam*—a Suprema Personalidade de Deus; *kūṭa-stham*—situado no coração de todos; *abhajat*—adorou; *gurum*—digno de adoração.
+*maitreyaḥ uvāca*—Maitreya disse; *devahūtī*—Devahūti; *api*—também; *sandeśam*—a direção; *gauraveṇa*—com grande respeito; *prajāpateḥ*—de Kardama; *samyak*—completa; *śraddhāya*—tendo fé em; *puruṣam*—a Suprema Personalidade de Deus; *kūṭa-stham*—situado no coração de todos; *abhajat*—adorou; *gurum*—digno de adoração.
 
 **Śrī Maitreya disse: Devahūti era completamente fiel e respeitosa em relação à direção de seu marido, Kardama, que era um dos Prajāpatis, ou geradores de seres humanos no universo. Ó grande sábio, ela começou assim a adorar o mestre do universo, a Suprema Personalidade de Deus, que está situada no coração de todos.**
 

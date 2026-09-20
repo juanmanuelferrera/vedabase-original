@@ -11,8 +11,7 @@ bāḍham ity anumanyeta
 
 gauraveṇa guror vacaḥ
 
-*Sinônimos
-etāvatī*—nesta medida; *eva*—exatamente; *śuśrūṣā*—serviço; *kāryā*—deveria ser prestado; *pitari*—ao pai; *putrakaiḥ*—pelos filhos; *bāḍham iti*—aceitando, "Sim, senhor"; *anumanyeta*—ele deveria obedecer; *gauraveṇa*—com deferência apropriada; *guroḥ*—do guru; *vacaḥ*—comandos.
+*etāvatī*—nesta medida; *eva*—exatamente; *śuśrūṣā*—serviço; *kāryā*—deveria ser prestado; *pitari*—ao pai; *putrakaiḥ*—pelos filhos; *bāḍham iti*—aceitando, "Sim, senhor"; *anumanyeta*—ele deveria obedecer; *gauraveṇa*—com deferência apropriada; *guroḥ*—do guru; *vacaḥ*—comandos.
 
 **Filhos devem prestar serviço a seu pai exatamente nesta medida. A pessoa deve obedecer ao comando de seu pai ou mestre espiritual com deferência apropriada, dizendo, "Sim, senhor."**
 

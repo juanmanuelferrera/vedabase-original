@@ -11,8 +11,7 @@ vilumpan visṛjan gṛhṇan
 
 bibhrad ātmānam ātmanā
 
-*Sinônimos
-yathā*—tanto quanto; *ātma*—própria; *māyā*—potência; *yogena*—pela combinação; *nānā*—vários; *śakti*—energia; *upabṛṁhitam*—pela combinação e permutação; *vilumpan*—no tocante à aniquilação; *visṛjan*—no tocante à geração; *gṛhṇan*—no tocante à aceitação; *bibhrat*—no tocante à manutenção; *ātmānam*—próprio eu; *ātmanā*—por si mesmo.
+*yathā*—tanto quanto; *ātma*—própria; *māyā*—potência; *yogena*—pela combinação; *nānā*—vários; *śakti*—energia; *upabṛṁhitam*—pela combinação e permutação; *vilumpan*—no tocante à aniquilação; *visṛjan*—no tocante à geração; *gṛhṇan*—no tocante à aceitação; *bibhrat*—no tocante à manutenção; *ātmānam*—próprio eu; *ātmanā*—por si mesmo.
 
 **E como Tu, por Ti mesmo, manifestas diferentes energias para a aniquilação, geração, aceitação e manutenção, por combinação e permutação.**
 

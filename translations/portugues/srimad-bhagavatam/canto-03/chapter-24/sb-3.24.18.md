@@ -11,8 +11,7 @@ praviṣṭaḥ kaiṭabhārdanaḥ
 
 chittvā gām vicariṣyati
 
-*Sinônimos
-eṣaḥ*—a mesma Suprema Personalidade de Deus; *mānavi*—ó filha de Manu; *te*—seu; *garbham*—ventre; *praviṣṭaḥ*—entrou; *kaiṭabha-ardanaḥ*—o matador do demônio Kaiṭabha; *avidyā*—da ignorância; *saṁśaya*—e da dúvida; *granthim*—o nó; *chittvā*—cortando; *gām*—o mundo; *vicariṣyati*—Ele viajará.
+*eṣaḥ*—a mesma Suprema Personalidade de Deus; *mānavi*—ó filha de Manu; *te*—seu; *garbham*—ventre; *praviṣṭaḥ*—entrou; *kaiṭabha-ardanaḥ*—o matador do demônio Kaiṭabha; *avidyā*—da ignorância; *saṁśaya*—e da dúvida; *granthim*—o nó; *chittvā*—cortando; *gām*—o mundo; *vicariṣyati*—Ele viajará.
 
 **Senhor Brahmā então disse a Devahūti: Minha querida filha de Manu, a mesma Suprema Personalidade de Deus que matou o demônio Kaiṭabha está agora em seu ventre. Ele cortará todos os nós de sua ignorância e dúvida. Então Ele viajará por todo o mundo.**
 

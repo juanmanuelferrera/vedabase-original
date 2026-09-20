@@ -11,8 +11,7 @@ vilokya tatrānyad apaśyamānaḥ
 
 tapasy upādiṣṭa ivādadhe manaḥ
 
-*Sinônimos
-niśamya*—após ouvir; *tat*—esse; *vaktṛ*—o falante; *didṛkṣayā*—para descobrir quem falou; *diśaḥ*—todos os lados; *vilokya*—observando; *tatra*—ali; *anyat*—qualquer outro; *apaśyamānaḥ*—não encontrado; *svadhiṣṇyam*—em seu assento de lótus; *āsthāya*—sentar; *vimṛśya*—pensando; *tat*—nisso; *hitam*—bem-estar; *tapasi*—na penitência; *upādiṣṭaḥ*—conforme foi instruído; *iva*—em conformidade; *ādadhe*—deu; *manaḥ*—atenção.
+*niśamya*—após ouvir; *tat*—esse; *vaktṛ*—o falante; *didṛkṣayā*—para descobrir quem falou; *diśaḥ*—todos os lados; *vilokya*—observando; *tatra*—ali; *anyat*—qualquer outro; *apaśyamānaḥ*—não encontrado; *svadhiṣṇyam*—em seu assento de lótus; *āsthāya*—sentar; *vimṛśya*—pensando; *tat*—nisso; *hitam*—bem-estar; *tapasi*—na penitência; *upādiṣṭaḥ*—conforme foi instruído; *iva*—em conformidade; *ādadhe*—deu; *manaḥ*—atenção.
 
 **Quando ouviu o som, ele tentou descobrir o orador, buscando por todos os lados. Mas, ao ser incapaz de encontrar alguém além de si mesmo, achou prudente sentar-se firmemente em seu assento de lótus e dedicar sua atenção à execução da penitência, tal como fora instruído.**
 
