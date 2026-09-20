@@ -9,11 +9,11 @@
 # Comprobarlo por tu cuenta:
 #     python3 scripts/hash_manifest.py --check
 #
-# fecha:    2026-09-20 18:22 UTC
-# commit:   885b54ef141b348dd509dfcddd7fdaa1d21388f5
-# ficheros: 107251
-# bytes:    797832298
-# root:     71e4874b0ca2cd12ed04d773385518a2a07838fdbfe9009736655c80ff0986be
+# fecha:    2026-09-20 19:17 UTC
+# commit:   7577d7b9892b4582ce088f9dcdb74a1dda8964c0
+# ficheros: 107270
+# bytes:    798723415
+# root:     39f312ce2b236104290e10666c3bc78f2d0d87092b138e2e8a4fc0c8182a22c8
 #
 efbb9c92ced5131364d184269769070002b90c8128ca19e649df418752c33ea0  corpus/PRINT_ERRATA.md
 05efbda2d92c40aca80e226c59746dd6802bd99fc1f6f3038de77768ad3b4a51  corpus/PROVENANCE.md
@@ -46022,6 +46022,25 @@ c6107bf3324da2e23d7509a4effd0b7a76744b1528f594b90a0103c0c8df2773  corpus/transla
 8fc57bd24af81baec4cedfb666261de557e942e2fc15b6da02971dac9bab4f1a  corpus/translations/hindi/krsna-the-supreme-personality-of-godhead/kb_hi.jsonl
 e37a6cbfc2f649aa97fff2f97decc5d4b5d601a0332de7b66d43fc2090b55308  corpus/translations/hindi/krsna-the-supreme-personality-of-godhead/preface.md
 e820fbf1fd3506bd0acce1742e7269c160923115a713435efff8063f93f95377  corpus/translations/hindi/krsna-the-supreme-personality-of-godhead/words-from-apple.md
+7307deaf37f068de4780cd33c72a5bcb59539bf969911edcca6a669a57eb5f72  corpus/translations/hindi/life-comes-from-life/chapter-1.md
+adf5b9040bd9ed2f6dfb4a19990c3c930db1b6b1018318238e0a08002e36a050  corpus/translations/hindi/life-comes-from-life/chapter-10.md
+67193d3530fca687a12f784e228a5d9916a37de68b891eac06de4c773db9eb20  corpus/translations/hindi/life-comes-from-life/chapter-11.md
+1ba5b117d192073b63991a0f5830da648b111e8125c1553af07dbcb0f815b16b  corpus/translations/hindi/life-comes-from-life/chapter-12.md
+91c08f00fde246274e9cccd7e03aeefa6d15c2ae02894533295163a9a19a9391  corpus/translations/hindi/life-comes-from-life/chapter-13.md
+78b97e0fc32694d6d255d6fb864febef8c7824dc7125e7a71905cb3cf3953bb5  corpus/translations/hindi/life-comes-from-life/chapter-14.md
+e5d78a389c582fe66a91c2dc2458347df69bd6eb645bbc3daee64413bdb89ef4  corpus/translations/hindi/life-comes-from-life/chapter-15.md
+dbc8c8cf8031dffc8e1e470f2fbb6a25c1c6d488bb43e982d5db41388c50e445  corpus/translations/hindi/life-comes-from-life/chapter-16.md
+6fe98947eab051eabd96cbe9d32b7da927d379a0cce900c8083b4963fb3e9faf  corpus/translations/hindi/life-comes-from-life/chapter-2.md
+8f0f8305629d824223be1269f6aa50b254308f08f921478aff694926b4945167  corpus/translations/hindi/life-comes-from-life/chapter-3.md
+67adceb3452027eaab2545b49c6cd33e6f124af716723a7356b6b04c26273ce9  corpus/translations/hindi/life-comes-from-life/chapter-4.md
+a99972924aef6c9ba56610c3c156be14c40789661fccb616d165e501ae0f6212  corpus/translations/hindi/life-comes-from-life/chapter-5.md
+d73dc28a8481734e747fbb1e115f993e6681989704c626cac232cc02174edb4d  corpus/translations/hindi/life-comes-from-life/chapter-6.md
+8e297d6d73a83e02568108a8c0e6a2d1f718e3064bc544600a6060b59d18775e  corpus/translations/hindi/life-comes-from-life/chapter-7.md
+235d52cc38b894e9a3e161962c1dcf492af078a23e3e441e20cbab28fb09a9b0  corpus/translations/hindi/life-comes-from-life/chapter-8.md
+8b8cfda8b2a58e6bcb634f2834395071d04676bc96a528cbef3807e446ee0d2b  corpus/translations/hindi/life-comes-from-life/chapter-9.md
+ba36a8c05208116cd88654c9615c6e8028d25a7c8ec61e07f3a29dddae8aa080  corpus/translations/hindi/life-comes-from-life/foreword.md
+da6d9d37113888dc9ee69b575df12aab4e5d34dc638d481eeaf6a7b48acf84d7  corpus/translations/hindi/life-comes-from-life/lcfl_hi.jsonl
+cba50cfeaf6d94193fe809e7fd3c7ceee71400efbb79f366becf0ae5eeff2f4c  corpus/translations/hindi/life-comes-from-life/science-truth-and-fiction.md
 5c725086b59efef8c9d0a7c8786ef35b37d831837b49833a1448080685c6a9f6  corpus/translations/hindi/light-of-the-bhagavata/lob_hi.jsonl
 6b1d3e3b60e7761d60f88ca5734552c6d5638b56f6814f74a30302dbd805897b  corpus/translations/hindi/light-of-the-bhagavata/preface.md
 25f08304e2038f4eaffe46953e02cf29bd020c23a4d34d9ffee2b157a3b56e44  corpus/translations/hindi/light-of-the-bhagavata/text-1.md
