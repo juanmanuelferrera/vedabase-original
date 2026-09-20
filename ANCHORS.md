@@ -23,7 +23,8 @@ corrections applied to it, 102,836 files.
 |---|---|---|---|
 | 29 Aug 2026 | `0c8523c221b02001d918ca9bb17d81f4d138e10580ec2820992281d89a38235d` | `0b1142633040cc5c2effeac0b25e1e38e8ea13dd` | this file |
 | 17 Sep 2026 | `42e78565f7e05bc5d0da6ded9a399669b421b9bd7a44b6bf44141601d7f26b37` | `cab11a0318dff52acb070b99e9d00d530636ab6b` | this file |
-| 20 Sep 2026 | `f13169c3e9b2d5825568c5455601dccee95338a86cabbf52525a64af981f09b2` | `79f61689741a01fd422e58d81e33bc308b9133aa` | not yet on chain |
+| 20 Sep 2026 | `f13169c3e9b2d5825568c5455601dccee95338a86cabbf52525a64af981f09b2` | `79f61689741a01fd422e58d81e33bc308b9133aa` | superseded same day — see below |
+| 20 Sep 2026 | `cfc82f90ac2441ffaedb008e1c164dabe50057d478aeacdd49b6301e08026be7` | `74bf463eaace855f8995cd4b951ed9c1c8b771d0` | not yet on chain |
 
 The 17 Sep root covers 102,866 files, thirty more than the August one and
 forty-one changed. The additions and thirty-eight of the changes are the Russian
@@ -41,6 +42,12 @@ vedabase.cc had been serving them since they were finished. What had never been
 re-run was the Markdown export, so the corpus stopped at canto 4 while English,
 Spanish, Portuguese and Hindi each had ten. The gap surfaced while validating
 the path manifest, when a canto 5 path resolved to nothing.
+
+`f13169c3` stood for a few hours. It was superseded by `cfc82f90` when *Light of
+the Bhāgavata* was assembled in Hindi and added to the corpus — 49 texts that had
+been translated since June but had no canonical file. Neither root has been
+anchored on chain, so the succession costs nothing to correct; both rows stay so
+the sequence stays legible.
 
 One root that appears in no row: `ea5e2562231b8ec90ca4fbe1521ba42649bacc486395d5c856130526dc1eb576`,
 written into `MANIFEST.sha256` at commit `19fee208bb` on 17 Sep and superseded
@@ -229,8 +236,11 @@ Written 20 Sep 2026. Each line is a thing that is true and not yet done; the
 point of listing them is that an archive with a silent gap is worse than one
 with a stated gap.
 
-1. **Anchor the 20 Sep corpus root.** `MANIFEST.sha256` is 15 MB and costs about
-   1.27 USD to publish; the wallet held 0.048 credits when this was written.
+1. **Anchor the 20 Sep corpus root** — `cfc82f90`, commit `74bf463eaa`.
+   `MANIFEST.sha256` is 15 MB and costs about 1.27 USD to publish; the wallet
+   held 0.048 credits when this was written. The 50 Hindi files of *Light of the
+   Bhāgavata* are in the corpus but not yet on chain either; they are small and
+   go up with the same top-up.
 2. **Recompute the package root**, on the machine that holds the whole package.
    See *Package root* above for why it cannot be done anywhere else.
 3. **Republish `PROVENANCE.md` and this file.** Both were edited on 20 Sep. The
