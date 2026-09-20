@@ -9,11 +9,11 @@
 # Comprobarlo por tu cuenta:
 #     python3 scripts/hash_manifest.py --check
 #
-# fecha:    2026-09-20 14:56 UTC
-# commit:   19fee208bb70f72b3a1ae470f052edb2a194f827
-# ficheros: 107201
-# bytes:    797269460
-# root:     f13169c3e9b2d5825568c5455601dccee95338a86cabbf52525a64af981f09b2
+# fecha:    2026-09-20 15:29 UTC
+# commit:   525f1cc51f6b388b845d1b2bd065d52dcb992b02
+# ficheros: 107251
+# bytes:    797843436
+# root:     cfc82f90ac2441ffaedb008e1c164dabe50057d478aeacdd49b6301e08026be7
 #
 efbb9c92ced5131364d184269769070002b90c8128ca19e649df418752c33ea0  corpus/PRINT_ERRATA.md
 05efbda2d92c40aca80e226c59746dd6802bd99fc1f6f3038de77768ad3b4a51  corpus/PROVENANCE.md
@@ -46022,6 +46022,56 @@ c6107bf3324da2e23d7509a4effd0b7a76744b1528f594b90a0103c0c8df2773  corpus/transla
 8fc57bd24af81baec4cedfb666261de557e942e2fc15b6da02971dac9bab4f1a  corpus/translations/hindi/krsna-the-supreme-personality-of-godhead/kb_hi.jsonl
 e37a6cbfc2f649aa97fff2f97decc5d4b5d601a0332de7b66d43fc2090b55308  corpus/translations/hindi/krsna-the-supreme-personality-of-godhead/preface.md
 e820fbf1fd3506bd0acce1742e7269c160923115a713435efff8063f93f95377  corpus/translations/hindi/krsna-the-supreme-personality-of-godhead/words-from-apple.md
+5c725086b59efef8c9d0a7c8786ef35b37d831837b49833a1448080685c6a9f6  corpus/translations/hindi/light-of-the-bhagavata/lob_hi.jsonl
+6b1d3e3b60e7761d60f88ca5734552c6d5638b56f6814f74a30302dbd805897b  corpus/translations/hindi/light-of-the-bhagavata/preface.md
+25f08304e2038f4eaffe46953e02cf29bd020c23a4d34d9ffee2b157a3b56e44  corpus/translations/hindi/light-of-the-bhagavata/text-1.md
+7400e03dd32450dda916afd82d6b0d2f6093c5a04e1f559a60542bef0f26b608  corpus/translations/hindi/light-of-the-bhagavata/text-10.md
+526b16b973c4fd09e6badd5854145340833d80b9fb25dfa595b0018f50194100  corpus/translations/hindi/light-of-the-bhagavata/text-11.md
+cd00fb5709d0a294a3b18a7ee2fce579ad981ac18aec33b1aec4fabf9eafbf95  corpus/translations/hindi/light-of-the-bhagavata/text-12.md
+8c40bbafe1250440ba52350e084934061b2c139087fbc5bff20a128d8ce08e51  corpus/translations/hindi/light-of-the-bhagavata/text-13.md
+81ef993809e1220b13a069d5fec7e7f6475a2a097ea355d1863a9d836e756106  corpus/translations/hindi/light-of-the-bhagavata/text-14.md
+1fa65c650394598e646416efb73cea85ef6ba7299057dbd2f088f63c683da4da  corpus/translations/hindi/light-of-the-bhagavata/text-15.md
+18f1e560be6047c15a9aa08bf637a5833c01795d94f53cc038345fde1b2626af  corpus/translations/hindi/light-of-the-bhagavata/text-16.md
+01261e4f7d264ee286e8d1242852d7f726c09d280129b2879e63fb83cd7fc868  corpus/translations/hindi/light-of-the-bhagavata/text-17.md
+3ad4f1d83d008a16777c8d6b0df98447e5d164af89c4bf3e0a491a2e38aca4cc  corpus/translations/hindi/light-of-the-bhagavata/text-18.md
+d51348592283b7907432f69d49aebc36cae70857c74aeaba488a83e7f64fbd5a  corpus/translations/hindi/light-of-the-bhagavata/text-19.md
+b1039cc2766dde25a9d43a0bc8a842d46a997fdc6c1b8652b968420f91fc6614  corpus/translations/hindi/light-of-the-bhagavata/text-2.md
+b2e19f922d486a8b3429ae59fc6cc5ad8c5c2177349fcf088086c2ab99dfc528  corpus/translations/hindi/light-of-the-bhagavata/text-20.md
+9996a6e32ee0999541d84b4a45345d83a6b543ad290e38585992ee401d58f8fa  corpus/translations/hindi/light-of-the-bhagavata/text-21.md
+0e89b5f3680dddcd7069abbe90aa77bd0dcc28309ce37a2e2838e12272e5c6fa  corpus/translations/hindi/light-of-the-bhagavata/text-22.md
+29a40d5c268333120f0e9a8637d3a41dd0f54584ef06504ebbbb7836f7ba9668  corpus/translations/hindi/light-of-the-bhagavata/text-23.md
+364c83e28659c47e28af8eeeef02ca3d3724398378d6fa2001c7529a186326eb  corpus/translations/hindi/light-of-the-bhagavata/text-24.md
+357b3e0c380a8a59157a37726fe708193f85fe7060c19d213c28097bc6e01fa0  corpus/translations/hindi/light-of-the-bhagavata/text-25.md
+6c79ede9c46efb07cc836d834b7da33c8bc96ea66cc0fa97268dd2c4392fd8b0  corpus/translations/hindi/light-of-the-bhagavata/text-26.md
+e7e2fa3f27665f7bb79b946ff4dd8c1ba194c14d88459c70ea92d8c9c43b5516  corpus/translations/hindi/light-of-the-bhagavata/text-27.md
+03f2fb028dbd3032c9331a55c09bcd56ebee5e2f614acd02caba2076ed4084f3  corpus/translations/hindi/light-of-the-bhagavata/text-28.md
+52ff9bf770a18f898efefef89a03fa618c60f9672e604339df565ea1552b321c  corpus/translations/hindi/light-of-the-bhagavata/text-29.md
+c15f6c113856192d90330240608c75a8127411fe66b38143a0432ef09d38a765  corpus/translations/hindi/light-of-the-bhagavata/text-3.md
+f111a9958d7cb48c0618b78951341bde4c4eceb53c081d1e7d597720af49bdc2  corpus/translations/hindi/light-of-the-bhagavata/text-30.md
+8a0b1eb73cd13264ea53bd038b648f2ce8d5769d417e92f60f2201e9fabf3b22  corpus/translations/hindi/light-of-the-bhagavata/text-31.md
+e038fac228a6c352eb09bdd05cba8759c36fcfcd074147f457bd5d97a3070109  corpus/translations/hindi/light-of-the-bhagavata/text-32.md
+c2900dfabacb62c86e0b79feeb422706ffdf5172960abb73f6f151fb30a33ef2  corpus/translations/hindi/light-of-the-bhagavata/text-33.md
+0ec05cf9a0b5491643c09e5c4302211ea359d4577ef2ac366e9e4013598c7835  corpus/translations/hindi/light-of-the-bhagavata/text-34.md
+de8884b79e1e9feabd3250feb9bd7d35837dcf13cbb03fe2b4fd8ed804fd4d94  corpus/translations/hindi/light-of-the-bhagavata/text-35.md
+b0701b99259e2d1f1258c9f4c8df54827bc94cb0b36856020452b7b3efa14ff8  corpus/translations/hindi/light-of-the-bhagavata/text-36.md
+52f211f3b4a3d7f95194eabf877f22281d21fdeec8c2f3f85a9a1eccc3a4b0fb  corpus/translations/hindi/light-of-the-bhagavata/text-37.md
+c4882696f8e47a7191635b67ac85479ef8b4783690f73ed112c657e456b80b0d  corpus/translations/hindi/light-of-the-bhagavata/text-38.md
+174321450fa0e42642633ec14277b3b2e6689ac2243c91cb065289725ce6251a  corpus/translations/hindi/light-of-the-bhagavata/text-39.md
+f34fc684b6918958c083e4fe3738d9900fa6e2b5a117a2a7f055018653accc29  corpus/translations/hindi/light-of-the-bhagavata/text-4.md
+8e62a93dd4d5d354e7a1447ddb2e32581d975fc9b63b7cca2f00e8b0a4f4a737  corpus/translations/hindi/light-of-the-bhagavata/text-40.md
+f48d33952e7dd1445dc4669b43e6f30623cfdddbb6a77ae3910f4784c4f7c805  corpus/translations/hindi/light-of-the-bhagavata/text-41.md
+a61278e6de2c704fce5a08b3fcb355f4803f5d00d654d327d771c78de593c6a1  corpus/translations/hindi/light-of-the-bhagavata/text-42.md
+b0b06bad0419a810e5c42a6e889d361a21bb131e07abda321030c51f7e5e38db  corpus/translations/hindi/light-of-the-bhagavata/text-43.md
+4fcdaa2d3c57a5c5af58ba49171bac1523fdd08222527db778e94c615fa0c95d  corpus/translations/hindi/light-of-the-bhagavata/text-44.md
+2f5b017bfef9a766aae72b9a11983866377d7768aede8d9686cfeda4b6279a88  corpus/translations/hindi/light-of-the-bhagavata/text-45.md
+bb64e2886db634e59cc01ea1cbe29098c9bbc7bcf5b9d94e0592b8711c2b10b8  corpus/translations/hindi/light-of-the-bhagavata/text-46.md
+5ff54f9df1fdc1416581169dcaf4bad8f010d7d5cb21cad4df9e77ac97cf7979  corpus/translations/hindi/light-of-the-bhagavata/text-47.md
+b64ef5df873718761c8e425f05c5dc74d7e0d16465c21c01ee026822ada0114f  corpus/translations/hindi/light-of-the-bhagavata/text-48.md
+a0ff76f3e940548238267c73ee4ec1b230517fc03420628c71bf2f86fa41034d  corpus/translations/hindi/light-of-the-bhagavata/text-5.md
+ed47a1be73d440ef7d8551db8f408688cdae5128ba779ecaf0caee8a73fd2ba6  corpus/translations/hindi/light-of-the-bhagavata/text-6.md
+fe585238ffa5257b69e5b5a834e0a34741584e41e7911f0b35bb552d36af243f  corpus/translations/hindi/light-of-the-bhagavata/text-7.md
+a7c6181f207949dd220c8baee68e7f5684bfd4ac1370b6caf1c288d0e2ece29c  corpus/translations/hindi/light-of-the-bhagavata/text-8.md
+c7b971e1b42d1cc731c89558a1cc7ae5c31e9580f74f9dd3e418c0084fc06b35  corpus/translations/hindi/light-of-the-bhagavata/text-9.md
 ce033e599bdf1d658a3c1e72f7b434283b6f4396f19aca0685384e98a3f0c03c  corpus/translations/hindi/nectar-of-devotion/chapter-1.md
 52076d26fc0426c2cf2f0e66b74e3168ab1438cb887d53f8fd88da922ab684eb  corpus/translations/hindi/nectar-of-devotion/chapter-10.md
 745bcb1543fee364771c720da04135197f5f7d3abea899267fd680e926d7328a  corpus/translations/hindi/nectar-of-devotion/chapter-11.md
