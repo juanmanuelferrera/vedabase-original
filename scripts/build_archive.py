@@ -47,7 +47,7 @@ EXCLUDE_DIRS = {".git", "__pycache__", "node_modules", "surya-venv", ".venv", "v
 # it stays out of the package and out of the manifest, and is uploaded on its
 # own once the transaction ids are known. See hash_manifest.py for the full
 # reasoning; in short, a file cannot state the hash of a set it belongs to.
-EXCLUDE_FILES = {"ANCHORS.md"}
+EXCLUDE_FILES = {"ANCHORS.md", "PENDIENTES.md"}
 
 # (path in the package, source, extension filter)
 # Section names match the table in PROVENANCE.md — keep them in step.

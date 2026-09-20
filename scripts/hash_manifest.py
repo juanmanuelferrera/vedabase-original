@@ -60,7 +60,10 @@ EXCLUIR_DIRS = {".git", "__pycache__", "node_modules", ".deploy-state"}
 # De ahi la regla: los valores que dependen del manifiesto viven en ANCHORS.md
 # y solo ahi. PROVENANCE.md explica el metodo y no lleva ninguna cifra que
 # cambie, de modo que si puede formar parte de lo que se certifica.
-EXCLUIR_ARCHIVOS = {"ANCHORS.md"}
+# PENDIENTES.md tampoco: es un cuaderno de trabajo, cambia cada vez que se
+# cierra o se abre algo, y no es contenido del archivo. Si entrara, cada nota
+# moveria la raiz del corpus y con ella la del paquete.
+EXCLUIR_ARCHIVOS = {"ANCHORS.md", "PENDIENTES.md"}
 
 
 def sha256(ruta, bloque=1 << 20):
