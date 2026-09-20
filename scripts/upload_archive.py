@@ -93,11 +93,68 @@ EXCLUIR_RUTAS = ()
 ROOT_FILES = {"MANIFEST.sha256": "text/plain;charset=utf-8"}
 
 
-def load_state():
+# The floor guard
+# ---------------
+# The state file is the ONLY record of what is already on chain, and it is local
+# to whichever machine did the uploading. It is not in git — it is 30 MB of
+# churn — so a second machine with an older copy will see thousands of files as
+# pending and upload them all again. They cannot be unpublished, and they cost
+# money. This happened in spirit on 20 Sep 2026: the Mac mini held 107,744
+# entries while the MacBook was still at the September figure.
+#
+# So the repository carries the floor, the count is checked against it, and a
+# state file that knows about fewer files than the floor is treated as stale.
+# Raise the floor from the machine that did the upload:
+#     python3 scripts/upload_archive.py --sellar-suelo
+SUELO = os.path.join(os.path.dirname(os.path.abspath(__file__)), "UPLOAD-STATE.suelo")
+
+
+def lee_suelo():
+    if not os.path.isfile(SUELO):
+        return 0, "(sin sellar)"
+    with open(SUELO, encoding="utf-8") as f:
+        d = json.load(f)
+    return d.get("subidos", 0), d.get("sellado", "?")
+
+
+def load_state(comprobar=True):
     if os.path.isfile(STATE):
         with open(STATE, encoding="utf-8") as f:
-            return json.load(f)
-    return {"folders": {}, "uploaded": {}, "failed": {}, "started": now()}
+            st = json.load(f)
+    else:
+        st = {"folders": {}, "uploaded": {}, "failed": {}, "started": now()}
+
+    suelo, sellado = lee_suelo()
+    n = len(st["uploaded"])
+    if comprobar and n < suelo:
+        sys.exit(
+            f"\nABORTADO: este fichero de estado esta ATRASADO.\n\n"
+            f"  {STATE}\n"
+            f"  conoce {n:,} ficheros subidos\n"
+            f"  y el repositorio dice que hay al menos {suelo:,} (sellado el {sellado})\n\n"
+            f"Faltan {suelo - n:,}. Si se sigue, se volverian a subir ficheros que YA\n"
+            f"estan en la cadena: no se pueden borrar y se pagan otra vez.\n\n"
+            f"Trae el fichero de estado de la maquina que hizo la ultima subida y\n"
+            f"vuelve a intentarlo. Si de verdad quieres seguir con este, --sin-suelo.\n")
+    return st
+
+
+def sella_suelo():
+    """Record the current count in the repository, so another machine with an
+    older state file refuses to run. Commit the result."""
+    st = load_state(comprobar=False)
+    n = len(st["uploaded"])
+    suelo, _ = lee_suelo()
+    if n < suelo:
+        sys.exit(f"ABORTADO: no se baja el suelo. Local {n:,} < sellado {suelo:,}.")
+    with open(SUELO, "w", encoding="utf-8") as f:
+        json.dump({"subidos": n, "sellado": now(),
+                   "nota": "Minimo de ficheros que el estado debe conocer. Ver SUELO en upload_archive.py."},
+                  f, indent=2)
+        f.write("\n")
+    print(f"suelo sellado en {n:,} ficheros -> {os.path.relpath(SUELO)}")
+    print("Ahora hazle commit, para que la otra maquina lo reciba con git pull.")
+    return 0
 
 
 def save_state(st):
@@ -337,6 +394,11 @@ def sube_raiz(st, args):
 def main():
     ap = argparse.ArgumentParser(description="Resumable upload of the archive.")
     ap.add_argument("--dry-run", action="store_true")
+    ap.add_argument("--sellar-suelo", action="store_true",
+                    help="anota el recuento actual en el repositorio y sal. Se ejecuta "
+                         "en la maquina que acaba de subir, y se le hace commit")
+    ap.add_argument("--sin-suelo", action="store_true",
+                    help="salta la comprobacion de estado atrasado. Solo si sabes por que")
     ap.add_argument("--only", help="upload just this section")
     ap.add_argument("--batch", type=int, default=1000,
                     help="max files per CLI invocation (default 1000, above the "
@@ -346,7 +408,10 @@ def main():
                          "work lost to a failure and keeps batches inside the timeout")
     args = ap.parse_args()
 
-    st = load_state()
+    if args.sellar_suelo:
+        return sella_suelo()
+
+    st = load_state(comprobar=not args.sin_suelo)
     hechos = len(st["uploaded"])
     pend_files = pend_bytes = 0
     t0 = time.time()
@@ -418,6 +483,15 @@ def main():
         return 0
 
     print(f"\nCompletado. {len(st['uploaded'])} ficheros registrados en {STATE}")
+
+    # Sin esto el suelo se queda viejo por olvido, y la proteccion que da deja de
+    # cubrir lo que se acaba de subir.
+    suelo, _ = lee_suelo()
+    if len(st["uploaded"]) > suelo:
+        print(f"\nEl suelo del repositorio esta en {suelo:,} y esta maquina va por "
+              f"{len(st['uploaded']):,}.\n"
+              f"  python3 scripts/upload_archive.py --sellar-suelo\n"
+              f"y hazle commit, o la otra maquina no sabra de estos ficheros.")
     return 0
 
 
