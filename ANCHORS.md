@@ -98,6 +98,7 @@ root covers the files that were published as of its date, and only those.
 |---|---|---|
 | 29 Aug 2026 | `51c0318a5eb1857bc4dac99c9e3a1118ab57e9241ffd18bab826409056fae988` | `ar://81Fo6FX9AR4RcleArZt0VwFBujN_JyfAALcvsMQ7uoA` |
 | 17 Sep 2026 | `37faf5b420ec6717d081f95852b6b12a192f7ad46ecfd823dff962298f49c464` | `ar://llpmiWxk1pGKskJ5HcOlP5kVevSy44qUCo6sGTIGIsM` |
+| 20 Sep 2026 | `9241a6c369eab028166c03c87dfa3a9cf3049b8273575727ccb84b540897a083` | `ar://xh7SBD9sxCu9Kw1mR7jE7I7CK2pQJfJJNyddHKOGMxs` |
 
 The 17 Sep package root covers 103,481 files: the 86,995 of August, the 16,361
 Russian files uploaded that day, the 124 index pages regenerated to include them,
@@ -114,21 +115,46 @@ the package root did not move when the Russian files on disk were replaced: they
 were never being hashed. The third, because the index still counted 102 pages
 when it should have counted 124.
 
-**The 17 Sep package root no longer describes the archive.** On 20 Sep the
-4,335 Russian Bhāgavatam files above were uploaded, along with 222 files that
-had never reached the chain at all, 8 re-uploaded with corrected internal links,
-50 for *Light of the Bhāgavata* in Hindi, 342 corrections to Portuguese, Hindi
-and Spanish, and the repair of the 22 Russian ledgers. The archive now holds
-107,868 published files, and no package root has been computed over them yet.
+**The 20 Sep package root covers 107,868 files** — the 103,481 of September
+plus everything added that day: 4,335 Russian Bhāgavatam files, 222 that had
+never reached the chain, 8 re-uploaded with corrected internal links, 50 for
+*Light of the Bhāgavata* in Hindi, 342 corrections to Portuguese, Hindi and
+Spanish, and the repair of the 22 Russian ledgers.
 
-It cannot be computed on the machine this was done from. That machine holds
-`corpus`, `_index` and the manifest, and nothing else: the 577 files of the
-other sections — 71 scans, 43 OCR containers, 107 correction ledgers, 208 audit
-ledgers, 8 reports, 137 tools, 3 reference standards — are on chain and in the
-path manifest, but are not on its disk. Running `--manifest-only` there would
-produce a root over 107,241 files and present it as a root over 107,868, which
-is precisely the kind of figure this file exists to stop. It has to be recomputed
-where the whole package lives.
+**It was computed twice, and the first answer was wrong.** `build_archive.py`
+assembles `ocr-surya` — the OCR of every page as a loose `.txt`, 24,035 files.
+What is published is not those: it is the 43 `.tar` containers that `pack_ocr.py`
+makes from them, and `pack_ocr.py` runs *after* assembly. So a full run leaves in
+the package 24,035 files that are on nobody's chain, and then prints *"Next:
+upload it"*. The first root, `7cda6819…`, covered 131,704 files and would have
+been anchored as a root over the archive. It was caught by comparing the count
+against the path manifest: 131,704 against 107,868.
+
+The count is the check. Moving `ocr-surya` aside and recomputing with
+`--manifest-only` gave `9241a6c3…` over exactly 107,868 — and the two lists,
+built on different machines by different routes, one from the files on disk and
+one from the uploader's record of what went up, agree file for file. They differ
+by two entries, both explained: the package manifest lists `_index/index.html`
+where the path manifest serves it as the root page, and the path manifest lists
+`MANIFEST.sha256`, which the package manifest cannot list because it cannot
+contain its own hash.
+
+**A note for the next time.** Nothing in the code says to set `ocr-surya` aside,
+and the script's closing line invites you to upload what it just built. Anyone
+following it without checking the count will anchor a root over a fifth more
+files than the archive holds. `build_archive.py` should exclude `ocr-surya` from
+the manifest, or refuse when it finds it beside `ocr-packed`.
+
+**It cannot be computed on just any machine**, and for a while it could not be
+computed at all. The uploads of 20 Sep were made from the Mac mini, which holds
+`corpus`, `corrections` and `_index` and nothing else: the 2 GB of scans, the OCR
+containers, the audit ledgers, the reports and the tools are on chain and in the
+path manifest but not on its disk. A `--manifest-only` run there produced a root
+over 21,235 files — and, because it writes in place, overwrote the good local
+copy of `MANIFEST.sha256`, which had to be fetched back from the chain. The
+sources for those sections live on the other machine, so that is where the
+package must be assembled: `git pull`, then a full run, so that the day's work
+arrives with the pull and the scans are already there.
 
 Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
 
@@ -187,17 +213,17 @@ them any ArFS-aware tool can rebuild the tree without ArDrive's involvement.
 
 ### The way in
 
-**https://arweave.net/Qk-eKl6ZXxE7NtRDfb2Z-9rAuaoCaGapg6oODpzPxbE**
+**https://arweave.net/RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk**
 
 An Arweave path manifest over the whole archive: 107,868 paths, served by any
 gateway, needing no account and no application. The address above returns a front
 page; append a path and you get the file:
 
-    .../Qk-eKl6ZXxE7NtRDfb2Z-9rAuaoCaGapg6oODpzPxbE/corpus/isopanisad/iso-1.md
-    .../Qk-eKl6ZXxE7NtRDfb2Z-9rAuaoCaGapg6oODpzPxbE/scans/adi1.pdf
-    .../Qk-eKl6ZXxE7NtRDfb2Z-9rAuaoCaGapg6oODpzPxbE/MANIFEST.sha256
+    .../RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk/corpus/isopanisad/iso-1.md
+    .../RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk/scans/adi1.pdf
+    .../RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk/MANIFEST.sha256
 
-    .../Qk-eKl6ZXxE7NtRDfb2Z-9rAuaoCaGapg6oODpzPxbE/corpus/translations/russian/srimad-bhagavatam/canto-10/chapter-01/sb-10.1.1.md
+    .../RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk/corpus/translations/russian/srimad-bhagavatam/canto-10/chapter-01/sb-10.1.1.md
 
 **This manifest was built by hand, and the reason is worth recording.**
 `ardrive create-manifest` enumerates folders through `/tx/<id>`, and that
@@ -245,18 +271,28 @@ still on chain would be the one thing this archive exists to prevent.
 | 20 Sep 2026 | `ar://nz3TsdzdXGxXDImC6qDis4IcLff1GLsq-RNdw3brJYE` | The fourth path manifest, 107,816 paths | Right for 107,808 paths and wrong for 8. Those 8 had been re-uploaded with corrected internal links, but the builder read their transaction ids from the upload state file, which still held the superseded ones. Found by fetching them back through the manifest and comparing against disk, which is the only check that would have caught it. |
 | 20 Sep 2026 | `ar://qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s` | The fifth path manifest, 107,816 paths | Correct when published. Superseded hours later by 50 Hindi files and 343 re-uploads carrying corrected text; a manifest names transactions, so new content means a new manifest. |
 | 20 Sep 2026 | `ar://_XwhslATEbSsiHRcbV8t3aFN5rrHr8UGoQUEFVZXeAA` | The sixth path manifest, 107,866 paths | Superseded the same evening by the repair of the 22 Russian `.jsonl`: new content type, current text, two ledgers that had never been published. |
+| 20 Sep 2026 | `ar://Qk-eKl6ZXxE7NtRDfb2Z-9rAuaoCaGapg6oODpzPxbE` | The seventh path manifest, 107,868 paths | Right in every path but one: `/MANIFEST.sha256` still resolved to the 17 Sep package manifest, because it was built before the 20 Sep one existed. |
+| 20 Sep 2026 | package root `7cda6819…f150a5` | A package root over 131,704 files | Never published. It counted the 24,035 loose OCR pages that `pack_ocr.py` replaces with 43 containers, so it described a package a fifth larger than the archive. Named here because it was printed, and a root that was printed can be quoted. |
 | 29 Aug 2026 | corpus root `8bcaa67e…f77a221d` | The corpus root anchored earlier that day | Superseded within hours: the README gained the section on how to use the manifest, and the README is inside the manifest. That is exactly the drift the commit column now prevents. |
 
-## Pending
+## Nothing pending
 
-Written 20 Sep 2026, revised the same evening. Each line is a thing that is true
-and not yet done; the point of listing them is that an archive with a silent gap
-is worse than one with a stated gap.
+As of the evening of 20 Sep 2026, every figure in this file describes what is
+published. The corpus root, the package root and the path manifest were all
+computed over the same 107,868 files and agree with each other.
 
-1. **Recompute the package root.** The 17 Sep root covered 103,481 files; the
-   archive now holds 107,868. This must be done on the machine that holds the
-   whole package — see *Package root* above for why it cannot be done anywhere
-   else. It is the last figure in this file that does not describe what stands.
+That was not true for most of the day, and the list that stood here is worth
+keeping in one line: the Russian Bhāgavatam was four cantos short, 222 files had
+never reached the chain, eight served superseded text, the Russian ledgers were
+in the wrong section with the wrong content type and an older text, two of them
+were missing outright, *Light of the Bhāgavata* in Hindi had no canonical file,
+and the first package root counted a fifth too many files. Each was found by a
+count that failed to match another count. None was found by reading the code.
+
+One thing is deliberately not done: `build_archive.py` still assembles
+`ocr-surya` and still invites you to upload the result. See the note under
+*Package root*. It is a change to the code, not to the archive, and it belongs in
+a commit of its own rather than at the end of a long night.
 
 ### The Russian `.jsonl` files were published wrong, and were repaired
 
