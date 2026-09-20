@@ -214,17 +214,17 @@ them any ArFS-aware tool can rebuild the tree without ArDrive's involvement.
 
 ### The way in
 
-**https://arweave.net/RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk**
+**https://arweave.net/CTxzlISL968SW-HokI6ctSFhs8pJYdshnHXTYKU_ooc**
 
-An Arweave path manifest over the whole archive: 107,868 paths, served by any
+An Arweave path manifest over the whole archive: 107,889 paths, served by any
 gateway, needing no account and no application. The address above returns a front
 page; append a path and you get the file:
 
-    .../RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk/corpus/isopanisad/iso-1.md
-    .../RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk/scans/adi1.pdf
-    .../RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk/MANIFEST.sha256
+    .../CTxzlISL968SW-HokI6ctSFhs8pJYdshnHXTYKU_ooc/corpus/isopanisad/iso-1.md
+    .../CTxzlISL968SW-HokI6ctSFhs8pJYdshnHXTYKU_ooc/scans/adi1.pdf
+    .../CTxzlISL968SW-HokI6ctSFhs8pJYdshnHXTYKU_ooc/MANIFEST.sha256
 
-    .../RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk/corpus/translations/russian/srimad-bhagavatam/canto-10/chapter-01/sb-10.1.1.md
+    .../CTxzlISL968SW-HokI6ctSFhs8pJYdshnHXTYKU_ooc/corpus/translations/russian/srimad-bhagavatam/canto-10/chapter-01/sb-10.1.1.md
 
 **This manifest was built by hand, and the reason is worth recording.**
 `ardrive create-manifest` enumerates folders through `/tx/<id>`, and that
@@ -274,18 +274,11 @@ still on chain would be the one thing this archive exists to prevent.
 | 20 Sep 2026 | `ar://_XwhslATEbSsiHRcbV8t3aFN5rrHr8UGoQUEFVZXeAA` | The sixth path manifest, 107,866 paths | Superseded the same evening by the repair of the 22 Russian `.jsonl`: new content type, current text, two ledgers that had never been published. |
 | 20 Sep 2026 | `ar://Qk-eKl6ZXxE7NtRDfb2Z-9rAuaoCaGapg6oODpzPxbE` | The seventh path manifest, 107,868 paths | Right in every path but one: `/MANIFEST.sha256` still resolved to the 17 Sep package manifest, because it was built before the 20 Sep one existed. |
 | 20 Sep 2026 | package root `7cda6819…f150a5` | A package root over 131,704 files | Never published. It counted the 24,035 loose OCR pages that `pack_ocr.py` replaces with 43 containers, so it described a package a fifth larger than the archive. Named here because it was printed, and a root that was printed can be quoted. |
+| 20 Sep 2026 | `ar://RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk` | The eighth path manifest, 107,868 paths | Its 124 index pages pointed at **August revisions**. ArFS keeps every revision of a file, and the recovery that rebuilt this manifest took whichever one it happened to fetch rather than the newest — 102 of 124 were stale. The front page it served said 86,996 files and carried no link to Russian at all, so the archive could be entered and the Russian could not be found by walking. The files were never the problem; the catalogue was. |
+| 20 Sep 2026 | `ar://1Jo5lF7TKPVULlCBt5BaQTtwhA-acAZn91ir2p0ccgA` | The ninth path manifest, 107,887 paths | Index pages now the right revisions, but those pages were themselves the 17 Sep build: 103,357 files, no *Light of the Bhāgavata* or *Life Comes from Life* in Hindi, and a Śrīmad-Bhāgavatam page listing 3,930 Russian verses instead of 8,265. |
 | 29 Aug 2026 | corpus root `8bcaa67e…f77a221d` | The corpus root anchored earlier that day | Superseded within hours: the README gained the section on how to use the manifest, and the README is inside the manifest. That is exactly the drift the commit column now prevents. |
 
-## One thing pending
-
-`39f312ce` adds 19 files: *Life Comes from Life* in Hindi, the last of the 22
-books that language was missing. They are **on chain but not yet in the path
-manifest**, which was published before them. Republishing it costs 0.1932
-credits and the wallet holds 0.0765, so the manifest names 107,868 paths while
-the archive holds 107,887 files. Those 19 are reachable by transaction id and
-not by path until it is republished — about 1.50 USD.
-
-Everything else below was true when written and has been done since.
+## Nothing pending
 
 ## What was pending, and is not
 
@@ -306,6 +299,22 @@ outright if it finds `ocr-surya` without `ocr-packed` — the state that means
 `pack_ocr.py` has not run and the root would describe a package that is not the
 archive. Tested in all three situations, including a machine with no `ocr-surya`,
 which had to keep behaving exactly as before.
+
+`build_index.py` can take its file list from a published path manifest
+(`--desde-manifiesto`) instead of walking the disk. The index has to name every
+file in the archive, and no one machine necessarily holds every file: the one
+that uploads may keep only the corpus while the scans and the OCR live on
+another. Walking the disk there indexes a fifth of the archive and says nothing
+about the rest — the same trap as the package root, met a third time.
+
+**Two things about the index were wrong and are worth stating.** Its pages were
+published in September but the manifest pointed at August revisions of them, so
+the front page named 86,996 files and linked to no Russian book; and the pages
+themselves were a build old, so neither Hindi book added on 20 Sep appeared and
+the Russian Bhāgavatam page listed 3,930 verses where the archive holds 8,265.
+Both were found by a reader's question — whether that address was the way in to
+the Russian books — and not by any check in this file. Everything was published
+and permanent throughout; what did not work was walking in and finding it.
 
 `upload_archive.py` now refuses to run with a state file that knows about fewer
 files than the repository's floor (`scripts/UPLOAD-STATE.suelo`). The state file

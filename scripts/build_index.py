@@ -82,7 +82,32 @@ def pagina(titulo, cuerpo, atras=True):
     return "\n".join(v)
 
 
+def rutas_del_manifiesto(ruta_json):
+    """Take the file list from a published path manifest instead of from disk.
+
+    The index has to name every file in the archive, and no single machine
+    necessarily holds every file: the one that uploads may keep only the corpus,
+    while the scans and the OCR live on another. Walking the disk there produces
+    an index over a fifth of the archive and says nothing about the rest. The
+    manifest is the authoritative list of what is published, so it is the right
+    thing to index. Build it with the same script that publishes it.
+    """
+    import json
+    with open(ruta_json, encoding="utf-8") as f:
+        return list(json.load(f)["paths"])
+
+
 def main():
+    if "--desde-manifiesto" in sys.argv:
+        origen = sys.argv[sys.argv.index("--desde-manifiesto") + 1]
+        crudas = rutas_del_manifiesto(origen)
+        print(f"lista tomada del manifiesto: {len(crudas):,} rutas")
+        rutas = [r for r in crudas
+                 if not r.startswith(FUERA) and r != "index.html"
+                 and not r.split("/")[-1].startswith(("UPLOAD-STATE", "VERIFY-CHAIN"))
+                 and r.split("/")[-1] not in ("upload.log", "verify.log")]
+        return escribe(sorted(rutas))
+
     rutas = []
     for dp, dn, fn in os.walk(ARCHIVE):
         for f in fn:
@@ -94,7 +119,10 @@ def main():
                 continue
             rutas.append(rel)
     rutas.sort()
+    return escribe(rutas)
 
+
+def escribe(rutas):
     grupos = defaultdict(list)
     for r in rutas:
         grupos[grupo(r)].append(r)
