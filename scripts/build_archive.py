@@ -158,9 +158,31 @@ def escribe_manifiesto(dest):
     # briefly certified as archive contents.
     volatiles = {"MANIFEST.sha256", "upload.log", "verify.log"} | EXCLUDE_FILES
     prefijos_volatiles = ("UPLOAD-STATE", "VERIFY-CHAIN")
+
+    # ocr-surya is assembled but NOT published: pack_ocr.py turns its 24,035
+    # loose page files into the 43 .tar containers of ocr-packed, and it runs
+    # after assembly. A manifest that counted both would describe a package a
+    # fifth larger than the archive. On 20 Sep 2026 that manifest was produced —
+    # root 7cda6819 over 131,704 files — and was one step from being anchored as
+    # a root over the archive. It was caught by comparing the count against the
+    # path manifest, which is a check nothing in this script performed.
+    surya = os.path.join(dest, "ocr-surya")
+    packed = os.path.join(dest, "ocr-packed")
+    if os.path.isdir(surya):
+        n_surya = sum(len(fs) for _, _, fs in os.walk(surya))
+        if os.path.isdir(packed):
+            print(f"  omitiendo ocr-surya ({n_surya:,} ficheros sueltos): lo publicado "
+                  f"son los contenedores de ocr-packed")
+        else:
+            sys.exit(
+                f"\nABORTADO: el paquete tiene ocr-surya ({n_surya:,} ficheros) y NO tiene\n"
+                f"ocr-packed. Lo que se publica son los contenedores, no las paginas\n"
+                f"sueltas. Ejecuta scripts/pack_ocr.py antes de calcular el manifiesto,\n"
+                f"o el root describira un paquete que no es el archivo.\n")
+
     entries = []
     for dirpath, dirnames, filenames in os.walk(dest):
-        dirnames[:] = [d for d in dirnames if d not in EXCLUDE_DIRS]
+        dirnames[:] = [d for d in dirnames if d not in EXCLUDE_DIRS and d != "ocr-surya"]
         for n in sorted(filenames):
             if n in volatiles or n.startswith(".") or n.startswith(prefijos_volatiles):
                 continue
