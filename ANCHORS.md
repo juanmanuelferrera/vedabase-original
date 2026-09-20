@@ -24,7 +24,8 @@ corrections applied to it, 102,836 files.
 | 29 Aug 2026 | `0c8523c221b02001d918ca9bb17d81f4d138e10580ec2820992281d89a38235d` | `0b1142633040cc5c2effeac0b25e1e38e8ea13dd` | this file |
 | 17 Sep 2026 | `42e78565f7e05bc5d0da6ded9a399669b421b9bd7a44b6bf44141601d7f26b37` | `cab11a0318dff52acb070b99e9d00d530636ab6b` | this file |
 | 20 Sep 2026 | `f13169c3e9b2d5825568c5455601dccee95338a86cabbf52525a64af981f09b2` | `79f61689741a01fd422e58d81e33bc308b9133aa` | superseded same day — see below |
-| 20 Sep 2026 | `cfc82f90ac2441ffaedb008e1c164dabe50057d478aeacdd49b6301e08026be7` | `74bf463eaace855f8995cd4b951ed9c1c8b771d0` | not yet on chain |
+| 20 Sep 2026 | `cfc82f90ac2441ffaedb008e1c164dabe50057d478aeacdd49b6301e08026be7` | `74bf463eaace855f8995cd4b951ed9c1c8b771d0` | superseded same day |
+| 20 Sep 2026 | `71e4874b0ca2cd12ed04d773385518a2a07838fdbfe9009736655c80ff0986be` | `2648cd44f7a67f93376597d0ca8228d346f5a397` | this file |
 
 The 17 Sep root covers 102,866 files, thirty more than the August one and
 forty-one changed. The additions and thirty-eight of the changes are the Russian
@@ -42,6 +43,16 @@ vedabase.cc had been serving them since they were finished. What had never been
 re-run was the Markdown export, so the corpus stopped at canto 4 while English,
 Spanish, Portuguese and Hindi each had ten. The gap surfaced while validating
 the path manifest, when a canto 5 path resolved to nothing.
+
+Three roots were written on 20 Sep and only the last is anchored. `f13169c3`
+covered the Russian Bhāgavatam; `cfc82f90` added *Light of the Bhāgavata* in
+Hindi, 49 texts translated since June that had no canonical file; `71e4874b`
+adds 342 corrections to Portuguese, Hindi and Spanish — the chapter-end colophon
+restored in 328 Portuguese files, and a stray `*Sinônimos` line removed from
+inside the synonyms field, where it left the italics open and bleeding into the
+rest of the block. Only `71e4874b` is on chain. The intermediate two are named
+because a reader checking out those commits will compute them, and an
+unexplained root is the thing this file exists to prevent.
 
 `f13169c3` stood for a few hours. It was superseded by `cfc82f90` when *Light of
 the Bhāgavata* was assembled in Hindi and added to the corpus — 49 texts that had
@@ -124,21 +135,22 @@ Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
 
 | Piece | Files |
 |---|---:|
-| corpus — English, Spanish, Portuguese, Hindi | 86,418 |
+| corpus — English, Spanish, Portuguese, Hindi | 86,467 |
 | corpus — Russian, all 22 books | 20,696 |
 | scans, 71 PDFs of the printed books | 71 |
 | OCR containers, one `.tar` per book per engine | 43 |
-| correction ledgers | 107 |
+| correction ledgers | 108 |
 | audit ledger | 208 |
 | reports | 8 |
 | tools | 137 |
 | reference standards | 3 |
 | index pages | 124 |
 | manifest | 1 |
-| **published in total** | **107,816** |
+| **published in total** | **107,866** |
 
 Counted from the path manifest of 20 Sep 2026, which is the only list that
-covers every published file. An earlier version of this table said the Russian
+covers every published file. The 50 added since the previous count are *Light of
+the Bhāgavata* in Hindi: 49 texts and one correction ledger. An earlier version of this table said the Russian
 translation was not published, and went on saying it after the 17 Sep row above
 recorded that it had been — the two statements sat three paragraphs apart. What
 `PROVENANCE.md` has to say about the Russian is not that it is absent but that
@@ -172,17 +184,17 @@ them any ArFS-aware tool can rebuild the tree without ArDrive's involvement.
 
 ### The way in
 
-**https://arweave.net/qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s**
+**https://arweave.net/_XwhslATEbSsiHRcbV8t3aFN5rrHr8UGoQUEFVZXeAA**
 
-An Arweave path manifest over the whole archive: 107,816 paths, served by any
+An Arweave path manifest over the whole archive: 107,866 paths, served by any
 gateway, needing no account and no application. The address above returns a front
 page; append a path and you get the file:
 
-    .../qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s/corpus/isopanisad/iso-1.md
-    .../qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s/scans/adi1.pdf
-    .../qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s/MANIFEST.sha256
+    .../_XwhslATEbSsiHRcbV8t3aFN5rrHr8UGoQUEFVZXeAA/corpus/isopanisad/iso-1.md
+    .../_XwhslATEbSsiHRcbV8t3aFN5rrHr8UGoQUEFVZXeAA/scans/adi1.pdf
+    .../_XwhslATEbSsiHRcbV8t3aFN5rrHr8UGoQUEFVZXeAA/MANIFEST.sha256
 
-    .../qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s/corpus/translations/russian/srimad-bhagavatam/canto-10/chapter-01/sb-10.1.1.md
+    .../_XwhslATEbSsiHRcbV8t3aFN5rrHr8UGoQUEFVZXeAA/corpus/translations/russian/srimad-bhagavatam/canto-10/chapter-01/sb-10.1.1.md
 
 **This manifest was built by hand, and the reason is worth recording.**
 `ardrive create-manifest` enumerates folders through `/tx/<id>`, and that
@@ -228,24 +240,51 @@ still on chain would be the one thing this archive exists to prevent.
 | 28 Aug 2026 | `ar://UL6GCZ4-o51WCJHfQb9ZLrv0NAJAVSiQNB9NiupFql8` | `PROVENANCE.md` | Did not yet record the six missing files, nor the warning about single-gateway checks. |
 | 29 Aug 2026 | `ar://S_KxoVfwKsJqKbHTVbcFdRdYhrb_G2TX_hSD1UBvwFo` | The third path manifest, 88,709 paths | It predates the Russian translation entirely, and it predates the 222 files that were later found never to have reached the chain. Correct for what existed when it was written; it describes an archive a fifth smaller than the one that stands. |
 | 20 Sep 2026 | `ar://nz3TsdzdXGxXDImC6qDis4IcLff1GLsq-RNdw3brJYE` | The fourth path manifest, 107,816 paths | Right for 107,808 paths and wrong for 8. Those 8 had been re-uploaded with corrected internal links, but the builder read their transaction ids from the upload state file, which still held the superseded ones. Found by fetching them back through the manifest and comparing against disk, which is the only check that would have caught it. |
+| 20 Sep 2026 | `ar://qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s` | The fifth path manifest, 107,816 paths | Correct when published. Superseded hours later by 50 Hindi files and 343 re-uploads carrying corrected text; a manifest names transactions, so new content means a new manifest. |
 | 29 Aug 2026 | corpus root `8bcaa67e…f77a221d` | The corpus root anchored earlier that day | Superseded within hours: the README gained the section on how to use the manifest, and the README is inside the manifest. That is exactly the drift the commit column now prevents. |
 
 ## Pending
 
-Written 20 Sep 2026. Each line is a thing that is true and not yet done; the
-point of listing them is that an archive with a silent gap is worse than one
-with a stated gap.
+Written 20 Sep 2026, revised the same evening. Each line is a thing that is true
+and not yet done; the point of listing them is that an archive with a silent gap
+is worse than one with a stated gap.
 
-1. **Anchor the 20 Sep corpus root** — `cfc82f90`, commit `74bf463eaa`.
-   `MANIFEST.sha256` is 15 MB and costs about 1.27 USD to publish; the wallet
-   held 0.048 credits when this was written. The 50 Hindi files of *Light of the
-   Bhāgavata* are in the corpus but not yet on chain either; they are small and
-   go up with the same top-up.
-2. **Recompute the package root**, on the machine that holds the whole package.
-   See *Package root* above for why it cannot be done anywhere else.
-3. **Republish `PROVENANCE.md` and this file.** Both were edited on 20 Sep. The
-   copies on chain are the 17 Sep ones, and this file's own entry below still
-   addresses that older copy.
+1. **Recompute the package root.** The 17 Sep root covered 103,481 files; the
+   archive now holds 107,866. This must be done on the machine that holds the
+   whole package — see *Package root* above for why it cannot be done anywhere
+   else. It is the last figure in this file that does not describe what stands.
+
+### The Russian `.jsonl` files are published twice, and neither copy is clean
+
+`build_archive.py` splits the same source tree by extension: `corpus` takes the
+`.md`, `corrections` takes the `.jsonl`, and they get different content types
+because, as `PROVENANCE.md` says, a content type on Arweave cannot be corrected
+afterwards — only replaced.
+
+For English, Spanish, Portuguese and Hindi that is what happened. For Russian,
+two things went wrong on 17 Sep and both were found on 20 Sep:
+
+1. **22 Russian `.jsonl` were uploaded under `corpus/`**, where by that rule no
+   `.jsonl` belongs, and declared `text/markdown;charset=utf-8`.
+2. **The 20 under `corrections/` carry an older text.** They render the Sanskrit
+   in Latin IAST — `dehī nityam avadhyo` — where the published Russian, the
+   working repository and the `corpus/` copy all render it in Cyrillic
+   transliteration, `дехӣ нитйам авадхйо`. Checked against vedabase.cc: the
+   Cyrillic is what is served. They are also declared `text/markdown`.
+
+So the current Russian text is on chain, in the wrong section with the wrong
+content type, and an older Russian text is on chain in the right section, also
+with the wrong content type. Two books, `krp_ru.jsonl` and `tqk_ru.jsonl`, exist
+only in the `corpus/` copy.
+
+None of this touches the 20,674 per-verse `.md` files, which are correct in
+section, content type and text — that is what the path manifest serves and what
+a reader actually reads. What is wrong is the aggregate file, twice.
+
+Putting it right means re-uploading 22 files, 61.8 MB, 0.8055 credits — about
+6.03 USD. The wallet held 0.790 when this was written, 0.0155 short. It is
+written down rather than fixed, which is the rule this file follows: an archive
+with a stated defect is worth more than one with a silent one.
 
 ### A known defect, stated rather than quietly fixed
 
