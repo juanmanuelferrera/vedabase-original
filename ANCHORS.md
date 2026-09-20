@@ -100,6 +100,7 @@ root covers the files that were published as of its date, and only those.
 | 29 Aug 2026 | `51c0318a5eb1857bc4dac99c9e3a1118ab57e9241ffd18bab826409056fae988` | `ar://81Fo6FX9AR4RcleArZt0VwFBujN_JyfAALcvsMQ7uoA` |
 | 17 Sep 2026 | `37faf5b420ec6717d081f95852b6b12a192f7ad46ecfd823dff962298f49c464` | `ar://llpmiWxk1pGKskJ5HcOlP5kVevSy44qUCo6sGTIGIsM` |
 | 20 Sep 2026 | `9241a6c369eab028166c03c87dfa3a9cf3049b8273575727ccb84b540897a083` | `ar://xh7SBD9sxCu9Kw1mR7jE7I7CK2pQJfJJNyddHKOGMxs` |
+| 20 Sep 2026 | `a17bf521de9199073e8192648190d29b06ac969a93e2dc72fe25d77e1bd89ab8` | `ar://YGegYnks9qutpbakGMfLDjJy-ia68GB_d5qM86TiOVQ` |
 
 The 17 Sep package root covers 103,481 files: the 86,995 of August, the 16,361
 Russian files uploaded that day, the 124 index pages regenerated to include them,
@@ -215,17 +216,17 @@ them any ArFS-aware tool can rebuild the tree without ArDrive's involvement.
 
 ### The way in
 
-**https://arweave.net/CTxzlISL968SW-HokI6ctSFhs8pJYdshnHXTYKU_ooc**
+**https://arweave.net/MQPpISw9sPH2UUWgTbe18QWLMu58LVmVbirN9R91zMM**
 
 An Arweave path manifest over the whole archive: 107,889 paths, served by any
 gateway, needing no account and no application. The address above returns a front
 page; append a path and you get the file:
 
-    .../CTxzlISL968SW-HokI6ctSFhs8pJYdshnHXTYKU_ooc/corpus/isopanisad/iso-1.md
-    .../CTxzlISL968SW-HokI6ctSFhs8pJYdshnHXTYKU_ooc/scans/adi1.pdf
-    .../CTxzlISL968SW-HokI6ctSFhs8pJYdshnHXTYKU_ooc/MANIFEST.sha256
+    .../MQPpISw9sPH2UUWgTbe18QWLMu58LVmVbirN9R91zMM/corpus/isopanisad/iso-1.md
+    .../MQPpISw9sPH2UUWgTbe18QWLMu58LVmVbirN9R91zMM/scans/adi1.pdf
+    .../MQPpISw9sPH2UUWgTbe18QWLMu58LVmVbirN9R91zMM/MANIFEST.sha256
 
-    .../CTxzlISL968SW-HokI6ctSFhs8pJYdshnHXTYKU_ooc/corpus/translations/russian/srimad-bhagavatam/canto-10/chapter-01/sb-10.1.1.md
+    .../MQPpISw9sPH2UUWgTbe18QWLMu58LVmVbirN9R91zMM/corpus/translations/russian/srimad-bhagavatam/canto-10/chapter-01/sb-10.1.1.md
 
 **This manifest was built by hand, and the reason is worth recording.**
 `ardrive create-manifest` enumerates folders through `/tx/<id>`, and that
@@ -277,25 +278,46 @@ still on chain would be the one thing this archive exists to prevent.
 | 20 Sep 2026 | package root `7cda6819…f150a5` | A package root over 131,704 files | Never published. It counted the 24,035 loose OCR pages that `pack_ocr.py` replaces with 43 containers, so it described a package a fifth larger than the archive. Named here because it was printed, and a root that was printed can be quoted. |
 | 20 Sep 2026 | `ar://RlyR3lDWUCeeOLupxK3_tsu9OKoK33hMpwYcLgk2rbk` | The eighth path manifest, 107,868 paths | Its 124 index pages pointed at **August revisions**. ArFS keeps every revision of a file, and the recovery that rebuilt this manifest took whichever one it happened to fetch rather than the newest — 102 of 124 were stale. The front page it served said 86,996 files and carried no link to Russian at all, so the archive could be entered and the Russian could not be found by walking. The files were never the problem; the catalogue was. |
 | 20 Sep 2026 | `ar://1Jo5lF7TKPVULlCBt5BaQTtwhA-acAZn91ir2p0ccgA` | The ninth path manifest, 107,887 paths | Index pages now the right revisions, but those pages were themselves the 17 Sep build: 103,357 files, no *Light of the Bhāgavata* or *Life Comes from Life* in Hindi, and a Śrīmad-Bhāgavatam page listing 3,930 Russian verses instead of 8,265. |
+| 20 Sep 2026 | `ar://CTxzlISL968SW-HokI6ctSFhs8pJYdshnHXTYKU_ooc` | The tenth path manifest, 107,889 paths | `/MANIFEST.sha256` still served the package root over 107,868, computed before the last 21 files existed. |
+| 20 Sep 2026 | package root `f525e734…cddd3ff` | A package root over 107,887 files | Never published. Computed on the machine that holds the scans, whose `_index/` was two pages behind: it lacked the two Hindi index pages written that evening on the other machine. Caught by a per-section count against the path manifest — `_index` 124 where the archive has 126. |
 | 29 Aug 2026 | corpus root `8bcaa67e…f77a221d` | The corpus root anchored earlier that day | Superseded within hours: the README gained the section on how to use the manifest, and the README is inside the manifest. That is exactly the drift the commit column now prevents. |
 
-## One thing pending
+## Nothing pending, and what it took
 
-**The package root is one step behind again.** `9241a6c3` was computed over
-107,868 files; the path manifest now names 107,889. The twenty-one are the 19
-files of *Life Comes from Life* in Hindi and the two index pages that appeared
-with it. Everything is published — the difference is that no package root yet
-covers the last twenty-one.
+Every figure in this file now describes what is published. The corpus root
+`39f312ce`, the package root `a17bf521` and the path manifest
+`MQPpISw9…` were computed over the same 107,889 files, and the two lists that can
+be compared agree entry for entry: the package manifest names `_index/index.html`
+where the path manifest serves it as the front page, and the path manifest names
+`MANIFEST.sha256`, which the package manifest cannot name because it cannot
+contain its own hash.
 
-Closing it means recomputing on the machine that holds the whole package, as
-before: `git pull`, a full `build_archive.py` run, then uploading the resulting
-`MANIFEST.sha256`. About 0.19 credits, and the wallet holds 0.38.
+**The package root fell behind three times in one day**, and the last time is the
+instructive one. It was recomputed on the machine that holds the scans, and came
+out over 107,887 files instead of 107,889 — because that machine's `_index/` was
+two pages older than the archive, the two Hindi pages having been written on the
+other machine that evening. A root two files short, over a package of 107,889,
+from a script that had just been taught to refuse the obvious error.
 
-This is the third time in one day that the package root has fallen behind, and
-the reason is structural: it is computed on one machine and the uploads happen
-on another, so anything published after the computation is outside it. The fix
-is not another number, it is to compute it last.
+What caught it was not the root and not a checksum. It was counting the files per
+section and finding `_index` at 124 where the archive holds 126. **The count is
+the check**, and it is the only one in this whole day's work that found anything:
+131,704 against 107,868 for the OCR, 21,235 against 107,868 for the partial
+machine, 124 against 126 here.
 
+The fix was to give `build_index.py` its file list from the published manifest
+rather than from that machine's disk — `--desde-manifiesto` — so the index is
+built from what is published rather than from what happens to be local. It
+regenerated byte for byte identical to the pages already on chain, on a different
+machine, which is what "deterministic" has to mean for any of this to be worth
+anything.
+
+**One wording to be aware of.** The front page says "every file in the archive,
+107,763 of them" where the archive holds 107,889. The difference is the 126 index
+pages and the manifest: the catalogue does not catalogue itself. The count is
+honest about what it lists and loose in how it says it.
+
+## What was pending, and is not
 ## What was pending, and is not
 
 As of the evening of 20 Sep 2026, the corpus root and the path manifest both
