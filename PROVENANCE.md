@@ -13,7 +13,7 @@ withdrawn; the transaction ids go in the table below as they are published.
 
 | Piece | What it is | Where it lives today | Size | Arweave |
 |---|---|---|---|---|
-| **corpus** | The text of the first editions, 102,729 files, of which 86,418 are published — see *What is deliberately absent* | this repository | 495 MB | see [ANCHORS.md](ANCHORS.md) |
+| **corpus** | The text of the first editions in five languages, 107,114 files, all of them published | this repository | 495 MB | see [ANCHORS.md](ANCHORS.md) |
 | **corrections** | The ledger of corrections applied to the text | this repository, `*.jsonl` | 272 MB | see [ANCHORS.md](ANCHORS.md) |
 | **scans** | 71 PDFs of the printed books, including the complete Śrīmad-Bhāgavatam | `scan_vedabase/originals/` | 2,078 MB | see [ANCHORS.md](ANCHORS.md) |
 | **ocr-packed** | Every page as read by both engines, one `.tar` per book | `surya_ocr/`, `.../scan_audit/ocr/` | 193 MB | see [ANCHORS.md](ANCHORS.md) |
@@ -361,8 +361,16 @@ it had not earned. That note also said what would lift the exclusion —
 completion — and on **17 September 2026** the 16,361 Russian files were
 uploaded.
 
-All 22 books of the archive now have Russian: 20,673 entries, every English ref
-answered.
+That upload was 4,335 files short, and the gap was found on 20 September while
+building the path manifest. The canonical `sb_ru.jsonl` already held all ten
+cantos of the Śrīmad-Bhāgavatam, and vedabase.cc had been serving them, but the
+per-verse Markdown export was never regenerated after cantos 5 to 10 were
+finished — so the archive stopped at canto 4. English, Spanish, Portuguese and
+Hindi each had ten cantos; only Russian did not. It was an omitted step, not a
+decision, and the missing files were generated and uploaded the same day.
+
+All 22 books of the archive now have Russian: 20,696 files, 20,673 entries,
+every English ref answered.
 
 **It does not carry the same warrant as the text it sits beside, and the
 distinction matters more than the completeness.** The first-edition corpus in
