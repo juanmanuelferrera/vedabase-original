@@ -25,7 +25,8 @@ corrections applied to it, 102,836 files.
 | 17 Sep 2026 | `42e78565f7e05bc5d0da6ded9a399669b421b9bd7a44b6bf44141601d7f26b37` | `cab11a0318dff52acb070b99e9d00d530636ab6b` | this file |
 | 20 Sep 2026 | `f13169c3e9b2d5825568c5455601dccee95338a86cabbf52525a64af981f09b2` | `79f61689741a01fd422e58d81e33bc308b9133aa` | superseded same day — see below |
 | 20 Sep 2026 | `cfc82f90ac2441ffaedb008e1c164dabe50057d478aeacdd49b6301e08026be7` | `74bf463eaace855f8995cd4b951ed9c1c8b771d0` | superseded same day |
-| 20 Sep 2026 | `71e4874b0ca2cd12ed04d773385518a2a07838fdbfe9009736655c80ff0986be` | `2648cd44f7a67f93376597d0ca8228d346f5a397` | this file |
+| 20 Sep 2026 | `71e4874b0ca2cd12ed04d773385518a2a07838fdbfe9009736655c80ff0986be` | `2648cd44f7a67f93376597d0ca8228d346f5a397` | superseded — see below |
+| 20 Sep 2026 | `39f312ce2b236104290e10666c3bc78f2d0d87092b138e2e8a4fc0c8182a22c8` | `e768959808` | this file |
 
 The 17 Sep root covers 102,866 files, thirty more than the August one and
 forty-one changed. The additions and thirty-eight of the changes are the Russian
@@ -275,7 +276,18 @@ still on chain would be the one thing this archive exists to prevent.
 | 20 Sep 2026 | package root `7cda6819…f150a5` | A package root over 131,704 files | Never published. It counted the 24,035 loose OCR pages that `pack_ocr.py` replaces with 43 containers, so it described a package a fifth larger than the archive. Named here because it was printed, and a root that was printed can be quoted. |
 | 29 Aug 2026 | corpus root `8bcaa67e…f77a221d` | The corpus root anchored earlier that day | Superseded within hours: the README gained the section on how to use the manifest, and the README is inside the manifest. That is exactly the drift the commit column now prevents. |
 
-## Nothing pending
+## One thing pending
+
+`39f312ce` adds 19 files: *Life Comes from Life* in Hindi, the last of the 22
+books that language was missing. They are **on chain but not yet in the path
+manifest**, which was published before them. Republishing it costs 0.1932
+credits and the wallet holds 0.0765, so the manifest names 107,868 paths while
+the archive holds 107,887 files. Those 19 are reachable by transaction id and
+not by path until it is republished — about 1.50 USD.
+
+Everything else below was true when written and has been done since.
+
+## What was pending, and is not
 
 As of the evening of 20 Sep 2026, every figure in this file describes what is
 published. The corpus root, the package root and the path manifest were all
@@ -289,10 +301,20 @@ were missing outright, *Light of the Bhāgavata* in Hindi had no canonical file,
 and the first package root counted a fifth too many files. Each was found by a
 count that failed to match another count. None was found by reading the code.
 
-One thing is deliberately not done: `build_archive.py` still assembles
-`ocr-surya` and still invites you to upload the result. See the note under
-*Package root*. It is a change to the code, not to the archive, and it belongs in
-a commit of its own rather than at the end of a long night.
+`build_archive.py` no longer counts `ocr-surya` in the manifest, and refuses
+outright if it finds `ocr-surya` without `ocr-packed` — the state that means
+`pack_ocr.py` has not run and the root would describe a package that is not the
+archive. Tested in all three situations, including a machine with no `ocr-surya`,
+which had to keep behaving exactly as before.
+
+`upload_archive.py` now refuses to run with a state file that knows about fewer
+files than the repository's floor (`scripts/UPLOAD-STATE.suelo`). The state file
+is the only record of what is already on chain and it is local to whichever
+machine uploaded; a second machine with an older copy would see thousands of
+published files as pending and pay to publish them again. That nearly happened
+on 20 Sep, when one machine held 107,744 entries and the other was still at
+103,357. The floor never goes down, and the script asks you to raise it after
+every upload.
 
 ### The Russian `.jsonl` files were published wrong, and were repaired
 
