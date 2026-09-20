@@ -23,6 +23,7 @@ corrections applied to it, 102,836 files.
 |---|---|---|---|
 | 29 Aug 2026 | `0c8523c221b02001d918ca9bb17d81f4d138e10580ec2820992281d89a38235d` | `0b1142633040cc5c2effeac0b25e1e38e8ea13dd` | this file |
 | 17 Sep 2026 | `42e78565f7e05bc5d0da6ded9a399669b421b9bd7a44b6bf44141601d7f26b37` | `cab11a0318dff52acb070b99e9d00d530636ab6b` | this file |
+| 20 Sep 2026 | `f13169c3e9b2d5825568c5455601dccee95338a86cabbf52525a64af981f09b2` | `79f61689741a01fd422e58d81e33bc308b9133aa` | not yet on chain |
 
 The 17 Sep root covers 102,866 files, thirty more than the August one and
 forty-one changed. The additions and thirty-eight of the changes are the Russian
@@ -32,6 +33,20 @@ two Bhagavad-gītā files touched by `d3159060f2`, a commit that came after the
 August anchor and for which the manifest was never regenerated. The manifest had
 been stale by those three files since 31 Aug; saying so is the point of this
 table.
+
+The 20 Sep root covers 107,201 files, 4,335 more than the September one. All
+4,335 are the Śrīmad-Bhāgavatam in Russian, cantos 5 to 10. They were not new
+translations: the canonical `sb_ru.jsonl` already held all ten cantos and
+vedabase.cc had been serving them since they were finished. What had never been
+re-run was the Markdown export, so the corpus stopped at canto 4 while English,
+Spanish, Portuguese and Hindi each had ten. The gap surfaced while validating
+the path manifest, when a canto 5 path resolved to nothing.
+
+One root that appears in no row: `ea5e2562231b8ec90ca4fbe1521ba42649bacc486395d5c856130526dc1eb576`,
+written into `MANIFEST.sha256` at commit `19fee208bb` on 17 Sep and superseded
+before it was ever published. It is named here rather than omitted, because a
+reader who checks out that commit will compute it and find it in no table, and
+an unexplained root is the thing this file exists to prevent.
 
 **On the commit column.** The manifest's own header names the commit that was
 checked out when it was generated, which is always the one *before* the commit
@@ -58,8 +73,8 @@ the new root is anchored, and the old rows stay so the sequence stays legible.
 ## Package root
 
 The SHA-256 over the manifest of the permanent archive — corpus, scans, OCR
-containers, correction ledgers, audit ledger, reports and tools together. It
-covers the 86,995 files that were published, and only those.
+containers, correction ledgers, audit ledger, reports and tools together. Each
+root covers the files that were published as of its date, and only those.
 
 | Date | Package root | Manifest transaction |
 |---|---|---|
@@ -81,8 +96,20 @@ the package root did not move when the Russian files on disk were replaced: they
 were never being hashed. The third, because the index still counted 102 pages
 when it should have counted 124.
 
-The package root covers the archive as uploaded and does not move when this
-repository's documentation is edited.
+**The 17 Sep package root no longer describes the archive.** On 20 Sep the
+4,335 Russian Bhāgavatam files above were uploaded, along with 222 files that
+had never reached the chain at all and 8 that were re-uploaded with corrected
+internal links. The archive now holds 107,816 published files, and no package
+root has been computed over them yet.
+
+It cannot be computed on the machine this was done from. That machine holds
+`corpus`, `_index` and the manifest, and nothing else: the 577 files of the
+other sections — 71 scans, 43 OCR containers, 107 correction ledgers, 208 audit
+ledgers, 8 reports, 137 tools, 3 reference standards — are on chain and in the
+path manifest, but are not on its disk. Running `--manifest-only` there would
+produce a root over 107,239 files and present it as a root over 107,816, which
+is precisely the kind of figure this file exists to stop. It has to be recomputed
+where the whole package lives.
 
 Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
 
@@ -91,6 +118,7 @@ Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
 | Piece | Files |
 |---|---:|
 | corpus — English, Spanish, Portuguese, Hindi | 86,418 |
+| corpus — Russian, all 22 books | 20,696 |
 | scans, 71 PDFs of the printed books | 71 |
 | OCR containers, one `.tar` per book per engine | 43 |
 | correction ledgers | 107 |
@@ -98,11 +126,17 @@ Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
 | reports | 8 |
 | tools | 137 |
 | reference standards | 3 |
+| index pages | 124 |
 | manifest | 1 |
-| **published in total** | **86,995** |
+| **published in total** | **107,816** |
 
-The Russian translation, 16,311 files, is not published. See *What is
-deliberately absent* in `PROVENANCE.md`.
+Counted from the path manifest of 20 Sep 2026, which is the only list that
+covers every published file. An earlier version of this table said the Russian
+translation was not published, and went on saying it after the 17 Sep row above
+recorded that it had been — the two statements sat three paragraphs apart. What
+`PROVENANCE.md` has to say about the Russian is not that it is absent but that
+it carries a weaker warrant than the text beside it: see *The Russian
+translation, and what it is worth*.
 
 `PROVENANCE.md` as published: `ar://NO7ILnkpN3nUgZ1dsCxIBvWWKs3EI9EV1YuCjJSWxTA`
 
@@ -131,15 +165,26 @@ them any ArFS-aware tool can rebuild the tree without ArDrive's involvement.
 
 ### The way in
 
-**https://arweave.net/S_KxoVfwKsJqKbHTVbcFdRdYhrb_G2TX_hSD1UBvwFo**
+**https://arweave.net/qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s**
 
-An Arweave path manifest over the whole archive: 88,709 paths, served by any
+An Arweave path manifest over the whole archive: 107,816 paths, served by any
 gateway, needing no account and no application. The address above returns a front
 page; append a path and you get the file:
 
-    .../S_KxoVfwKsJqKbHTVbcFdRdYhrb_G2TX_hSD1UBvwFo/corpus/isopanisad/iso-1.md
-    .../S_KxoVfwKsJqKbHTVbcFdRdYhrb_G2TX_hSD1UBvwFo/scans/adi1.pdf
-    .../S_KxoVfwKsJqKbHTVbcFdRdYhrb_G2TX_hSD1UBvwFo/MANIFEST.sha256
+    .../qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s/corpus/isopanisad/iso-1.md
+    .../qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s/scans/adi1.pdf
+    .../qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s/MANIFEST.sha256
+
+    .../qwHR1n4s9EHGeNlij8Iu6aiAPXG18GS4Fls0F_Ggx0s/corpus/translations/russian/srimad-bhagavatam/canto-10/chapter-01/sb-10.1.1.md
+
+**This manifest was built by hand, and the reason is worth recording.**
+`ardrive create-manifest` enumerates folders through `/tx/<id>`, and that
+endpoint returns 404 for every transaction that travels inside a Turbo bundle —
+which is all of this archive. The CLI walks into cascading 404s and the web
+interface cannot list the folders either. The manifest was therefore assembled
+from the uploader's own state file, which records the path and transaction of
+every file as it goes up, and checked against the archive on disk: 0 files on
+disk absent from it, 0 paths in it absent from disk.
 
 **A path must name a file.** Arweave manifests resolve files, not folders, so
 `/corpus/` returns nothing. `MANIFEST.sha256` lists every path there is.
@@ -174,4 +219,34 @@ still on chain would be the one thing this archive exists to prevent.
 | 26 Aug 2026 | corpus root `2ec622af…d497f7` | The corpus root anchored that day | Superseded: `PROVENANCE.md` gained the section on what is absent, and every `.md` is inside the corpus manifest. |
 | 28 Aug 2026 | `ar://Wf8LWB6xrovGKM4xZHYRcz6F4G1L74MKdsUjUFsb9rg` | `MANIFEST.sha256`, package root `274c2af2…a09b17` | Written before six files were found to be missing from the chain and uploaded, and before the verifier's own working files were kept out of it. |
 | 28 Aug 2026 | `ar://UL6GCZ4-o51WCJHfQb9ZLrv0NAJAVSiQNB9NiupFql8` | `PROVENANCE.md` | Did not yet record the six missing files, nor the warning about single-gateway checks. |
+| 29 Aug 2026 | `ar://S_KxoVfwKsJqKbHTVbcFdRdYhrb_G2TX_hSD1UBvwFo` | The third path manifest, 88,709 paths | It predates the Russian translation entirely, and it predates the 222 files that were later found never to have reached the chain. Correct for what existed when it was written; it describes an archive a fifth smaller than the one that stands. |
+| 20 Sep 2026 | `ar://nz3TsdzdXGxXDImC6qDis4IcLff1GLsq-RNdw3brJYE` | The fourth path manifest, 107,816 paths | Right for 107,808 paths and wrong for 8. Those 8 had been re-uploaded with corrected internal links, but the builder read their transaction ids from the upload state file, which still held the superseded ones. Found by fetching them back through the manifest and comparing against disk, which is the only check that would have caught it. |
 | 29 Aug 2026 | corpus root `8bcaa67e…f77a221d` | The corpus root anchored earlier that day | Superseded within hours: the README gained the section on how to use the manifest, and the README is inside the manifest. That is exactly the drift the commit column now prevents. |
+
+## Pending
+
+Written 20 Sep 2026. Each line is a thing that is true and not yet done; the
+point of listing them is that an archive with a silent gap is worse than one
+with a stated gap.
+
+1. **Anchor the 20 Sep corpus root.** `MANIFEST.sha256` is 15 MB and costs about
+   1.27 USD to publish; the wallet held 0.048 credits when this was written.
+2. **Recompute the package root**, on the machine that holds the whole package.
+   See *Package root* above for why it cannot be done anywhere else.
+3. **Republish `PROVENANCE.md` and this file.** Both were edited on 20 Sep. The
+   copies on chain are the 17 Sep ones, and this file's own entry below still
+   addresses that older copy.
+
+### A known defect, stated rather than quietly fixed
+
+`corpus/translations/russian/srimad-bhagavatam/sb_ru.jsonl` as published carries
+one doubled asterisk — `**апсу*` where `*апсу*` was meant — in the synonyms of
+`sb/7/9/34`. One byte, in a 30 MB file, in one entry of 8,265. The per-verse
+Markdown for that same verse is correct on chain; only the aggregate file
+carries it.
+
+It was left because Arweave charges for the whole file, so correcting one byte
+costs 2.60 USD, and the next upload that touches this file will carry the fix at
+no extra cost. That is a judgement about money, not about the text, and it is
+recorded here so that nobody later finds the asterisk and wonders what else was
+passed over in silence.
