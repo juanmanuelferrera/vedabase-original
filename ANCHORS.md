@@ -163,18 +163,19 @@ Reproduce it with `python3 scripts/build_archive.py --manifest-only`.
 
 | Piece | Files |
 |---|---:|
-| corpus — English, Spanish, Portuguese, Hindi | 86,467 |
+| corpus — English, Spanish and Portuguese | 65,831 |
 | corpus — Russian, all 22 books | 20,696 |
+| corpus — Hindi, all 22 books | 20,654 |
 | scans, 71 PDFs of the printed books | 71 |
 | OCR containers, one `.tar` per book per engine | 43 |
-| correction ledgers | 110 |
+| correction ledgers | 111 |
 | audit ledger | 208 |
 | reports | 8 |
 | tools | 137 |
 | reference standards | 3 |
-| index pages | 124 |
+| index pages | 125 |
 | manifest | 1 |
-| **published in total** | **107,868** |
+| **published in total** | **107,889** |
 
 Counted from the path manifest of 20 Sep 2026, which is the only list that
 covers every published file. The 52 added since the previous count are *Light of
@@ -278,13 +279,28 @@ still on chain would be the one thing this archive exists to prevent.
 | 20 Sep 2026 | `ar://1Jo5lF7TKPVULlCBt5BaQTtwhA-acAZn91ir2p0ccgA` | The ninth path manifest, 107,887 paths | Index pages now the right revisions, but those pages were themselves the 17 Sep build: 103,357 files, no *Light of the Bhāgavata* or *Life Comes from Life* in Hindi, and a Śrīmad-Bhāgavatam page listing 3,930 Russian verses instead of 8,265. |
 | 29 Aug 2026 | corpus root `8bcaa67e…f77a221d` | The corpus root anchored earlier that day | Superseded within hours: the README gained the section on how to use the manifest, and the README is inside the manifest. That is exactly the drift the commit column now prevents. |
 
-## Nothing pending
+## One thing pending
+
+**The package root is one step behind again.** `9241a6c3` was computed over
+107,868 files; the path manifest now names 107,889. The twenty-one are the 19
+files of *Life Comes from Life* in Hindi and the two index pages that appeared
+with it. Everything is published — the difference is that no package root yet
+covers the last twenty-one.
+
+Closing it means recomputing on the machine that holds the whole package, as
+before: `git pull`, a full `build_archive.py` run, then uploading the resulting
+`MANIFEST.sha256`. About 0.19 credits, and the wallet holds 0.38.
+
+This is the third time in one day that the package root has fallen behind, and
+the reason is structural: it is computed on one machine and the uploads happen
+on another, so anything published after the computation is outside it. The fix
+is not another number, it is to compute it last.
 
 ## What was pending, and is not
 
-As of the evening of 20 Sep 2026, every figure in this file describes what is
-published. The corpus root, the package root and the path manifest were all
-computed over the same 107,868 files and agree with each other.
+As of the evening of 20 Sep 2026, the corpus root and the path manifest both
+describe the 107,889 files that are published, and the browsable index reaches
+all of them.
 
 That was not true for most of the day, and the list that stood here is worth
 keeping in one line: the Russian Bhāgavatam was four cantos short, 222 files had
