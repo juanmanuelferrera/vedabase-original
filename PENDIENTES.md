@@ -217,22 +217,28 @@ inglés a costa de reescribir las referencias.
 caminata 5, que sí estaba traducida, escribe `Śrīla Prabhupāda के साथ Dr. Singh`.
 Uniformarlas son 496 líneas y **una decisión del usuario**, no un arreglo obvio.
 
-### 5. Los escaneos de las cartas, a medio camino
+### 5. Los escaneos de las cartas: en la web desde el 14 de octubre
 
-Trabajo nuevo del 13 de octubre, en `astro_vedabase/scripts/letter_scans/`, con
-su propio `PROGRESS.md`. Objetivo: que cada carta de `/en/library/letters/<slug>/`
-muestre la imagen del original escaneado cuando exista.
+Cada carta de `/en/library/letters/<slug>/` que tenga original escaneado lo
+muestra. **4.963 de las 6.582 cartas (75,4 %)**; las otras 1.619 no lo tienen en
+Vanisource.
 
-Cerrado: 6 582 cartas exportadas de D1, 5 081 páginas con escaneo localizadas en
-Vanisource, 4 969 parejas cruzadas (98,9 %), 5 783 URLs de imagen inventariadas
-(1,73 GB, media 298 KB).
+- 5.783 imágenes descargadas y auditadas contra el índice: 0 que falten, 0 que
+  sobren, 0 con tamaño distinto al de la API.
+- Convertidas a WebP: **0,98 GB**, 179 KB de media, un 39 % menos que el origen.
+- Subidas a `r2://vedabase-site-content/media/letters/`, comprobadas una a una
+  por HTTP: **5.783 de 5.783, todas 200**.
+- Columna `scan_files` en D1: 4.963 filas.
+- La plantilla las sirve enteras, con carga diferida, después de la
+  transcripción. El 82,7 % de las cartas es una sola página.
 
-Queda: acabar la descarga, convertir a WebP y medir el peso real, subir a R2,
-el bloque de imágenes en la plantilla de carta y el deploy. **La subida a R2 y el
-deploy esperan GO.**
+El detalle y las dos trampas del camino están en
+`astro_vedabase/scripts/letter_scans/PROGRESS.md`. Resumen de las trampas: la
+API de R2 admite unas 4 peticiones/s y por encima devuelve 429 y luego 403 del
+WAF; y **R2 responde 403 a una clave que acaba en punto**.
 
-Los 33 ficheros sin comitear que decía esta nota en septiembre ya están dentro;
-hoy el árbol de `astro_vedabase` solo tiene dos insights sin seguir.
+Lo único que queda: 6 cartas emparejadas se quedan sin original porque Vanimedia
+lista la ficha del fichero y no sirve el fichero.
 
 ## Lo que ya no hay que hacer
 
