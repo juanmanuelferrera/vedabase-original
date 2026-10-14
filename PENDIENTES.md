@@ -121,6 +121,28 @@ En D1 hay **10.477 filas**: `bg` 627 (el inglés tiene 657) y `sb` **9.850**,
 que son **1.585 más que las 8.265 del inglés**. Esa diferencia habría que
 mirarla: o el árabe trocea los versos de otra manera, o sobra algo.
 
+**El `sb` árabe no es la primera edición.** Las 1.585 filas de más no eran un
+troceado distinto:
+
+| lang | cantos 11-12 | canto 10 | total |
+|---|---:|---:|---:|
+| **ar** | **1.570** | **1.080** | 9.850 |
+| en | 0 | 555 | 8.265 |
+| es | 0 | 554 | 8.287 |
+| hi | 0 | 554 | 8.258 |
+| pt | 0 | 555 | 8.254 |
+| ru | 0 | 555 | 8.265 |
+
+El árabe es **la única lengua con cantos 11 y 12**, que Prabhupāda no escribió:
+los remataron discípulos después de 1977. Y su canto 10 tiene 1.080 entradas
+donde todas las demás tienen 554-555, es decir, el canto **completo**, no la
+parte que él dejó hecha. Eso es una traducción de la edición moderna de la BBT,
+no de la primera edición, y choca de frente con lo que este archivo dice ser.
+
+Hoy no se ve: los versos están tras la lista blanca y `/ar/library/sb/` no
+enlaza ningún canto (comprobado). Pero las filas están en D1, y si alguien abre
+la lista blanca salen a la luz 1.570 versos que no son de Prabhupāda.
+
 **Lo que chirría:** `[...path].astro:1366` sirve audio árabe de los capítulos del
 Gītā desde `/media/audio/ar/bg/chapter-NN.mp3`, y **el audio está subido y
 responde** (comprobados los capítulos 1, 2 y 18: 200 `audio/mpeg`, 8-13 MB cada
