@@ -117,34 +117,6 @@ No hay `translations/arabe/` en el repo ni una sola mención del árabe en
 `ANCHORS.md`, `PENDIENTES.md`, `PROVENANCE.md` ni `README.md`. Hace falta saber
 si es trabajo a medias que se dejó aparcado o algo que no debe servirse.
 
-### 2c. Cinco purports con el punto descolocado, y se ve en la web
-
-Al aplicar en agosto cinco correcciones de frase larga, el punto de final de
-frase se movió o se perdió **en D1**. El texto corregido sí entró; solo la
-puntuación quedó mal. Comprobado en vivo el 13 de octubre con la caché
-desactivada:
-
-| ref | lo que sirve la web | debería |
-|---|---|---|
-| `cc/madhya/9/79` | `temple On. the eastern wall` | `temple. On the eastern wall` |
-| `cc/madhya/8/168` | `is Her shyness That lower` | `is Her shyness. That lower` |
-| `sb/3/9/2` | `Brahmā and Śiva Anyone who` | `Brahmā and Śiva. Anyone who` |
-| `cc/madhya/8/288` | el purport acaba sin punto | `enchant His mind.` |
-| `cc/adi/7/133` | `powers to prove their philosophy,` | `powers, to prove their philosophy."` |
-
-Y dos correcciones de agosto **nunca llegaron a D1**: `ej/1` sigue trayendo
-`or "eternal," as that` y `transcripts/740212bgvrn` sigue trayendo `yato'nvayād`
-sin el espacio.
-
-Los siete arreglos están escritos y **esperan el GO** (D1 es producción):
-
-    astro_vedabase/scripts/arreglo_puntuacion_d1.sql            ← los 7 UPDATE
-    astro_vedabase/scripts/arreglo_puntuacion_d1_comprobar.sql  ← el SELECT que
-                                                                   los da por buenos
-
-Al aplicarlos: poner las 7 filas a `applied_d1: true` en `corrections.jsonl`,
-purgar la caché del borde y comprobar en vivo, no en el build.
-
 ### 2d. `cc/madhya/9/79` le falta un punto en el repo
 
 El mismo caso de arriba, del revés: donde D1 trae `southwest of Kumbhakoṇam.
@@ -206,6 +178,12 @@ Escrito para que nadie lo reabra por error. El detalle y el porqué están en
   granddisciple») y los purports del apéndice que SB 4.29.1 y 4.29.2 llevaban
   pegados por duplicado. Las dos erratas del impreso del Gītā («ultilize» en
   2.7, «concommitant» en 13.8-12) están en D1 y en `PRINT_ERRATA.md`.
+- Los 7 arreglos de D1 del 14 de octubre están aplicados y comprobados en vivo
+  con la caché desactivada: los 5 purports a los que al aplicar una corrección
+  de agosto se les movió o se les perdió el punto final (`cc/madhya/9/79`,
+  `cc/madhya/8/168`, `sb/3/9/2`, `cc/madhya/8/288`, `cc/adi/7/133`) y las 2
+  correcciones que nunca habían llegado a D1 (`ej/1`, `transcripts/740212bgvrn`).
+  `corrections.jsonl` queda con una sola fila en `false`: `krp/2`, descartada.
 - Los cuatro `chapter_title` de SB que el flag daba por pendientes no viven en
   `verses`: están en `astro_vedabase/content/en/sb/{1,3,6,9}.md` y en
   `src/lib/chapter-names.json`, y los cuatro están bien.
