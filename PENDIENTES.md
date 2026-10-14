@@ -155,6 +155,58 @@ topónimo, justo lo que este proyecto existe para deshacer. **No lo he tocado**:
 cambiarlo es decisión tuya, y si el criterio es revertirlo, lo primero es saber
 cuántos purports más lo llevan.
 
+### 2f. Los `.jsonl` ingleses no llevan las correcciones: 3.301 entradas
+
+Esto salió de tirar del hilo de `cc_en.jsonl` y es lo más gordo del inventario.
+
+`PROVENANCE.md` llama **canónico** al `.jsonl` y dice que el Markdown por verso
+es una exportación suya. Hoy es al revés: **las correcciones se aplicaron al
+Markdown y a D1, y el `.jsonl` se quedó con la lectura revisada.**
+
+Cotejando el texto entero de cada entrada contra su `.md`
+(`astro_vedabase/scripts/cotejar_jsonl_md.py`):
+
+| libro | difieren | iguales |
+|---|---:|---:|
+| `sb` | **1.660** | 6.603 |
+| `cc` | **1.578** | 9.782 |
+| `bg` | **63** | 590 |
+| | **3.301** | 16.975 |
+
+**2.756 de las 3.301 (83,5 %) tienen entrada en `corrections.jsonl`**: no es
+ruido, es exactamente el trabajo de restauración que no se propagó. Las 545
+restantes hay que mirarlas, pueden ser otra cosa.
+
+Adjudicado contra la imagen del impreso, el Markdown es el que tiene razón:
+
+- CC Ādi 1.19 — impreso (`adi1.pdf` p.56 del PDF, 400 dpi): «the most important
+  of the **5,000** temples now existing in Vṛndāvana». El `.jsonl` trae «five
+  thousand».
+- CC Madhya 9.79 — impreso (`mad3.pdf` p.335 impresa): los dos puntos que el
+  `.jsonl` no tenía.
+
+Y la muestra va toda en la misma dirección: el `.md` dice «appears», «creator of
+the planets», «worshiped», «literatures», «from *Bhagavad-gītā*», «in devotional
+service»; el `.jsonl` dice «appeared», «the creator», «worship», «scriptures»,
+«from the *Bhagavad-gītā*», «in rendering devotional service». Es la edición
+revisada.
+
+**Por qué importa:** los `.jsonl` están dentro del manifiesto, así que el archivo
+publica a la vez el texto restaurado (los `.md`) y el revisado (los `.jsonl`),
+y el documento de procedencia llama canónico al segundo.
+
+**Qué falta por saber, antes de tocar nada:**
+
+1. Los **19 libros pequeños no están cotejados**. La herramienta solo sabe
+   construir la ruta del `.md` para `cc`, `sb` y `bg`; en los demás el Markdown
+   es por capítulo, no por verso. Hay que extenderla.
+2. Las otras cuatro lenguas tampoco.
+3. Decidir el sentido del arreglo: regenerar los `.jsonl` desde los `.md`, o al
+   revés. Mueve la raíz del corpus y son 272 MB de paquete, así que es tuyo.
+
+La lista de las 3.301 refs está en
+`astro_vedabase/scripts/cotejo_jsonl_md_refs.txt`.
+
 ### 3. `life-comes-from-life` en español, en un solo bloque
 
 Tiene **1 entrada** donde el inglés tiene 18: el libro entero en un comentario de
