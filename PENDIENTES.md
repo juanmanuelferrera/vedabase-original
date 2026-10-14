@@ -237,35 +237,52 @@ Y quedan **77 entradas de portada** (`kb/0a`, `tlc/0b`, `ssr/0a`…) cuyo `.md`
 tiene nombre propio (`preface.md`, `prologue.md`) y no se deduce de la ref: hay
 que emparejarlas por contenido.
 
-### 2h. Las otras cuatro lenguas: medidas tres, el portugués no
+### 2h. Las cuatro lenguas: medidas las cuatro, y no es la misma historia
 
 Enseñado al parser que las traducciones guardan en `verse_text` solo la
-transliteración (sin el bloque en bengalí y sin las barras), reproduce:
+transliteración, y que el portugués separa cada línea del verso con una línea en
+blanco:
 
-| lengua | reproduce | difieren en el texto |
-|---|---:|---:|
-| `ru` | **99,9 %** | 27 |
-| `es` | **98,5 %** | 289 |
-| `hi` | **95,0 %** | 101 |
-| `pt` | **17,5 %** | sin medir de verdad |
+| lengua | reproduce | difieren | de esas, con corrección registrada |
+|---|---:|---:|---:|
+| `ru` | 99,9 % | 27 | 8 |
+| `es` | 98,5 % | 289 | 68 |
+| `hi` | 95,0 % | 101 | 18 |
+| `pt` | 94,9 % | 65 | 27 |
+| | | **482** | **121** |
 
-El portugués no pone la transliteración como cita sino como párrafo suelto, y
-aun contemplándolo se queda en el 17,5 %: le falta otra vuelta.
+**Y aquí está la diferencia con el inglés.** Allí el 83,5 % de las divergencias
+se explicaban por el libro de correcciones, y por eso volcar el Markdown era lo
+correcto. Aquí solo **121 de 482**. Mirando el resto, son tres cosas:
 
-De lo medido, la muestra da tres cosas distintas, y por eso **no se ha escrito
-nada**:
+- **El mismo desfase**, p. ej. `bg/6/8` en español y en ruso, donde el Markdown
+  trae `समलोष्ट्राश्मकाञ्चनः` y el `.jsonl` la lectura vieja.
+- **El Markdown roto**, no el `.jsonl`: ver 2i.
+- **Traducciones de varios párrafos** (diálogos de `cc/adi/4/125`,
+  `cc/adi/17/152`) que el parser no sabe recoger todavía.
 
-- **El mismo desfase de correcciones.** `bg/6/8` en español y en ruso: el
-  Markdown trae `समलोष्ट्राश्मकाञ्चनः` y el `.jsonl` `समलोष्टाश्मकाञ्चनः`, que es
-  justo una corrección del libro de agosto.
-- **Los duplicados del Gītā** del punto 2: `bg/17/8` y `bg/18/13` en ruso salen
-  aquí también, porque su `.md` suelto no tiene verso.
-- **Casos sueltos de parser**, como `cc/adi/13/90`.
+**No se ha escrito nada en ninguna de las cuatro**, y el escritor solo recorre
+`translations/english`, así que no hay forma de tocarlas por accidente.
 
-El escritor solo recorre `translations/english`, así que **no hay forma de tocar
-las otras lenguas por accidente**. Extenderlo exige antes dejar el portugués
-medido y separar los duplicados de las correcciones de verdad.
+### 2i. 155 ficheros del español llevan el verso repetido
 
+Buscando el verso en transliteración repetido dos veces seguidas antes de los
+sinónimos:
+
+| lengua | ficheros |
+|---|---:|
+| **español** | **155** |
+| portugués, hindi, ruso | 0 |
+| inglés | 1 |
+
+De los 155, **148 son dos copias idénticas** y **7 difieren solo en la raya**
+(`bale,—hāse` en una y `bale,--hāse` en la otra), que es la huella de una doble
+ingesta donde una pasada normalizó el guion y la otra no.
+
+El `.jsonl` trae **una sola copia**, y en 119 de los 136 que son de `cc`
+coincide con la primera del Markdown. Así que el arreglo es quitar la segunda,
+pero **no está hecho**: toca el corpus, mueve la raíz, y conviene decidir a la
+vez si se arregla con los 7 duplicados del Gītā del punto 2.
 
 ### 3. `life-comes-from-life` en español, en un solo bloque
 
