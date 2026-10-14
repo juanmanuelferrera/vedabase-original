@@ -104,18 +104,32 @@ pero **mueve la raíz del corpus**: hacerlo el día que haya que republicar.
 duplicado. La nota de septiembre decía que el ruso cuadraba exactamente; no es
 cierto.
 
-### 2b. El árabe está en D1 y no se sirve
+### 2b. El árabe: es deliberado, y hay una puerta cerrada por dentro
 
-`lang='ar'` tiene **10 477 filas** en D1 — `bg` 627 y `sb` 9 850 — con su `url`
-puesta (`/ar/library/bg/1/1/`). La portada `https://vedabase.cc/ar/` responde
-200 en árabe, pero cualquier verso **redirige a la portada**:
+No era un olvido. `astro_vedabase/src/lib/i18n.ts:56` tiene el árabe como
+`available: false` con una **lista blanca de 9 rutas**. Lo que pasa la lista
+responde 200; lo que no, redirige a `/ar/`. Comprobado en vivo el 14 de octubre:
 
-    curl -sL -o /dev/null -w '%{http_code} %{url_effective}' https://vedabase.cc/ar/library/bg/1/1/
-    → 200 https://vedabase.cc/ar/
+| ruta | |
+|---|---|
+| `/ar/`, `/ar/library/`, `/ar/library/bg/`, `/ar/library/sb/` | **200** |
+| `/ar/library/al-aziz/`, `/ar/ravanari/` | **200** |
+| `/ar/library/bg/1/` (capítulo) | **302 → /ar/** |
+| `/ar/library/bg/1/1/` (verso) | **302 → /ar/** |
 
-No hay `translations/arabe/` en el repo ni una sola mención del árabe en
-`ANCHORS.md`, `PENDIENTES.md`, `PROVENANCE.md` ni `README.md`. Hace falta saber
-si es trabajo a medias que se dejó aparcado o algo que no debe servirse.
+En D1 hay **10.477 filas**: `bg` 627 (el inglés tiene 657) y `sb` **9.850**,
+que son **1.585 más que las 8.265 del inglés**. Esa diferencia habría que
+mirarla: o el árabe trocea los versos de otra manera, o sobra algo.
+
+**Lo que chirría:** `[...path].astro:1366` sirve audio árabe de los capítulos del
+Gītā desde `/media/audio/ar/bg/chapter-NN.mp3`, y **el audio está subido y
+responde** (comprobados los capítulos 1, 2 y 18: 200 `audio/mpeg`, 8-13 MB cada
+uno). Pero las páginas de capítulo son justamente las que la lista blanca no
+deja pasar, así que ese audio **hoy no es alcanzable por nadie**.
+
+Abrirlo es añadir los patrones de capítulo y verso a `landingWhitelist` (o poner
+`available: true`). **Es decisión tuya**, porque la lista blanca está puesta a
+mano y con cuidado: alguien decidió qué se enseñaba y qué no.
 
 ### 2d. `cc/madhya/9/79`: adjudicado, y aparecieron tres cosas más
 
