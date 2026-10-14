@@ -117,12 +117,43 @@ No hay `translations/arabe/` en el repo ni una sola mención del árabe en
 `ANCHORS.md`, `PENDIENTES.md`, `PROVENANCE.md` ni `README.md`. Hace falta saber
 si es trabajo a medias que se dejó aparcado o algo que no debe servirse.
 
-### 2d. `cc/madhya/9/79` le falta un punto en el repo
+### 2d. `cc/madhya/9/79`: adjudicado, y aparecieron tres cosas más
 
-El mismo caso de arriba, del revés: donde D1 trae `southwest of Kumbhakoṇam.
-Others say`, el markdown del repo trae `Kumbhakoṇam Others say`, sin punto. Hay
-que adjudicarlo contra el escaneo antes de tocar el corpus, y darlo de alta en
-`corrections.jsonl` como cualquier otra corrección.
+Visto el impreso a 400 dpi (`mad3.pdf`, página 368 del PDF = **p. 335 impresa**),
+la frase es:
+
+> According to some, the place known as Pāpanāśana was located eight miles
+> southwest of Kumbhakoṇam**.** Others say that in the district of Tinebheli
+> there is a city known as Pālamakoṭā**.** Twenty miles west of there is a holy
+> place known as Pāpanāśana near the river named Tāmraparṇī.
+
+Los dos puntos estaban perdidos. La «T» mayúscula de «Twenty» a mitad de frase
+delataba que un punto se había sustituido por «and that». Corregido en el
+markdown y en `cc_en.jsonl`, y dado de alta en `corrections.jsonl`.
+
+**Queda un `UPDATE` en D1**, que el clasificador del modo automático denegó dos
+veces: `astro_vedabase/scripts/arreglo_cc_madhya_9_79_d1.sql`.
+
+**`cc_en.jsonl` estaba dañado solo él** en esa entrada: «Kumbhako**n**ṇam» con
+una ene de más (dos veces), «Tanjoreāñ» por «Tāñjor» y «is **the** holy place»
+por «is **a** holy place». Ni el markdown ni D1 lo tienen. Pinta de pasada de
+diacríticos mal aplicada sobre ese fichero: **merece un barrido del `.jsonl`
+entero**, porque si pasó aquí pasó en más sitios.
+
+### 2e. El impreso y lo que servimos no dicen lo mismo, y no es puntuación
+
+En ese mismo purport, con la imagen delante:
+
+| impreso (1975, p. 335-336) | lo que sirven el repo y D1 |
+|---|---|
+| Near **Tricinapallī** is a river named Kāverī | Near **Tiruchchirāpalli** is a river |
+| Pāpanāśana **near the river named** Tāmraparṇī | Pāpanāśana**,** near the river Tāmraparṇī |
+| in the district of Tāñjor **about** ten miles | de Tāñjor**,** about ten miles |
+
+«Tiruchchirāpalli» por «Tricinapallī» no es una errata: es una modernización del
+topónimo, justo lo que este proyecto existe para deshacer. **No lo he tocado**:
+cambiarlo es decisión tuya, y si el criterio es revertirlo, lo primero es saber
+cuántos purports más lo llevan.
 
 ### 3. `life-comes-from-life` en español, en un solo bloque
 
