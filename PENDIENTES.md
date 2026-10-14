@@ -237,7 +237,35 @@ Y quedan **77 entradas de portada** (`kb/0a`, `tlc/0b`, `ssr/0a`…) cuyo `.md`
 tiene nombre propio (`preface.md`, `prologue.md`) y no se deduce de la ref: hay
 que emparejarlas por contenido.
 
-**Las otras cuatro lenguas no están cotejadas.**
+### 2h. Las otras cuatro lenguas: medidas tres, el portugués no
+
+Enseñado al parser que las traducciones guardan en `verse_text` solo la
+transliteración (sin el bloque en bengalí y sin las barras), reproduce:
+
+| lengua | reproduce | difieren en el texto |
+|---|---:|---:|
+| `ru` | **99,9 %** | 27 |
+| `es` | **98,5 %** | 289 |
+| `hi` | **95,0 %** | 101 |
+| `pt` | **17,5 %** | sin medir de verdad |
+
+El portugués no pone la transliteración como cita sino como párrafo suelto, y
+aun contemplándolo se queda en el 17,5 %: le falta otra vuelta.
+
+De lo medido, la muestra da tres cosas distintas, y por eso **no se ha escrito
+nada**:
+
+- **El mismo desfase de correcciones.** `bg/6/8` en español y en ruso: el
+  Markdown trae `समलोष्ट्राश्मकाञ्चनः` y el `.jsonl` `समलोष्टाश्मकाञ्चनः`, que es
+  justo una corrección del libro de agosto.
+- **Los duplicados del Gītā** del punto 2: `bg/17/8` y `bg/18/13` en ruso salen
+  aquí también, porque su `.md` suelto no tiene verso.
+- **Casos sueltos de parser**, como `cc/adi/13/90`.
+
+El escritor solo recorre `translations/english`, así que **no hay forma de tocar
+las otras lenguas por accidente**. Extenderlo exige antes dejar el portugués
+medido y separar los duplicados de las correcciones de verdad.
+
 
 ### 3. `life-comes-from-life` en español, en un solo bloque
 
