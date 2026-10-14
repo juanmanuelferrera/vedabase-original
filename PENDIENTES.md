@@ -155,57 +155,53 @@ topónimo, justo lo que este proyecto existe para deshacer. **No lo he tocado**:
 cambiarlo es decisión tuya, y si el criterio es revertirlo, lo primero es saber
 cuántos purports más lo llevan.
 
-### 2f. Los `.jsonl` ingleses no llevan las correcciones: 3.301 entradas
+### 2f. Los `.jsonl` de `bg`, `cc` y `sb`: arreglado el 14 de octubre
 
-Esto salió de tirar del hilo de `cc_en.jsonl` y es lo más gordo del inventario.
+`PROVENANCE.md` llama canónico al `.jsonl` y dice que el Markdown por verso es
+una exportación suya. Era al revés: las correcciones se aplicaron al Markdown y
+a D1, y el `.jsonl` se quedó con la lectura revisada.
 
-`PROVENANCE.md` llama **canónico** al `.jsonl` y dice que el Markdown por verso
-es una exportación suya. Hoy es al revés: **las correcciones se aplicaron al
-Markdown y a D1, y el `.jsonl` se quedó con la lectura revisada.**
+**Corregido en los tres libros grandes: 3.310 entradas** (`sb` 1.666, `cc` 1.581,
+`bg` 63). Ahora llevan el mismo texto que el Markdown.
 
-Cotejando el texto entero de cada entrada contra su `.md`
-(`astro_vedabase/scripts/cotejar_jsonl_md.py`):
+Lo que da garantía no es el cambio, es el método. `astro_vedabase/scripts/md_a_jsonl.py`
+reconstruye los cinco campos desde el Markdown y **antes de escribir se valida
+contra las entradas que ya coincidían**: reproduce **20.200 byte a byte**. Solo
+entonces escribe las que difieren. Comprobado después por el camino
+independiente (`cotejar_jsonl_md.py`): de 3.301 diferencias a 2, y las dos son
+falsos positivos del cotejo, que compara una concatenación de campos contra un
+documento lineal (en `sb/10/1/notes` los dos lados miden 33.891 caracteres).
 
-| libro | difieren | iguales |
-|---|---:|---:|
-| `sb` | **1.660** | 6.603 |
-| `cc` | **1.578** | 9.782 |
-| `bg` | **63** | 590 |
-| | **3.301** | 16.975 |
+114 entradas se dejaron como estaban: difieren solo en el marcado, y 108 son
+versos citados dentro del purport, en cursiva en el `.jsonl` y en cita en el
+`.md`. Reformatearlas no arregla nada.
 
-**2.756 de las 3.301 (83,5 %) tienen entrada en `corrections.jsonl`**: no es
-ruido, es exactamente el trabajo de restauración que no se propagó. Las 545
-restantes hay que mirarlas, pueden ser otra cosa.
+### 2g. Los 19 libros pequeños: medidos, no tocados, y no son un solo problema
 
-Adjudicado contra la imagen del impreso, el Markdown es el que tiene razón:
+El mismo cotejo da **248 entradas** que difieren en los pequeños, pero **no se
+ha escrito ni una**, porque al mirarlas de cerca son dos cosas distintas:
 
-- CC Ādi 1.19 — impreso (`adi1.pdf` p.56 del PDF, 400 dpi): «the most important
-  of the **5,000** temples now existing in Vṛndāvana». El `.jsonl` trae «five
-  thousand».
-- CC Madhya 9.79 — impreso (`mad3.pdf` p.335 impresa): los dos puntos que el
-  `.jsonl` no tenía.
+- **`kb/16` es el mismo problema**: el Markdown trae «falling down on the
+  **hank** of the Yamunā» y «to **he** understood», que son erratas del impreso
+  de 1970 adjudicadas en agosto sobre la imagen, y el `.jsonl` trae la lectura
+  moderna. Aquí el Markdown manda.
+- **`tqk/5` no**: ahí el `.jsonl` tiene enlaces `[[bg/7/8|…]]` y abreviaturas
+  («Bs. 5.35» por «Brahma-saṁhitā 5.35») que el Markdown no tiene, y su
+  estructura es otra. Volcarle el Markdown encima lo destrozaría.
 
-Y la muestra va toda en la misma dirección: el `.md` dice «appears», «creator of
-the planets», «worshiped», «literatures», «from *Bhagavad-gītā*», «in devotional
-service»; el `.jsonl` dice «appeared», «the creator», «worship», «scriptures»,
-«from the *Bhagavad-gītā*», «in rendering devotional service». Es la edición
-revisada.
+Por eso la herramienta lleva un **veto por libro**: si no reproduce al menos el
+95 % de las entradas que ya coinciden, no escribe en ese libro. Hoy veta 16:
+`bbd`, `ej`, `ekc`, `kb`, `krp`, `lcfl`, `nod`, `owk`, `pop`, `poy`, `pqpa`,
+`rv`, `ssr`, `tlc`, `tqk`, `ttp`.
 
-**Por qué importa:** los `.jsonl` están dentro del manifiesto, así que el archivo
-publica a la vez el texto restaurado (los `.md`) y el revisado (los `.jsonl`),
-y el documento de procedencia llama canónico al segundo.
+Para desbloquearlos hay que enseñarle la forma del Markdown de cada uno, libro
+por libro. **No vale una pasada general.**
 
-**Qué falta por saber, antes de tocar nada:**
+Y quedan **77 entradas de portada** (`kb/0a`, `tlc/0b`, `ssr/0a`…) cuyo `.md`
+tiene nombre propio (`preface.md`, `prologue.md`) y no se deduce de la ref: hay
+que emparejarlas por contenido.
 
-1. Los **19 libros pequeños no están cotejados**. La herramienta solo sabe
-   construir la ruta del `.md` para `cc`, `sb` y `bg`; en los demás el Markdown
-   es por capítulo, no por verso. Hay que extenderla.
-2. Las otras cuatro lenguas tampoco.
-3. Decidir el sentido del arreglo: regenerar los `.jsonl` desde los `.md`, o al
-   revés. Mueve la raíz del corpus y son 272 MB de paquete, así que es tuyo.
-
-La lista de las 3.301 refs está en
-`astro_vedabase/scripts/cotejo_jsonl_md_refs.txt`.
+**Las otras cuatro lenguas no están cotejadas.**
 
 ### 3. `life-comes-from-life` en español, en un solo bloque
 
