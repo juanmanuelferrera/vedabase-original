@@ -5,7 +5,8 @@ cada vez que se cierra o se abre algo, y si entrara, cada nota movería la raíz
 del corpus y con ella la del paquete. Las cifras que describen lo publicado no
 están aquí, están en [ANCHORS.md](ANCHORS.md).
 
-Última revisión: **13 de octubre de 2026**, tras el barrido de `applied_d1`.
+Última revisión: **18 de octubre de 2026**, tras cerrar los puntos 1, 2, 2d, 2e,
+2i y 4. Lo que quedó abierto está marcado como tal.
 
 ---
 
@@ -61,48 +62,60 @@ Así se encontró el último error del día: `_index` en 124 donde el archivo te
 
 ## Lo que queda por hacer
 
-Nada de esto corre prisa y nada afecta a lo publicado.
+Nada de esto corre prisa. Lo que sigue abierto, en una línea cada cosa:
 
-### 1. La fila de `PROVENANCE.md` que lleva un número
+1. **Republicar.** El 18 de octubre se movió el corpus: 10 ficheros menos, 162
+   con el texto cambiado, 7 `.jsonl` y `PROVENANCE.md`. La raíz publicada ya no
+   describe lo que hay en el repo. Esto no se puede cerrar desde el mini: la
+   raíz del paquete se calcula en el MacBook (ver arriba) y el monedero quedó
+   en 0,003 créditos.
+2. **Aplicar `arreglo_d1_2026-10-18.sql`**, en `astro_vedabase/scripts/`. Son
+   cuatro bloques y ninguno se ha ejecutado todavía: `corrections.jsonl` tiene
+   5 filas en `applied_d1: false` esperándolo (las 4 nuevas y `krp/2`, que está
+   descartada desde agosto).
+3. **`cc/madhya/9/74`**, el último topónimo modernizado vivo: pide la imagen, y
+   los escaneos están en el MacBook (punto 2e).
+4. **Los 19 libros pequeños** (2g) y **las traducciones de varios párrafos**
+   (2h). Es lo único grande que queda, y ahora está diagnosticado.
 
-Dice que el corpus son 107 114 ficheros; son 107 181. Se quedó vieja al añadir
-los 67 ficheros del hindi.
+Lo demás de esta sección está cerrado y se deja escrito para que no se reabra.
 
-**No actualizar el número: quitarlo.** `PROVENANCE.md` está dentro del manifiesto
-y dice de sí mismo que «no lleva ninguna cifra que cambie». Esa fila es la
-excepción, y por eso se queda vieja cada vez. Que remita a `ANCHORS.md`, que está
-fuera de todo manifiesto y existe justamente para eso.
+### 1. La fila de `PROVENANCE.md` que llevaba un número: quitada el 18 de octubre
 
-Cuesta unos **0,37 créditos (2,69 $)**, porque tocar ese fichero obliga a
-recalcular las dos raíces y republicar los dos manifiestos. Hacerlo el día que
-haya que republicar `PROVENANCE.md` por un motivo propio, no antes.
+Decía que el corpus son 107 114 ficheros; eran 107 181. En vez de actualizar la
+cifra se ha quitado, que es lo que mandaba el propio `PROVENANCE.md` al decir de
+sí mismo que «no lleva ninguna cifra que cambie». Ahora la fila remite a
+`ANCHORS.md`, que está fuera de todo manifiesto y existe justamente para eso.
 
-### 2. El español sí cuadra: resuelto el 13 de octubre
+**Sigue sin republicarse.** El cambio está en el repo y nada más: tocar
+`PROVENANCE.md` obliga a recalcular las dos raíces y republicar los dos
+manifiestos, unos **0,37 créditos (2,69 $)**, y el monedero quedó en 0,003. Se
+hace el día que haya que republicar por un motivo propio, junto con todo lo
+demás que se ha movido hoy.
 
-Las seis filas de diferencia no eran texto que faltara. Comparando ref por ref
-el `.jsonl` del repo contra D1:
+### 2. Los versos duplicados del Gītā: quitados el 18 de octubre
 
-| libro | diferencia | qué es |
-|---|---|---|
-| `sb` | D1 tiene 10 refs más | las portadas de canto (`sb/1` … `sb/10`), no son versos |
-| `cc` | D1 tiene 3 refs más | las portadas de lila (`cc/adi`, `cc/madhya`, `cc/antya`) |
-| `bg` | el repo tiene 7 refs más | **versos duplicados en el repo** |
+Las seis filas de diferencia con D1 nunca fueron texto que faltara: `sb` y `cc`
+traían en D1 las portadas de canto y de līlā, que no son versos, y el `bg`
+español traía siete versos de más.
 
-Los 7 del Gītā son un defecto del repo, no de D1. El español trae el verso
-agrupado **y además cada verso suelto, con el mismo contenido byte a byte**:
+Eran el verso agrupado **y además cada verso suelto con el mismo contenido**:
 
     bg-17.8-10.md  +  bg-17.8.md  bg-17.9.md  bg-17.10.md
     bg-18.13-14.md +  bg-18.13.md bg-18.14.md
     bg-18.36-37.md +  bg-18.36.md bg-18.37.md
 
-D1 sirve solo el agrupado, igual que el inglés, el portugués y el hindi. Quitar
-los 7 sueltos (y sus 7 líneas de `bg_es.jsonl`) es lo que cuadra las cifras,
-pero **mueve la raíz del corpus**: hacerlo el día que haya que republicar.
+**Quitados los 7 del español y los 3 del ruso** (`bg-17.8`, `bg-18.13`,
+`bg-18.36`), con sus líneas de `bg_es.jsonl` y `bg_ru.jsonl`. Los tres juegos de
+refs coinciden ahora exactamente con el inglés: 658 entradas.
 
-**El ruso arrastra el mismo defecto, en menor medida: 3 duplicados** (`bg-17.8.md`,
-`bg-18.13.md`, `bg-18.36.md` junto a sus agrupados), y esos sí están en D1 por
-duplicado. La nota de septiembre decía que el ruso cuadraba exactamente; no es
-cierto.
+Queda una cosa, y no es de este punto: el portugués y el ruso **no tienen
+`bg/0e`**, que el inglés, el español y el hindi sí tienen. No se ha mirado.
+
+**En D1 falta borrar las 3 filas rusas.** El español nunca las tuvo
+(`/es/bg/17/8` responde 301), pero `/ru/bg/17/8` responde 200 y sirve una copia
+degradada del agrupado: sin devanāgarī y con el verso en una sola línea. Está en
+`astro_vedabase/scripts/arreglo_d1_2026-10-18.sql`.
 
 ### 2b. El árabe: es deliberado, y hay una puerta cerrada por dentro
 
@@ -149,9 +162,12 @@ responde** (comprobados los capítulos 1, 2 y 18: 200 `audio/mpeg`, 8-13 MB cada
 uno). Pero las páginas de capítulo son justamente las que la lista blanca no
 deja pasar, así que ese audio **hoy no es alcanzable por nadie**.
 
-Abrirlo es añadir los patrones de capítulo y verso a `landingWhitelist` (o poner
-`available: true`). **Es decisión tuya**, porque la lista blanca está puesta a
-mano y con cuidado: alguien decidió qué se enseñaba y qué no.
+Abrirlo sería añadir los patrones de capítulo y verso a `landingWhitelist` (o
+poner `available: true`). **Decidido el 18 de octubre: se queda cerrada.** No se
+ha tocado nada: ni la lista blanca, ni las filas de D1, ni el audio. Los 1.570
+versos de los cantos 11-12 y el canto 10 completo siguen sin ser alcanzables, y
+el audio árabe del Gītā sigue subido y respondiendo 200 sin que nadie pueda
+llegar a él.
 
 ### 2d. `cc/madhya/9/79`: adjudicado, y aparecieron tres cosas más
 
@@ -165,31 +181,68 @@ la frase es:
 
 Los dos puntos estaban perdidos. La «T» mayúscula de «Twenty» a mitad de frase
 delataba que un punto se había sustituido por «and that». Corregido en el
-markdown y en `cc_en.jsonl`, y dado de alta en `corrections.jsonl`.
-
-**Queda un `UPDATE` en D1**, que el clasificador del modo automático denegó dos
-veces: `astro_vedabase/scripts/arreglo_cc_madhya_9_79_d1.sql`.
+markdown y en `cc_en.jsonl`, y dado de alta en `corrections.jsonl`. El `UPDATE`
+de D1 quedó aplicado el 14 de octubre y comprobado en vivo con la caché
+desactivada; aquí no queda nada pendiente.
 
 **`cc_en.jsonl` estaba dañado solo él** en esa entrada: «Kumbhako**n**ṇam» con
 una ene de más (dos veces), «Tanjoreāñ» por «Tāñjor» y «is **the** holy place»
 por «is **a** holy place». Ni el markdown ni D1 lo tienen. Pinta de pasada de
-diacríticos mal aplicada sobre ese fichero: **merece un barrido del `.jsonl`
+diacríticos mal aplicada sobre ese fichero: **merecía un barrido del `.jsonl`
 entero**, porque si pasó aquí pasó en más sitios.
 
-### 2e. El impreso y lo que servimos no dicen lo mismo, y no es puntuación
+**Barrido hecho el 18 de octubre, y sí había más.** Dos caminos:
 
-En ese mismo purport, con la imagen delante:
+1. `cotejar_jsonl_md.py` sobre el inglés: `cc` 11.360 iguales y 0 que difieran,
+   `bg` 653, `sb` 8.261 y las 2 diferencias conocidas, que son falsos positivos
+   del cotejo. El daño de este punto ya lo había barrido la pasada de 2f.
+2. Buscando la *clase* de daño —consonante doblada alrededor de un diacrítico
+   (`ṇn`, `nṇ`, `ṁm`, `ṅn`, `rṛ`…)— en los 16 `.jsonl` de las cinco lenguas.
+   Casi todo lo que sale es legítimo (`Nirṛti`, `khāṅna`, 263 apariciones).
 
-| impreso (1975, p. 335-336) | lo que sirven el repo y D1 |
+Lo único real: **`Kumbhakonṇam`, 12 apariciones, en español y portugués**, y no
+solo en el `.jsonl` sino también en el Markdown. Exactamente el mismo defecto
+que se adjudicó en el inglés el 9 de agosto sobre la imagen de la p. 335
+impresa. Corregido en `cc_es.jsonl`, `cc_pt.jsonl`, `cc-madhya-9.78.md` y
+`cc-madhya-9.79.md` de las dos lenguas, y dado de alta en `corrections.jsonl`
+con `applied_d1: false`. **En D1 queda por aplicar**
+(`astro_vedabase/scripts/arreglo_d1_2026-10-18.sql`, bloque 1).
+
+De paso: tres filas de `corrections.jsonl` llevaban la clave de idioma `po` en
+vez de `pt`, las tres con un fichero de `translations/portugues/`. Corregidas.
+
+### 2e. El impreso y lo que servíamos: revertido el 18 de octubre
+
+En ese mismo purport, con la imagen delante, había tres divergencias:
+
+| impreso (1975, p. 335-336) | lo que servían el repo y D1 |
 |---|---|
 | Near **Tricinapallī** is a river named Kāverī | Near **Tiruchchirāpalli** is a river |
 | Pāpanāśana **near the river named** Tāmraparṇī | Pāpanāśana**,** near the river Tāmraparṇī |
 | in the district of Tāñjor **about** ten miles | de Tāñjor**,** about ten miles |
 
-«Tiruchchirāpalli» por «Tricinapallī» no es una errata: es una modernización del
-topónimo, justo lo que este proyecto existe para deshacer. **No lo he tocado**:
-cambiarlo es decisión tuya, y si el criterio es revertirlo, lo primero es saber
-cuántos purports más lo llevan.
+«Tiruchchirāpalli» por «Tricinapallī» no era una errata: era una modernización
+del topónimo, justo lo que este proyecto existe para deshacer. **Revertidas las
+tres al impreso**, en el Markdown y en `cc_en.jsonl`, y dadas de alta en
+`corrections.jsonl`. **En D1 queda por aplicar** (bloque 2 del
+`arreglo_d1_2026-10-18.sql`).
+
+#### Y el barrido de topónimos que había que hacer antes de decidir
+
+Buscados 24 nombres modernos de ciudades indias en todo el corpus inglés. Casi
+todo lo que sale está en **conferencias y conversaciones** —Ahmedabad 189,
+Varanasi 37, Pondicherry 25, Cochin 21—, que son transcripciones de lo que se
+dijo en voz alta y no se tocan.
+
+En los libros queda **un solo caso vivo**:
+
+> `cc/madhya/9/74`: «went to the bank of the river Kāverī via the district of
+> **Tiruchchirāpalli**». Mismo topónimo, mismo capítulo, mismo río que el 9.79.
+
+**No se ha tocado**, y a propósito: adjudicar pide la imagen, y los escaneos
+están en el MacBook, no en el mini. Es lo primero que hay que mirar el día que
+se trabaje desde allí. (`Trivandrum` en `cc/madhya/1/115` se miró y se deja: es
+el nombre antiguo, no el moderno.)
 
 ### 2f. Los `.jsonl` de `bg`, `cc` y `sb`: arreglado el 14 de octubre
 
@@ -233,6 +286,27 @@ Por eso la herramienta lleva un **veto por libro**: si no reproduce al menos el
 Para desbloquearlos hay que enseñarle la forma del Markdown de cada uno, libro
 por libro. **No vale una pasada general.**
 
+**Diagnosticado el 18 de octubre, libro por libro. No son 16 problemas, son
+cuatro formas, y una de ellas es peligrosa.** Esto es lo que hay que arreglar:
+
+- **El título del capítulo** (`rv`, `tqk`, y por la pinta casi todos). El `.md`
+  abre con `1. Rāja-Vidyā: The King of Knowledge`; el `.jsonl` lo guarda en
+  `translation` y el parser se lo deja pegado a la cabeza del `purport`. Es el
+  arreglo más barato y el que desbloquea más libros.
+- **Los sinónimos** (`rv`, `tqk`). El parser toma por sinónimos el primer
+  párrafo de prosa. En `tqk` el `.md` sí trae sinónimos de verdad
+  (`*kuntī uvāca*—Śrīmatī Kuntī said; …`) y el `.jsonl` los tiene vacíos.
+- **Diferencias de texto de verdad** (`ej` «Antimaterial» contra
+  «Anti-material», `ekc` 2 caracteres, `tlc` 14). Estas son las que el volcado
+  tiene que arreglar, y las que justifican todo el trabajo.
+- **`ssr`: el emparejamiento de refs está mal, y escribir ahí destruiría.**
+  `ssr/1` en el `.jsonl` es «Discovering the Self» y `chapter-1.md` es «Learning
+  the Science of the Soul»: no son el mismo texto. `ruta_md()` deriva la ruta de
+  la ref y en `ssr` esa derivación no vale. **Antes de tocar `ssr` hay que
+  emparejar por contenido**, como las 77 portadas.
+
+El veto del 95 % es justamente lo que ha impedido que esto pasara. No bajarlo.
+
 Y quedan **77 entradas de portada** (`kb/0a`, `tlc/0b`, `ssr/0a`…) cuyo `.md`
 tiene nombre propio (`preface.md`, `prologue.md`) y no se deduce de la ref: hay
 que emparejarlas por contenido.
@@ -264,39 +338,76 @@ correcto. Aquí solo **121 de 482**. Mirando el resto, son tres cosas:
 **No se ha escrito nada en ninguna de las cuatro**, y el escritor solo recorre
 `translations/english`, así que no hay forma de tocarlas por accidente.
 
-### 2i. 155 ficheros del español llevan el verso repetido
+### 2i. Los ficheros del español con el verso repetido: quitado el 18 de octubre
 
-Buscando el verso en transliteración repetido dos veces seguidas antes de los
-sinónimos:
+Eran **156**, no 155. El recuento de septiembre se hizo con una sola pasada; este
+se ha hecho con dos caminos distintos y se han mirado a mano los que no
+coincidían:
 
 | lengua | ficheros |
 |---|---:|
-| **español** | **155** |
+| **español** | **156** |
 | portugués, hindi, ruso | 0 |
-| inglés | 1 |
+| inglés (libros) | 0 |
 
-De los 155, **148 son dos copias idénticas** y **7 difieren solo en la raya**
-(`bale,—hāse` en una y `bale,--hāse` en la otra), que es la huella de una doble
-ingesta donde una pasada normalizó el guion y la otra no.
+De los 156, **147 son dos copias idénticas** y **9 difieren solo en el signo**:
+siete en la raya (`bale,—hāse` contra `bale,--hāse`), uno en un guion suelto
+(`saba,-sabe` contra `saba,—sabe`) y uno en unas comillas
+(`'kṛṣṇa-rāsa-pañcādhyāya'`). Es la huella de una doble ingesta donde una pasada
+normalizó el signo y la otra no.
 
-El `.jsonl` trae **una sola copia**, y en 119 de los 136 que son de `cc`
-coincide con la primera del Markdown. Así que el arreglo es quitar la segunda,
-pero **no está hecho**: toca el corpus, mueve la raíz, y conviene decidir a la
-vez si se arregla con los 7 duplicados del Gītā del punto 2.
+El inglés que la nota de septiembre daba por 1 no estaba en los libros: son
+kīrtanas de las conferencias, donde el mantra se repite de verdad.
+
+**Qué copia se ha quitado, y por qué la segunda.** El `.jsonl` español respalda
+la **segunda**, pero el `.jsonl` es el testigo atrasado (ver 2f y 2h): las
+correcciones se aplicaron al Markdown y a D1. Así que se preguntó a producción,
+con la caché desactivada, por las nueve que no son idénticas: **D1 sirve la
+primera en las nueve**. Regla única, entonces: fuera la segunda. Comprobado
+después: 0 repetidos en las cuatro lenguas.
+
+El guion de `cc/madhya/10/40` sigue siendo `,-` donde el resto del corpus pone
+`,—`. Eso ya no es una copia repetida, es un signo mal puesto, y está también en
+D1. No se ha tocado.
 
 ### 3. `life-comes-from-life` en español, en un solo bloque
 
 Tiene **1 entrada** donde el inglés tiene 18: el libro entero en un comentario de
-179 227 caracteres. **No falta texto**, es otro troceado. Partirlo es una
-decisión, no un arreglo: habría que decidir si se quiere alineación 1:1 con el
-inglés a costa de reescribir las referencias.
+179 227 caracteres. **No falta texto**, es otro troceado.
 
-### 4. Las etiquetas de hablante del hindi
+**Decidido el 18 de octubre: se queda en un bloque.** Partirlo obligaba a
+reescribir las referencias en el Markdown, en el `.jsonl` y en D1, y no se gana
+texto, solo alineación.
 
-`lcfl` mezcla 369 etiquetas latinas (`Dr. Singh.`) y 127 en devanagari
-(`डॉ. सिंह:`). La convención del corpus es la latina — `pqpa` va 694 a 9 — y la
-caminata 5, que sí estaba traducida, escribe `Śrīla Prabhupāda के साथ Dr. Singh`.
-Uniformarlas son 496 líneas y **una decisión del usuario**, no un arreglo obvio.
+### 4. Las etiquetas de hablante del hindi: uniformadas el 18 de octubre
+
+`lcfl` mezclaba etiquetas latinas (`Dr. Singh.`) y en devanagari (`डॉ. सिंह:`).
+La convención del corpus es la latina —`pqpa` va 694 a 9— y la caminata 5, que
+sí estaba traducida, ya escribía `Śrīla Prabhupāda के साथ Dr. Singh`.
+
+Contadas de verdad, las etiquetas en devanagari eran **65**, no 127: las demás
+que acaban en dos puntos son títulos (`प्रथम प्रातःकालीन भ्रमण:`, «primera
+caminata matutina») y líneas de presentación, que no son turnos de palabra y no
+se han tocado. Las 65 estaban todas en `chapter-1` (31) y `chapter-2` (34).
+
+| devanagari | latina | nº |
+|---|---|---:|
+| `श्रील प्रभुपाद:` | `Śrīla Prabhupāda.` | 33 |
+| `करन्धर:` | `Karandhara.` | 15 |
+| `डॉ. सिंह:` | `Dr. Singh.` | 14 |
+| `ब्रह्मानन्द स्वामी:` | `Brahmānanda Swami.` | 2 |
+| `छात्र:` | `Student.` | 1 |
+
+Hechas en el Markdown y en `lcfl_hi.jsonl`, 65 en cada uno —que los dos den 65
+por separado es la comprobación—. Después: 0 en devanagari, 445 latinas.
+
+**En D1 queda por aplicar** (bloque 4 del `arreglo_d1_2026-10-18.sql`);
+`/hi/lcfl/1.md` todavía sirve las de devanagari.
+
+Lo que **no** se ha tocado, porque no son etiquetas de hablante: la línea de
+presentación de cada caminata (`श्रील प्रभुपाद के साथ डॉ. थौडम दामोदर सिंह…`) va en
+devanagari en 13 capítulos y en latina en 3. Ahí la mayoría es la contraria, y
+es otra decisión.
 
 ### 5. Los escaneos de las cartas: en la web desde el 14 de octubre
 
@@ -353,6 +464,16 @@ Escrito para que nadie lo reabra por error. El detalle y el porqué están en
 - Los cuatro `chapter_title` de SB que el flag daba por pendientes no viven en
   `verses`: están en `astro_vedabase/content/en/sb/{1,3,6,9}.md` y en
   `src/lib/chapter-names.json`, y los cuatro están bien.
+- **18 de octubre.** Quitada la cifra de `PROVENANCE.md`; quitados los 7 versos
+  duplicados del Gītā español y los 3 del ruso; quitada la copia repetida del
+  verso en 156 ficheros del español; corregido `Kumbhakonṇam` en español y
+  portugués; revertidas al impreso las tres lecturas de `cc/madhya/9/79`;
+  uniformadas a la latina las 65 etiquetas de hablante del hindi en `lcfl`.
+  Decidido y cerrado: la lista blanca del árabe **se queda cerrada**, y
+  `life-comes-from-life` en español **se queda en un bloque**.
+- El barrido de topónimos modernizados está hecho sobre todo el corpus inglés:
+  lo que sale en conferencias y conversaciones no se toca, y en los libros solo
+  queda `cc/madhya/9/74`. No hay que volver a barrer, hay que mirar esa imagen.
 
 ---
 

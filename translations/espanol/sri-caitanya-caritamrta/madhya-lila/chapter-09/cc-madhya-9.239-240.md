@@ -3,9 +3,6 @@
 > siddhānta-śāstra nāhi 'brahma-saṁhitā'ra sama\
 > govinda-mahimā jñānera parama kāraṇa
 
-> siddhānta-śāstra nāhi 'brahma-saṁhitā'ra sama\
-> govinda-mahimā jñānera parama kāraṇa
-
 > alpākṣare kahe siddhānta apāra\
 > sakala-vaiṣṇava-śāstra-madhye ati sāra
 

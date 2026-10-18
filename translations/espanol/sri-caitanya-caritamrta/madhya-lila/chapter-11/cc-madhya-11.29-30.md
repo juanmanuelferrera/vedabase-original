@@ -5,11 +5,6 @@
 > mad-bhakta-pūjābhyadhikā\
 > sarva-bhūteṣu man-matiḥ
 
-> ādaraḥ paricaryāyāṁ\
-> sarvāṅgair abhivandanam\
-> mad-bhakta-pūjābhyadhikā\
-> sarva-bhūteṣu man-matiḥ
-
 > mad-artheṣv aṅga-ceṣṭā ca\
 > vacasā mad-guṇeraṇam\
 > mayy arpaṇaṁ ca manasaḥ\

@@ -5,11 +5,6 @@
 > arcanaṁ vandanaṁ dāsyaṁ\
 > sakhyam ātma-nivedanam
 
-> śravaṇaṁ kīrtanaṁ viṣṇoḥ\
-> smaraṇaṁ pāda-sevanam\
-> arcanaṁ vandanaṁ dāsyaṁ\
-> sakhyam ātma-nivedanam
-
 > iti puṁsārpitā viṣṇau\
 > bhaktiś cen nava-lakṣaṇā\
 > kriyeta bhagavaty addhā\

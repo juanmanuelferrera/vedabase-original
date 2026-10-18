@@ -3,9 +3,6 @@
 > sakhī vinā ei līlāya anyera nāhi gati\
 > sakhī-bhāve ye tāṅre kare anugati
 
-> sakhī vinā ei līlāya anyera nāhi gati\
-> sakhī-bhāve ye tāṅre kare anugati
-
 > rādhā-kṛṣṇa-kuñjasevā-sādhya sei pāya\
 > sei sādhya pāite āra nāhika upāya
 

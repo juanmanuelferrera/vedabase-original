@@ -3,9 +3,6 @@
 > nija-gaṇa āni' kahe vinaya kariyā\
 > āliṅgana kari' sabāya śrī-haste dhariyā
 
-> nija-gaṇa āni' kahe vinaya kariyā\
-> āliṅgana kari' sabāya śrī-haste dhariyā
-
 > tomā-sabā jāni āmi prāṇādhika kari'\
 > prāṇa chāḍā yāya, tomā-sabā chāḍite nā pāri
 

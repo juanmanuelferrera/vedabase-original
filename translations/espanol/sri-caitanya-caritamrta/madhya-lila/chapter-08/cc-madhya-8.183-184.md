@@ -3,9 +3,6 @@
 > yāṅra saubhāgya-guṇa vāñche satyabhāmā\
 > yāṅra ṭhāñi kalā-vilāsa śikhe vraja-rāmā
 
-> yāṅra saubhāgya-guṇa vāñche satyabhāmā\
-> yāṅra ṭhāñi kalā-vilāsa śikhe vraja-rāmā
-
 > yāṅra saundaryādi-guṇa vāñche lakṣmī-pārvatī\
 > yāṅra pativratā-dharma vāñche arundhatī
 

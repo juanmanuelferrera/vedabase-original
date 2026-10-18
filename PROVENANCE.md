@@ -13,7 +13,7 @@ withdrawn; the transaction ids go in the table below as they are published.
 
 | Piece | What it is | Where it lives today | Size | Arweave |
 |---|---|---|---|---|
-| **corpus** | The text of the first editions in five languages, 107,114 files, all of them published | this repository | 495 MB | see [ANCHORS.md](ANCHORS.md) |
+| **corpus** | The text of the first editions in five languages, all of it published; for the file count see [ANCHORS.md](ANCHORS.md) | this repository | 495 MB | see [ANCHORS.md](ANCHORS.md) |
 | **corrections** | The ledger of corrections applied to the text | this repository, `*.jsonl` | 272 MB | see [ANCHORS.md](ANCHORS.md) |
 | **scans** | 71 PDFs of the printed books, including the complete Śrīmad-Bhāgavatam | `scan_vedabase/originals/` | 2,078 MB | see [ANCHORS.md](ANCHORS.md) |
 | **ocr-packed** | Every page as read by both engines, one `.tar` per book | `surya_ocr/`, `.../scan_audit/ocr/` | 193 MB | see [ANCHORS.md](ANCHORS.md) |

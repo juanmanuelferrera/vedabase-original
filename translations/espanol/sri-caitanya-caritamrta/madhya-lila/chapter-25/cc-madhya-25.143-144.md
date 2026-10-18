@@ -5,11 +5,6 @@
 > gāyatrī-bhāṣya-rūpo 'sau\
 > vedārtha-paribṛṁhitaḥ
 
-> artho 'yaṁ brahma-sūtrāṇāṁ\
-> bhāratārtha-vinirṇayaḥ\
-> gāyatrī-bhāṣya-rūpo 'sau\
-> vedārtha-paribṛṁhitaḥ
-
 > purāṇānāṁ sāma-rūpaḥ\
 > sākṣād-bhagavatoditaḥ\
 > dvādaśa-skandha-yukto 'yaṁ\

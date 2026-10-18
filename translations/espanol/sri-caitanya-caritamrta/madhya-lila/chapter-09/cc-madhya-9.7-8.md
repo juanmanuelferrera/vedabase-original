@@ -3,9 +3,6 @@
 > pūrvavat pathe yāite ye pāya daraśana\
 > yei grāme yāya, se grāmera yata jana
 
-> pūrvavat pathe yāite ye pāya daraśana\
-> yei grāme yāya, se grāmera yata jana
-
 > sabei vaiṣṇava haya, kahe 'kṛṣṇa' 'hari'\
 > anya grāma nistāraye sei 'vaiṣṇava' kari'
 

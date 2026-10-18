@@ -3,9 +3,6 @@
 > tabe prabhu puchilena,—'śuna, śiśu-gaṇa\
 > kaha dekhi, kon pathe yāba vṛndāvana'
 
-> tabe prabhu puchilena,—'śuna, śiśu-gaṇa\
-> kaha dekhi, kon pathe yāba vṛndāvana'
-
 > śiśu saba gaṅgā-tīra-patha dekhāila\
 > sei pathe āveśe prabhu gamana karila
 

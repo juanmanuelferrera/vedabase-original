@@ -3,9 +3,6 @@
 > krandanera chale balāila hari-nāma\
 > nārī saba 'hari' bale,—hāse gaura-dhāma
 
-> krandanera chale balāila hari-nāma\
-> nārī saba 'hari' bale,--hāse gaura-dhāma
-
 *krandanera*—del llanto; *chale*—con el pretexto; *balāila*—hizo que dijeran; *hari-nāma*—el santo nombre del Señor; *nārī*—las señoras; *saba*—todas; *'hari' bale*—cantan el santo nombre del Señor; *hāse*—se ríe; *gaura-dhāma*—el Señor Śrī Caitanya siendo un niño.
 
 **El Señor hizo que todas las señoras cantaran los santos nombres del mahā-mantra Hare Kṛṣṇa con el pretexto de Su llanto, y mientras ellas cantaban, el Señor sonreía.**
