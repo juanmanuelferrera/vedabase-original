@@ -69,10 +69,25 @@ Nada de esto corre prisa. Lo que sigue abierto, en una línea cada cosa:
    describe lo que hay en el repo. Esto no se puede cerrar desde el mini: la
    raíz del paquete se calcula en el MacBook (ver arriba) y el monedero quedó
    en 0,003 créditos.
-2. **Aplicar `arreglo_d1_2026-10-18.sql`**, en `astro_vedabase/scripts/`. Son
-   cuatro bloques y ninguno se ha ejecutado todavía: `corrections.jsonl` tiene
-   5 filas en `applied_d1: false` esperándolo (las 4 nuevas y `krp/2`, que está
-   descartada desde agosto).
+2. ~~Aplicar `arreglo_d1_2026-10-18.sql`.~~ **Hecho el 18 de octubre**: los
+   cuatro bloques entraron, 11 enunciados, y el canary pasó de 17/25 a 25/25.
+   Las 4 filas del día están en `applied_d1: true`; la única que sigue en
+   `false` es `krp/2`, descartada desde agosto, y ahí debe quedarse.
+
+   **Aviso para la próxima vez que haya que tocar D1.** `wrangler d1 execute
+   --file=…` **no sirve con el token OAuth**: sube el fichero al endpoint
+   `/import` y ese responde `Authentication error [code: 10000]` aunque el
+   token tenga `d1 (write)` y rol de Super Administrador. La vía que funciona
+   es `--command`, que va por `/query`:
+
+   ```
+   npx wrangler d1 execute vedabase-search-db --remote \
+       --command "$(grep -v '^--' scripts/arreglo_d1_2026-10-18.sql | tr '\n' ' ')"
+   ```
+
+   El `grep` quita los comentarios y el `tr` deja los enunciados en una línea.
+   La otra salida sería exportar un API Token con `D1:Edit` en
+   `CLOUDFLARE_API_TOKEN`, que sí desbloquea el `--file`.
 3. **`cc/madhya/9/74`**, el último topónimo modernizado vivo: pide la imagen, y
    los escaneos están en el MacBook (punto 2e).
 4. **Los 19 libros pequeños** (2g) y **las traducciones de varios párrafos**
