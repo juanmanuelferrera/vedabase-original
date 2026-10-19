@@ -5,35 +5,48 @@ cada vez que se cierra o se abre algo, y si entrara, cada nota movería la raíz
 del corpus y con ella la del paquete. Las cifras que describen lo publicado no
 están aquí, están en [ANCHORS.md](ANCHORS.md).
 
-Última revisión: **18 de octubre de 2026**, tras cerrar los puntos 1, 2, 2d, 2e,
-2i y 4. Lo que quedó abierto está marcado como tal.
+Última revisión: **19 de octubre de 2026**, tras unificar el trabajo en el Mac
+mini y cerrar el punto 3. Lo que quedó abierto está marcado como tal.
 
 ---
 
-## Antes de tocar nada: cómo se reparte el trabajo
+## Antes de tocar nada: el mini es la única máquina
 
-**Ninguna de las dos máquinas tiene el archivo completo**, y eso ha causado tres
-errores en un solo día. Conviene tenerlo presente:
+**Desde el 19 de octubre, todo se hace en el Mac mini.** Al MacBook se entra por
+Tailscale y Parsec, es decir, se entra al mini desde él: ya no es una segunda
+máquina con trabajo propio. Allí `git_projects` está renombrado a
+`git_projects_OLD`, que es donde seguían los escaneos.
 
-| | Mac mini | MacBook (`jagannatha`) |
-|---|---|---|
-| `UPLOAD-STATE.json` | **el bueno** | el de septiembre, atrasado |
-| Corpus, `corrections`, `_index` | sí | sí |
-| Escaneos (2 GB), OCR, informes | **no** | **sí** |
-| Sube a Arweave | **sí** | no |
-| Calcula la raíz del paquete | no puede | **sí** |
+Lo que faltaba aquí se trajo ese día por `rsync` sobre Tailscale, contado en los
+dos extremos:
 
-El monedero de Turbo es `~/.arweave/wallet.json`, enlazado a Dropbox: el saldo es
-el mismo desde las dos. Al cerrar quedó en 0,003 créditos, prácticamente cero.
+| | ficheros | tamaño |
+|---|---:|---:|
+| `scan_vedabase/originals` (los PDF) | 102 (71 `.pdf`) | 2 124 580 394 B |
+| `scan_vedabase/surya_ocr` | 35 529 | 139 MB |
 
-**No ejecutes `upload_archive.py` en el MacBook.** Su fichero de estado ve como
-pendientes miles de ficheros que ya están publicados, y volvería a pagarlos. Hay
-un guardián que lo impide (`scripts/UPLOAD-STATE.suelo`), pero no conviene
-probarlo.
+Con eso el mini ya reúne **todo** lo que `build_archive.py` necesita —corpus,
+escaneos, OCR y el registro de auditoría—, que era lo único que le impedía
+calcular la raíz del paquete. Dos avisos que siguen valiendo:
+
+- **El disco va justo**: quedan unos 7 GiB libres de 228.
+- **El `MANIFEST.sha256` que hay en `~/vedabase-archive` del mini es el del 17
+  de septiembre** —103 481 ficheros, `_index` en 124, la firma exacta del error
+  de aquel día—. No vale para nada: al reconstruir hay que contar de cero y
+  comparar por secciones. El `UPLOAD-STATE.json` de aquí sí es el bueno
+  (107 763 subidos).
+
+El monedero de Turbo es `~/.arweave/wallet.json`, enlazado a Dropbox. Al cerrar
+quedó en 0,003 créditos, prácticamente cero.
+
+**No ejecutes `upload_archive.py` en el MacBook**, aunque ya no haya motivo para
+ejecutar nada allí. Su fichero de estado ve como pendientes miles de ficheros
+que ya están publicados, y volvería a pagarlos. Hay un guardián que lo impide
+(`scripts/UPLOAD-STATE.suelo`), pero no conviene probarlo.
 
 ### Recalcular la raíz del paquete
 
-En el MacBook, siempre en este orden:
+En el mini, siempre en este orden:
 
 ```
 cd ~/git_projects/vedabase-original && git pull
@@ -88,8 +101,11 @@ Nada de esto corre prisa. Lo que sigue abierto, en una línea cada cosa:
    El `grep` quita los comentarios y el `tr` deja los enunciados en una línea.
    La otra salida sería exportar un API Token con `D1:Edit` en
    `CLOUDFLARE_API_TOKEN`, que sí desbloquea el `--file`.
-3. **`cc/madhya/9/74`**, el último topónimo modernizado vivo: pide la imagen, y
-   los escaneos están en el MacBook (punto 2e).
+3. **«river Kāverī» en minúscula** en `cc/madhya/9/80`, `cc/madhya/9/87` y
+   `cc/madhya/1/107`, donde el impreso escribe «River Kāverī». Salió al
+   adjudicar el 9.74 (ver abajo); los escaneos están aquí, así que es barato.
+   Y el topónimo moderno sigue en español y portugués, una aparición en cada
+   uno de `9/74` y `9/79`: el 18 de octubre se revirtió solo el inglés.
 4. **Los 19 libros pequeños** (2g) y **las traducciones de varios párrafos**
    (2h). Es lo único grande que queda, y ahora está diagnosticado.
 
@@ -254,10 +270,29 @@ En los libros queda **un solo caso vivo**:
 > `cc/madhya/9/74`: «went to the bank of the river Kāverī via the district of
 > **Tiruchchirāpalli**». Mismo topónimo, mismo capítulo, mismo río que el 9.79.
 
-**No se ha tocado**, y a propósito: adjudicar pide la imagen, y los escaneos
-están en el MacBook, no en el mini. Es lo primero que hay que mirar el día que
-se trabaje desde allí. (`Trivandrum` en `cc/madhya/1/115` se miró y se deja: es
-el nombre antiguo, no el moderno.)
+**Adjudicado el 19 de octubre**, con los escaneos ya en el mini. Visto el
+impreso a 400 dpi (`mad3.pdf`, páginas 365-366 del PDF = **pp. 332-333
+impresas**), no era una divergencia sino **cinco**:
+
+| impreso (1975, pp. 332-333) | lo que servíamos |
+|---|---|
+| via the district of **Tricinapallī** | via the district of **Tiruchchirāpalli** |
+| a devotee of Lord Śiva**,** came to that temple**,** and | sin ninguna de las dos comas |
+| the **River** Kāverī (sinónimos, traducción y purport) | the **r**iver Kāverī, las tres |
+
+Las dos comas son el mismo defecto que se adjudicó en el 9.79: puntuación
+perdida en una pasada de correcciones, y no se habría visto sin la imagen.
+
+Aplicado al Markdown y a `cc_en.jsonl` por un mismo guion que aborta si los
+recuentos no cuadran —5 sustituciones en cada uno, y después 0 restos de las
+lecturas viejas—, dado de alta en `corrections.jsonl` y **aplicado en D1**
+(`scripts/arreglo_d1_2026-10-19.sql`, 4 enunciados) y comprobado en vivo con la
+caché desactivada. La página del escaneo que se calculó, `mad3#p0366`, coincide
+con la que ya traía la corrección de agosto sobre ese mismo verso: dos caminos
+independientes al mismo sitio.
+
+(`Trivandrum` en `cc/madhya/1/115` se miró y se deja: es el nombre antiguo, no
+el moderno.)
 
 ### 2f. Los `.jsonl` de `bg`, `cc` y `sb`: arreglado el 14 de octubre
 
@@ -487,8 +522,13 @@ Escrito para que nadie lo reabra por error. El detalle y el porqué están en
   Decidido y cerrado: la lista blanca del árabe **se queda cerrada**, y
   `life-comes-from-life` en español **se queda en un bloque**.
 - El barrido de topónimos modernizados está hecho sobre todo el corpus inglés:
-  lo que sale en conferencias y conversaciones no se toca, y en los libros solo
-  queda `cc/madhya/9/74`. No hay que volver a barrer, hay que mirar esa imagen.
+  lo que sale en conferencias y conversaciones no se toca, y en los libros el
+  único que quedaba, `cc/madhya/9/74`, se adjudicó el 19 de octubre (2e). No hay
+  que volver a barrer.
+- **19 de octubre.** El mini pasa a ser la única máquina: traídos por Tailscale
+  los 102 ficheros de escaneos (2 124 580 394 B) y los 35 529 del OCR de Surya.
+  Cerrado `cc/madhya/9/74`, en el repo y en D1. `corrections.jsonl` vuelve a
+  tener una sola fila en `false`: `krp/2`, la descartada de agosto.
 
 ---
 
