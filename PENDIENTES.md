@@ -1,5 +1,13 @@
 # Pendientes
 
+Estado: corpus, `.jsonl` y D1 al día; cerrados `cc/madhya/9/74` y la decisión de
+no republicar en Arweave. El Mac mini es ya la única máquina (escaneos y OCR
+traídos el 19-oct). Abiertos: los puntos 3 y 4 de la lista de abajo.
+Siguiente: adjudicar contra el impreso «the river Kāverī» en minúscula en
+`cc/madhya/9/80`, `cc/madhya/9/87` y `cc/madhya/1/107` — los escaneos ya están
+aquí (`mad1.pdf`, `mad3.pdf`). Pendiente de decidir: si la decisión de no
+republicar se anota también en `ANCHORS.md`.
+
 Cuaderno de trabajo. Queda **fuera de los dos manifiestos** a propósito: cambia
 cada vez que se cierra o se abre algo, y si entrara, cada nota movería la raíz
 del corpus y con ella la del paquete. Las cifras que describen lo publicado no
