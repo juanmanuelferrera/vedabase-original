@@ -2,11 +2,12 @@
 
 Estado: corpus, `.jsonl` y D1 al día; cerrados `cc/madhya/9/74` y la decisión de
 no republicar en Arweave. El Mac mini es ya la única máquina (escaneos y OCR
-traídos el 19-oct). Abiertos: los puntos 3 y 4 de la lista de abajo.
+traídos el 19-oct). Abiertos: los puntos 3, 4 y 5 de la lista de abajo.
 Siguiente: adjudicar contra el impreso «the river Kāverī» en minúscula en
 `cc/madhya/9/80`, `cc/madhya/9/87` y `cc/madhya/1/107` — los escaneos ya están
 aquí (`mad1.pdf`, `mad3.pdf`). Pendiente de decidir: si la decisión de no
-republicar se anota también en `ANCHORS.md`.
+republicar se anota también en `ANCHORS.md`, y el alcance del HTML de
+Īśopaniṣad del Escritorio (las 50 entradas o solo los 18 mantras).
 
 Cuaderno de trabajo. Queda **fuera de los dos manifiestos** a propósito: cambia
 cada vez que se cierra o se abre algo, y si entrara, cada nota movería la raíz
@@ -114,6 +115,12 @@ Nada de esto corre prisa. Lo que sigue abierto, en una línea cada cosa:
    uno de `9/74` y `9/79`: el 18 de octubre se revirtió solo el inglés.
 4. **Los 19 libros pequeños** (2g) y **las traducciones de varios párrafos**
    (2h). Es lo único grande que queda, y ahora está diagnosticado.
+5. **`linge` de `iso/16` no está declarada como errata del impreso.** Se sirve
+   en vedabase.cc («without any linge of material inebrieties», p. 84 del
+   impreso de 1969), pero `PRINT_ERRATA.md` tiene 76 filas y **ninguna de
+   Īśopaniṣad**, y la página pública `/print-errata/` no la menciona. O falta la
+   fila en la tabla `print_errata` de D1, o se decidió dejarla fuera; no se ha
+   averiguado cuál de las dos. El lector ve la errata sin la nota que la explica.
 
 Lo demás de esta sección está cerrado y se deja escrito para que no se reabra.
 
@@ -554,6 +561,17 @@ Escrito para que nadie lo reabra por error. El detalle y el porqué están en
   los 102 ficheros de escaneos (2 124 580 394 B) y los 35 529 del OCR de Surya.
   Cerrado `cc/madhya/9/74`, en el repo y en D1. `corrections.jsonl` vuelve a
   tener una sola fila en `false`: `krp/2`, la descartada de agosto.
+
+- **20 de octubre.** Repasados los **50 cambios de `Śrī Īśopaniṣad`** de
+  `corrections.jsonl` (37 `synonyms`, 11 texto, 1 significado, 1 barrido de 266
+  `ã`→`ā` en 15 ficheros; las 50 con `applied_d1: true`). Comprobada la cadena
+  completa en tres muestras —fichero del repo, D1 y la web en vivo sin caché—:
+  `iso/3` «covered by», `iso/7` «not fire», `iso/16` «linge». Las 7 entradas que
+  llevaban `file: (isopanisad / teachings-of-queen-kunti)` son de Īśopaniṣad: 6
+  localizadas en `iso-introduction.md` y 1 en `om-purnam-adah-purnam-idam.md`,
+  ninguna en `teachings-of-queen-kunti/` (la única de Kuntī es `tqk/0a`). De ahí
+  salió el punto 5 de la lista de arriba. Hecho fuera del repo, en el Escritorio:
+  `cambios-isopanisad.html`, una página con los 50 cambios agrupados por mantra.
 
 ---
 
