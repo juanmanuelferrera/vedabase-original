@@ -5,8 +5,7 @@ cada vez que se cierra o se abre algo, y si entrara, cada nota movería la raíz
 del corpus y con ella la del paquete. Las cifras que describen lo publicado no
 están aquí, están en [ANCHORS.md](ANCHORS.md).
 
-Última revisión: **19 de octubre de 2026**, tras unificar el trabajo en el Mac
-mini y cerrar el punto 3. Lo que quedó abierto está marcado como tal.
+Última revisión: **20 de octubre de 2026**, tras decidir que no se republica. Lo que quedó abierto está marcado como tal.
 
 ---
 
@@ -71,17 +70,16 @@ awk '{print $2}' ~/vedabase-archive/MANIFEST.sha256 | grep -v '^$' | cut -d/ -f1
 Así se encontró el último error del día: `_index` en 124 donde el archivo tenía
 126.
 
+Todo esto se deja escrito por si algún día hay que republicar. **No es el plan**:
+ver la decisión del 20 de octubre, abajo.
+
 ---
 
 ## Lo que queda por hacer
 
 Nada de esto corre prisa. Lo que sigue abierto, en una línea cada cosa:
 
-1. **Republicar.** El 18 de octubre se movió el corpus: 10 ficheros menos, 162
-   con el texto cambiado, 7 `.jsonl` y `PROVENANCE.md`. La raíz publicada ya no
-   describe lo que hay en el repo. Esto no se puede cerrar desde el mini: la
-   raíz del paquete se calcula en el MacBook (ver arriba) y el monedero quedó
-   en 0,003 créditos.
+1. ~~Republicar.~~ **Decidido el 20 de octubre: no se republica.** Ver abajo.
 2. ~~Aplicar `arreglo_d1_2026-10-18.sql`.~~ **Hecho el 18 de octubre**: los
    cuatro bloques entraron, 11 enunciados, y el canary pasó de 17/25 a 25/25.
    Las 4 filas del día están en `applied_d1: true`; la única que sigue en
@@ -525,6 +523,25 @@ Escrito para que nadie lo reabra por error. El detalle y el porqué están en
   lo que sale en conferencias y conversaciones no se toca, y en los libros el
   único que quedaba, `cc/madhya/9/74`, se adjudicó el 19 de octubre (2e). No hay
   que volver a barrer.
+- **20 de octubre: no se republica en Arweave.** Lo anclado es la raíz del 20
+  de septiembre, y **describe el corpus de ese día, no el de hoy**. Desde
+  entonces el repo se ha movido dos veces: el 18 de octubre (10 ficheros menos,
+  162 con el texto cambiado, 7 `.jsonl` y `PROVENANCE.md`) y el 19 (el verso
+  `cc/madhya/9/74` y `cc_en.jsonl`). Nada de eso está publicado ni va a estarlo.
+
+  El porqué: republicar cuesta unos 0,37 créditos (2,69 $) solo por los dos
+  manifiestos, el monedero está en 0,003, y lo que se ganaría es que la copia
+  permanente incluyera un puñado de comas y dos topónimos. El texto publicado no
+  está mal: está en el estado del 20 de septiembre, que es una lectura honrada
+  del impreso. Lo que vive y se corrige es el repo y D1 —que es lo que la gente
+  lee en vedabase.cc—, y ahí sí está todo al día.
+
+  **La consecuencia hay que tenerla presente, no esconderla:** quien compare el
+  repo con la raíz anclada encontrará diferencias, y a partir de hoy **esa
+  diferencia es la esperada**. No es una raíz sin explicar —que es lo que
+  `ANCHORS.md` existe para evitar—, es una decisión escrita aquí. Si algún día
+  se republica, se republica todo junto y se anota allí la raíz nueva.
+
 - **19 de octubre.** El mini pasa a ser la única máquina: traídos por Tailscale
   los 102 ficheros de escaneos (2 124 580 394 B) y los 35 529 del OCR de Surya.
   Cerrado `cc/madhya/9/74`, en el repo y en D1. `corrections.jsonl` vuelve a
