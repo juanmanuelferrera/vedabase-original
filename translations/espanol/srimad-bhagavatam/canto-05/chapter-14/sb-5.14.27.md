@@ -8,7 +8,7 @@
 
 **En la vida materialista hay muchas dificultades, y todas ellas son insuperables. Además de las que acabo de mencionarte, hay dificultades que vienen de lo que se llama felicidad, aflicción, apego, odio, miedo, prestigio falso, ilusión, locura, lamentación, confusión, codicia, envidia, enemistad, insulto, hambre, sed, tribulación, enfermedad, nacimiento, vejez y muerte. Todas ellas se combinan y, de este modo, el alma condicionada materialista sufre constantemente.**
 
-El alma condicionada tiene que aceptar todos esos condicionamientos simplemente para disfrutar de la complacencia de los sentidos en este mundo. Muchas personas se presentan como grandes científicos, economistas, filósofos, políticos y sociólogos, pero en realidad son simples sinvergüenzas. Por eso el *Bhagavad-gītā* (7.15) les califica de*mūḍhas* y *narādhamas:*
+El alma condicionada tiene que aceptar todos esos condicionamientos simplemente para disfrutar de la complacencia de los sentidos en este mundo. Muchas personas se presentan como grandes científicos, economistas, filósofos, políticos y sociólogos, pero en realidad son simples sinvergüenzas. Por eso el *Bhagavad-gītā* (7.15) les califica de *mūḍhas* y *narādhamas:*
 
 > na māṁ duṣkṛtino mūḍhāḥ
 > prapadyante narādhamāḥ

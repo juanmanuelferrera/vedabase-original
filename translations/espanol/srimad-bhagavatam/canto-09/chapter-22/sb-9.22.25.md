@@ -19,4 +19,4 @@ Vicitravīrya murió de tuberculosis sin que sus esposas, Ambikā y Ambālikā, 
 > devareṇa sutotpattiṁ
 > kalau pañca vivarjayet
 
-«En la era de Kali, hay cinco actividades prohibidas: ofrecer un caballo en sacrificio, ofrecer una vaca en sacrificio, aceptar la orden de*sannyāsa*, ofrecer oblaciones de carne a los antepasados, y engendrar hijos en la esposa de un hermano» (*Brahma-vaivarta Purāṇa*).
+«En la era de Kali, hay cinco actividades prohibidas: ofrecer un caballo en sacrificio, ofrecer una vaca en sacrificio, aceptar la orden de *sannyāsa*, ofrecer oblaciones de carne a los antepasados, y engendrar hijos en la esposa de un hermano» (*Brahma-vaivarta Purāṇa*).

@@ -8,7 +8,7 @@
 > samo bhavāṁs tāsv asurādiṣu prabho\
 > tathāpi bhaktaṁ bhajate maheśvaraḥ
 
-*tava*—tuyos; *eva*—en verdad; *mārīca*—¡oh, hijo de Marīci!; *manaḥ-śarīra-jāḥ*—nacidos, o bien de tu cuerpo, o de tu mente (todos los demonios y semidioses); *prajāḥ*—nacidos de ti; *imāḥ*—todos ellos; *sattva-rajaḥ-tamaḥ-juṣaḥ*—infectados de*sattva-guṇa*, *rajo-guṇa* o *tamo-guṇa*; *samaḥ*—ecuánime; *bhavān*—Tu Gracia; *tāsu*—a cada uno de ellos; *asura-ādiṣu*—comenzando con los *asuras*; *prabho*—¡oh, mi señor!; *tathā api*—aun así; *bhaktam*—a los devotos; *bhajate*—cuida; *mahā-īśvaraḥ*—la Suprema Personalidad de Dios, el controlador supremo.
+*tava*—tuyos; *eva*—en verdad; *mārīca*—¡oh, hijo de Marīci!; *manaḥ-śarīra-jāḥ*—nacidos, o bien de tu cuerpo, o de tu mente (todos los demonios y semidioses); *prajāḥ*—nacidos de ti; *imāḥ*—todos ellos; *sattva-rajaḥ-tamaḥ-juṣaḥ*—infectados de *sattva-guṇa*, *rajo-guṇa* o *tamo-guṇa*; *samaḥ*—ecuánime; *bhavān*—Tu Gracia; *tāsu*—a cada uno de ellos; *asura-ādiṣu*—comenzando con los *asuras*; *prabho*—¡oh, mi señor!; *tathā api*—aun así; *bhaktam*—a los devotos; *bhajate*—cuida; *mahā-īśvaraḥ*—la Suprema Personalidad de Dios, el controlador supremo.
 
 **¡Oh, hijo de Marīci!, eres una gran personalidad, y eso te hace ser ecuánime con todos los demonios y semidioses, que han nacido, o bien de tu cuerpo, o bien de tu mente, y que poseen alguna de las tres cualidades, ya sea sattva-guṇa, rajo-guṇa otamo-guṇa. Sin embargo, la Suprema Personalidad de Dios, el controlador supremo, siente especial inclinación por los devotos, aunque es ecuánime con todas las entidades vivientes.**
 

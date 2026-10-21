@@ -8,7 +8,7 @@
 > ātmanaḥ sarva-bhūtānāṁ\
 > bhayaṁ tīvraṁ nivartate
 
-*na*—no; *anyatra*—de otro modo; *mat*—que yo; *bhagavataḥ*—la Suprema Personalidad de Dios; *pradhāna-puruṣa-īśvarāt*—el Señor tanto de*prakṛti* como de *puruṣa*; *ātmanaḥ*—el alma; *sarva-bhūtānām*—de todos los seres vivos; *bhayam*—temor; *tīvram*—terrible; *nivartate*—es eliminado.
+*na*—no; *anyatra*—de otro modo; *mat*—que yo; *bhagavataḥ*—la Suprema Personalidad de Dios; *pradhāna-puruṣa-īśvarāt*—el Señor tanto de *prakṛti* como de *puruṣa*; *ātmanaḥ*—el alma; *sarva-bhūtānām*—de todos los seres vivos; *bhayam*—temor; *tīvram*—terrible; *nivartate*—es eliminado.
 
 **El terrible temor al nacimiento y la muerte nunca puede ser abandonado por nadie que recurra a un refugio que no sea Yo mismo, pues Yo soy el Señor todopoderoso, la Suprema Personalidad de Dios, la fuente original de toda la creación, y también el Alma Suprema de todas las almas.**
 

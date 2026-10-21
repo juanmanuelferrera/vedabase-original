@@ -4,7 +4,7 @@
 
 > ārṣṭiṣeṇena saha gandharvair anugīyamānāṁ parama-kalyāṇīṁ bhartṛ-bhagavat-kathāṁ samupaśṛṇoti svayaṁ cedaṁ gāyati.
 
-*ārṣṭi-ṣeṇena*—Ārṣṭiṣeṇa, la personalidad más importante de Kimpuruṣa-varṣa; *saha*—con; *gandharvaiḥ*—por una compañía de*gandharvas*; *anugīyamānām*—cantadas; *parama-kalyāṇīm*—sumamente auspiciosas; *bhartṛ-bhagavat-kathām*—las glorias de su Señor, que es también la Suprema Personalidad de Dios; *samupaśṛṇoti*—escucha con gran atención; *svayam ca*—y personalmente; *idam*—esto; *gāyati*—canta.
+*ārṣṭi-ṣeṇena*—Ārṣṭiṣeṇa, la personalidad más importante de Kimpuruṣa-varṣa; *saha*—con; *gandharvaiḥ*—por una compañía de *gandharvas*; *anugīyamānām*—cantadas; *parama-kalyāṇīm*—sumamente auspiciosas; *bhartṛ-bhagavat-kathām*—las glorias de su Señor, que es también la Suprema Personalidad de Dios; *samupaśṛṇoti*—escucha con gran atención; *svayam ca*—y personalmente; *idam*—esto; *gāyati*—canta.
 
 **Un ejército de gandharvas canta constantemente las glorias del Señor Rāmacandra. Ese cántico es extremadamente auspicioso. Hanumānjī y Ārṣṭiṣeṇa, la persona más importante de Kimpuruṣa-varṣa, siempre están escuchando esas glorificaciones con suma atención. Hanumān canta los siguientes mantras.**
 

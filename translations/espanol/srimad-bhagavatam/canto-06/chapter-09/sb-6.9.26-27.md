@@ -44,4 +44,4 @@ Si lo estudiamos de un modo superficial, *prakṛti* y *puruṣa* parecen ser la
 > prakṛtiḥ puruṣaś ceti
 > śabdair eko 'bhidhīyate
 
-Para generar el universo, el Señor actúa indirectamente en forma de *puruṣa*, y directamente en forma de*prakṛti*. Ambas energías emanan del Señor Vāsudeva, la omnipresente Suprema Personalidad de Dios; por esa razón, a Él se Le conoce a la vez como *prakṛti* y como *puruṣa*. Por lo tanto, Vāsudeva es la causa de todo (*sarva kāraṇa-kāraṇam*).
+Para generar el universo, el Señor actúa indirectamente en forma de *puruṣa*, y directamente en forma de *prakṛti*. Ambas energías emanan del Señor Vāsudeva, la omnipresente Suprema Personalidad de Dios; por esa razón, a Él se Le conoce a la vez como *prakṛti* y como *puruṣa*. Por lo tanto, Vāsudeva es la causa de todo (*sarva kāraṇa-kāraṇam*).
