@@ -3,6 +3,9 @@
 Estado: corpus, `.jsonl` y D1 al día; cerrados `cc/madhya/9/74` y la decisión de
 no republicar en Arweave. El Mac mini es ya la única máquina (escaneos y OCR
 traídos el 19-oct). Abiertos: los puntos 3, 4 y 5 de la lista de abajo.
+27-oct: cotejo repo↔D1 de BG, SB y CC cerrado (20.276 versos; 0 diferencias de
+texto en BG y CC, 1 en SB que es la nota de `sb/10/13/64`, igual en ambos
+lados); ver «Cotejo repo↔D1 del 27 de octubre». MANIFEST regenerado, sin anclar.
 Siguiente: adjudicar contra el impreso «the river Kāverī» en minúscula en
 `cc/madhya/9/80`, `cc/madhya/9/87` y `cc/madhya/1/107` — los escaneos ya están
 aquí (`mad1.pdf`, `mad3.pdf`). Pendiente de decidir: si la decisión de no
@@ -14,7 +17,7 @@ cada vez que se cierra o se abre algo, y si entrara, cada nota movería la raíz
 del corpus y con ella la del paquete. Las cifras que describen lo publicado no
 están aquí, están en [ANCHORS.md](ANCHORS.md).
 
-Última revisión: **20 de octubre de 2026**, tras decidir que no se republica. Lo que quedó abierto está marcado como tal.
+Última revisión: **27 de octubre de 2026**, tras el cotejo repo↔D1. Lo que quedó abierto está marcado como tal.
 
 ---
 
@@ -83,6 +86,37 @@ Todo esto se deja escrito por si algún día hay que republicar. **No es el plan
 ver la decisión del 20 de octubre, abajo.
 
 ---
+
+## Cotejo repo↔D1 del 27 de octubre
+
+Se regeneró el `.md` de BG, SB y CC desde D1 (`build_from_d1.py` con otra salida)
+y se comparó verso por verso con el repo. Commits `19839d62e7` y `89d98bfe26`.
+
+- **Resultado:** 10 diferencias de texto, todas cerradas contra el impreso: D1
+  en SB 3.33.21, SB 8.8.38, CC Ādi 10.48, BG 18.20, SB 3.25.41, CC Madhya 8.176
+  y CC Madhya 9.1; el repo en CC Ādi 10.48, CC Madhya 9.1 (coma tras «mercy»),
+  SB 5.7.6 y SB 6.3.13. SB 10.13.64 no era diferencia real.
+- **Las entradas de jul/ago no valían:** `sb/3/33/21`, `sb/8/8/38` y `cc/adi/10/48`
+  constaban con `applied_d1: true` y D1 seguía distinto del impreso (el `replace` del
+  log es una ficha corta; `sync_from_d1.py` ejecuta `REPLACE(campo, viejo, nuevo)`,
+  que sustituye todas las apariciones). Hoy se aplicó con cadena larga, 1 aparición
+  comprobada antes y verificación después. El log no prueba que D1 esté bien: comparar.
+- **Punto ciego:** un error que repo y D1 comparten no sale en el cotejo. Hoy salieron
+  dos a ojo en el escaneo (SB 6.3.13 «worshipable. and», CC Madhya 9.1 sin coma tras
+  «mercy»). Abierto: 136 apariciones de «palabra. minúscula» en SB y CC (muchas son
+  versos sánscritos citados); habría que contrastarlas con Surya (`scan_vedabase/surya_ocr`).
+- **Punto por coma:** en SB 5.7.6 y SB 6.3.13 el punto era del primer OCR, no del
+  impreso. En `SB5.1` p.283 hay otras tres comas de la misma página que también se ven
+  como punto a 150 ppp; el repo las tiene como coma y Surya lee coma en las cuatro.
+  No es errata de imprenta: no va a `print_errata`.
+- **Resolución:** la imagen incrustada de esa página es de 150 ppp (solo se comprobó
+  esa página); «a 600 ppp» fue ampliar. Las menciones a 400–600 ppp de `PRINT_ERRATA.md`
+  no se pueden reproducir desde esos PDF.
+- **D1:** `--file` sigue sin servir (ver punto 2); `--command` sí. `LIKE` con patrón de
+  más de unos 50 bytes da «LIKE or GLOB pattern too complex»: usar `substr(...)=`.
+- **MANIFEST:** estaba caducado desde el 18–21 de octubre; regenerado, raíz `fc20e242…`,
+  `--check` OK, sin anclar (decisión del 20-oct).
+- **No hecho:** ebooks regenerados con estos cuatro versos; barrido de las 136.
 
 ## Lo que queda por hacer
 
