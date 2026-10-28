@@ -12,7 +12,7 @@
 
 **Lord Brahmā continued: My dear Priyavrata, seek shelter inside the opening in the lotus of the feet of the Lord, whose navel is also like a lotus. Thus conquer the six sense organs [the mind and knowledge-acquiring senses]. Accept material enjoyment because the Lord, extraordinarily, has ordered you to do this. You will thus always be liberated from material association and be able to carry out the Lord's orders in your constitutional position.**
 
-There are three kinds of men within this material world. Those who are trying to enjoy the senses to the utmost are called *karmīs,* above them are the *jñānīs,* who try to conquer the urges of the senses, and above them are the *yogīs,* who have already conquered the senses. None of them, however, are situated in a transcendental position. Only devotees. who belong to none of the above-mentioned groups, are transcendental. As explained in *Bhagavad-gītā* [[bg/14/26|(Bg. 14.26)]]:
+There are three kinds of men within this material world. Those who are trying to enjoy the senses to the utmost are called *karmīs,* above them are the *jñānīs,* who try to conquer the urges of the senses, and above them are the *yogīs,* who have already conquered the senses. None of them, however, are situated in a transcendental position. Only devotees, who belong to none of the above-mentioned groups, are transcendental. As explained in *Bhagavad-gītā* [[bg/14/26|(Bg. 14.26)]]:
 
 > māṁ ca yo 'vyabhicāreṇa
 > bhakti-yogena sevate

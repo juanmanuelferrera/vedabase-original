@@ -8,7 +8,7 @@
 
 **O Supreme Lord, You are full in every respect. You are certainly very satisfied when Your devotees offer You prayers with faltering voices and in ecstasy bring You tulasī leaves, water, twigs bearing new leaves, and newly grown grass. This surely makes You satisfied.**
 
-One does not need great wealth, education or opulence to satisfy the Supreme Personality of Godhead. If one is fully absorbed in love and ecstasy, he need offer only a flower and a little water. As stated in *Bhagavad-gītā, patraṁ puṣpaṁ phalaṁ toyaṁ yo me bhaktyā prayacchati:* "If one offers Me with love and devotion a leaf, a flower. fruit or water, I will accept it." [[bg/9/26|(Bg. 9.26)]]
+One does not need great wealth, education or opulence to satisfy the Supreme Personality of Godhead. If one is fully absorbed in love and ecstasy, he need offer only a flower and a little water. As stated in *Bhagavad-gītā, patraṁ puṣpaṁ phalaṁ toyaṁ yo me bhaktyā prayacchati:* "If one offers Me with love and devotion a leaf, a flower, fruit or water, I will accept it." [[bg/9/26|(Bg. 9.26)]]
 
 The Supreme Lord can be pleased only by devotional service: therefore it is said here that the Lord is surely satisfied by devotion and nothing else. Quoting from the *Gautamīya-tantra,* the *Hari-bhakti-vilāsa* states:
 

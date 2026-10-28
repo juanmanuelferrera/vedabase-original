@@ -8,7 +8,7 @@
 > īśe yathā no 'jita-manyu-raṁhasāṁ\
 > kas taṁ na manyeta jigīṣur ātmanaḥ
 
-*na*—never; *yasya*—whose; *māyā*—of the illusory energy; *guṇa*—in the qualities; *citta*—of the heart; *vṛttibhiḥ*—by the activities (thinking. feeling and willing); *nirīkṣataḥ*—of Him who is glancing; *hi*—certainly; *aṇu*—slightly; *api*—even; *dṛṣṭiḥ*—vision; *ajyate*—is affected; *īśe*—for the purpose of regulating; *yathā*—as; *naḥ*—of us; *ajita*—who have not conquered; *manyu*—of anger; *raṁhasām*—the force; *kaḥ*—who; *tam*—unto Him (the Supreme Lord); *na*—not; *manyeta*—would worship; *jigīṣuḥ*—aspiring to conquer; *ātmanaḥ*—the senses.
+*na*—never; *yasya*—whose; *māyā*—of the illusory energy; *guṇa*—in the qualities; *citta*—of the heart; *vṛttibhiḥ*—by the activities (thinking, feeling and willing); *nirīkṣataḥ*—of Him who is glancing; *hi*—certainly; *aṇu*—slightly; *api*—even; *dṛṣṭiḥ*—vision; *ajyate*—is affected; *īśe*—for the purpose of regulating; *yathā*—as; *naḥ*—of us; *ajita*—who have not conquered; *manyu*—of anger; *raṁhasām*—the force; *kaḥ*—who; *tam*—unto Him (the Supreme Lord); *na*—not; *manyeta*—would worship; *jigīṣuḥ*—aspiring to conquer; *ātmanaḥ*—the senses.
 
 **We cannot control the force of our anger. Therefore when we look at material things, we cannot avoid feeling attraction or repulsion for them. But the Supreme Lord is never affected in this way. Although He glances over the material world for the purpose of creating, maintaining and destroying it, He is not affected, even to the slightest degree. Therefore, one who desires to conquer the force of the senses must take shelter of the lotus feet of the Lord. Then he will be victorious.**
 

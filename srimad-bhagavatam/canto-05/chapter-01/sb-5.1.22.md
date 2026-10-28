@@ -17,7 +17,7 @@ Material affairs have herein been compared to an ocean of poison. They have been
 > saṁsāra-viṣānale,     divā-niśi hiyā jvale,
 > juḍāite nā kainu upāya
 
-"My heart is always burning in the fire of material existence. and I have made no provisions for getting out of it."
+"My heart is always burning in the fire of material existence, and I have made no provisions for getting out of it."
 
 > golokera prema-dhana,     hari-nāma-saṅkīrtana,
 > rati nā janmila kene tāya

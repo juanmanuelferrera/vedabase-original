@@ -4,7 +4,7 @@
 
 > yadyapi sva-viditaṁ sakala-dharmaṁ brāhmaṁ guhyaṁ brāhmaṇair darśita-mārgeṇa sāmādibhir upāyair janatām anuśaśāsa.
 
-*yadyapi*—although; *sva-viditam*—known by Him; *sakala-dharmam*—which includes all different types of occupational duties; *brāhmam*—Vedic instruction; *guhyam*—very confidential; *brāhmaṇaiḥ*—by the *brāhmaṇas*; *darśita-mārgeṇa*—by the path showed; *sāma-ādibhiḥ*—*sāma, dama, titikṣā* (controlling the mind. controlling the senses, practicing tolerance) and so on; *upāyaiḥ*—by the means; *janatām*—the people in general; *anuśaśāsa*—he ruled over.
+*yadyapi*—although; *sva-viditam*—known by Him; *sakala-dharmam*—which includes all different types of occupational duties; *brāhmam*—Vedic instruction; *guhyam*—very confidential; *brāhmaṇaiḥ*—by the *brāhmaṇas*; *darśita-mārgeṇa*—by the path showed; *sāma-ādibhiḥ*—*sāma, dama, titikṣā* (controlling the mind, controlling the senses, practicing tolerance) and so on; *upāyaiḥ*—by the means; *janatām*—the people in general; *anuśaśāsa*—he ruled over.
 
 **Although Lord Ṛṣabhadeva knew everything about confidential Vedic knowledge, which includes information about all types of occupational duties, He still maintained Himself as a kṣatriya and followed the instructions of the brāhmaṇas as they related to mind control, sense control, tolerance and so forth. Thus He ruled the people according to the system of varṇāśrama-dharma, which enjoins that the brāhmaṇas instruct the kṣatriyas and the kṣatriyas administer to the state through the vaiśyas and śūdras.**
 
