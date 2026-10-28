@@ -9,11 +9,11 @@
 # Comprobarlo por tu cuenta:
 #     python3 scripts/hash_manifest.py --check
 #
-# fecha:    2026-10-27 20:55 UTC
-# commit:   19839d62e7220bc9fb68dbebe31c3af9fef50a1b
+# fecha:    2026-10-28 06:10 UTC
+# commit:   ad7c2e2981f9c24478cfb3d4ea79de74f0d9d9c4
 # ficheros: 107261
-# bytes:    798651087
-# root:     fc20e24270889013a78f244a1d19f932bfbd3bba69894b0a486321749a0b2199
+# bytes:    798667804
+# root:     fa61fa1a6e91f3cac6c3bbb598539b67dd2c2cb54cedf75584f60de3ede99d0b
 #
 efbb9c92ced5131364d184269769070002b90c8128ca19e649df418752c33ea0  corpus/PRINT_ERRATA.md
 ec530d012134c7a922b8da1614041cef4b82fde02589203a515092f21cfd1814  corpus/PROVENANCE.md
@@ -702,7 +702,7 @@ dc13055a09b2de175682f89ca7319ba053bd15918f95f71aa6fc25d121be969b  corpus/bhagava
 b10fdd2016cc97838fd310a43a611c307e37e5a0f56c8a39f2e427bff43941be  corpus/bhagavad-gita-as-it-is/introduction.md
 741254c44730631b86dba96177985c179ac791c71e2c359998538aada0cf5ead  corpus/bhagavad-gita-as-it-is/preface.md
 adab77f7da68f2c3441a06ddea027aa24db9b90e15f8058b581e47dc787ffcc6  corpus/bhagavad-gita-as-it-is/title.md
-257e91bffe6a663dbf1e88ab25e8768097bcdccd345dd62ab339c57ff114e1e9  corpus/corrections.jsonl
+e2c9775ecbb14b01d45a7dc73edc816ed0245dee9a51756ad84264488c3508a7  corpus/corrections.jsonl
 46c67311cd2848daf2e8f3f8ed1bc6ad1918ca7db7594759283f5bb7dbc0dc01  corpus/easy-journey-to-other-planets/chapter-1.md
 94c5b294c8aca7d80aa78ad91414c899942067c0471ff22db815a874e084dc4e  corpus/easy-journey-to-other-planets/chapter-2.md
 b656879538f240b801a941b7b5980a9b7dd7f6e2092be4bcebcbffc8c875547f  corpus/easy-journey-to-other-planets/preface.md
@@ -16532,12 +16532,12 @@ abe833194a2d81a4531ada5e87a77573e67e6d9f0dacc91351d49ed2a5fceb90  corpus/srimad-
 a7daf35058530fa9d6fdfbda9707ebb8aa34add4288b73a9909f451d092b5de9  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.40.md
 9373ac941fe1dad7097c57bc5c4d9fcfbdca9abda98e1286bca621b483946ca6  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.41.md
 60f81526171760ebdb2d24dbf987b50f42d616a800869faf5789a4cc8e918ffd  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.42.md
-479b330ba4241aff25510c5b94b3c3bf75ea79fcd07a0806e321f760fc3faca7  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.43.md
+f87abc1b607f2299645e7e0b3071a2a2340285ed85754304625be2912a2dc310  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.43.md
 64a7a12cddb599975e3782594c05549fcb1185f831ed883eb691a4ff2b973875  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.44.md
 79dfc5bafec5ca6c29578c36ecb8f95b562d3f1fac7ac637ea1a3b31dad050df  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.45.md
 7f9d9ac0a4588d5109b483fd405ec531c81ce2abb6f5b01e2d2b5276a6f41def  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.46.md
 38d140223d770238adf27df84d739500fc71cfe436e4177aa6eb01f955d7f1c5  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.47.md
-4e016c879e3f5261216bcbea6b4e5b31903149cf35a3d4455c831e8734427295  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.48.md
+e3be9f7d4947e54e5c103a91852acf6a15674d56e0a015d58440e855fda691ea  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.48.md
 b12c246cf8fb6ad980dd3775bd672b2e8c5cd0d4b198f613b5ba9d368d191caf  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.49.md
 896cf075466863350e61a4d806b5d611583f9df65e23d29d71ed6cd4570550ed  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.5.md
 278125ec585d649206f6e51484ad048f75c11147161911ff6a566daa0b6b93fa  corpus/srimad-bhagavatam/canto-01/chapter-09/sb-1.9.6-7.md
@@ -16869,7 +16869,7 @@ b26d506a61d7f6395906300214e4821a9abd836fba96f3a48c667a4eb72b5b5c  corpus/srimad-
 c8b1ee3ed314af768d5259d941c2f2330dc14c94a507cff6907502413f517082  corpus/srimad-bhagavatam/canto-01/chapter-17/sb-1.17.7.md
 913738ee719d2b00262667e0e7648b85c4a16dfe0a047b459a3b436d69a08eec  corpus/srimad-bhagavatam/canto-01/chapter-17/sb-1.17.8.md
 7f08f55ea93a3f47f4db0aa819bda555248f84d5bfafc661b234fffc0d1e672a  corpus/srimad-bhagavatam/canto-01/chapter-17/sb-1.17.9.md
-767384ffe5b07ac65b176b8fefc3edf24eac531e800c1769d51b270c226ec659  corpus/srimad-bhagavatam/canto-01/chapter-18/sb-1.18.1.md
+29265818b87011df69269bbf063289722a87f1d156d0af706c50834c31f73174  corpus/srimad-bhagavatam/canto-01/chapter-18/sb-1.18.1.md
 a5dbb20622611905d9d55eb10788221af3bfbba23ac800a56b8661b6ad13b322  corpus/srimad-bhagavatam/canto-01/chapter-18/sb-1.18.10.md
 50b0c0143178d10d419c90e0ed242340398b56630d6ce3787c30ee3de990b3c5  corpus/srimad-bhagavatam/canto-01/chapter-18/sb-1.18.11.md
 410c8f6d89dcc0fae92cb42ca0f1e72bfc44f35edd2f59308e97e42ca1b0f8b1  corpus/srimad-bhagavatam/canto-01/chapter-18/sb-1.18.12.md
@@ -20082,7 +20082,7 @@ c43adc0d38f66ee3c152a8b21785a7cfbbacc190731529ca34de869d212fbac1  corpus/srimad-
 75fd5e0e7c1a40030ec691f77fb1c88b24968479680a0a248d7579d955c2711b  corpus/srimad-bhagavatam/canto-04/chapter-31/sb-4.31.13.md
 e768cf4de8fe1e614c8d849479fba809a128e4cdb710d0370579f223f1fb148e  corpus/srimad-bhagavatam/canto-04/chapter-31/sb-4.31.14.md
 5221503a5085b6312d50f635a12478a20231a040de874e5638c979e83ccfa4c1  corpus/srimad-bhagavatam/canto-04/chapter-31/sb-4.31.15.md
-551c5b1b1747c7cb03f17ec8210d1ebc653542f0f18c3bd23e261c883e93bfa7  corpus/srimad-bhagavatam/canto-04/chapter-31/sb-4.31.16.md
+ed756bc3491afebecf3c7773be268a827e58f17b79dd6f83c69113f3640a1646  corpus/srimad-bhagavatam/canto-04/chapter-31/sb-4.31.16.md
 2c8916ab8cf0c9b9518b3e37a0d4dc29981cda4a84b4768106c56a995f457841  corpus/srimad-bhagavatam/canto-04/chapter-31/sb-4.31.17.md
 e08d2904423861fcc99213b8a3e407cda204226eede40015bc47c0540e6d1c41  corpus/srimad-bhagavatam/canto-04/chapter-31/sb-4.31.18.md
 7001517ecf19795cb713bc6dffe4ec16707e6c38bfd8bd9b21bcb7c30e60a4ea  corpus/srimad-bhagavatam/canto-04/chapter-31/sb-4.31.19.md
@@ -20109,18 +20109,18 @@ cc97156914afb6609dd8edc399661cc93ae5725c83d0500e317a1de6183c1f31  corpus/srimad-
 61fc262a93a37a8a1fc666c1cfe217fe319fa7f965507cab4398878cfabd7efc  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.1.md
 9d31e14ae4f5d50c4c68d532eadabbca87a032104311e2188d63ddbb3314a9e0  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.10.md
 53def8bd545284598f31a3d12721d1335d8effbdfd3499d5b1208aa0440d8785  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.11.md
-d150c425b275a0bd059014ea630b4a87d952ceeb8cbe9276eebcdec3677e8e9a  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.12.md
-7b30d95750fbe026e789a15eb098f8c2d72bd1a7c41b2d8da0ecf34c81b6904c  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.13.md
+026e352a74b3ce2e95917364395c59269a1687e6beb4750ac7da4379b1ee14c4  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.12.md
+07ace473d31b1268c067be3b5ba88410500e43237413db2cef503da1469e9836  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.13.md
 94e86650392c4dd71b4edcd5213b1858954b798ea2748401a569f22c6d31fd5b  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.14.md
 557c0b8921f7e7e55305ac30a6e3e617339a438ea32d22cad0525851b9e13867  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.15.md
 a5b86a9c3fd61cd20f7d996ddbead98b57ecf7d52b4d3cc796d9c2a53d80cdb1  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.16.md
 5f98c2ae5d8e6e61ac903990c6ec7e635c6f9c9e5d946e0e96c0330cd5c2920d  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.17.md
 456c5c8767bf505349dd28511045c437c2f9528da9cfda945a9125a841c8c2cf  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.18.md
-e11b3009f58730cde5be2101ad55264ce5c72b780ea7160882d1fb7c5042643f  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.19.md
+95e501b354e57e24f5c1559189026f97b64abf958e49b19c2b93949e2eeb6e6d  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.19.md
 ab694d7e14484ee43e876873ef544d2cc5781ba279713ff672d492aa68f7ac7e  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.2.md
 8d6ec002bdf1f5d7a64a70b78aad8bc77e9797ec4862413699f4ade011dc0df3  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.20.md
 7511fb3dcf84b1eba413ebfa750569c603bafd5ddc96bbd7d1b750b339624b5a  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.21.md
-d60adc10a5ffd587c7e16934921babfc3eff971ed0b0a6a2409bd61018238f26  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.22.md
+1f0dc62ea4ad70a8962dd97a9dd624bf6d4261974427629bb890a31c49b89fb7  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.22.md
 e75abeb7efea73a4b1734a25e57b12aa42488657b82e6ee456a371e7d9a68bcc  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.23.md
 7e3359ca298e0ee36d466a4878598e21283ed30dcb67afe7f4ee9459a9ccfeb0  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.24.md
 ac030a578e979d81371fead69b42b33f2c456e336aa401ddda1c6b53091f6faf  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.25.md
@@ -20144,7 +20144,7 @@ bf17d4a76e5a605be2aeff4e68829a879e1917860b84b5921bb8a5e90aa6240b  corpus/srimad-
 c9f770188167b9db16670e8cf371faeb186965bd2954a97e1b04bbb88a65cd74  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.41.md
 1fbf0c9e8e288e8466a1a88489d9f3c1f01f4912b527c6326205281c3f5bd2dc  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.5.md
 c36e159d7f4053cd47d666de930bc7fff08ae49684492b24af814ee246f50b92  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.6.md
-ff24bd2c021017fa82676e779f5955a7cb7be47adcb147bb6c17ad2fe5d19974  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.7.md
+033bbdcd69a1ae91cce045cf32c7e8b8072ed533652dd6c5e6dd583222a40b58  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.7.md
 501e75272eb4d315dd9cd6baf647b4d9b351851427dc18991566bc7395fd7f4e  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.8.md
 38d2e2489e937538a0833c4df5ff432f09db99e0ac9f0ede1c7ddd6dbade379f  corpus/srimad-bhagavatam/canto-05/chapter-01/sb-5.1.9.md
 314232270e2abb9d37235f064d90be6dea0f45984544642c096fa783f2612be2  corpus/srimad-bhagavatam/canto-05/chapter-02/sb-5.2.1.md
@@ -20185,24 +20185,24 @@ c0665f71af37e78771826ccb4be21b0f7f38fc5202a686ca2cb1a38485809d25  corpus/srimad-
 00327121745a4b9201bda6cc0960f1245cbfaf516ee64608fe9955ddc01a5321  corpus/srimad-bhagavatam/canto-05/chapter-03/sb-5.3.20.md
 a3d908031c8da77696d481a3ac35cbe89a8f12b2883c636f0e40d1ec45b508eb  corpus/srimad-bhagavatam/canto-05/chapter-03/sb-5.3.3.md
 01ba85404da26795f14c5c2cb392739462e14e26e643a6dce87b25161ddfe829  corpus/srimad-bhagavatam/canto-05/chapter-03/sb-5.3.4-5.md
-5470f3e2c4e3daa53e4982e746bb896d810ce500f1313b5e687d3dad397c7d01  corpus/srimad-bhagavatam/canto-05/chapter-03/sb-5.3.6.md
+2d7fccfa377dfaeb0362da483c07b5cbdd1fb7ff94626a0bd4ffa615d55626b9  corpus/srimad-bhagavatam/canto-05/chapter-03/sb-5.3.6.md
 7a8a3c65a4d466981531005fe2ea301689dbfc6f9046e55ca4c54c49d340b5eb  corpus/srimad-bhagavatam/canto-05/chapter-03/sb-5.3.7.md
 3b5c217da3d6f3556f8f8b2588cfe879ef7e458d307b601d86969fd9cf942f72  corpus/srimad-bhagavatam/canto-05/chapter-03/sb-5.3.8.md
 0adbc41d82b819303b1710de1e8ecf472c46bdc9014bc9be51044d456ed48b25  corpus/srimad-bhagavatam/canto-05/chapter-03/sb-5.3.9.md
-37e2d5cc9bc24bc16cee2bd0516e171cf43b7dc731408daa55181555735bd976  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.1.md
+6b15ffb6eeb69df5bc6d968ea79ed50d28349b309761b7faebd9382fc3ce841f  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.1.md
 da3f60e0e17ef5fd17045707bbd12b072d35f51081db8b3c8f18e9f1aaa4e746  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.10.md
 1fe99c1ad30167744dd314b2637e0d410c06a9ed365af8d4877ce8e05239f71a  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.11-12.md
 0db9c7f7671b6b7ea0ad43e5673863b8ef506f9474bcd9d4a5da0bf94a4008c6  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.13.md
 d045d4586c6520655b768e68422f6a5358c13a7e03373d2d57414032b3b1bd4b  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.14.md
 f104be6272462d141c6078104276cd76b391bd318acd5a7b019a610c8a36f7de  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.15.md
-27b299c9ec51d577c0aa1994a990d1cf02c76031626e4a0bea0913a35319ae64  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.16.md
+0ec822e6223b4f2e4f6d68f2a03ad51faf32eab9a30416b0e6b4fc85a45f89f7  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.16.md
 bc883e6ab7cc16b2e06beda3ff43ad2ba44dc374ddc47e9663e2410b3e3bb3fb  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.17.md
 2f33e630ea8a614a7136bc9bd50ee7970fecc9ec52b262d3c38f3dfc5345e35b  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.18.md
 76bb0ef1745719adbe473fc8d14e3cb1d181d18ee2af0e6b2ae7c51433cd732d  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.19.md
 08344429a1bd995b24dc764dc0767079d5d0c95fe9a589ebf465f70f43bccbcc  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.2.md
 7f8b8062dbf0fbb77c949d0c95151fd58c0b77f99d66d3c4fbef6293ede8883a  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.3.md
 263b05a91c54958a295b9ab18b29e5a2e1463ce7d34f030e11d6ec0072a189e9  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.4.md
-19f90af182503d4efd3b31bee47d1125f9b0a691d2c1c9db0af1b4932ff12b56  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.5.md
+9ff33041445bb0a5fdab82f38f9c4e5ff79278f66b7365921b7c0be9a2ae3a6d  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.5.md
 ca0a871157cbda16f285af90a117efacc916c1425e171ed5b13b5bc6989853bb  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.6.md
 96a1f64fb6f3f286eb04d28a9d2de3fa7382e9720adeebe48ca0c054b05b5962  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.7.md
 c86e5cd37244420f909ce34daf0e0815e5a2309cd4da5d29b8b7f80d76dcc39e  corpus/srimad-bhagavatam/canto-05/chapter-04/sb-5.4.8.md
@@ -20214,10 +20214,10 @@ ffb11f60ab1fc24f5f8e813c5ed55ff73f7e8ee1f9745f79a20809fa06d8cd4c  corpus/srimad-
 cc81a382ac657488f10dfdbc467f9a5696a0a31857a14b16be08028986a091eb  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.16.md
 ccdc81a7c110bc41dcabf06e292871ac29791a7514def6fbc128dd0b8e2df1a7  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.17.md
 9f1f151dd1ce0b95d1a4d10049d8266fa13a3f07b7954f0dbddc85430339e268  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.18.md
-16b434c02159917b4e36157634efcbaf45d3efc80e33d915c6382013a230236e  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.19.md
+50add501d50b37996dcadd82c7ea36bc0caa39c56ab21a7f5e8d2c86dc8776a5  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.19.md
 0908a90c1621a314b89adef4c67dae42913b6a4d635856a0d5ecaffb445085e8  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.2.md
 3cd47f16d663f6d85322ed6d2dc2f9ab2e3b3dd010bdb5e3be51ec0cab64f633  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.20.md
-1a11fcc437da3571badb3a6fcd34e543bcfe4922f6942c3d2d8a2faf1e0600cc  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.21-22.md
+8aea54c69507dd5e5d5a001c7e838aa2b903ea6c6c1c0293e0f91282b587e273  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.21-22.md
 550eb307ee305c715750e911f59858e03c16721607ccf28fe2b9f4b9dab86446  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.23.md
 a9053d360b47fbedb300c6d6dbd4c87b693204da11b82da84f4fb040beb09740  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.24.md
 e39fc51178c038e94599110ffca7cbad08ddcf730aacedda1582f1bc5b58e280  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.25.md
@@ -20226,7 +20226,7 @@ e39fc51178c038e94599110ffca7cbad08ddcf730aacedda1582f1bc5b58e280  corpus/srimad-
 bb8bb563e2aa870d1db720251ca09b21035609415c7261188304450871279d0f  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.28.md
 81869f038b1a2551c4008e3378bb63bbd18ca33bc9c8475f30990d76234e6ee2  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.29.md
 63ef4c54f4872f07107b83bef176d6e739f42211404449d8129125ac38268742  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.3.md
-68ac7f05ec8e9986d7327932096b00efc1c954ad0324e79837fe61abeace1601  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.30.md
+5a9908e1cc871b8031995875c9d76aae3b98902d7f6e9b4d831ac0f90f1631ef  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.30.md
 5dd83c90e0753e88d21dc88c23ef0b606fc11becfb5aa9855419bdc8311b87d2  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.31.md
 869c44a6aaf835ffe44cd58eaa44807ce4ae85dee235f5735ec3496536b59297  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.32.md
 a5203f5b744b54e762f3144970df22932883d779dc4385a05360e8dfa3b6c7a7  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.33.md
@@ -20234,7 +20234,7 @@ a66d95389b830b3a369d2b80cbad3b3f24f15c3ee025565b5a90750ef4b3da7e  corpus/srimad-
 f15ac2b82a2cb55f6d84df84e2102bc97eca4ee62cbdf9bd7d67653c9c3ea0ef  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.35.md
 13ca2556eee8428a266e1e6edd4e2c5ecba5c79692cca267d73fa8c8d2e18db6  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.4.md
 d3e132d36b6c5cf64291cc3aa62500b41b8a13e3bdb43d8a1ec57d7709096369  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.5.md
-e1192c7f1384094e739168980c4377c2ff43e3f58fe3475e4c7e15f5ec4f92c6  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.6.md
+7dc20327eb67f72a2bba66d11382fca89f697111bc56d201dcd0e9dd03858dd7  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.6.md
 049c0f4e011d377876516608db2459ee4c84280ad3d7abe15569ac26157d0e90  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.7.md
 d809bec5df0ccb5a4af4187da890613bbeff640483c5f52a83a9bf544338ceed  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.8.md
 59358b31eb172ea05db7bc2f0250cad97595eec31e1382d2f9dd9315c123dc71  corpus/srimad-bhagavatam/canto-05/chapter-05/sb-5.5.9.md
@@ -20256,7 +20256,7 @@ e880a771230eba4f39761c462ff867d8a7df644c7cbc5003729ed9a602893205  corpus/srimad-
 f5a27fad3efa39c4cc040667e8702357eb1bed7af57b75bf3316aa3a4d010fe7  corpus/srimad-bhagavatam/canto-05/chapter-06/sb-5.6.6.md
 0a0f1a7369abc22743dc76021d6d6f66b59a0b4772ed604243a9767dd12f5b72  corpus/srimad-bhagavatam/canto-05/chapter-06/sb-5.6.7.md
 a94e9bb83c9abef8af9be96ba5884fdae4b707bf4e650e651052e513df2d2152  corpus/srimad-bhagavatam/canto-05/chapter-06/sb-5.6.8.md
-ed5319a7bd08d1e62332a17591f5ad2b610dae1f10f0b21e4e89c695bf871505  corpus/srimad-bhagavatam/canto-05/chapter-06/sb-5.6.9.md
+bdfcbdb7a25e7730483b182011fcc980bd69bbc1a52489323b78e6ec13fa04fc  corpus/srimad-bhagavatam/canto-05/chapter-06/sb-5.6.9.md
 f1f5a46a023be9e4a8ed83b85930af9753003a18d8f1b6a56c562084acf9e63d  corpus/srimad-bhagavatam/canto-05/chapter-07/sb-5.7.1.md
 0f8294239af36eee5d4e729f0ba8e05694d4ce48bb4bad97d0770fec77de3660  corpus/srimad-bhagavatam/canto-05/chapter-07/sb-5.7.10.md
 26f17dd8449bfda4622af7cae24df5b5f8f0ede3ce27597a9f633915b44af7d4  corpus/srimad-bhagavatam/canto-05/chapter-07/sb-5.7.11.md
@@ -20421,7 +20421,7 @@ a0e4f8281bce9abd1924730dc90a6425859b620ad9c33dd91af5d1759648a922  corpus/srimad-
 1842a43226a1b3aba2f3219178458910ea492409440512cf46b75afbfc903725  corpus/srimad-bhagavatam/canto-05/chapter-14/sb-5.14.24.md
 284de247cdd9bf7999cb6553ccb95c6e80dd36e3e9d1025b7c401d16a38fbccb  corpus/srimad-bhagavatam/canto-05/chapter-14/sb-5.14.25.md
 58e8c78be31a20d5a1aa9b9c5a07dce0a9fe9d2417bd5a7f437b229024b09234  corpus/srimad-bhagavatam/canto-05/chapter-14/sb-5.14.26.md
-d85b1e53a9d462aefa2d13bb4796b96014d4ccf1363d33842064137356168fed  corpus/srimad-bhagavatam/canto-05/chapter-14/sb-5.14.27.md
+f843959a7924c39b0441fcf6019fb4c3aa1eb02fb8edc4ee0063fd3fe710b0cb  corpus/srimad-bhagavatam/canto-05/chapter-14/sb-5.14.27.md
 b3e42634902543d45e9ac7a5311da58544644db09b5da5b887ce0a32215c1f71  corpus/srimad-bhagavatam/canto-05/chapter-14/sb-5.14.28.md
 3321fe9975efa4b7d45bf5e1e1ee49e7d802397ddb77e655cfd6106bb465b739  corpus/srimad-bhagavatam/canto-05/chapter-14/sb-5.14.29.md
 ab110779dc572a02df487688eb1b71496bb5cdf30728dd311bb0365ea7eca67a  corpus/srimad-bhagavatam/canto-05/chapter-14/sb-5.14.3.md
@@ -20500,7 +20500,7 @@ e885ccbbbb7ee71719aadcf86b9f07285f54ff5c1e4d1922a6c55b244893257b  corpus/srimad-
 78f1962bea1ce22beafe38fa61bdfa6f8225648e9252cad7e1a688173e65a06f  corpus/srimad-bhagavatam/canto-05/chapter-17/sb-5.17.16.md
 806bae79ae8b5ba5e31ddf046a6e7deb1caee68d2d4127e20ee2a8dd5c944922  corpus/srimad-bhagavatam/canto-05/chapter-17/sb-5.17.17.md
 c86d04bfaaa6f25df5b1072bca389b705ee24fc1fdd28a871b58aee3f33639b6  corpus/srimad-bhagavatam/canto-05/chapter-17/sb-5.17.18.md
-af92f5f68589c1505221fd97c9ed0a08aefabca93ba23e675ef13b6d2dd6f995  corpus/srimad-bhagavatam/canto-05/chapter-17/sb-5.17.19.md
+4d9472fa7161ab53dd623a26e26115b239fe693d39d3a239ad0d43ccca88f06d  corpus/srimad-bhagavatam/canto-05/chapter-17/sb-5.17.19.md
 80fa549518eb84fa8f173c2612c786a23ac2b80010e138eb4a38fbf5e07b0f68  corpus/srimad-bhagavatam/canto-05/chapter-17/sb-5.17.2.md
 4d07a3b8102fdf53b622927bdc548b03fe428ac36e8a31502548b6c5f74e1ad4  corpus/srimad-bhagavatam/canto-05/chapter-17/sb-5.17.20.md
 465b3ab5016f1309a58656c89af43dc623a42388056d7e31026564803a1bf761  corpus/srimad-bhagavatam/canto-05/chapter-17/sb-5.17.21.md
@@ -20537,7 +20537,7 @@ e1ffe9a56c1c4127e116cb907b1594966ae045f47395994efa7da4fbbcd8309d  corpus/srimad-
 e24fc6445e0b4e44e743f300683c06fcdae9846eaa292a68cf1c9668fe732da9  corpus/srimad-bhagavatam/canto-05/chapter-18/sb-5.18.29.md
 fde80ac01420a6f28c422a13a81fd6ef1af2e21b9c4adfac225e3e5a2a349fd3  corpus/srimad-bhagavatam/canto-05/chapter-18/sb-5.18.3.md
 d24b3a48cc6726aa5dbc1ad54e505e24baa21f4672a751f57db054dcb9bb6e26  corpus/srimad-bhagavatam/canto-05/chapter-18/sb-5.18.30.md
-1cc3895cf14c10d16e7f438282504ee0fb6fd1815f327f6ffd9fbed9d56438ed  corpus/srimad-bhagavatam/canto-05/chapter-18/sb-5.18.31.md
+802d505173f1a914ce486632754c945d54713cc56010cfb1a91378bcc8a60718  corpus/srimad-bhagavatam/canto-05/chapter-18/sb-5.18.31.md
 076abbe3426d4d8c9b7a1f159e3c4e60128bb037afc9eafef88d6e99c3638388  corpus/srimad-bhagavatam/canto-05/chapter-18/sb-5.18.32.md
 6b162aa415ae03c98051fec87663de46f03bb6f7df52bea02bdfe9b277cd150e  corpus/srimad-bhagavatam/canto-05/chapter-18/sb-5.18.33.md
 375c5c7ed1f6945f08b3292fcd86050bd8b8da67762dccf3d8760634f32bcae9  corpus/srimad-bhagavatam/canto-05/chapter-18/sb-5.18.34.md
@@ -20692,7 +20692,7 @@ fc6034ac72d14f46357f40499df3d6491ae9bf4e81ffe459862240a80464fab9  corpus/srimad-
 ff37c4d69160bb7e55333f39301a2d2f53750743beaabd4b94b624427b4e8a80  corpus/srimad-bhagavatam/canto-05/chapter-24/sb-5.24.27.md
 4b45bd8b03c99e0703f75d397b107e37da73fcd6bfbbab31ec46a64757c7a991  corpus/srimad-bhagavatam/canto-05/chapter-24/sb-5.24.28.md
 02b1740f6df9469dd227b0fb20f458c0405780b0e378b02d87eb2199af4783d0  corpus/srimad-bhagavatam/canto-05/chapter-24/sb-5.24.29.md
-62c3c29e715c111d12a29c8083cc090bfe18c56ff3bac1bc52555543acc5aa45  corpus/srimad-bhagavatam/canto-05/chapter-24/sb-5.24.3.md
+383bc4ae8fd8ecc82cf1b33efa49d8ac30e6276b92c028982fc455f3689d2575  corpus/srimad-bhagavatam/canto-05/chapter-24/sb-5.24.3.md
 2e1abb42828a6078f94d5133138bb98ae9c16526573bf2314d4dbee41bb4a806  corpus/srimad-bhagavatam/canto-05/chapter-24/sb-5.24.30.md
 b3f0b486af5bffbe1a43ac3fabf35faf9c6686231c6da67be9da67ac843616d3  corpus/srimad-bhagavatam/canto-05/chapter-24/sb-5.24.31.md
 d40556b61415a050fb71109f051f5b629927290e3c23b6e54c076af531563aaa  corpus/srimad-bhagavatam/canto-05/chapter-24/sb-5.24.4.md
@@ -20746,7 +20746,7 @@ a8f34f711a0f7524f816385505a9371f57915b4380aace2466acb1b7f2660b54  corpus/srimad-
 6ff9ceb6aaf4b036417e2e8b361136817d7760e840a231dc0bc64aae9084f412  corpus/srimad-bhagavatam/canto-05/chapter-26/sb-5.26.34.md
 78d18363e3f0aab08003ff95157e13f4be2fc73c3ea4f722a37374d1492719bf  corpus/srimad-bhagavatam/canto-05/chapter-26/sb-5.26.35.md
 09113bcb3a8ae1e59796c71280decfa350e37907b599e8476179f6a75df31122  corpus/srimad-bhagavatam/canto-05/chapter-26/sb-5.26.36.md
-eb204e86724659259a23221f5b048a082932376ea2d2bc1239a2cca408e6b340  corpus/srimad-bhagavatam/canto-05/chapter-26/sb-5.26.37.md
+edad2388ff5cb188e932c81a76418ba156866262c20bf129a603de839acd7f0e  corpus/srimad-bhagavatam/canto-05/chapter-26/sb-5.26.37.md
 107da093aacc2bbc266f9b95ce50a9760dbb69deb3458fddd77e76b45d3e4e1e  corpus/srimad-bhagavatam/canto-05/chapter-26/sb-5.26.38.md
 f084279666c943a1761c9ffc42932e61d18a4dcff570ff0de3ca2e8bf290fc04  corpus/srimad-bhagavatam/canto-05/chapter-26/sb-5.26.39.md
 2c34b670f4903a268b8b9e019cf22f8a10a3715564f6b609ad7714c93e8e9939  corpus/srimad-bhagavatam/canto-05/chapter-26/sb-5.26.4.md
@@ -20918,7 +20918,7 @@ e638fcf5c15384b14c62352dda26b809f3915f2e6eb10aa3647ae52fad86bad5  corpus/srimad-
 c87a87a96be242eb19793d476e35b464ad78f63821dd7f59fc21a338228f9248  corpus/srimad-bhagavatam/canto-06/chapter-04/sb-6.4.31.md
 3025a4e5c587019f0d625b194c120cfbba3314c6a1b045e1754b405c00c418f4  corpus/srimad-bhagavatam/canto-06/chapter-04/sb-6.4.32.md
 523ffc021ebc359644c404e40b863e2836670c45e90fe0adb4c3f2828238ae2e  corpus/srimad-bhagavatam/canto-06/chapter-04/sb-6.4.33.md
-9b86504c32462da24b6a53db504326f38026740ff06d51c1108e581453fc1e02  corpus/srimad-bhagavatam/canto-06/chapter-04/sb-6.4.34.md
+94f1d892a2d2c80762abff356c0cd092a7413bcd05991dc2470d32e61d83c5d5  corpus/srimad-bhagavatam/canto-06/chapter-04/sb-6.4.34.md
 4e6b6985aa2b7878421893aba956586a86a9e2653912a150a7ad0902e466941e  corpus/srimad-bhagavatam/canto-06/chapter-04/sb-6.4.35-39.md
 e3f121423d5a90790e6bb3527d229e18c41b84a05a4202593a53c6f31eaf93f1  corpus/srimad-bhagavatam/canto-06/chapter-04/sb-6.4.4.md
 b11ccd391b6bc4bb89352fac8c42b04fde66958ff6927b9298b7c2ccf55cd81d  corpus/srimad-bhagavatam/canto-06/chapter-04/sb-6.4.40.md
@@ -20974,7 +20974,7 @@ c18d1d2d928567dcea344fb347f6202df8e8d39892a180019440916643a3f8bd  corpus/srimad-
 fa3a2cc548a3f922caea5dbc598888e9347c95e808faca5e201c348f4182ddb7  corpus/srimad-bhagavatam/canto-06/chapter-05/sb-6.5.39.md
 ba184741aa026de6608000b10010c684186499dce92fc8f80217835e89eb96ab  corpus/srimad-bhagavatam/canto-06/chapter-05/sb-6.5.4-5.md
 ff754f182c1f2221e88ab43f926262af853ff0434d70521e37e1a6e74304b735  corpus/srimad-bhagavatam/canto-06/chapter-05/sb-6.5.40.md
-1c9f1c189d84891fb455d68bb2d152e4dcc4b075e03743e446c465297e9110e5  corpus/srimad-bhagavatam/canto-06/chapter-05/sb-6.5.41.md
+5d5d50c581888dd61ef0585e5aca6d1e68543df09b714355528dbea76ec6abef  corpus/srimad-bhagavatam/canto-06/chapter-05/sb-6.5.41.md
 c6c48acdde4215b761683e42495a6b31cfca0baf489722c027af776923bd6200  corpus/srimad-bhagavatam/canto-06/chapter-05/sb-6.5.42.md
 ae92b299cea2a791e438c94bf228126a3d83be828c68d721a4d29916903b9e05  corpus/srimad-bhagavatam/canto-06/chapter-05/sb-6.5.43.md
 01ebdcc28bd6842c0e618e3ba5c6e4ab96c8998bb70ff278ea8c604453a0d1f5  corpus/srimad-bhagavatam/canto-06/chapter-05/sb-6.5.44.md
@@ -21057,7 +21057,7 @@ cb352761c2b6d4a3eb72ff4edd76918e61c1d8b5d0f941a8a7cf0801393e16fb  corpus/srimad-
 037cada473f03d5d2b6b88c25768a190f6447506978f7554305aeeaf8aa62ab6  corpus/srimad-bhagavatam/canto-06/chapter-08/sb-6.8.17.md
 631239d40c23a1be7fcf7d077970f5c565ac7f3cf0efdcad346c84b5683825df  corpus/srimad-bhagavatam/canto-06/chapter-08/sb-6.8.18.md
 667df1ddd5bceee3545010c11a4b42515424ae86475a0aeacd679431182d11f1  corpus/srimad-bhagavatam/canto-06/chapter-08/sb-6.8.19.md
-db85ae9ea8f8f27cda388aa7599536f0be6c6dd90067b37b39aba76d83463bc5  corpus/srimad-bhagavatam/canto-06/chapter-08/sb-6.8.20.md
+ac977813424373f04a894ac873ed04838b31195e57217f942ccfe434b3a1b31e  corpus/srimad-bhagavatam/canto-06/chapter-08/sb-6.8.20.md
 1a7fd398943fcd5d1660304c07378af9d48fe452992fb40c2071975fa9b0bfa6  corpus/srimad-bhagavatam/canto-06/chapter-08/sb-6.8.21.md
 c03d45440913b731867d57f7043d6ceef36d18b71c4586e20d23ceb44e2a067e  corpus/srimad-bhagavatam/canto-06/chapter-08/sb-6.8.22.md
 e8be8bb0d3733dd0122d3a3890b148e36d5a5a90ee94f02c966f7c90d001d88c  corpus/srimad-bhagavatam/canto-06/chapter-08/sb-6.8.23.md
@@ -24210,7 +24210,7 @@ c6397dc2c444f6d47b2f0df2be38dfc07626e755f4d1d74a6e3a27b308e671a3  corpus/srimad-
 b246b82d47c1f7136a675493cb221893a06e5996e993eb94a64e9ec5bfe1a0f6  corpus/srimad-bhagavatam/canto-10/chapter-08/sb-10.8.42.md
 41bc3d634ba4aa3acb3047338b55d295839133777a26d42141d0da2eaa058576  corpus/srimad-bhagavatam/canto-10/chapter-08/sb-10.8.43.md
 5849d43a46349912102432f224df0d73f36165c309faeadce7814729a6681a47  corpus/srimad-bhagavatam/canto-10/chapter-08/sb-10.8.44.md
-896bc2d9cfb5ab9ca5aa1888199bcb6672e3bebfde4107d3234f480a6340bba2  corpus/srimad-bhagavatam/canto-10/chapter-08/sb-10.8.45.md
+833d9ac8560518124542e646f7149876f7855302f837550d75e72d3cc159912e  corpus/srimad-bhagavatam/canto-10/chapter-08/sb-10.8.45.md
 8aeb8f77007becf6b386f085cdcd561b0a2cec4bb3607af8aa4000f952f514fa  corpus/srimad-bhagavatam/canto-10/chapter-08/sb-10.8.46.md
 fa641d1fd7ce032f4c3355232c027fedc8dec9951e9d42ded4d1f2827c91de28  corpus/srimad-bhagavatam/canto-10/chapter-08/sb-10.8.47.md
 02c3e2a67b96cf87f5106f355ad5909085ab25c3e1166494fb62012b9d9449a6  corpus/srimad-bhagavatam/canto-10/chapter-08/sb-10.8.48.md
