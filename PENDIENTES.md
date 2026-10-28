@@ -6,7 +6,13 @@ traídos el 19-oct). Abiertos: los puntos 3, 4 y 5 de la lista de abajo.
 27-oct: cotejo repo↔D1 de BG, SB y CC cerrado (20.276 versos; 0 diferencias de
 texto en BG y CC, 1 en SB que es la nota de `sb/10/13/64`, igual en ambos
 lados); ver «Cotejo repo↔D1 del 27 de octubre». MANIFEST regenerado, sin anclar.
-Siguiente: adjudicar contra el impreso «the river Kāverī» en minúscula en
+28-oct: 31 puntos por coma corregidos (D1 y repo); 3 commits locales sin subir
+(`ad7c2e2981`, `7607c67bd6`, `3ebec9a881`). Ebooks sin regenerar con los cambios.
+Siguiente: pedir el push de esos 3 commits y decidir la regeneración de ebooks
+(`sync_from_d1.py --phase books`, por defecto es un ensayo); ampliar el detector de
+«palabra. minúscula» a prosa pura, y mirar `sb/1/8/52` y `sb/1/9/30`. En
+`astro_vedabase` hay un problema de caché aparte (smoke-canary, ver su `CLAUDE.md`).
+Después: adjudicar contra el impreso «the river Kāverī» en minúscula en
 `cc/madhya/9/80`, `cc/madhya/9/87` y `cc/madhya/1/107` — los escaneos ya están
 aquí (`mad1.pdf`, `mad3.pdf`). Pendiente de decidir: si la decisión de no
 republicar se anota también en `ANCHORS.md`, y el alcance del HTML de
