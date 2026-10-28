@@ -116,7 +116,14 @@ y se comparó verso por verso con el repo. Commits `19839d62e7` y `89d98bfe26`.
   más de unos 50 bytes da «LIKE or GLOB pattern too complex»: usar `substr(...)=`.
 - **MANIFEST:** estaba caducado desde el 18–21 de octubre; regenerado, raíz `fc20e242…`,
   `--check` OK, sin anclar (decisión del 20-oct).
-- **No hecho:** ebooks regenerados con estos cuatro versos; barrido de las 136.
+- **28-oct, tanda 1 de «punto por coma»:** 31 puntos en 27 versos de SB (22 en el Canto 5),
+  repo y D1, commits `ad7c2e2981` y `7607c67bd6` (raíz `fa61fa1a…`, sin anclar). Salieron del
+  barrido «palabra. minúscula» contrastado con Surya: 33 casos con coma en Surya, 31 con el
+  punto también en D1. Quedan aparte `sb/1/8/52` y `sb/1/9/30` (sin fila en D1 con ese ref).
+  Abierto: de 444 casos que Surya no localiza, algunos son prosa de la misma familia
+  (p. ej. `sb/5/5/21-22` «Of these. the human»); y los 156 que Surya confirma con punto son
+  sobre todo fronteras de versos sánscritos, sin revisar. Ampliar el detector a prosa pura.
+- **No hecho:** ebooks regenerados con los cambios del 27 y 28 de octubre.
 
 ## Lo que queda por hacer
 
