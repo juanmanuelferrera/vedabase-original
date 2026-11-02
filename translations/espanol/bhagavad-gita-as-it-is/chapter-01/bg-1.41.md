@@ -19,4 +19,4 @@ Según las reglas y regulaciones de las actividades fruitivas, existe la necesid
 > sarvātmanā yaḥ śaraṇaṁ śaraṇyaṁ
 > gato mukundaṁ parihṛtya kartam
 
-«Alguien que, abandonando toda clase de obligaciones se haya refugiado en los pies de loto de Mukunda, el que da la liberación y haya tomado el sendero con toda seriedad, no tiene deberes ni obligaciones ni con los semidioses, ni con los sabios, ni con las entidades vivientes en general, los miembros de la familia, la humanidad, ni los antepasados» (Bhāg. 11.5.41). Dichas obligaciones se cumplen automáticamente mediante la ejecución del servicio devocional a la Suprema Personalidad de Dios.
+«Alguien que, abandonando toda clase de obligaciones, se haya refugiado en los pies de loto de Mukunda, el que da la liberación, y haya tomado el sendero con toda seriedad, no tiene deberes ni obligaciones ni con los semidioses, ni con los sabios, ni con las entidades vivientes en general, los miembros de la familia, la humanidad, ni los antepasados» (Bhāg. 11.5.41). Dichas obligaciones se cumplen automáticamente mediante la ejecución del servicio devocional a la Suprema Personalidad de Dios.

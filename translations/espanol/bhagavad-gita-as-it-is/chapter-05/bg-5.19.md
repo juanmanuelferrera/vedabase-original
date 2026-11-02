@@ -14,4 +14,4 @@
 
 La ecuanimidad de la mente, como ya se mencionó, es la señal de la autorrealización. Se debe considerar que aquellos que de hecho han alcanzado esta etapa han conquistado las condiciones materiales, específicamente el nacimiento y la muerte. Mientras uno se identifica con este cuerpo, se le considera un alma condicionada, pero tan pronto como se eleva a la etapa de ecuanimidad mediante la comprensión del yo, se libera de la vida condicionada. En otras palabras, ya no está sujeto a nacer en el mundo material, sino que puede entrar en el cielo espiritual después de su muerte. El Señor no tiene defectos porque carece de atracción u odio.
 
-De forma similar, cuando una entidad viviente carece de atracción u odio, ella también se vuelve intachable y elegible para entrar en el cielo espiritual. Se debe considerar que dichas personas ya están liberadas y sus síntomas se describen a continuación.
+De forma similar, cuando una entidad viviente carece de atracción u odio, ella también se vuelve intachable y apta para entrar en el cielo espiritual. Se debe considerar que dichas personas ya están liberadas y sus síntomas se describen a continuación.

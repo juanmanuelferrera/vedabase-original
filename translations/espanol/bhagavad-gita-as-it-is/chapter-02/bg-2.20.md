@@ -18,9 +18,9 @@ Cualitativamente, la pequeña parte atómica fragmentaria del Espíritu Supremo 
 
 > na jāyate mriyate vā vipaścin
 > nāyaṁ kutaścin na vibhūva kaścit
-> ajo nityaḥ śāśvato 'yaṁ purāṇo
-> na hanyate hanyamāne śarīre.
-> (Kaṭha 1.2.18)
+> ajo nityaḥ śāśvato'yaṁ purāṇo
+> na hanyate hanyamāne śarīre
+> (Kaṭha
 
 1.2.18)
 
@@ -34,4 +34,4 @@ Tanto el significado como la explicación de este verso son los mismos que en el
 
 1.2.20)
 
-«Tanto la Superalma (Paramātmā) como el alma atómica (jīvātmā), están situadas en el mismo árbol del cuerpo, dentro del mismo corazón del ser viviente y únicamente aquel que se ha liberado de todos los deseos materiales y de las lamentaciones, puede, por la gracia del Supremo, entender las glorias del alma». Kṛṣṇa es también la fuente de la Superalma, como se revelará en los capítulos siguientes y Arjuna es el alma atómica olvidadiza de su naturaleza verdadera; por lo tanto, necesita que Kṛṣṇa o su representante fidedigno (el maestro espiritual), le ilumine.
+«Tanto la Superalma (Paramātmā) como el alma atómica (jīvātmā), están situadas en el mismo árbol del cuerpo, dentro del mismo corazón del ser viviente y únicamente aquel que se ha liberado de todos los deseos materiales y de las lamentaciones, puede, por la gracia del Supremo, entender las glorias del alma». Kṛṣṇa es también la fuente de la Superalma, como se revelará en los capítulos siguientes y Arjuna es el alma atómica olvidadiza de su naturaleza verdadera; por ende, necesita que Kṛṣṇa o Su representante fidedigno (el maestro espiritual) lo ilumine.

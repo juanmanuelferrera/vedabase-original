@@ -12,4 +12,4 @@
 
 **Tus enemigos te describirán con muchas palabras crueles y despreciarán tus facultades. ¿Qué podría ser más doloroso para ti?**
 
-El Señor Kṛṣṇa quedó asombrado al principio por la inadecuada súplica de compasión por parte de Arjuna y describió dicha compasión como algo característico de los no Ārios. Ahora, con todas estas palabras, Él ha demostrado la validez de sus declaraciones en contra de la supuesta compasión de Arjuna.
+El Señor Kṛṣṇa quedó asombrado al principio por la inadecuada súplica de compasión por parte de Arjuna y describió dicha compasión como algo característico de los no Ārios. Ahora, con todas estas palabras, Él ha demostrado la validez de Sus declaraciones en contra de la supuesta compasión de Arjuna.

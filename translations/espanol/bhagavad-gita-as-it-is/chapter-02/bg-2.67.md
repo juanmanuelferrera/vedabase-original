@@ -12,4 +12,4 @@
 
 **Así como un fuerte viento arrastra un bote en el agua, tan solo uno de los sentidos en que la mente se concentre puede desviar la inteligencia del hombre.**
 
-A menos que todos los sentidos estén ocupados en el servicio del Señor, con que solo uno de ellos se ocupe en la gratificación de los sentidos, puede desviar al devoto del sendero del avance trascendental. Como se mencionó en la vida de Mahārāja Ambarīṣa, todos los sentidos deben estar ocupados en la conciencia de Kṛṣṇa, ya que esa es la técnica correcta para controlar la mente.
+A menos que todos los sentidos estén ocupados en el servicio del Señor, incluso uno solo de ellos ocupado en la complacencia de los sentidos puede desviar al devoto del sendero del avance trascendental. Como se mencionó en la vida de Mahārāja Ambarīṣa, todos los sentidos deben estar ocupados en la conciencia de Kṛṣṇa, ya que esa es la técnica correcta para controlar la mente.

@@ -12,4 +12,4 @@
 
 **¡Ay de mí! ¡Cuán extraño es que estemos preparándonos para cometer actos extremadamente pecaminosos, impulsados por el deseo de disfrutar de felicidad imperial!**
 
-Impulsado por motivos egoístas, uno puede estar inclinado a actos tan pecaminosos como el de matar a su propio hermano, padre o madre. Existen muchos casos semejantes en la historia del mundo. Pero Arjuna, siendo un devoto del Señor de carácter santo, siempre es consciente de los principios morales y por lo tanto, se cuida de evitar tales actividades.
+Impulsado por motivos egoístas, uno puede estar inclinado a actos tan pecaminosos como el de matar a su propio hermano, padre o madre. Existen muchos casos semejantes en la historia del mundo. Pero Arjuna, siendo un devoto del Señor de carácter santo, siempre es consciente de los principios morales y, por lo tanto, se cuida de evitar tales actividades.

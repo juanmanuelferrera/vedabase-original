@@ -10,9 +10,9 @@
 > tāny ahaṁ veda sarvāṇi\
 > na tvaṁ vettha parantapa
 
-*śrī bhagavān uvāca*—la Personalidad de Dios dijo; *bahūni*—muchos; *me*—Míos; *vyatītāni*—han pasado; *janmāni*—nacimientos; *tava*—tuyos; *ca*—y también; *arjuna*—¡oh, Arjuna!; *tāni*—todos esos; *aham*—Yo; *veda*—sé; *sarvāṇi*—todo; *na*—no; *tvam*—tú; *vettha*—sabes; *parantapa*—¡oh, subyugador del enemigo!
+*śrī bhagavān uvāca*—la Personalidad de Dios dijo; *bahūni*—muchos; *me*—Míos; *vyatītāni*—han pasado; *janmāni*—nacimientos; *tava*—tuyos; *ca*—y también; *arjuna*—¡oh Arjuna!; *tāni*—todos esos; *aham*—Yo; *veda*—sé; *sarvāṇi*—todo; *na*—no; *tvam*—tú; *vettha*—sabes; *parantapa*—¡oh subyugador del enemigo!
 
-**El Señor Bienaventurado dijo: Tanto tú como Yo hemos pasado por muchísimos nacimientos. Yo los puedo recordar todos, mas tú no puedes, ¡oh, subyugador del enemigo!**
+**El Señor Bienaventurado dijo: Tanto tú como Yo hemos pasado por muchísimos nacimientos. Yo los puedo recordar todos, mas tú no puedes, ¡oh subyugador del enemigo!**
 
 En el Brahma-saṁhitā tenemos información de las muchísimas encarnaciones del Señor. Allí se afirma:
 

@@ -12,4 +12,4 @@
 
 **Yo consideraría mejor que los hijos de Dhṛtarāṣṭra me matasen desarmado y sin resistir, antes que luchar con ellos.**
 
-Es la costumbre –de acuerdo con los principios marciales kṣatriya– que un enemigo desarmado y no dispuesto a luchar no sea atacado. Arjuna sin embargo, en tan enigmática posición, decidió que no lucharía aunque fuera atacado por el enemigo. No tomó en consideración cuán determinado estaba el otro bando a luchar. Todos estos síntomas se deben a la benevolencia que resulta de ser un gran devoto del Señor.
+Es la costumbre –de acuerdo con los principios marciales kṣatriya– que un enemigo desarmado y no dispuesto a luchar no sea atacado. Arjuna, sin embargo, en tan enigmática posición, decidió que no lucharía aunque fuera atacado por el enemigo. No tomó en consideración cuán determinado estaba el otro bando a luchar. Todos estos síntomas se deben a la benevolencia que resulta de ser un gran devoto del Señor.

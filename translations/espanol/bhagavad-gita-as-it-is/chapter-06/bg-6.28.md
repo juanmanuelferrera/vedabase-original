@@ -12,6 +12,4 @@
 
 **Establecido en el Yo, liberado de toda la contaminación material, el yogī alcanza la etapa máxima y perfecta de la felicidad en contacto con la Conciencia Suprema.**
 
-Autorrealización significa conocer nuestra posición constitucional en relación con el Supremo. El alma individual es parte y porción del Supremo y su posición es pres-
-
-tarle servicio trascendental al Señor. Este contacto trascendental con el Supremo se denomina brahma-saṁsparśa.
+Autorrealización significa conocer nuestra posición constitucional en relación con el Supremo. El alma individual es parte y porción del Supremo y su posición es prestarle servicio trascendental al Señor. Este contacto trascendental con el Supremo se denomina brahma-saṁsparśa.

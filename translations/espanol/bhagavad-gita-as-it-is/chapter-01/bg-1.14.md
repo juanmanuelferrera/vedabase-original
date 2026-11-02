@@ -8,7 +8,7 @@
 > mādhavaḥ pāṇḍavaś caiva\
 > divyau śaṅkhau pradadhmatuḥ
 
-*tataḥ*—después de eso; *śvetaiḥ*—con blancos; *hayaiḥ*—caballos; *yukte*—uncidos; *mahati*—en la gran; *syandane*—cuadriga; *sthitau*—situados así; *mādhavaḥ*—Kṛṣṇa (el esposo de la diosa de la fortuna); *pāṇḍavaḥ*—Arjuna (el hijo de Pāṇḍu); *ca*—también; *eva*—ciertamente; *divyau*—trascendental; *śankhau*—caracolas; *pradadhmatuḥ*—sonaron.
+*tataḥ*—después de eso; *śvetaiḥ*—con blancos; *hayaiḥ*—caballos; *yukte*—uncidos; *mahati*—en la gran; *syandane*—cuadriga; *sthitau*—situados así; *mādhavaḥ*—Kṛṣṇa (el esposo de la diosa de la fortuna); *pāṇḍavaḥ*—Arjuna (el hijo de Pāṇḍu); *ca*—también; *eva*—ciertamente; *divyau*—trascendental; *śaṅkhau*—caracolas; *pradadhmatuḥ*—sonaron.
 
 **En el bando opuesto, tanto el Señor Kṛṣṇa como Arjuna, situados en una gran cuadriga tirada por blancos caballos, hicieron sonar sus caracolas trascendentales.**
 
