@@ -1,7 +1,7 @@
 # vedabase-original — PROGRESS
 
-Estado: Bhagavad-gītā en español: texto y devanagari del libro de Perú (PDF 2026-11-02b) aplicados en el repo (jsonl + .md), commits locales sin subir. D1, web, ebooks y ancla de Arweave sin hacer.
-Siguiente: (1) revisar `~/Desktop/gita_peru_no_aplicados.tsv` (5 campos y 21 omitidos); (2) decidir si el devanagari de Perú se lleva también al inglés (pt, ru y hi ya lo llevan); (3) con el OK, subir el repo y llevar los cambios a D1 (SQL acotado por verso, lista antes) + purga ×2 + canary; (4) decidir si se añaden Guía del Alfabeto y Glosario de 2022 como páginas nuevas; (5) anclar la raíz del manifiesto en Arweave (`ANCHORS.md`).
+Estado: Bhagavad-gītā en español: texto y devanagari del libro de Perú (PDF 2026-11-02b) aplicados en el repo (jsonl + .md), subido a GitHub el 2-nov (`8f6deb4bf1`). D1, web, ebooks y ancla de Arweave sin hacer.
+Siguiente: (1) revisar `~/Desktop/gita_peru_no_aplicados.tsv` (5 campos y 21 omitidos); (2) decidir si el devanagari de Perú se lleva también al inglés (pt, ru y hi ya lo llevan y están subidos); (3) llevar los cambios a D1 (SQL acotado por verso, lista antes) + purga ×2 + canary; (4) decidir si se añaden Guía del Alfabeto y Glosario de 2022 como páginas nuevas; (5) anclar la raíz del manifiesto en Arweave (`ANCHORS.md`).
 
 ## Regla de este bloque (2-nov)
 
