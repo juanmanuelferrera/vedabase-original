@@ -1,7 +1,7 @@
 # vedabase-original — PROGRESS
 
-Estado: Bhagavad-gītā en español: texto y devanagari del libro de Perú (PDF 2026-11-02b) aplicados en el repo (jsonl + .md), subido a GitHub el 2-nov (`8f6deb4bf1`). D1, web, ebooks y ancla de Arweave sin hacer.
-Siguiente: (1) revisar `~/Desktop/gita_peru_no_aplicados.tsv` (5 campos y 21 omitidos); (2) decidir si el devanagari de Perú se lleva también al inglés (pt, ru y hi ya lo llevan y están subidos); (3) llevar los cambios a D1 (SQL acotado por verso, lista antes) + purga ×2 + canary; (4) decidir si se añaden Guía del Alfabeto y Glosario de 2022 como páginas nuevas; (5) anclar la raíz del manifiesto en Arweave (`ANCHORS.md`).
+Estado: Bhagavad-gītā en español: texto y devanagari del libro de Perú (PDF 2026-11-02b) aplicados en el repo (jsonl + .md), subido a GitHub y llevado a D1 el 2-nov (1.205 campos, verificado campo a campo; purga ×2, canary 234/0 y 11 comprobaciones en vivo OK). Ebooks, packs y ancla de Arweave sin hacer.
+Siguiente: (1) revisar `~/Desktop/gita_peru_no_aplicados.tsv` (5 campos y 21 omitidos); (2) decidir si el devanagari de Perú se lleva también al inglés (pt, ru y hi ya lo llevan y están subidos); (3) ebooks es/pt/ru/hi de la Gītā y packs sin regenerar; (4) decidir si se añaden Guía del Alfabeto y Glosario de 2022 como páginas nuevas; (5) anclar la raíz del manifiesto en Arweave (`ANCHORS.md`).
 
 ## Regla de este bloque (2-nov)
 
@@ -24,3 +24,11 @@ Siguiente: (1) revisar `~/Desktop/gita_peru_no_aplicados.tsv` (5 campos y 21 omi
 - El devanagari se aplicó desde el cotejo del 2-nov (lecturas sobre imagen), no descifrando la fuente `Indevr20`. 6.8, 18.44 y 18.66 (español distinto del inglés) no se tocaron.
 - Ningún verso visto renderizado en la web; D1 sigue con el texto anterior.
 - Algunas frases sánscritas con avagraha quedan sin espacio antes del apóstrofo (`yathā'rudro'bdhijaṁ`), como en el PDF.
+
+## D1 (2-nov, noche)
+
+- Plan y SQL en `~/Desktop/d1_plan_bg_peru/` (16 ficheros, 1.226 sentencias; `rollback/` con las inversas; `verificar_d1.py`). Cada UPDATE con precondición exacta (el campo vale hoy lo que se leyó). Simulado antes en Python sobre el D1 descargado: 0 problemas.
+- Ejecutado fichero a fichero con comprobación tras cada uno: devanagari es 38, pt 38, ru 38, hi 1; texto es: 554 significados, 230 traducciones, 306 sinónimos. `verificar_d1.py`: 1.205 campos previstos, 0 distintos.
+- Purga completa ×2, `smoke-canary` 234 pass / 0 fail. En vivo (curl sin caché): 4.11, 9.14, 1.26, 13.1, 5.29, 2.9, 18.72 (es, pt, ru), 18.28 y 2.66 con el texto nuevo y sin el viejo.
+- Rutas reales de la web: `/es/bg/<cap>/<verso>/` (la de `/library/` redirige).
+- Sin hacer: ebooks (`scripts/regen_books`, desde el repo), packs, ancla de Arweave, Guía del Alfabeto/Glosario como páginas nuevas, y las 5 filas / 21 omitidos de `~/Desktop/gita_peru_no_aplicados.tsv`.

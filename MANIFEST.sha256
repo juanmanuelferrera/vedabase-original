@@ -9,14 +9,14 @@
 # Comprobarlo por tu cuenta:
 #     python3 scripts/hash_manifest.py --check
 #
-# fecha:    2026-11-02 15:39 UTC
-# commit:   5c0ef777b76fa3e45759d931c9cc5daf81540843
+# fecha:    2026-11-02 16:36 UTC
+# commit:   ea1b0edc43b46c9440994fab68d5b5d1f29a27c1
 # ficheros: 107262
-# bytes:    800120564
-# root:     f91bf120d5611bbced5e0be739616222c29c4e633ea9c1822968460a42347b35
+# bytes:    800294066
+# root:     6ab2eb378bfb636d69f90468367afdc423ea53d3e1618ed35cd0dfdc0efde184
 #
 efbb9c92ced5131364d184269769070002b90c8128ca19e649df418752c33ea0  corpus/PRINT_ERRATA.md
-8c797a2563ff0f599ac01bef4c207fb7b33068373f4ba11351a6b9068f4fc217  corpus/PROGRESS.md
+e4015833ca4d4f6df5fdc577ccd8da291cabe222f5144662744ee456dd385c0f  corpus/PROGRESS.md
 ec530d012134c7a922b8da1614041cef4b82fde02589203a515092f21cfd1814  corpus/PROVENANCE.md
 173786d1d59faae46bdde2a64f1fc0eaf5de42a7fda46585472eaa186e99a68f  corpus/QUE-ES-ESTO.md
 e6ff81e5e6eba2561cd32d1152fa3a6c15f6dbe5f230fd82b9c111357731c28e  corpus/README.md
@@ -703,7 +703,7 @@ dc13055a09b2de175682f89ca7319ba053bd15918f95f71aa6fc25d121be969b  corpus/bhagava
 b10fdd2016cc97838fd310a43a611c307e37e5a0f56c8a39f2e427bff43941be  corpus/bhagavad-gita-as-it-is/introduction.md
 741254c44730631b86dba96177985c179ac791c71e2c359998538aada0cf5ead  corpus/bhagavad-gita-as-it-is/preface.md
 adab77f7da68f2c3441a06ddea027aa24db9b90e15f8058b581e47dc787ffcc6  corpus/bhagavad-gita-as-it-is/title.md
-4aaa2f3a951322a4098baeec64392a042cc24099c79a343d1b2df0eb10629122  corpus/corrections.jsonl
+485f8c017f2f09766de266d3377c3d7b35b633b66050a97e16c41e6e6decc38b  corpus/corrections.jsonl
 46c67311cd2848daf2e8f3f8ed1bc6ad1918ca7db7594759283f5bb7dbc0dc01  corpus/easy-journey-to-other-planets/chapter-1.md
 94c5b294c8aca7d80aa78ad91414c899942067c0471ff22db815a874e084dc4e  corpus/easy-journey-to-other-planets/chapter-2.md
 b656879538f240b801a941b7b5980a9b7dd7f6e2092be4bcebcbffc8c875547f  corpus/easy-journey-to-other-planets/preface.md
