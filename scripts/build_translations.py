@@ -1,6 +1,6 @@
 #!/usr/bin/env python3
 """Build vedabase-original/translations/ : canonical per-book jsonl + generated
-Markdown mirroring the English repo layout, for en/es/hi/pt/ru.
+Markdown mirroring the English repo layout, for en/es/hi/pt/ru/bn.
 
 - Translation text  : from traducciones_vedabase per-book jsonl (complete, verified).
 - English text      : from the vedabase-original repo Markdown (repo_source).
@@ -20,7 +20,7 @@ import translation_normalize as N           # synonyms italic + translation bold
 VO   = Path(__file__).resolve().parent.parent              # vedabase-original repo root
 OUT  = Path(os.environ['VB_OUT']) if os.environ.get('VB_OUT') else VO / 'translations'
 ASTRO = Path('/Users/jaganat/git_projects/astro_vedabase')
-LANG_DIR = {'en':'english','es':'espanol','hi':'hindi','pt':'portugues','ru':'russian'}
+LANG_DIR = {'en':'english','es':'espanol','hi':'hindi','pt':'portugues','ru':'russian','bn':'bengali'}
 
 # ---- English ref -> (relpath, heading_line, mode) map, built by walking the repo ----
 # permissive verse-ref recognition (allows letter-suffix verses 1a/1b and ranges,
@@ -209,7 +209,7 @@ if __name__ == '__main__':
     unmapped = {}
 
     # ---------- translations ----------
-    for lang in ('es','hi','pt','ru'):
+    for lang in [l for l in ('es','hi','pt','ru','bn') if l in os.environ.get('VB_LANGS','es,hi,pt,ru,bn').split(',')]:
         root = dd.TV / dd.LANG_ROOT[lang]
         nmd = njsonl = nun = 0
         for book, tfolder in dd.FOLDER.items():
