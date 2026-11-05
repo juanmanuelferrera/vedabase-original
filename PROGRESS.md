@@ -1,7 +1,7 @@
 # vedabase-original — PROGRESS
 
-Estado: Bhagavad-gītā en español: texto y devanagari del libro de Perú (PDF 2026-11-02b) aplicados en el repo (jsonl + .md), subido a GitHub y llevado a D1 el 2-nov (1.205 campos, verificado campo a campo; purga ×2, canary 234/0 y 11 comprobaciones en vivo OK). Ebooks, packs y ancla de Arweave sin hacer.
-Siguiente: (1) revisar `~/Desktop/gita_peru_no_aplicados.tsv` (5 campos y 21 omitidos); (2) decidir si el devanagari de Perú se lleva también al inglés (pt, ru y hi ya lo llevan y están subidos); (3) ebooks es/pt/ru/hi de la Gītā y packs sin regenerar; (4) decidir si se añaden Guía del Alfabeto y Glosario de 2022 como páginas nuevas; (5) anclar la raíz del manifiesto en Arweave (`ANCHORS.md`).
+Estado: Bhagavad-gītā en español: texto y devanagari del libro de Perú (PDF 2026-11-02b) en el repo y en D1 (2-nov, 1.205 campos). 4-nov: añadidos al repo Y a D1 (en vivo, purga ×2) los 3 cambios del libro del 4-nov: Behar→Bihar (3.20), Anirudha→Aniruddha (Introducción), Bhaktívedanta→Bhaktivedanta (14.27); plan/inversa en `~/Desktop/d1_plan_bg_bihar/`; 4 commits sin push. Cotejo web↔PDF del 4-nov (`~/Desktop/cotejo_web_vs_libro_peru.tsv`): D1≡repo; diferencias reales: Glosario/Guía en bg/18/78 (web con el texto de 2022), bg/3/16 («gratificación/gratificar» → libro «complacencia/complacer»), pies de lámina bg/2/72 y bg/6/47 («Bendito» → «Bienaventurado»). Ebooks, packs y ancla de Arweave sin hacer.
+Siguiente: (1) decidir y aplicar a D1 bg/3/16 y los 2 pies de lámina (+ repo y `corrections.jsonl`); (2) decidir el Glosario/Guía del Alfabeto (¿entradas nuevas de la web?) y llevar la versión de Perú; (3) revisar `~/Desktop/gita_peru_no_aplicados.tsv`; (4) ebooks es/pt/ru/hi y packs; (5) ancla de Arweave (`ANCHORS.md`); (6) pedir OK y subir a GitHub (4 commits). Libro de Perú: el PDF vigente aún dice «Behar»; montar de nuevo cambia el SHA (Daru espera el «acepto» del SHA 1c9bcec7…).
 
 ## Regla de este bloque (2-nov)
 
