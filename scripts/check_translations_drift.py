@@ -17,7 +17,7 @@ sys.path.insert(0, str(Path(__file__).resolve().parent))
 import build_translations as B
 
 TRANS = B.VO / 'translations'
-LANGS = {'espanol', 'hindi', 'portugues', 'russian', 'bengali'}
+LANGS = {'espanol', 'hindi', 'portugues', 'russian', 'bengali', 'chinese'}
 
 
 def main():

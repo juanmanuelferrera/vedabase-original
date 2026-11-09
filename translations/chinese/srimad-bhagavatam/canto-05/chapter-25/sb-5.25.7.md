@@ -1,0 +1,9 @@
+### SB 5.25.7
+
+> ध्यायमानः सुरासुरोरगसिद्धगन्धर्वविद्याधरमुनिगणैरनवरतमदमुदितविकृतविह्वललोचनः सुललितमुखरिकामृतेनाप्यायमानः स्वपार्षदविबुधयूथपतीनपरिम्लानरागनवतुलसिकामोदमध्वासवेन माद्यन्मधुकरव्रातमधुरगीतश्रियं वैजयन्तीं स्वां वनमालां नीलवासा एककुण्डलो हलककुदि कृतसुभगसुन्दरभुजो भगवान्महेन्द्रो वारणेन्द्र इव काञ्चनींकक्षामुदारलीलो बिभर्ति ॥७॥
+
+> dhyāyamānaḥ surāsuroraga-siddha-gandharva-vidyādhara-muni-gaṇair anavarata-mada-mudita-vikṛta-vihvala-locanaḥ sulalita-mukharikāmṛtenāpyāyamānaḥ sva-pārṣada-vibudha-yūtha-patīn aparimlāna-rāga-nava-tulasikāmoda-madhv-āsavena mādyan madhukara-vrāta-madhura-gīta-śriyaṁ vaijayantīṁ svāṁ vanamālāṁ nīla-vāsā eka-kuṇḍalo hala-kakudi kṛta-subhaga-sundara-bhujo bhagavān mahendro vāraṇendra iva kāñcanīṁ kakṣām udāra-līlo bibharti.
+
+*dhyāyamānaḥ*——被冥想；*sura*——半神人的；*asura*——恶魔；*uraga*——蛇；*siddha*——悉达洛卡的居民；*gandharva*——甘达尔瓦洛卡的居民；*vidyādhara*——维迪亚达拉；*muni*——和伟大圣哲的；*gaṇaiḥ*——群体；*anavarata*——不断地；*mada-mudita*——因陶醉而喜悦；*vikṛta*——来回转动；*vihvala*——滚动；*locanaḥ*——祂的眼睛；*su-lalita*——极其优美；*mukharika*——言语的；*amṛtena*——以甘露；*āpyāyamānaḥ*——使满足；*sva-pārṣada*——祂自己的同伴；*vibudha-yūtha-patīn*——各群半神人的首领；*aparimlāna*——永不褪色；*rāga*——其光泽；*nava*——永远新鲜；*tulasikā*——图拉西花的；*āmoda*——以芳香；*madhu-āsavena*——和蜜；*mādyan*——陶醉；*madhukara-vrāta*——蜜蜂的；*madhura-gīta*——以甜美的歌声；*śriyam*——使其更加美丽；*vaijayantīm*——名为外加扬蒂的花环；*svām*——祂自己的；*vanamālām*——花环；*nīla-vāsāḥ*——身穿蓝色衣服；*eka-kuṇḍalaḥ*——只戴一只耳环；*hala-kakudi*——在犁的把手上；*kṛta*——放置；*subhaga*——吉祥；*sundara*——美丽；*bhujaḥ*——双手；*bhagavān*——至尊人格神；*mahā-indraḥ*——天界之王；*vāraṇa-indraḥ*——大象；*iva*——如同；*kāñcanīm*——金色的；*kakṣām*——腰带；*udāra-līlaḥ*——从事超然的逍遥时光；*bibharti*——佩戴。
+
+***舒卡戴瓦·哥斯瓦米继续说道：半神人、恶魔、乌拉嘎［蛇形半神人］、悉达、甘达尔瓦、维迪亚达拉，以及许多极为崇高的圣哲，不断地向主祈祷。由于陶醉，主看起来神情恍惚，祂如盛开花朵般的眼睛来回转动。祂以口中发出的甜美振动，使祂的亲密同伴、各群半神人的首领们欢喜。祂身穿蓝色衣服，只戴一只耳环，用祂那两只美丽而结构良好*的手把犁扛在背上。祂看上去如天界之王因德拉一样白，腰间系着金腰带，颈上戴着由永远新鲜的图拉西花编成的外加扬蒂花环。被图拉西花蜜般的芳香陶醉的蜜蜂，在花环周围甜美地嗡嗡鸣唱，花环因而越发美丽。就这样，主享受着祂极其慷慨的逍遥时光。**

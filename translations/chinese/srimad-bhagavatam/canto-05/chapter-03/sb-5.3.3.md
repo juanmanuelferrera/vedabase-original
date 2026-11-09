@@ -1,0 +1,11 @@
+### SB 5.3.3
+
+> अथ ह तमाविष्कृतभुजयुगलद्वयं हिरण्मयं पुरुषविशेषं कपिशकौशेयाम्बरधरमुरसि विलसच्छ्रीवत्सललामं दरवरवनरुहवनमालाच्छूर्यमृतमणिगदादिभिरुपलक्षितं स्फुटकिरणप्रवरमुकुटकुण्डलकटककटिसूत्रहारकेयूरनूपुराद्यङ्गभूषणविभूषितमृत्विक्सदस्यगृहपतयोऽधना इवोत्तमधनमुपलभ्य सबहुमानमर्हणेनावनतशीर्षाण उपतस्थुः ॥३॥
+
+> atha ha tam āviṣkṛta-bhuja-yugala-dvayaṁ hiraṇmayaṁ puruṣa-viśeṣaṁ kapiśa-kauśeyāmbara-dharam urasi vilasac-chrīvatsa-lalāmaṁ daravara-vanaruha-vana-mālācchūry-amṛta-maṇi-gadādibhir upalakṣitaṁ sphuṭa-kiraṇa-pravara-mukuṭa-kuṇḍala-kaṭaka-kaṭi-sūtra-hāra-keyūra-nūpurādy-aṅga-bhūṣaṇa-vibhūṣitam ṛtvik-sadasya-gṛha-patayo 'dhanā ivottama-dhanam upalabhya sabahu-mānam arhaṇenāvanata-śīrṣāṇa upatasthuḥ.
+
+*atha*——此后；**ha**——确实；**tam**——祂；**āviṣkṛta-bhuja-yugala-dvayam**——以四臂显现自己者；**hiraṇmayam**——十分光辉；**puruṣa-viśeṣam**——一切生物中的至高者，普茹肖陀玛；**kapiśa*-kauśeya-ambara-dharam*——穿着黄色丝绸衣裳；**urasi**——在胸前；**vilasat**——美丽的；**śrīvatsa**——称为室利瓦查的；**lalāmam**——拥有印记；**dara-vara**——以海螺；**vana*-ruha*——莲花；**vana*-mālā*——森林花环；**acchūri**——轮盘；**amṛta-maṇi**——考斯图巴宝石；**gadā-ādibhiḥ**——以及重杵和其他标志；**upalakṣitam**——显示出特征；**sphuṭa*-kiraṇa*——光芒四射的；**pravara**——极好的；**mukuṭa**——头盔；**kuṇḍala**——耳环；**kaṭaka**——手镯；**kaṭi*-sūtra*——腰带；**hāra**——项链；**keyūra**——臂环；**nūpura**——脚铃；**ādi**——等等；**aṅga**——身体的；**bhūṣaṇa**——以饰物；**vibhūṣitam**——装饰着；**ṛtvik**——祭司们；**sadasya**——随从们；**gṛha-patayaḥ**——以及那毕国王；**adhanāḥ**——穷人；**iva**——如同；**uttama-dhanam**——巨大的财宝；**upalabhya**——得到之后；**sa*-bahu-mānam*——怀着极大的敬意；**arhaṇena**——以崇拜用品；**avanata**——低下；**śīrṣāṇaḥ**——他们的头；**upatasthuḥ**——崇拜了。
+
+**维施努主以四臂的形象出现在那毕国王面前。祂光辉灿烂，显得是所有人格中最杰出者。祂的下身穿着黄色丝绸衣裳。祂的胸前有室利瓦查（Śrīvatsa）印记，永远显示着美丽。祂手持海螺、莲花、轮盘和重杵，佩戴着森林花环和考斯图巴（Kaustubha）宝石。祂以头盔、耳环、手镯、腰带、珍珠项链、臂环、脚铃和其他镶嵌着光芒四射的宝石的身饰，装扮得十分华美。看到主亲临眼前，那毕国王和他的祭司们、随从们，就像穷人突然得到巨大的财富一样。他们迎接主，恭敬地低下头，向祂献上崇拜之物。**
+
+*此处明确提到，至尊人格神并不是以普通人的形象出现的。祂以所有人格中最杰出者（普茹肖陀玛，Puruṣottama）的身份出现在那毕国王及其随从面前。正如韦达经所说：Nityo nityānāṁ cetanaś cetanānām。至尊人格神也是一个生物，但祂是至高无上的生物。在《博伽梵歌》*（7.7）中，主奎师那亲口说道：mattaḥ parataraṁ nānyat kiñcid asti dhanañjaya：「哦，财富的征服者〔阿尔诸那〕，没有任何真理高于我。」没有人比主奎师那更有吸引力、更有权威。这是神与普通生物的区别之一。根据对维施努主超然身体的这一描述，人很容易把主与所有其他生物区分开来。因此，那毕国王及其祭司和随从们都向主顶礼，并开始用各种物品崇拜祂。正如《博伽梵歌》（6.22）所说：yaṁ labdhvā cāparaṁ lābhaṁ manyate nādhikaṁ tataḥ。也就是说，「得到这一点后，人认为没有比它更大的收获了。」当一个人觉悟了神，面对面地见到主时，他必定认为自己得到了一切之中最好的东西。Raso 'py asya paraṁ dṛṣṭvā nivartate：当一个人体验到更高的滋味时，他的知觉就稳固了。见到至尊人格神之后，人就不再被任何物质的东西所吸引。这时，他就坚定不移地崇拜至尊人格神。

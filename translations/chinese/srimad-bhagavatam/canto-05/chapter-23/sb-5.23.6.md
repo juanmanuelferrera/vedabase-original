@@ -1,0 +1,9 @@
+### SB 5.23.6
+
+> पुनर्वसुपुष्यौ दक्षिणवामयोः श्रोण्योरार्द्राश्लेषे च दक्षिणवामयोः पश्चिमयोःपादयोरभिजिदुत्तराषाढे दक्षिणवामयोर्नासिकयोर्यथासङ्ख्यं श्रवणपूर्वाषाढे दक्षिणवामयोर्लोचनयोर्धनिष्ठा मूलं च दक्षिणवामयोः कर्णयोर्मघादीन्यष्ट नक्षत्राणि दक्षिणायनानिवामपार्श्ववङ्क्रिषु युञ्जीत तथैव मृगशीर्षादीन्युदगयनानि दक्षिणपार्श्ववङ्क्रिषु प्रातिलोम्येनप्रयुञ्जीत शतभिषाज्येष्ठे स्कन्धयोर्दक्षिणवामयोर्न्यसेत ॥६॥
+
+> punarvasu-puṣyau dakṣiṇa-vāmayoḥ śroṇyor ārdrāśleṣe ca dakṣiṇa-vāmayoḥ paścimayoḥ pādayor abhijid-uttarāṣāḍhe dakṣiṇa-vāmayor nāsikayor yathā-saṅkhyaṁ śravaṇa-pūrvāṣāḍhe dakṣiṇa-vāmayor locanayor dhaniṣṭhā mūlaṁ ca dakṣiṇa-vāmayoḥ karṇayor maghādīny aṣṭa nakṣatrāṇi dakṣiṇāyanāni vāma-pārśva-vaṅkriṣu yuñjīta tathaiva mṛga-śīrṣādīny udagayanāni dakṣiṇa-pārśva-vaṅkriṣu prātilomyena prayuñjīta śatabhiṣā-jyeṣṭhe skandhayor dakṣiṇa-vāmayor nyaset.
+
+*punarvasu*——名叫普纳尔瓦苏的星；**puṣyau**——和名叫普什亚的星；**dakṣiṇa*-vāmayoḥ*——在右和左；**śroṇyoḥ**——臀部；**ārdrā**——名叫阿尔德茹阿的星；**aśleṣe**——名叫阿什莱沙的星；**ca**——也；**dakṣiṇa*-vāmayoḥ*——在右和左；**paścimayoḥ**——后面的；**pādayoḥ**——脚；**abhijit-uttarāṣāḍhe**——名叫阿比吉特和乌塔拉沙达的星；**dakṣiṇa*-vāmayoḥ*——在右和左；**nāsikayoḥ**——鼻孔；**yathā*-saṅkhyam*——按数字顺序；**śravaṇa-pūrvāṣāḍhe**——名叫什茹阿瓦那和普尔瓦沙达的星；**dakṣiṇa*-vāmayoḥ*——在右和左；**locanayoḥ**——眼睛；**dhaniṣṭhā mūlam ca**——以及名叫达尼什塔和穆拉的星；**dakṣiṇa*-vāmayoḥ*——在右和左；**karṇayoḥ**——耳朵；**maghā-ādīni**——以马嘎为首的星；**aṣṭa nakṣatrāṇi**——八颗星；**dakṣiṇa-āyanāni**——标志南行路线的；**vāma-pārśva**——左侧的；**vaṅkriṣu**——在肋骨上；**yuñjīta**——可以安放；**tathā eva**——同样地；**mṛga-śīrṣā-ādīni**——以姆里嘎希尔沙为首的；**udagayanāni**——标志北行路线的；**dakṣiṇa*-pārśva-vaṅkriṣu*——在右侧的肋骨上；**prātilomyena**——以相反的顺序；**prayuñjīta**——可以安放；*śatabhiṣā*——沙塔毕沙；**jyeṣṭhe**——吉耶什塔；**skandhayoḥ**——在两个肩膀上；**dakṣiṇa*-vāmayoḥ*——右和左；**nyaset**——应当安放。
+
+***在希舒玛茹*-查克茹阿腰部所在之处的右侧和左侧，是名叫普纳尔瓦苏和普什亚的星。阿尔德茹阿和阿什莱沙在它的右脚和左脚上，阿比吉特和乌塔拉沙达在它的右鼻孔和左鼻孔上，什茹阿瓦那和普尔瓦沙达在它的右眼和左眼上，达尼什塔和穆拉在它的右耳和左耳上。标志南行路线的从马嘎到阿努茹阿达的八颗星，在它身体左侧的肋骨上；标志北行路线的从姆里嘎希尔沙到普尔瓦巴德茹阿的八颗星，在右侧的肋骨上。沙塔毕沙和吉耶什塔在右肩和左肩上。**

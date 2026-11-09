@@ -1,0 +1,11 @@
+### SB 5.26.17
+
+> यस्त्विह वै भूतानामीश्वरोपकल्पितवृत्तीनामविविक्तपरव्यथानां स्वयं पुरुषोपकल्पितवृत्तिर्विविक्तपरव्यथो व्यथामाचरति स परत्रान्धकूपे तदभिद्रोहेण निपतति तत्र हासौतैर्जन्तुभिः पशुमृगपक्षिसरीसृपैर्मशकयूकामत्कुणमक्षिकादिभिर्ये के चाभिद्रुग्धास्तैःसर्वतोऽभिद्रुह्यमाणस्तमसि विहतनिद्रानिर्वृतिरलब्धावस्थानः परिक्रामति यथा कुशरीरे जीवः ॥१६॥
+
+> yas tv iha vai bhūtānām īśvaropakalpita-vṛttīnām avivikta-para-vyathānāṁ svayaṁ puruṣopakalpita-vṛttir vivikta-para-vyatho vyathām ācarati sa paratrāndhakūpe tad-abhidroheṇa nipatati tatra hāsau tair jantubhiḥ paśu-mṛga-pakṣi-sarīsṛpair maśaka-yūkā-matkuṇa-makṣikādibhir ye ke cābhidrugdhās taiḥ sarvato 'bhidruhyamāṇas tamasi vihata-nidrā-nirvṛtir alabdhāvasthānaḥ parikrāmati yathā kuśarīre jīvaḥ.
+
+*yaḥ*——任何人；*tu*——但是；*iha*——今生；*vai*——的确；*bhūtānām*——对有些生物；*īśvara*——被至尊控制者；*upakalpita*——所安排；*vṛttīnām*——其生计；*avivikta*——不理解；*para-vyathānām*——他人的痛苦；*svayam*——他自己；*puruṣa-upakalpita*——由至尊人格神所安排；*vṛttiḥ*——其生计；*vivikta*——理解；*para-vyathaḥ*——他人的痛苦状态；*vyathām ācarati*——却仍然造成痛苦；*saḥ*——这样的人；*paratra*——来生；*andhakūpe*——堕入名为安塔库帕的地狱；*tat*——对他们；*abhidroheṇa*——由于恶意之罪；*nipatati*——堕入；*tatra*——在那里；*ha*——的确；*asau*——那个人；*taiḥ jantubhiḥ*——被那些各自的生物；*paśu*——动物；*mṛga*——野兽；*pakṣi*——鸟；*sarīsṛpaiḥ*——蛇；*maśaka*——蚊子；*yūkā*——虱子；*matkuṇa*——蠕虫；*makṣika-ādibhiḥ*——苍蝇等；*ye ke*——其他任何；*ca*——和；*abhidrugdhāḥ*——受迫害的；*taiḥ*——被它们；*sarvataḥ*——到处；*abhidruhyamāṇaḥ*——受伤害；*tamasi*——在黑暗中；*vihata*——被扰乱；*nidrā-nirvṛtiḥ*——其休息之处；*alabdha*——不能得到；*avasthānaḥ*——栖身之处；*parikrāmati*——游荡；*yathā*——就像；*ku-śarīre*——在低等身体中；*jīvaḥ*——生物。
+
+**根据至尊主的安排，臭虫和蚊子这类低等生物吸食人类和其他动物的血。这些微不足道的生物不知道它们的叮咬会使人痛苦。然而，头等的人类——布茹阿玛那、克沙特里亚（kṣatriya）和外夏（vaiśya）——知觉已经发展，因此他们知道被杀有多痛苦。具备知识的人如果杀害或折磨那些没有辨别能力的微小生物，无疑是在犯罪。至尊主惩罚这样的人，把他投入名为安塔库帕的地狱，在那里，所有的鸟兽、爬行动物、蚊子、虱子、蠕虫、苍蝇，以及他一生中折磨过的其他任何生物都来攻击他。它们从四面八方攻击他，剥夺了他睡眠的乐趣。他无法休息，在黑暗中不停地游荡。这样，在安塔库帕他的痛苦就如同低等物种中的生物一样。**
+
+从这节很有教益的诗中我们得知，由自然法则创造出来、用来打扰人类的低等动物不会受到惩罚。然而，由于人类的知觉已经发展，他若违背瓦尔纳施拉玛达尔玛（varṇāśrama-dharma）的原则，就不能不受谴责。奎师那在《博伽梵歌》(4.13)中说：cātur-varṇyaṁ mayā sṛṣṭaṁ guṇa-karma-vibhāgaśaḥ：「按照物质自然三形态及其所规定的工作，人类社会的四个阶层由我所创造。」因此，所有人应当分为四类——布茹阿玛那、克沙特里亚、外夏和苏德拉（śūdra）——并依各自被规定的规章行事。他们不能偏离所规定的规则和规章。其中一条是：他们决不能给任何动物制造麻烦，即使那些打扰人类的动物也不例外。老虎攻击其他动物并吃它的肉并无罪过，但如果知觉已发展的人这样做，就必须受罚。换句话说，不运用自己已发展的知觉、反而如同动物般行事的人，必定会在许多不同的地狱中受罚。
