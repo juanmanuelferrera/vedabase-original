@@ -1,0 +1,17 @@
+### CC Adi 1.6
+
+> শ্রীরাধায়াঃ প্রণয়মহিমা কীদৃশো বানয়ৈবা-\
+> স্বাদ্যো যেনাদ্ভুতমধুরিমা কীদৃশো বা মদীয়ঃ ।\
+> সৌখ্যঞ্চাস্যা মদনুভবতঃ কীদৃশং বেতি লোভা-\
+> ত্তদ্ভাবাঢ্যঃ সমজনি শচীগর্ভসিন্ধৌ হরীন্দুঃ ॥৬॥
+
+> śrī-rādhāyāḥ praṇaya-mahimā kīdṛśo vānayaivā-\
+> svādyo yenādbhuta-madhurimā kīdṛśo vā madīyaḥ\
+> saukhyaṁ cāsyā mad-anubhavataḥ kīdṛśaṁ veti lobhāt\
+> tad-bhāvāḍhyaḥ samajani śacī-garbha-sindhau harīnduḥ
+
+*śrī-rādhāyāḥ*——室利马蒂·茹阿达茹阿妮的；*praṇaya-mahimā*——爱的伟大；*kīdṛśaḥ*——何种；*vā*——或；*anayā*——被这一位（茹阿达）；*eva*——唯独；*āsvādyaḥ*——所品尝的；*yena*——由那爱；*adbhuta-madhurimā*——奇妙的甜美；*kīdṛśaḥ*——何种；*vā*——或；*madīyaḥ*——我的；*saukhyam*——快乐；*ca*——和；*asyāḥ*——她的；*mat-anubhavataḥ*——由领悟我的甜美；*kīdṛśam*——何种；*vā*——或；*iti*——如此；*lobhāt*——由于渴望；*tat*——她的；*bhāva-āḍhyaḥ*——富含情感；*samajani*——降生；*śacī-garbha*——莎琪黛薇子宫的；*sindhau*——在海洋中；*hari*——主奎师那；*induḥ*——如同月亮。
+
+**译文**
+
+为了理解茹阿达茹阿妮之爱的荣耀，理解祂那些只有她才能以爱品尝的奇妙品质，以及她领悟祂的爱之甜美时所感受的快乐，至尊主哈里（Hari）富含她的情感，从室利马蒂·莎琪黛薇的子宫中降生，如同月亮从海洋中升起。

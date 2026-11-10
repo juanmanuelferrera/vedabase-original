@@ -1,0 +1,21 @@
+### CC Madhya 22.84
+
+> ভবাপবর্গো ভ্রমতো যদা ভবে-\
+> জ্জনস্য তর্হ্যচ্যুত সৎসমাগমঃ ।\
+> সৎসঙ্গমো যর্হি তদৈব সদ্গতৌ\
+> পরাবরেশে ত্বয়ি জায়তে রতিঃ ॥৮৪॥
+
+> bhavāpavargo bhramato yadā bhavej\
+> janasya tarhy acyuta sat-samāgamaḥ\
+> sat-saṅgamo yarhi tadaiva sad-gatau\
+> parāvareśe tvayi jāyate ratiḥ
+
+*bhava-apavargaḥ*——从物质存在的无明中解脱；*bhramataḥ*——流浪；*yadā*——当；*bhavet*——应是；*janasya*——一个人的；*tarhi*——那时；*acyuta*——哦，至尊人格神；*sat-samāgamaḥ*——与奉献者交往；*sat-saṅgamaḥ*——与奉献者交往；*yarhi*——当；*tadā*——那时；*eva*——唯有；*sat-gatau*——人生的最高目标；*parāvareśe*——宇宙之主；*tvayi*——对您；*jāyate*——生起；*ratiḥ*——吸引。
+
+**译文**
+
+「『哦，我的主啊！哦，永无谬误的至尊人物！一个人在诸宇宙之间流浪，当他有资格从物质存在中解脱时，就得到了与奉献者交往的机会。与奉献者交往时，他对您的吸引便被唤醒。您是至尊人格神，是至高奉献者的最高目标，也是宇宙之主。』」
+
+要旨
+
+这是《圣典博伽瓦谭》（10.51.53）的引文。
