@@ -5,7 +5,7 @@
 > इषुभिः प्रतियोत्स्यामि पूजार्हावरिसूदन ॥४॥
 
 > arjuna uvāca\
-> kaṭhaṁ bhīṣmam ahaṁ saṅkhye\
+> kathaṁ bhīṣmam ahaṁ saṅkhye\
 > droṇaṁ ca madhusūdana\
 > iṣubhiḥ pratiyotsyāmi\
 > pūjārhāv arisūdana

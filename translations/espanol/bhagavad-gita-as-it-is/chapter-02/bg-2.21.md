@@ -5,7 +5,7 @@
 
 > vedāvināśinaṁ nityaṁ\
 > ya enam ajam avyayam\
-> kaṭhaṁ sa puruṣaḥ pārtha\
+> kathaṁ sa puruṣaḥ pārtha\
 > kaṁ ghātayati hanti kam
 
 *veda*—con conocimiento; *avināśinam*—indestructible; *nityam*—siempre; *yaḥ*—aquel que; *enam*—este (alma); *ajam*—que no nace; *avyayam*—inmutable; *katham*—cómo; *saḥ*—él; *puruṣaḥ*—persona; *pārtha*—¡oh Pārtha (Arjuna)!; *kam*—a quién; *ghātayati*—hiere; *hanti*—mata; *kam*—a quién.

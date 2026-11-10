@@ -5,7 +5,7 @@
 
 > śrotrādīnīndriyāṇy anye\
 > saṁyamāgniṣu juhvati\
-> śabdadīn viṣayān anya\
+> śabdādīn viṣayān anya\
 > indriyāgniṣu juhvati
 
 *śrotra-ādīni*—el proceso de oír; *indriyāṇi*—sentidos; *anye*—otros; *saṁyama*—de restricción; *agniṣu*—en el fuego; *juhvati*—ofrece; *śabda-ādīn*—vibración sonora, etc; *viṣayān*—objetos de la complacencia de los sentidos; *anye*—otros; *indriya*—de los órganos sensoriales; *agniṣu*—en el fuego; *juhvati*—sacrifican.

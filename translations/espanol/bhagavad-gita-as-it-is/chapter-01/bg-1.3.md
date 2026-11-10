@@ -3,7 +3,7 @@
 > पश्यैतां पाण्डुपुत्राणामाचार्य महतीं चमूम् ।\
 > व्यूढां द्रुपदपुत्रेण तव शिष्येण धीमता ॥३॥
 
-> paśyaitāṁ pāṇḍu-putrānām\
+> paśyaitāṁ pāṇḍu-putrāṇām\
 > ācārya mahatīṁ camūm\
 > vyūḍhāṁ drupada-putreṇa\
 > tava śiṣyeṇa dhīmatā

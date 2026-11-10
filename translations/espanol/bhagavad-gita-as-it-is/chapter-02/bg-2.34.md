@@ -4,7 +4,7 @@
 > सम्भावितस्य चाकीर्तिर्मरणादतिरिच्यते ॥३४॥
 
 > akīrtiṁ cāpi bhūtāni\
-> kaṭhayiṣyanti te'vyayām\
+> kathayiṣyanti te'vyayām\
 > sambhāvitasya cākīrtir\
 > maraṇād atiricyate
 
