@@ -6,7 +6,7 @@
 > शिष्यस्तेऽहं शाधि मां त्वां प्रपन्नम् ॥७॥
 
 > kārpaṇya-doṣopahata-svabhāvaḥ\
-> pṛcchāmi tvāṁ dharma-sammūḍha-cetāḥ\
+> pṛcchāmi tvāṁ dharma-saṁmūḍha-cetāḥ\
 > yac chreyaḥ syān niścitaṁ brūhi tan me\
 > śiṣyas te 'haṁ śādhi māṁ tvāṁ prapannam
 

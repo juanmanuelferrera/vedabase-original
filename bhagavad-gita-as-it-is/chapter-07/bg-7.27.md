@@ -5,7 +5,7 @@
 
 > icchā-dveṣa-samutthena\
 > dvandva-mohena bhārata\
-> sarva-bhūtāni sammohaṁ\
+> sarva-bhūtāni saṁmohaṁ\
 > sarge yānti parantapa
 
 *icchā*—desire; *dveṣa*—hate; *samutthena*—born; *dvandva*—duality; *mohena*—overcome; *bhārata*—O scion of Bharata; *sarva*—all; *bhūtāni*—living entities; *sammoham*—into delusion; *sarge*—in creation; *yānti*—go; *parantapa*—O conquerer of enemies.
