@@ -6,7 +6,7 @@
 > kṛṣṇa-kṛpādi-hetu haite sabāra udaya\
 > kṛṣṇa-guṇākṛṣṭa hañā tāṅhāre bhajaya
 
-*kṛṣṇa-kṛpā-ādi-hetu*——由于奎师那的慈悲等缘故；*haite*——由于；*sabāra udaya*——任何人成为奉献者；*kṛṣṇa-guṇa-ākṛṣṭa hañā*——被奎师那的超然品质所吸引；*tāṅhāre*——祂；*bhajaya*——崇拜。
+*kṛṣṇa-kṛpā-ādi-hetu*——奎师那慈悲的缘故；*haite*——从……；*sabāra udaya*——任何人成为奉献者；*kṛṣṇa-guṇa-ākṛṣṭa hañā*——被奎师那的超然品质所吸引；*tāṅhāre*——祂；*bhajaya*——崇拜。
 
 **「每个人都有资格得到奎师那的慈悲，包括维亚萨戴瓦、四位库玛拉、舒卡戴瓦·哥斯瓦米、出身低微的生物、树木、植物和走兽。凭着奎师那的慈悲，他们得到提升，并投入祂的服务。**
 

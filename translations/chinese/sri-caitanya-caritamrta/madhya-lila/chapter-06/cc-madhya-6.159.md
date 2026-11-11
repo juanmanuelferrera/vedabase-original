@@ -6,7 +6,7 @@
 > ānandāṁśe 'hlādinī,' sad-aṁśe 'sandhinī'\
 > cid-aṁśe 'samvit', yāre jñāna kari māni
 
-*ānanda-aṁśe*——在喜乐的部分；*hlādinī*——愉悦威能；*sat-aṁśe*——在永恒的部分；*sandhinī*——桑迪尼威能；*cit-aṁśe*——在知识的部分；*samvit*——桑维特威能；*yāre*——这些；*jñāna*——作为知识；*kari māni*——我们接受
+*ānanda-aṁśe*——在喜乐的部分；*hlādinī*——愉悦威能；*sat-aṁśe*——在永恒的部分；*sandhinī*——桑迪尼威能；*cit-aṁśe*——在知识的部分；*samvit*——桑维特威能；*yāre*——那（所指的）；*jñāna*——作为知识；*kari māni*——我们接受
 
 **「灵性威能的三个部分称为赫拉迪尼（hlādinī，喜乐的部分）、桑迪尼（sandhinī，永恒的部分）和桑维特（samvit，知识的部分）。我们把对这些的认识接受为对至尊人格神的完整知识。」**
 
