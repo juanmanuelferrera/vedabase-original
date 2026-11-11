@@ -8,11 +8,7 @@
 
 *praṇava*——唵卡拉；*mahā-vākya*——首要曼陀罗；*tāhā*——那；*kari'*——使成为；*ācchādana*——被遮盖；*mahā-vākye*——取代首要曼陀罗；*kari*——我做；*'tat tvam asi'ra sthāpana*——确立 tat tvam asi 这句话。
 
-**译文**
-
-「普拉纳瓦［唵卡拉］是《韦达经》中的 mahā-vākya［mahā-mantra］。商卡拉查里亚的追随者把它遮盖起来，毫无权威地强调 tat tvam asi 这句曼陀罗。」
-
-要旨
+**「普拉纳瓦［唵卡拉］是《韦达经》中的 mahā-vākya［mahā-mantra］。商卡拉查里亚的追随者把它遮盖起来，毫无权威地强调 tat tvam asi 这句曼陀罗。」**
 
 玛雅瓦迪哲学家强调 tat tvam asi、so 'ham 等说法，却不强调真正的 mahā-mantra，即普拉纳瓦（唵卡拉）。因此，由于他们歪曲韦达知识，他们是对主莲花足最大的冒犯者。采坦尼亚·马哈帕布明确地说：māyāvādī kṛṣṇe aparādhī：「玛雅瓦迪哲学家是对主奎师那最大的冒犯者。」主奎师那宣布：
 

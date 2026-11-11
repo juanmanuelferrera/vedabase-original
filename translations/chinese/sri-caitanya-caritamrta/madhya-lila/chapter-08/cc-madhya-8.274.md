@@ -8,11 +8,7 @@
 
 *sthāvara-jaṅgama*——能动的和不动的；*dekhe*——他看到；*nā*——不；*dekhe*——看到；*tāra*——它的；*mūrti*——形体；*sarvatra*——到处；*haya*——有；*nija*——他自己的；*iṣṭa-deva*——可崇拜的主；*sphūrti*——显现。
 
-**译文**
-
-「玛哈巴嘎瓦塔（mahā-bhāgavata），也就是高级奉献者，当然会看到一切能动和不动的事物，但他看到的并不真正是它们的形体。他在各处，立刻看到的是至尊主的形象显现。」
-
-要旨
+**「玛哈巴嘎瓦塔（mahā-bhāgavata），也就是高级奉献者，当然会看到一切能动和不动的事物，但他看到的并不真正是它们的形体。他在各处，立刻看到的是至尊主的形象显现。」**
 
 由于对奎师那怀有深切的狂喜之爱，玛哈巴嘎瓦塔到处只看到奎师那，别无他物。《梵天本集》（Brahma-saṁhitā）（5.38）证实了这一点：premāñjana-cchurita-bhakti-vilocanena santaḥ sadaiva hṛdayeṣu vilokayanti。
 

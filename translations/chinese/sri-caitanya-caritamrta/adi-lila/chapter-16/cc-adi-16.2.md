@@ -8,6 +8,4 @@
 
 *jaya jaya śrī-caitanya*——所有荣耀归于主室利·采坦尼亚·马哈帕布；*jaya*——所有荣耀；*nityānanda*——归于主尼提亚南达；*jaya advaitacandra*——所有荣耀归于阿德瓦伊塔旃陀罗；*jaya*——所有荣耀；*gaura-bhakta-vṛnda*——归于主的所有奉献者。
 
-**译文**
-
-所有荣耀归于主室利·采坦尼亚·马哈帕布！所有荣耀归于主尼提亚南达（Nityānanda）！所有荣耀归于阿德瓦伊塔旃陀罗（Advaitacandra）！所有荣耀归于主的所有奉献者！
+**所有荣耀归于主室利·采坦尼亚·马哈帕布！所有荣耀归于主尼提亚南达（Nityānanda）！所有荣耀归于阿德瓦伊塔旃陀罗（Advaitacandra）！所有荣耀归于主的所有奉献者！**

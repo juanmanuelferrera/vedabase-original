@@ -8,6 +8,4 @@
 
 *ātmārāmāḥ ca ātmārāmāḥ ca*——重复 ātmārāmāḥ 和 ca 这两个词；*kari'*——做；*bāra chaya*——六次；*pañca ātmārāma*——五种 ātmārāma；*chaya*——六；*ca-kāre*——通过 ca 一词；*lupta haya*——变得不发音。
 
-**译文**
-
-「虽然 ātmārāmāś ca 本应重复六次，但只要加上 ca 一词，其中五个 ātmārāma 就被省去了。
+**「虽然 ātmārāmāś ca 本应重复六次，但只要加上 ca 一词，其中五个 ātmārāma 就被省去了。**

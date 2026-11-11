@@ -8,6 +8,4 @@
 
 *saptama paricchede*——在第七章；*pañca-tattvera*——五真理的；*ākhyāna*——详述；*pañca-tattva*——五真理；*mili'*——联合起来；*yaiche*——以何种方式；*kailā*——做了；*prema-dāna*——施予对神的爱。
 
-**译文**
-
-第七章描述五真理（Pañca-tattva）——室利采坦尼亚、尼提亚南达·帕布（Nityānanda）、室利阿德瓦伊塔、嘎达达拉（Gadādhara）和室利瓦萨（Śrīvāsa）。他们联合起来，把对神的爱传遍各地。
+**第七章描述五真理（Pañca-tattva）——室利采坦尼亚、尼提亚南达·帕布（Nityānanda）、室利阿德瓦伊塔、嘎达达拉（Gadādhara）和室利瓦萨（Śrīvāsa）。他们联合起来，把对神的爱传遍各地。**

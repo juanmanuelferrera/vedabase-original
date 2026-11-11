@@ -8,6 +8,4 @@
 
 *eka-dina*——一天；*haridāsa*——哈里达斯·塔库尔；*goṅphāte vasiyā*——坐在他的洞穴中；*nāma-saṅkīrtana karena*——正在唱颂主的圣名；*ucca kariyā*——大声回响。
 
-**译文**
-
-一天，哈里达斯·塔库尔（Haridāsa Ṭhākura）坐在他的洞穴中，大声唱颂着主的圣名。
+**一天，哈里达斯·塔库尔（Haridāsa Ṭhākura）坐在他的洞穴中，大声唱颂着主的圣名。**

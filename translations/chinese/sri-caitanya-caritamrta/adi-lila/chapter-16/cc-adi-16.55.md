@@ -8,6 +8,4 @@
 
 *avimṛṣṭa-vidheyāṁśa*——谓语不洁；*dui ṭhāñi*——在两处；*cihna*——特征；*viruddha-mati*——概念矛盾；*bhagna-krama*——次序断裂；*punar-ātta*——赘述（亦称 punar-ukti）；*doṣa*——过失；*tina*——三。
 
-**译文**
-
-「在这节诗中，avimṛṣṭa-vidheyāṁśa 的错误出现了两次，viruddha-mati、bhagna-krama 和 punar-ātta 的错误各出现一次。
+**「在这节诗中，avimṛṣṭa-vidheyāṁśa 的错误出现了两次，viruddha-mati、bhagna-krama 和 punar-ātta 的错误各出现一次。**

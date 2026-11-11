@@ -8,6 +8,4 @@
 
 *ca-śabde*——通过 ca 一词；*'api'ra*——api 一词的；*artha*——含义；*ihāṅo*——在这里也；*kahaya*——适用；*muni*——圣者；*nirgrantha*——完全解脱的；*śabdera*——这些词的；*pūrva-vat*——如前面所述；*artha haya*——有这些含义。
 
-**译文**
-
-「ca 和 api 这两个词的含义，在这里同样适用。muni 和 nirgrantha 这两个词的含义，与前面所说的相同。
+**「ca 和 api 这两个词的含义，在这里同样适用。muni 和 nirgrantha 这两个词的含义，与前面所说的相同。**

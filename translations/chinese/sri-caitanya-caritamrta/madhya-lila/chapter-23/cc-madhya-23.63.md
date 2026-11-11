@@ -8,11 +8,7 @@
 
 *vipralambha*——分离；*catuḥ-vidha*——四类；*pūrva-rāga*——pūrva-rāga；*māna*——māna；*pravāsākhya*——称为 pravāsa；*āra*——和；*prema-vaicittya*——prema-vaicittya；*ākhyāna*——称为。
 
-**译文**
-
-「Vipralambha 有四类——pūrva-rāga、māna、pravāsa 和 prema-vaicittya。」
-
-要旨
+**「Vipralambha 有四类——pūrva-rāga、māna、pravāsa 和 prema-vaicittya。」**
 
 Pūrva-rāga 在《乌季瓦拉-尼拉马尼》中是这样描述的：
 

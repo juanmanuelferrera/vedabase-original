@@ -8,6 +8,4 @@
 
 *svarūpa*——斯瓦茹帕；*jagadānanda*——贾嘎丹南达；*kāśīśvara*——卡希希瓦拉；*śaṅkara*——商卡拉；*pariveśana kare*——分发；*āra*——和；*rāghava dāmodara*——茹阿加瓦和达莫德尔。
 
-**译文**
-
-斯瓦茹帕·达莫达拉（Svarūpa Dāmodara）、贾嘎丹南达（Jagadānanda）、卡希希瓦拉（Kāśīśvara）和商卡拉（Śaṅkara），还有茹阿加瓦（Rāghava）和达莫德尔·潘迪特（Dāmodara Paṇḍita），负责分发帕萨德。
+**斯瓦茹帕·达莫达拉（Svarūpa Dāmodara）、贾嘎丹南达（Jagadānanda）、卡希希瓦拉（Kāśīśvara）和商卡拉（Śaṅkara），还有茹阿加瓦（Rāghava）和达莫德尔·潘迪特（Dāmodara Paṇḍita），负责分发帕萨德。**

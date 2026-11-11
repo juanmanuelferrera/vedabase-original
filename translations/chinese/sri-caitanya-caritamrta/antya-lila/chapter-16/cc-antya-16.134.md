@@ -8,6 +8,4 @@
 
 *kahite kahite*——说着说着；*prabhura*——室利·采坦尼亚·马哈帕布的；*mana*——心意；*phiri' gela*——变了；*krodha-aṁśa*——愤怒的部分；*śānta haila*——平息了；*utkaṇṭhā*——心意的激动；*bāḍila*——增加了。
 
-**译文**
-
-室利·采坦尼亚·马哈帕布（Śrī Caitanya Mahāprabhu）这样说着说着，祂的心意变了。祂的愤怒平息了，但心意的激动却增加了。
+**室利·采坦尼亚·马哈帕布（Śrī Caitanya Mahāprabhu）这样说着说着，祂的心意变了。祂的愤怒平息了，但心意的激动却增加了。**

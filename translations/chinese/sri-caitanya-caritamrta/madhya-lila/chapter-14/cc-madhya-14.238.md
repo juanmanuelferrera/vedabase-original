@@ -8,6 +8,4 @@
 
 *bhaṅgi kari'*——做出暗示；*svarūpa*——斯瓦茹帕·达莫达拉；*sabāra*——所有人的；*śrama*——疲倦；*jānāila*——使之得知；*bhakta-gaṇera*——奉献者们的；*śrama*——疲倦；*dekhi'*——看到；*prabhura*——室利·采坦尼亚·马哈帕布的；*bāhya haila*——恢复外在知觉。
 
-**译文**
-
-于是斯瓦茹帕·达莫达拉（Svarūpa Dāmodara）向主表明，所有奉献者都已疲倦。看到这种情形，室利·采坦尼亚·马哈帕布（Śrī Caitanya Mahāprabhu）恢复了外在的知觉。
+**于是斯瓦茹帕·达莫达拉（Svarūpa Dāmodara）向主表明，所有奉献者都已疲倦。看到这种情形，室利·采坦尼亚·马哈帕布（Śrī Caitanya Mahāprabhu）恢复了外在的知觉。**

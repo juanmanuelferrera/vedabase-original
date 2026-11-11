@@ -8,6 +8,4 @@
 
 *ṣaṭ sandarbhe*——在《Ṣaṭ-sandarbha》中；*kṛṣṇa-prema-tattva*——奎师那超然之爱的真理；*prakāśila*——他展示了；*cāri-lakṣa grantha*——四十万节诗；*teṅho*——他；*vistāra karila*——扩展。
 
-**译文**
-
-在《Ṣaṭ-sandarbha》中，室利拉·吉瓦·哥斯瓦米阐明了奎师那超然之爱的真理。这样，他在所有著作中共展开了四十万节诗。
+**在《Ṣaṭ-sandarbha》中，室利拉·吉瓦·哥斯瓦米阐明了奎师那超然之爱的真理。这样，他在所有著作中共展开了四十万节诗。**

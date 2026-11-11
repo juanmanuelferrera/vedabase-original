@@ -8,6 +8,4 @@
 
 *vṛddha-kuṣmāṇḍa-baḍīra*——掺有熟南瓜的炸达尔豆小块；*vyañjana*——蔬菜；*apāra*——无数；*phula-baḍī*——另一种达尔豆的炸小块；*phala*——水果；*mūla*——根茎；*vividha prakāra*——各种不同的。
 
-**译文**
-
-有数不尽的vṛddha-kuṣmāṇḍa-baḍī、phula-baḍī、水果和各种根茎。
+**有数不尽的vṛddha-kuṣmāṇḍa-baḍī、phula-baḍī、水果和各种根茎。**

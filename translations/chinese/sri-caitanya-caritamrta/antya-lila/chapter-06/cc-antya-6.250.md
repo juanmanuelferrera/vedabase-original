@@ -8,6 +8,4 @@
 
 *govardhanera*——戈瓦尔丹的；*putra*——儿子；*teṅho*——他；*nāma*——名叫；*raghunātha*——茹阿古纳特·达萨；*nīlācale*——在尼拉恰拉；*paricaya āche*——是否相识；*tomāra sātha*——与你。
 
-**译文**
-
-「那人名叫茹阿古纳特·达萨，是戈瓦尔丹·马朱姆达尔（Govardhana Majumadāra）的儿子。你在尼拉恰拉（Nīlācala）见过他吗？」
+**「那人名叫茹阿古纳特·达萨，是戈瓦尔丹·马朱姆达尔（Govardhana Majumadāra）的儿子。你在尼拉恰拉（Nīlācala）见过他吗？」**

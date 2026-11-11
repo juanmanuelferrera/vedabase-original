@@ -8,11 +8,7 @@
 
 *rāghava paṇḍita*——茹阿加瓦·潘迪特；*iṅha*——这位；*ācārya nandana*——阿查里亚·南丹；*śrīmān paṇḍita*——室利曼·潘迪特；*ei*——这位；*śrīkānta*——室利康塔；*nārāyaṇa*——以及纳茹阿亚那
 
-**译文**
-
-「这位是茹阿加瓦·潘迪特（Rāghava Paṇḍita），这位是阿查里亚·南丹（Ācārya Nandana），那位是室利曼·潘迪特（Śrīmān Paṇḍita），这两位是室利康塔（Śrīkānta）和纳茹阿亚那。」
-
-要旨
+**「这位是茹阿加瓦·潘迪特（Rāghava Paṇḍita），这位是阿查里亚·南丹（Ācārya Nandana），那位是室利曼·潘迪特（Śrīmān Paṇḍita），这两位是室利康塔（Śrīkānta）和纳茹阿亚那。」**
 
 纳洛塔玛·达萨·塔库尔（Narottama dāsa Ṭhākura）为尊崇主室利·采坦尼亚·马哈帕布的亲密伴侣，唱道（Prārthanā 13）：
 

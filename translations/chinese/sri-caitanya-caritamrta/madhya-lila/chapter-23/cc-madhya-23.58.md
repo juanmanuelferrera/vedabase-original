@@ -8,6 +8,4 @@
 
 *adhirūḍha-mahābhāva*——高度进阶的狂喜；*dui ta' prakāra*——两种；*sambhoge*——在实际相会时；*mādana*——mādana；*virahe*——在分离时；*mohana*——mohana；*nāma*——名称；*tāra*——它们的。
 
-**译文**
-
-「高度进阶的狂喜分为两类——mādana 和 mohana。相会在一起称为 mādana，分离称为 mohana。
+**「高度进阶的狂喜分为两类——mādana 和 mohana。相会在一起称为 mādana，分离称为 mohana。**

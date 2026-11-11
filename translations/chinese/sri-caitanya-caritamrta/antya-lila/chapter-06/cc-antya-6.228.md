@@ -8,6 +8,4 @@
 
 *āra dina*——第二天；*raghunātha*——茹阿古纳特·达萨；*svarūpa-caraṇe*——在斯瓦茹帕·达莫达拉·哥斯瓦米的莲花足前；*āpanāra*——他自己的；*kṛtya*——职责；*lāgi'*——为了；*kailā nivedane*——禀告。
 
-**译文**
-
-第二天，茹阿古纳特·达萨（Raghunātha dāsa）在斯瓦茹帕·达莫达拉（Svarūpa Dāmodara）的莲花足前，请教自己的职责。
+**第二天，茹阿古纳特·达萨（Raghunātha dāsa）在斯瓦茹帕·达莫达拉（Svarūpa Dāmodara）的莲花足前，请教自己的职责。**

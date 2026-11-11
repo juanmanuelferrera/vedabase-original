@@ -13,11 +13,7 @@
 
 *bhakta-bhede*——根据奉献者的种类；*rati-bheda*——不同的执著；*pañca parakāra*——五类；*śānti-rati*——中性的欣赏；*dāsya-rati*——仆人态度的执著；*sakhya-rati*——友谊式欣赏的执著；*āra*——还有；*vātsalya-rati*——父母之爱的执著；*madhura-rati*——爱侣之爱的执著；*ei*——这些；*pañca*——五；*vibheda*——划分；*rati-bhede*——由于不同层面的执著；*kṛṣṇa-bhakti-rase*——在源自对奎师那的奉爱服务的情味中；*pañca*——五；*bheda*——种类。
 
-**译文**
-
-「根据奉献者的不同，执著分为五类：尚塔-茹阿提（śānta-rati）、达斯亚-茹阿提（dāsya-rati）、萨克亚-茹阿提（sakhya-rati）、瓦察利亚-茹阿提（vātsalya-rati）和马杜拉-茹阿提（madhura-rati）。这五类产生于奉献者对至尊人格神的不同执著。源自奉爱服务的超然情味，也有五种。
-
-要旨
+**「根据奉献者的不同，执著分为五类：尚塔-茹阿提（śānta-rati）、达斯亚-茹阿提（dāsya-rati）、萨克亚-茹阿提（sakhya-rati）、瓦察利亚-茹阿提（vātsalya-rati）和马杜拉-茹阿提（madhura-rati）。这五类产生于奉献者对至尊人格神的不同执著。源自奉爱服务的超然情味，也有五种。**
 
 尚塔-茹阿提在《巴克提-茹阿萨姆瑞塔-辛杜》(2.5.16, 17, 18)中是这样描述的：
 

@@ -7,10 +7,6 @@
 
 *kṣetra-jñaḥ*——kṣetrajña 一词；*ātmā*——生物；*puruṣaḥ*——享受者；*pradhānam*——主要者；*prakṛtiḥ*——物质自然；*striyām*——在阴性中。
 
-**译文**
-
-「『kṣetrajña 一词指生物、享受者、主要者和物质自然。』
-
-要旨
+**「『kṣetrajña 一词指生物、享受者、主要者和物质自然。』**
 
 这是《阿玛拉词典》（Amara-kośa）中 Svarga-varga（7）的引文。

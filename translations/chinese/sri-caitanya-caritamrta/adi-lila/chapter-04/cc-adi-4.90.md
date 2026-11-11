@@ -8,6 +8,4 @@
 
 *sarva-lakṣmī-śabda*——「sarva-lakṣmī」一词；*pūrve*——先前；*kariyāchi*——我已作过；*vyākhyāna*——解释；*sarva-lakṣmī-gaṇera*——所有幸运女神的；*tiṅho*——她；*hana*——是；*adhiṣṭhāna*——居所。
 
-**译文**
-
-我先前已经解释过「sarva-lakṣmī」一词的含义。茹阿达是所有幸运女神的本源。
+**我先前已经解释过「sarva-lakṣmī」一词的含义。茹阿达是所有幸运女神的本源。**

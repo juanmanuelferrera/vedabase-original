@@ -7,6 +7,4 @@
 
 *haridāsa ṭhākurera*——哈里达萨·塔库尔的；*haila*——有了；*parama*——至高的；*ānanda*——狂喜；*vāsudeva datta*——瓦苏戴瓦·达塔；*gupta murāri*——穆茹阿里·古普塔；*sena śivānanda*——希瓦南达·森那。
 
-**译文**
-
-哈里达萨·塔库尔（Haridāsa Ṭhākura）听到这个吉祥的消息，也非常欢喜。瓦苏戴瓦·达塔（Vāsudeva Datta）、穆茹阿里·古普塔（Murāri Gupta）和希瓦南达·森那（Śivānanda Sena）也同样如此。
+**哈里达萨·塔库尔（Haridāsa Ṭhākura）听到这个吉祥的消息，也非常欢喜。瓦苏戴瓦·达塔（Vāsudeva Datta）、穆茹阿里·古普塔（Murāri Gupta）和希瓦南达·森那（Śivānanda Sena）也同样如此。**

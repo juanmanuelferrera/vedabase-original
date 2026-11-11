@@ -8,6 +8,4 @@
 
 *bhavabhūti*——名叫巴瓦布提者；*jayadeva*——名叫贾亚戴瓦者；*āra*——和；*kālidāsa*——名叫卡利达萨者；*tāṅ-sabāra*——他们所有人的；*kavitve*——在诗才中；*āche*——有；*doṣera*——错误的；*prakāśa*——显现。
 
-**译文**
-
-「即使是巴瓦布提（Bhavabhūti）、贾亚戴瓦（Jayadeva）、卡利达萨（Kālidāsa）这样的大诗人，他们的诗作中也有许多错误的例子。
+**「即使是巴瓦布提（Bhavabhūti）、贾亚戴瓦（Jayadeva）、卡利达萨（Kālidāsa）这样的大诗人，他们的诗作中也有许多错误的例子。**

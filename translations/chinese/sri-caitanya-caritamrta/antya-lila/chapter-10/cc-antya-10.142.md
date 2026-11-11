@@ -8,6 +8,4 @@
 
 *śivānanda-senera*——希瓦南达·森那的；*śuna*——请听；*nimantraṇa-ākhyāna*——邀请的故事；*śivānandera*——希瓦南达·森那的；*baḍa-putrera*——长子的；*caitanya-dāsa nāma*——名字是采坦尼亚·达萨。
 
-**译文**
-
-现在请听希瓦南达·森那（Śivānanda Sena）邀请主的故事。他的长子名叫采坦尼亚·达萨（Caitanya dāsa）。
+**现在请听希瓦南达·森那（Śivānanda Sena）邀请主的故事。他的长子名叫采坦尼亚·达萨（Caitanya dāsa）。**

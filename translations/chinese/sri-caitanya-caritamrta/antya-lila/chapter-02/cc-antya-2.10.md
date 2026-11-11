@@ -8,11 +8,7 @@
 
 *sapta-dvīpera loka*——来自宇宙中七岛的人们；*āra*——和；*nava-khaṇḍa-vāsī*——九个卡恩达的居民；*deva*——半神人；*gandharva*——甘达尔瓦洛卡的居民；*kinnara*——金纳拉洛卡的居民；*manuṣya-veśe*——以人类的形象；*āsi'*——来到。
 
-**译文**
-
-来自整个宇宙的人，包括七岛、九个卡恩达（khaṇḍa）、半神人的星球、甘达尔瓦洛卡（Gandharvaloka）和金纳拉洛卡（Kinnaraloka）的人，都以人类的形象前往那里。
-
-要旨
+**来自整个宇宙的人，包括七岛、九个卡恩达（khaṇḍa）、半神人的星球、甘达尔瓦洛卡（Gandharvaloka）和金纳拉洛卡（Kinnaraloka）的人，都以人类的形象前往那里。**
 
 关于七岛（sapta-dvīpa）的说明，请参阅《中篇》（Madhya-līlā）第二十章第218节，以及《圣典博伽瓦谭》第五篇第十六章和第二十章。在《悉达塔-希罗曼尼》（Siddhānta-śiromaṇi）第一章（戈拉迪亚亚，Golādhyāya）的布瓦那-科沙（Bhuvana-kośa）部分，九个卡恩达是这样列出的：
 

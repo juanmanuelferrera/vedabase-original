@@ -7,6 +7,4 @@
 
 *hena-kāle*——这时；*govindera*——戈文达的；*haila*——有了；*āgamana*——到来；*daṇḍavat kari'*——献上礼拜；*kahe*——说；*vinaya-vacana*——谦卑的话语。
 
-**译文**
-
-这时，戈文达（Govinda）来到现场，献上恭敬的礼拜，谦卑地说道。
+**这时，戈文达（Govinda）来到现场，献上恭敬的礼拜，谦卑地说道。**

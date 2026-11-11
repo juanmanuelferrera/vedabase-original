@@ -8,6 +8,4 @@
 
 *bhāgavata-sandarbha-granthera*——名为《巴嘎瓦塔-桑达尔巴》的书的；*maṅgala-ācaraṇe*——在吉祥的开篇中；*e-śloka*——这节诗；*jīva-gosāñi*——吉瓦·哥斯瓦米；*kariyāchena*——做了；*vyākhyāne*——在解释中。
 
-**译文**
-
-在《巴嘎瓦塔-桑达尔巴》（Bhāgavata-sandarbha）的吉祥开篇中，室利拉·吉瓦·哥斯瓦米给出了下面这节诗作为解释。
+**在《巴嘎瓦塔-桑达尔巴》（Bhāgavata-sandarbha）的吉祥开篇中，室利拉·吉瓦·哥斯瓦米给出了下面这节诗作为解释。**

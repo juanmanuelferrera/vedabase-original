@@ -7,6 +7,4 @@
 
 *śrīvāsa-paṇḍita*——室利瓦萨·潘迪特；*iṅha*——这位；*paṇḍita-vakreśvara*——瓦克雷施瓦茹·潘迪特；*vidyānidhi-ācārya*——维迪亚尼迪·阿查里亚；*iṅha*——这位；*paṇḍita-gadādhara*——嘎达达拉·潘迪特
 
-**译文**
-
-「这位是室利瓦萨·潘迪特（Śrīvāsa Paṇḍita），这位是瓦克雷施瓦茹·潘迪特（Vakreśvara Paṇḍita），这位是维迪亚尼迪·阿查里亚（Vidyānidhi Ācārya），这位是嘎达达拉·潘迪特（Gadādhara Paṇḍita）。
+**「这位是室利瓦萨·潘迪特（Śrīvāsa Paṇḍita），这位是瓦克雷施瓦茹·潘迪特（Vakreśvara Paṇḍita），这位是维迪亚尼迪·阿查里亚（Vidyānidhi Ācārya），这位是嘎达达拉·潘迪特（Gadādhara Paṇḍita）。**

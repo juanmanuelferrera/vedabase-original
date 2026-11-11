@@ -8,6 +8,4 @@
 
 *jhālira upara*——管着这些袋子；*munsiba*——总管；*makaradhvaja-kara*——马卡茹德瓦贾·卡茹；*prāṇa-rūpe*——如同生命一般；*jhāli rākhe*——保管袋子；*hañā tatpara*——十分用心。
 
-**译文**
-
-所有那些袋子的总管是马卡茹德瓦贾·卡茹（Makaradhvaja Kara），他十分用心地保管着它们，如同保管自己的生命。
+**所有那些袋子的总管是马卡茹德瓦贾·卡茹（Makaradhvaja Kara），他十分用心地保管着它们，如同保管自己的生命。**

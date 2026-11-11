@@ -8,11 +8,7 @@
 
 *sva yam-rūpa*——自身的形体；*tat-ekātma-rūpa*——同一形体，与 svayaṁ-rūpa 无别；*āveśa*——特别被赋予能力的；*nāma*——名为；*prathamei*——最初；*tina-rūpe*——以三种形体；*rahena*——存在；*bhagavān*——至尊人格神。
 
-**译文**
-
-「至尊人格神以三种主要的形体存在——svayaṁ-rūpa、tad-ekātma-rūpa 和 āveśa-rūpa。」
-
-要旨
+**「至尊人格神以三种主要的形体存在——svayaṁ-rūpa、tad-ekātma-rūpa 和 āveśa-rūpa。」**
 
 室利拉·茹帕·哥斯瓦米在《拉古巴嘎瓦塔姆瑞塔》（Laghu-bhāgavatāmṛta）前篇（pūrva-khaṇḍa）第12节中描述了 svayaṁ-rūpa：ananyāpekṣi yad rūpaṁ svayaṁ-rūpaḥ sa ucyate，即至尊人格神的原始形体不依赖于其他任何形体。这一原始形体称为 svayaṁ-rūpa，《圣典博伽瓦谭》中这样描述：kṛṣṇas tu bhagavān svayam (1.3.28)。奎师那在温达文作为牧牛少年的原始形体，称为 svayaṁ-rūpa。《布茹阿玛桑希塔》（Brahma-saṁhitā）(5.1) 也证实了这一点：
 

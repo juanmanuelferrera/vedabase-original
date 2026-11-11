@@ -8,6 +8,4 @@
 
 *nirgranthā*——nirgranthā 一词；*eva*——eva 一词亦然；*hañā*——成为；*api*——api 一词；*nirdhāraṇe*——表示确定；*ei ūnaṣaṣṭi prakāra artha*——这样五十九种含义；*kariluṅ vyākhyāne*——我已作了解释。
 
-**译文**
-
-「我取 nirgranthā 一词，又把 api 看作表示维持之义，试着解释了这个词的五十九种含义。
+**「我取 nirgranthā 一词，又把 api 看作表示维持之义，试着解释了这个词的五十九种含义。**

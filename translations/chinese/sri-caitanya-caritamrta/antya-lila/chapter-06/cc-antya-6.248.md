@@ -8,6 +8,4 @@
 
 *cāri māsa*——四个月；*rahi'*——停留；*bhakta-gaṇa*——所有的奉献者；*gauḍe gelā*——返回孟加拉；*śuni'*——听说；*raghunāthera pitā*——茹阿古纳特·达萨的父亲；*manuṣya*——一个人；*pāṭhāilā*——派出。
 
-**译文**
-
-孟加拉的奉献者们在贾甘纳特·普里（Jagannātha Purī）住了四个月，随后都回家了。茹阿古纳特·达萨（Raghunātha dāsa）的父亲听说他们已经回来，便派了一个人去见希瓦南达·森那（Śivānanda Sena）。
+**孟加拉的奉献者们在贾甘纳特·普里（Jagannātha Purī）住了四个月，随后都回家了。茹阿古纳特·达萨（Raghunātha dāsa）的父亲听说他们已经回来，便派了一个人去见希瓦南达·森那（Śivānanda Sena）。**

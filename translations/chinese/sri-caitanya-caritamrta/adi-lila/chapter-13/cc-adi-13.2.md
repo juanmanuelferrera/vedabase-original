@@ -8,6 +8,4 @@
 
 *jaya jaya*——一切荣耀；*śrī-kṛṣṇa-caitanya*——主室利·采坦尼亚·马哈帕布；*gaura-candra*——主高罗月；*jaya ādvaita-candra*——荣耀归于阿德瓦伊塔阿查里亚；*jaya jaya*——荣耀归于；*nityānanda*——主尼提亚南达·帕布。
 
-**译文**
-
-荣耀归于室利·奎师那·采坦尼亚·马哈帕布！荣耀归于阿德瓦伊塔月（Advaitacandra）！荣耀归于主尼提亚南达·帕布（Nityānanda）！
+**荣耀归于室利·奎师那·采坦尼亚·马哈帕布！荣耀归于阿德瓦伊塔月（Advaitacandra）！荣耀归于主尼提亚南达·帕布（Nityānanda）！**

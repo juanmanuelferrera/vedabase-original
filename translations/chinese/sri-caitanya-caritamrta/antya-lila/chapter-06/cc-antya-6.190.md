@@ -8,6 +8,4 @@
 
 *aṅganete*——在庭院里；*dūre rahi'*——站在远处；*karena praṇipāta*——献上敬礼；*mukunda-datta kahe*——穆昆达·达塔说；*ei*——这位；*āila*——来了；*raghunātha*——茹阿古纳特·达萨。
 
-**译文**
-
-他站在院子里很远的地方，倒身下拜。然后穆昆达·达塔（Mukunda Datta）说道：「这就是茹阿古纳特（Raghunātha）。」
+**他站在院子里很远的地方，倒身下拜。然后穆昆达·达塔（Mukunda Datta）说道：「这就是茹阿古纳特（Raghunātha）。」**

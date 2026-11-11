@@ -8,6 +8,4 @@
 
 *kāṅji-baḍā*——用酸米水做的饼；*dugdha-ciḍā*——拌牛奶的甜米饭；*dugdha-laklakī*——另一种用牛奶和糕饼做成、可以舔食的食品；*āra*——和；*yata*——各种；*piṭhā*——糕饼；*kaila*——做了；*kahite*——描述；*nā śaki*——我无法。
 
-**译文**
-
-有kāṅji-baḍā、dugdha-ciḍā、dugdha-laklakī和各种糕饼，我无法一一描述。
+**有kāṅji-baḍā、dugdha-ciḍā、dugdha-laklakī和各种糕饼，我无法一一描述。**

@@ -8,6 +8,4 @@
 
 *eta śuni'*——听到这些；*prabhu*——室利·采坦尼亚·马哈帕布；*hailā*——变得；*ānandita mana*——心中十分欢喜；*sukha-āviṣṭa hañā*——沉浸在喜悦之中；*svarūpe*——对斯瓦茹帕·达摩达茹·哥斯瓦米；*kailā*——做了；*āliṅgana*——拥抱。
 
-**译文**
-
-听到这些，室利·采坦尼亚·马哈帕布（Śrī Caitanya Mahāprabhu）满心欢喜，沉浸在这份喜悦之中，拥抱了斯瓦茹帕·达摩达茹·哥斯瓦米（Svarūpa Dāmodara Gosvāmī）。
+**听到这些，室利·采坦尼亚·马哈帕布（Śrī Caitanya Mahāprabhu）满心欢喜，沉浸在这份喜悦之中，拥抱了斯瓦茹帕·达摩达茹·哥斯瓦米（Svarūpa Dāmodara Gosvāmī）。**

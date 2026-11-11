@@ -8,11 +8,7 @@
 
 *vācaspati-gṛhe*——在维迪亚-瓦恰斯帕蒂的家；*prabhu*——主；*yemate*——如同；*rahilā*——在那里住了一段时间；*loka-bhiḍa bhaye*——因为害怕人群；*yaiche*——正如；*kuliyā āilā*——祂来到了库利亚，即今天的纳瓦德维帕城。
 
-**译文**
-
-主在维迪亚-瓦恰斯帕蒂家里住了一段时间，但因为人太多，祂就去了库利亚。
-
-要旨
+**主在维迪亚-瓦恰斯帕蒂家里住了一段时间，但因为人太多，祂就去了库利亚。**
 
 维迪亚-瓦恰斯帕蒂的家在维迪亚那加拉，靠近科拉德维帕（Koladvīpa），也就是库利亚。德瓦南达·潘迪特（Devānanda Paṇḍita）就住在这里。这一信息见于《采坦尼亚-博伽瓦特》（《中间篇》第二十一章）。《采坦尼亚-昌德罗达亚-纳塔卡》中对库利亚有如下记述。Tataḥ kumārahaṭṭe śrīvāsa-paṇḍita-vāṭyām abhyāyayau：「从那里，主前往库玛拉哈塔的室利瓦萨·潘迪特的家。」Tato 'dvaita-vāṭīm abhyetya haridāsenābhivanditas tathaiva taraṇī-vartmanā navadvīpasya pāre kuliyā-nāma-grāme mādhava-dāsa-vāṭyām uttīrṇavān. evaṁ sapta-dināni tatra sthitvā punas taṭa-vartmanā eva calitavān：「从室利瓦萨·阿查里亚的家，主去了阿德瓦伊塔·阿查里亚的家，哈里达萨·塔库尔（Haridāsa Ṭhākura）在那里向祂顶礼。然后，主乘船渡到纳瓦德维帕的另一边，一个名叫库利亚的地方，在马达瓦·达萨的家里住了七天。之后，祂沿着恒河岸继续前行。」
 

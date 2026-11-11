@@ -8,6 +8,4 @@
 
 *svayambhu*——斯瓦扬布；*viśrāma*——维什拉玛；*dīrgha-viṣṇu*——迪尔加维施努；*bhūteśvara*——布特希瓦拉；*mahāvidyā*——马哈维迪亚；*gokarṇa*——戈卡尔纳；*ādi*——等等；*dekhilā*——看见；*vistara*——许多。
 
-**译文**
-
-采坦尼亚·马哈帕布游览了亚穆纳河岸所有的圣地，包括斯瓦扬布（Svayambhu）、维什拉玛河坛（Viśrāma-ghāṭa）、迪尔加维施努（Dīrgha Viṣṇu）、布特希瓦拉（Bhūteśvara）、马哈维迪亚（Mahāvidyā）和戈卡尔纳（Gokarṇa）。
+**采坦尼亚·马哈帕布游览了亚穆纳河岸所有的圣地，包括斯瓦扬布（Svayambhu）、维什拉玛河坛（Viśrāma-ghāṭa）、迪尔加维施努（Dīrgha Viṣṇu）、布特希瓦拉（Bhūteśvara）、马哈维迪亚（Mahāvidyā）和戈卡尔纳（Gokarṇa）。**

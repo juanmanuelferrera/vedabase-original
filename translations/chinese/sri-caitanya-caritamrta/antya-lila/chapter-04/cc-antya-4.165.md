@@ -8,6 +8,4 @@
 
 *śuni'*——听到；*mahāprabhu*——室利采坦尼亚·马哈帕布；*kichu*——有些；*lajjita*——惭愧；*hailā*——变得；*mane*——在心中；*tāṅre*——对他；*santoṣite*——为了使满意；*kichu*——一些；*balena*——说了；*vacane*——话语。
 
-**译文**
-
-听到这些，室利采坦尼亚·马哈帕布（Śrī Caitanya Mahāprabhu）有些惭愧。为了让萨纳塔纳·哥斯瓦米（Sanātana Gosvāmī）满意，祂说了下面的话。
+**听到这些，室利采坦尼亚·马哈帕布（Śrī Caitanya Mahāprabhu）有些惭愧。为了让萨纳塔纳·哥斯瓦米（Sanātana Gosvāmī）满意，祂说了下面的话。**

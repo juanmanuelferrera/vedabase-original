@@ -8,6 +8,4 @@
 
 *ṣaṣṭha paricchede*——在第六章；*advaita*——阿德瓦伊塔·阿查里亚的；*tattvera*——真理的；*vicāra*——探讨；*advaita-ācārya*——阿德瓦伊塔帕布；*mahā-viṣṇu-avatāra*——马哈维施努的化身。
 
-**译文**
-
-第六章探讨阿德瓦伊塔·阿查里亚（Advaita Ācārya）的真理。祂是马哈维施努（Mahā-Viṣṇu）的化身。
+**第六章探讨阿德瓦伊塔·阿查里亚（Advaita Ācārya）的真理。祂是马哈维施努（Mahā-Viṣṇu）的化身。**
