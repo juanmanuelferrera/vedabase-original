@@ -40,11 +40,11 @@ Rāma Rāma, Hare Hare
 
 （手写）
 
-<14>你所需要的只有爱（奎师那）。哈瑞波尔（Hari Bol）。
+你所需要的只有爱（奎师那）。哈瑞波尔（Hari Bol）。
 
 乔治·哈里森 1970年3月31日
 
-<10>苹果公司（Apple Corps Ltd），伦敦W1区萨维尔街3号，电话 Gerrard 2771/3993，电传 Apcore London
+苹果公司（Apple Corps Ltd），伦敦W1区萨维尔街3号，电话 Gerrard 2771/3993，电传 Apcore London
 
 版权所有 1970 A.C. 巴克提韦丹塔·斯瓦米
 
