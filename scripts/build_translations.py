@@ -20,7 +20,7 @@ import translation_normalize as N           # synonyms italic + translation bold
 VO   = Path(__file__).resolve().parent.parent              # vedabase-original repo root
 OUT  = Path(os.environ['VB_OUT']) if os.environ.get('VB_OUT') else VO / 'translations'
 ASTRO = Path('/Users/jaganat/git_projects/astro_vedabase')
-LANG_DIR = {'en':'english','es':'espanol','hi':'hindi','pt':'portugues','ru':'russian','bn':'bengali','zh':'chinese'}
+LANG_DIR = {'en':'english','es':'espanol','hi':'hindi','pt':'portugues','ru':'russian','bn':'bengali','zh':'chinese','bul':'bulgarian'}
 
 # ---- English ref -> (relpath, heading_line, mode) map, built by walking the repo ----
 # permissive verse-ref recognition (allows letter-suffix verses 1a/1b and ranges,
@@ -209,7 +209,7 @@ if __name__ == '__main__':
     unmapped = {}
 
     # ---------- translations ----------
-    for lang in [l for l in ('es','hi','pt','ru','bn','zh') if l in os.environ.get('VB_LANGS','es,hi,pt,ru,bn,zh').split(',')]:
+    for lang in [l for l in ('es','hi','pt','ru','bn','zh','bul') if l in os.environ.get('VB_LANGS','es,hi,pt,ru,bn,zh,bul').split(',')]:
         root = dd.TV / dd.LANG_ROOT[lang]
         nmd = njsonl = nun = 0
         for book, tfolder in dd.FOLDER.items():
